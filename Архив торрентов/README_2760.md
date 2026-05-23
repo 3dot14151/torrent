@@ -6,7 +6,7 @@ CheMax Rus (2013) [Ru] (13.8) Cheats
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Framer Studio v73 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440106.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Serial Box 10-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440099.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Pacifist 3.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440095.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Vit Registry Fix Pro 12.6.5 Portable by KloneB@DGuY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440093.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ BurnAware Professional 8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440090.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ EssentialPIM Pro 6.55 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440088.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ HitmanPro 3.7.10 Build 248 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440087.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vit Registry Fix Pro 12.6.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440086.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Merry Meal universal 2.42 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440079.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Extreme Hardstyle Tunez (2015) [MP3|320 кб/с]<Hardstyle, Jumpstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440077.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Aleister X - Half-Speed Mastered (2013) [FLAC|Lossless|tracks + .cue] <Dub>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440041.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Privacy Eraser Free 4.54.0 Build 3211 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440039.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ iA Writer 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440038.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Q-Dir 7.78 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440037.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Smultron 10.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440032.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ekcle - Yoja (2019) Inspected Records [FLAC|Lossless|WEB-DL|tracks] <Experimenta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440024.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440018.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ TapinRadio Pro 2.12.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440017.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Serial 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440009.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Mp3tag 2.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440008.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wise Disk Cleaner 9.7.9.696 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440004.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ File Juicer 4.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439966.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Reg Organizer 8.55 RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439949.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Space Cookies (2016) [MP3|320 Kbps] <Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439939.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Mozilla Firefox 50.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439931.jpg" />
 </div>
 
 

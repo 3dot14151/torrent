@@ -6,7 +6,7 @@ Ventoy 1.0.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195421.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195420.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Brave Browser 1.56.11 Portable by Cento8 + ext [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195414.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Blackmagic Design Fusion Studio 18.5 Build 73 (x64) RePack by AlekseyPopovv [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195410.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Magic Recovery Software 2023.07 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195406.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AOMEI Backupper Technician Plus 7.3.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195400.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Windows 11 (9in1) by Updated Edition (19.07.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195350.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ TweakPower 2.041 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195326.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Hetman Partition Recovery 4.8 Home / Office / Commercial / Unlimited Edition ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195294.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SoftMaker Office Professional 2024 rev. S1202.0723 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195228.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ uTorrent Pro 3.6.0 Build 46846 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195226.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v10 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195221.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Luxion KeyShot Pro 2023.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195219.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Snappy Driver Installer Origin R755 | Драйверпаки 23.07.0 / 23.07.3 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195211.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v10 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195195.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Adguard 7.14.0 (7.14.4316.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195177.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ ADB AppControl 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195171.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Nik Collection by DxO 6.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195161.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ CrystalDiskInfo 9.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195159.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Visual Studio Code 1.80.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195150.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Floorp Browser 10.16.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195146.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ HWiNFO 7.60 Build 5170 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195140.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ SanDisk (Western Digital) SSD Dashboard 3.8.2.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195134.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Maxthon Browser 7.1.6.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195132.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Corona Renderer 10.1 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195119.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Avast Premium Security 23.7.6074 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195072.jpg" />
 </div>
 
 

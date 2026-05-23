@@ -1,55 +1,3 @@
-###  Публикация: 1286432   (712588) от 02.03.2019
-
-Заложница / Taken (2008) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодую девушку похитили во время туристического отдыха. Её отец пускается в опасное приключение-спасение, чтобы вернуть дочь и наказать виновных лично.Производство: Франция, США / All Pictures Media, Canal+ (fr), Europa Corp., Grive Productions, M6, M6 FilmsЖанр: Боевик, триллер, криминалРежиссер: Пьер МорельАктеры: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Оливье Рабурден, Лиленд Орсер, Ксандер Беркли, Холли Вэлэнс, Джон Грайз, Дэвид Уоршофски, Жерар УоткинсПеревод: Дублированный, профессиональный (двуголосый, закадровый), авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (full), английские (full, SDH)Продолжительность: 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB1B5FAC8D0CF9F4F8CA36B08E273FA91E9FAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532687   (712566) от 20.02.2022
-
-Мужество / Courage (1984) BDRip [H.264] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Трое бегунов на длинные дистанции отправляются в то, что кажется самым захватывающим уик-эндом: семидесятидвухмильный пробег по пустыне Нью-Мексико. Всё начинается без происшествий, но вскоре трое натыкаются на ополчение выживальщиков, называющее себя Гражданской бригадой. Они захвачены бригадой, только чтобы быть освобождёнными с предупреждением от лидера, полковника (   Читать дальше...   )Производство: США, Adams Apple Film Company, VTCЖанр: триллерРежиссер: Роберт Л. РозенАктеры: Ронни Кокс, Арт Хиндл, М. Эммет Уолш, Тим Мэйер, Лоис Чайлз, Уильям Расс, Лиза Саттон, Брайан Керри, Джефф Керри, Энтони ПалмерСубтитры: русские, английскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178662C8A6711C7F9672A16486287377317AE50B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 893538   (712561) от 29.04.2015
 
 Голодные игры: Сойка-пересмешница. Часть I / The Hunger Games: Mockingjay - Part 1 (2014) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712561.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712543.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712519.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712495.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712485.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712445.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712405.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712400.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712343.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712339.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712336.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712334.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712329.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712327.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712326.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712283.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712262.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712245.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712185.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712182.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712167.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712106.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ SEX DOLL / Sex Doll (2016) WEB-DL [H.264/720p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712101.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712099.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21E107C8D7243CDCEE27B54AC3C9BF8946750732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130875   (712098) от 03.05.2017
+
+Одаренная / Gifted (2017) WEBRip [H.264/1080p-LQ] [EN / EN, CH Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Адлер живет в прибрежном городке во Флориде и воспитывает в одиночку свою необычайно одаренную племянницу Мэри. Но планы парня о спокойной школьной жизни для девочки рушатся, когда о математических способностях ребенка узнает грозная мать Фрэнка Эвелин. У бабушки свои представления о будущем внучки, и ради этого она готова даже разлучить Мэри с Фрэнком.Производство: США, Dayday Films, FilmNation Entertainment, Fox Searchlight PicturesЖанр: ДрамаРежиссер: Марк УэббАктеры: Крис Эванс, МакКенна Грейс, Линдси Дункан, Дженни Слейт, Октавия Спенсер, Майкл Кендалл Каплан, Джон М. Джексон, Гленн Пламмер, Джон Финн, Элизабет Марвел ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, китайские (неотключаемые)Продолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BD430A480A35D08266E9FD3521FD2CC941BC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130365   (712096) от 03.05.2017
+
+Ровер (Бродяга) / The Rover (2014) BDRip [H.264/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой преследует по дикой австралийской природе банду, угнавшую его автомобиль, и оказывается в ловушке.Производство: Австралия, США, Porchlight Films, Lava Bear Films, Blue-Tongue FilmsЖанр: Криминал, ДрамаРежиссер: Дэвид МишоАктеры: Гай Пирс, Чан Кьень, Роберт Паттинсон, Тек Конг Лим, Скут МакНэйри, Таванда МаниймоПеревод: Авторский, ЛюбительскийСубтитры: Русские, АнглийскиеПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB0DD89369776AD7EC43367A2C97DEB860EE1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

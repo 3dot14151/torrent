@@ -1,30 +1,3 @@
-###  Публикация: 1056420   (245783) от 25.09.2016
-
-Главное. Итоговая программа (25.09.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: Кого мы выбрали? Итоги единого дня голосования в цифрах и лицах – как изменится политический расклад сил в регионах? И как будет выглядеть теперь Госдума? Почему провалилась оппозиция и что ее так разозлило? Зачем либеральные лидеры каждый раз обещают уйти с политической арены после проигрыша, но всё равно остаются?
-Кто станет Президентом Эстонии – лоббист евроинтеграции, (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFD72BB4484077D4433580692FC5B6683AED160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620981   (245748) от 22.03.2023
 
 Белая медведица (Полярный медведь) / Polar Bear (2022) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245748.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245742.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245725.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245672.jpg" />
 </div>
 
 
@@ -140,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Флот
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245648.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245647.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245625.jpg" />
 </div>
 
 
@@ -218,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245624.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245602.jpg" />
 </div>
 
 
@@ -270,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245588.jpg" />
 </div>
 
 
@@ -296,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245569.jpg" />
 </div>
 
 
@@ -322,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245507.jpg" />
 </div>
 
 
@@ -348,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245501.jpg" />
 </div>
 
 
@@ -374,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245459.jpg" />
 </div>
 
 
@@ -400,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245443.jpg" />
 </div>
 
 
@@ -426,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245439.jpg" />
 </div>
 
 
@@ -452,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245396.jpg" />
 </div>
 
 
@@ -478,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245385.jpg" />
 </div>
 
 
@@ -504,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245369.jpg" />
 </div>
 
 
@@ -530,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245368.jpg" />
 </div>
 
 
@@ -556,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245357.jpg" />
 </div>
 
 
@@ -582,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245350.jpg" />
 </div>
 
 
@@ -608,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245295.jpg" />
 </div>
 
 
@@ -634,7 +607,7 @@ RTG. Парки Москвы. Коломенское (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245285.jpg" />
 </div>
 
 
@@ -660,7 +633,7 @@ RTG. Национальная Президентская библиотека (2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245276.jpg" />
 </div>
 
 
@@ -671,6 +644,34 @@ RTG. Национальная Президентская библиотека (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B339A5F4245F7E4E4E3F361A60DCA5BA6E8239A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014399   (245235) от 30.03.2022
+
+Освобождение Европы (2016) HDTV [H.264/1080i] (серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и когда родилась идея о санитарном кордоне вокруг России? Кто на самом деле помогал фашистам и делил Европу?
+
+Мы отправились на самые знаменитые поля сражений, чтобы детально объяснить, как освобождалась Европа. И туда, где писалась новая история: в кабинеты Сталина, Черчилля и Рузвельта. Впервые по недавно рассекреченным документам мы восстановили диалоги вождей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ДокументальныйПродолжительность: серии про ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5511FD960AF3FCCCE3715A25094EA373F21EC72
 ```
 
 https://mybot314.ru/tekegram_catalog/

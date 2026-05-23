@@ -1,55 +1,3 @@
-###  Публикация: 1099930   (903270) от 02.02.2017
-
-В твоих руках / Forbrydelser (2004) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Анна недавно закончила богословский факультет. Она замужем за Франком. Уже несколько лет они безуспешно пытались завести ребенка. Но после того, как Анна принимает предложение временно поработать тюремным капелланом, под попечением которого находится женское отделение, ее жизнь меняется навсегда. В качестве духовного наставника она знакомится с Кейт, которую недавно (   Читать дальше...   )Производство: Дания | Zentropa EntertainmentsЖанр: ДрамаРежиссер: Аннетт К. ОлесенАктеры: Анн Элеонора Ёргенсен, Трине Дюрхольм, Николай Коперникус, Соня Рихтер, Ларс Ранте, Хенрик Прип, Йенс Альбинус, Керстен Олесен, Метте Мунк Плум, Бенедикте ХансенПеревод: Профессиональный многоголосый закадровыйПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59DAD37DF4B7AEEBB55A3189E7DDD5519FCC360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099954   (903239) от 02.02.2017
-
-Ночь страшного суда / Judgment Night (1993) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Иногда судьба может сыграть довольно злую шутку. Четверо друзей, отправляясь на боксерский матч, не могли даже предположить, что такое может с ними случиться. Всему виной проклятая "пробка", в которой застряла их машина. Чтобы не опаздывать, компания решила "срезать" угол и проехать кратчайшим путем через опасный квартал города. И… оказалась не (   Читать дальше...   )Производство: США, Япония / JVC Entertainment, Largo EntertainmentЖанр: Боевик, Драма, Криминал, ТриллерРежиссер: Стивен ХопкинсАктеры: Эмилио Эстевес, Кьюба Гудинг мл., Дэнис Лири, Стивен Дорфф, Джереми Пивен, Питер Грин, Эрик Шроди, Майкл Уайзмен, Майкл ДеЛоренцо, Релиуэс УэббПеревод: Многоголосый, АвторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 01:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2A9AFBD53C6C8754F8DD25F5CB559EAAD275E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369020   (903237) от 23.03.2020
 
 Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903237.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903220.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903194.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903151.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903118.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903092.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903075.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903067.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903064.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903061.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903057.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903040.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903039.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903033.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903031.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903023.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903019.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902977.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902961.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902958.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902957.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902946.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902933.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902929.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E11A72C8D08A152C36123F4C89ACB539EF37A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369359   (902910) от 23.03.2020
+
+Человек-невидимка / The Invisible Man (2020) WEBRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902910.jpg" />
+</div>
+
+
+###  Подробнее
+
+На первый взгляд жизнь Сесилии кажется безупречной: огромный дом, бойфренд — гениальный ученый-миллионер. Но никто не знает, что на самом деле происходит за высокими стенами роскошного особняка. И даже идеально спланированный побег оказывается ловушкой. Невозможно спрятаться от преследователя, которого не видишь.Производство: Австралия, США, Канада, Великобритания | Goalpost Pictures, ...Жанр: Ужасы, фантастика, триллер, детективРежиссер: Ли УоннеллАктеры: Элизабет Мосс, Оливер Джексон-Коэн, Харриет Дайер, Элдис Ходж, Сторм Рейд, Майкл Дорман, Бенедикт Харди, Рени Лим, Брайан Миган, Ник КисиПеревод: Любительский многоголосый (Mallorn)Субтитры: Русские (Forced, Full), английские (Full)Продолжительность: 02:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8751DE1B3CB38DBD9808127B5DA33512D619D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368887   (902906) от 23.03.2020
+
+За деревьями / Behind the Trees (2019) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое американцев проводят романтический отпуск в индийской глуши, где случайно становятся свидетелями изгнания демонов из тела 11-летней девочки. Пара решает спасти ребёнка от пугающего ритуала, не зная, что благородный поступок может дорого им обойтись.Производство: США / Rania Sky StudiosЖанр: Ужасы, Триллер, ДетективРежиссер: Vikram JayakumarАктеры: Ванесса Керри, Сахил Шрофф, Субрат Дутта, Tvisha Seema, Tanvi Shinde, Аппорва Арора, Mohit Hiranandani, Abheer Meherish, Rhea Harwani, Rajesh AryaПеревод: Многоголосый профессиональный (Line)Субтитры: Английские (hardsub на Хинди)Продолжительность: 01:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E1741654873024B69633F85161C9C2505DCAA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

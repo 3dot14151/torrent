@@ -6,7 +6,7 @@ VA - 100 Cardio Dance Control Hits (2017) [MP3|269-320 Kbps] <Funky, Tropical, P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640909.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Новая Русская Дискотека Vol.9 (2017) [MP3|256-320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640799.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Сборник медленных хитов Vol.8 (2012) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640732.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Exotic Disco Dance (2019) [MP3|320 Kbps] <Electronic, Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640493.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Funky Club House XS (2016) [MP3|245-320 Kbps] <Club, Funky House, Electro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640193.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Planeta Mix Hits 2016 - Summer Edition (2016) [MP3|320 Kbps] <Funky, Progre
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640112.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - The Official UK Top 40 Singles Chart - 8th July (2016) [MP3|263-320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639876.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Fusion Beach Club: Summer Opening Party (2017) [MP3|320 Kbps] <Club, Electr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639457.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Top 100 Самые скачиваемые треки vol. 6 (2012) [MP3|128
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639247.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Beatport TOP 100 Downloads May (2012) [MP3|320 кб/с]<Progressive House, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639127.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - New Music Releases Week 13 (2019) [MP3|320 Kbps] <Pop, Hip Hop, RnB, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639073.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Самые Скачиваемые Треки ВКонтакте Весна 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638919.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Top 50 В Машину! От Радио Record Зарубежный (2012) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638871.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Зайцев.Нет - Лучшие Новинки Июня 2017 [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638802.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.82
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638710.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Kiss FM Top 40: Июнь (2017) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638441.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Tony Esposito - Super Hits Collection (2015) [MP3|320 кб/с]<Pop, Jazz Fusion,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637806.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Hardstyle Dance Party (2019) [MP3|320 Kbps] <Hard Dance, Electro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637569.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Empire Records - Retromania 3 (2017) [MP3|320 Kbps] <Nu Disco, Deep House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637467.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Blues & Rock Ballads (2012) [MP3|320 кб/с]<Blues, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637348.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - The Best of 1980-1990 (20CD) (1990 - 1998) [MP3|320 кб/с]<Pop, Pop Rock,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636909.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Kizomba Sexy Hits (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636139.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Kizomba Sexy Hits Vol 2 (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636136.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ VA - Billboard Hot 100 Singles Chart 20th June (2015) [MP3|128-320 кб/с]<Hip-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636063.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ VA - Club Of Fans Dance Vol.4 (2015) [MP3|320 кб/с]<House, Trap, EDM, Electro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636047.jpg" />
 </div>
 
 
@@ -767,7 +767,7 @@ VA - ЕвроХит Топ 40 Europa Plus 01.06.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635821.jpg" />
 </div>
 
 

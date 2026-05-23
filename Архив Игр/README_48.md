@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478350.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dear Esther / Дорогая Эстер [Ru/En] (Lossless Repack/1.0r14) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478220.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478052.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Mass Effect Трилогия [Ru] (RePack) 2008-2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477813.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Freelancer [Ru/En] (L) 2003
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476593.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | Sas
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475554.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Counter Strike 1.6 [Ru/En] (No-Steam) 2012 | keepe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475418.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PAYDAY: The Heist (2011) [Ru/En] (1.21.0/dlc) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474921.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Better Late Than DEAD (2015) [Ru/Multi] (0.12.0 Alpha) Repack Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474724.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Craft of Gods / Ремесло богов (L) [Multi4+] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474689.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sanctum: Collection [Ru] (RePack/1.4.16365/8 DLC) 2011 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473631.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Darksiders 2: Death Lives [Ru/En] (Repack/u3) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473452.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Turmoil (2016) [En/Multi] (1.0/u30) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472507.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Reigns (2016) [Ru/Multi] (1.23/dlc) License GOG [Collector's Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472484.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Long Dark  (2014) [Ru/Multi] (365) Repack Ученик_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472385.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Free Running [English] [PAL] (2009) [Wii]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471517.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru] (RePack) 2011 | R.G. W
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471256.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Alan Wake Дилогия [Ru/En] (Repack) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471100.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Black Mesa [Ru/En] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471077.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Dark Sector [Ru] (LossLess RePack) 2009 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470935.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Twisted Metal [PS3] [ENG] [NTSC] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470923.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ SCP - Containment Breach [En] (RePack/0.3) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470907.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ MotoGP 15 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470737.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Dark Souls: Prepare To Die Edition [Ru/En] (Repack/1.0.0.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468545.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Invisible, Inc. (2015) [Ru/En] (173288/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467991.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Du Super Wario Bros [English] (2011) [Wii]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466577.jpg" />
 </div>
 
 

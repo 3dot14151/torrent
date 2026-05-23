@@ -1,55 +1,3 @@
-###  Публикация: 1641136   (196796) от 21.06.2023
-
-Беглец / Kandahar (2023) WEB-DL [H.265/1080p] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Сотрудник ЦРУ Том Харрис провалил свою миссию, и его личность была раскрыта. Теперь агенту предстоит бежать из Афганистана. Его преследуют лучшие наемники мира и элитный спецназ противника. Добраться в Кандагар — единственный шанс на спасение.Производство: США / Capstone Studios, G-BASE, MBC StudiosЖанр: боевик, триллерРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Навид Негабан, Трэвис Фиммел, Бахадор Фолади, Али Фазал, Том Рис Харрис, Фархад Багери, Митчелл ЛаФорчун, Марк Арнольд, Нина Туссен-ВайтПеревод: Многоголосый профессиональный (HDRezka Studio, Jaskier)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E34551164EF6BF82A7CF014CF416E34211C66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641142   (196779) от 21.06.2023
-
-Девушка в окне / Girl at the Window (2022) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Девушка-подросток Эми изо всех сил старается пережить смерть отца. Она подозревает, что загадочный неуловимый убийца, держащий в страхе весь город, и главный виновник семейного несчастья — их сосед Крис. И недавно он начал встречаться с её матерью. Теперь Эми должна убедиться в своих предположениях, чего бы ей это не стоило.Производство: Австралия / F.G. Film Productions, Film VictoriaЖанр: ТриллерРежиссер: Марк ХартлиАктеры: Элла Ньютон, Рада Митчелл, Винс Колосимо, Карис Ока, Джеймс Маккэй, Эндрю С. Гилберт, Джексон Галлахер, Шэрон Джоал, Лачи Миллар, Симона БьюкэнэнПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E369F3158A697E63FB03A46ECA66D692D8172C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641328   (196777) от 21.06.2023
 
 Переводчик / The Covenant (2022) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196777.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196776.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196771.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196751.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196735.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196734.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196727.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196712.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196700.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196695.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196694.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196690.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196685.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196684.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196682.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196673.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196653.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196652.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196645.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196636.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196613.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196612.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196611.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196606.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19F16AFF107FB995C7CDFE5BDE28189AB5005618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642125   (196588) от 26.06.2023
+
+Остров иллюзий / Influencer (2022) WEB-DL [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэдисон живет социальными сетями: она блогер и инфлюэнсер, который выставляет свою жизнь напоказ. Однажды она решает отправиться в Таиланд, где знакомится с другой загадочной девушкой, путешествующей по миру в одиночестве и налегке. Вместе они отправляются на живописные пустынные острова, где обе открываются с мрачной и зловещей стороны.Производство: США / Octane Entertainment, SuperchillЖанр: триллерРежиссер: Кертис Дэвид ХардерАктеры: Кассандра Нод, Эмили Теннант, Рори Дж. Сапер, Джастин Сэмс, Пол Спурье, Сара КаннингПеревод: Дублированный (Велес), многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8AAC5629B2C228F6039DB80E045E539E52EC048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642188   (196580) от 26.06.2023
+
+Лесной разбойник / Der Rauber Hotzenplotz / The Robber Hotzenplotz (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда печально известный грабитель Хотценплотц покидает свое убежище в лесу, чтобы украсть любимую музыкальную кофемолку, принадлежавшую бабушке Касперла, неуклюжий сержант городской полиции мало чем может помочь в его аресте. Молодой Касперл и его друг Сеппель решают, что сами выследят вора, но остановить его будет непросто — особенно когда в Хотценплоц замешан (   Читать дальше...   )Производство: Германия, Швейцария, Claussen Wöbke Putz Filmproduktion, Zodiac Pictures, Studiocanal FilmЖанр: фэнтези, комедия, криминал, приключения, семейныйРежиссер: Михаэль КрумменахерАктеры: Николас Офчарек, Аугуст Диль, Кристиана Пауль, Олли Диттрих, Ханс Марквардт, Бенедикт Йенке, Хеди Кригескотте, Максимилиан Герлингер, Катя Пройс, Луна ВедлерПеревод: Дублированный (Позитив)Язык озвучки: русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB77DF6422CBA97B8B503452A2DB8C8ED33F16A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

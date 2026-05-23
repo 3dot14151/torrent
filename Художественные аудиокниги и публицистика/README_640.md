@@ -1,83 +1,3 @@
-###  Публикация: 846593   (302091) от 02.12.2014
-
-Зоя Чернышева | Вызываю бабушку [Радиоспектакль] (1989) [MP3, Любовь Стриженова и др.]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В семье Носовых раздор: муж купил старую машину и, забыв обо всем, занялся ремонтом. Жена сердится на мужа, хотя сама, занята только своей диссертацией. Развод неминуем, и тогда дочь вызывает на помощь бабушку...Жанр: КомедияПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDC8207512D557D6292B6AE5C3B1C480E3E81D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423267   (301725) от 12.11.2020
-
-Дмитрий Черепанов | Собиратель. Книга 3 (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По завершении загрузки Максим оказывается в странном месте – прибежище сошедших с ума искинов, торговцев контрабандой и просто отчаянных и отчаявшихся игроков. Но для Максима это тюрьма, из которой он пытается выбраться. Обретая необычных друзей, и ещё более необычных врагов, став настоящим антигероем. Жестоко издеваясь на ним, новое место испытывает решимость Максима: (   Читать дальше...   )Жанр: Боевая фантастика, Киберпанк, LitRPGПродолжительность: 08:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B9275E02594F8DFAC110CFCEC61C1BA9F81A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333709   (301453) от 26.10.2019
-
-Даниил Данин | Дневник одного года, или Монолог-67 (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Данин Даниил Семёнович (настоящая фамилия Плотке; 28 февраля (10 марта) 1914, Вильно (Вильнюс) — 14 марта 2000, Москва) — прозаик, сценарист, литературный критик, популяризатор науки.
-Учился на химическом факультете, затем физическом факультете МГУ имени М. В. Ломоносова (окончил в 1936 году).
-Окончил Литературный институт им. А.М. Горького в 1941 году и в том же (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9DE6BEFD43007B4CD4DE13C8DFBA1BDBF287A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333703   (301358) от 26.10.2019
 
 Марк Леви | Влюбленный призрак (2019) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301358.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301357.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301296.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301282.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301273.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301259.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301243.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301192.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301169.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301097.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301077.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301071.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301069.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301061.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300998.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300970.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300957.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300949.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300900.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300899.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300864.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300848.jpg" />
 </div>
 
 
@@ -664,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300845.jpg" />
 </div>
 
 
@@ -675,6 +595,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9FE78290656555499359243B54F1156F2DD5EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184293   (300844) от 17.11.2017
+
+Джон Фланаган | Руины Горлана (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилл – пятнадцатилетний подкидыш, который гордится тем, что его отец был могучим воином и много лет назад погиб в бою. Только Уилла могучим уж никак не назовешь – невысокого роста, слишком слабый для своего возраста, он с нетерпением и страхом ожидает Дня Выбора, ведь в этот день решится, каким делом он будет заниматься всю жизнь. Чтобы почтить память отца, он мечтает (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 06:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BB0632294A49470CD75A1EDAEFC9DB61EFC4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261600   (300745) от 12.11.2018
+
+Аркадий и Борис Стругацкие | Страшная большая планета (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300745.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокнигу «Страшная большая планета» включены три произведения, написанные братьями Стругацкими и объединённые темой космоса. «Страшная большая планета» – незаконченная повесть Аркадия Стругацкого. Звездолёт К-16, следовавший на планетографическую станцию «Юпитер-1», столкнулся с метеоритом. Топлива практически не осталось, и корабль неотвратимо падал на Юпитер. (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 02:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1CEB70725A595AE191547CF59504DBD3D3DFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077908   (300700) от 01.12.2016
+
+Наталья Громова | Скатерть Лидии Либединской (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лидия Либединская (1921–2006) — прозаик, литературовед; урожденная Толстая, дочь поэтессы Татьяны Вечорки, автор книги воспоминаний «Зеленая лампа».
+Всю жизнь Лидия Либединская притягивала незаурядных людей, за столом ее гостеприимного дома собирался цвет нашей культуры: Корней Чуковский, Виктор Драгунский, Давид Самойлов, Семен Липкин, Булат Окуджава, Каверины, (   Читать дальше...   )Жанр: Культурология Биографии и МемуарыПродолжительность: 10:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F962A284D6F0064521FDBD27E3FAC1C4EB6779C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

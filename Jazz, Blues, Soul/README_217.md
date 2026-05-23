@@ -6,7 +6,7 @@ Al Di Meola - Elysium (2015) [MP3|320 кб/с]<Jazz Fusion>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626119.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The World of Neo Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626101.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Melvin Rhyne - Stick To The Kick (1995) Criss Cross Jazz [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626092.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Johnny Hartman - The Tokyo Albums (1972) 2005, Gambit Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626065.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jamie Saft, Steve Swallow, Bobby Previte - Loneliness Road (2017) RareNoiseRecor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626062.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Annika Andersson & The Boiling Blues Band - Reborn (2019) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625978.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sylvain Beuf - Time Feel (2021) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625960.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stanley Turrentine - The Blue Note Stanley Turrentine Quintet & Sextet Studio Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625949.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ L. Subramaniam - Fantasy Without Limits (1980) Remaster, 1985, Trend [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625938.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jimmy Smith - Peter & The Wolf (1966) Remaster, 1999, Verve Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625936.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625850.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Welshly Arms - Covers (2014) EP [MP3|320 Kbps] <Blues Rock, Blues, Covers>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625646.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Welshly Arms - Welcome (2013) EP [MP3|320 Kbps] <Blues Rock, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625516.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625233.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Blinddog Smokin - Start Packin' (1999) [MP3|~256 кб/с ]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625228.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Down Home Blues Classics: Memphis & The South 1949-1954 (2007) 2CD [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625225.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625224.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Down Home Blues Classics: New York & The East Coast States (1943-1953) 2CD 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625159.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Down Home Blues Classics 1943-1953 (2004) 4CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625156.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Down Home Blues Classics: California & The West Coast 1948-1954 (2007) 2CD 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625155.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Down Home Blues Classics Chicago 1946-1954 (2005) 4CD [MP3|320 кб/с]<Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625149.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Chris Watson Band - Pleasure and Pain (2012) [APE|Lossless]<Blues, Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625046.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625044.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Blue Knights - Night Talk (2000) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625031.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ Mount Everest Trio - Waves from Albert Ayler (1977) Unheard Music[APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624773.jpg" />
 </div>
 
 
@@ -790,7 +790,7 @@ Noora Noor - Soul Deep (2009) [FLAC|Lossless|image + .cue] <Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624664.jpg" />
 </div>
 
 

@@ -1,59 +1,3 @@
-###  Публикация: 539218   (506518) от 26.08.2012
-
-Пришельцы в Америке / Just Visiting (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новая уморительная комедия о приключениях средневекового рыцаря и его слуги, попавших из XII века в наше время. В голливудской версии знакомые герои из французской комедии «Коридоры времени» граф Тибо и его слуга Андре из-за ошибки мага попадают в современный Чикаго.
-
-Там они встречают прапраправнучку Тибо Джулию, и она помогает им вернуться из сумасшедшего XXI века в свое время. Чужие в мире машин и компьютеров, Тибо и Андре производят маленький переполох в большом городе.Жанр: Комедия, ФэнтезиРежиссер: Жан-Мари ПуареАктеры: Жан Рено, Малкольм МакДауэлл, Кристина Эпплгейт, Тара Рейд, Кристиан Клавье, Билл Бэйли, Мэтт Росс, Бриджит Уилсон, Роберт Гленистер, Ричард Бреммер, Джордж Плимптон, Сара Бэдел, Клер Уэлш, Kendra Torgan, Люси Блэр, William Bookston, Валери Гриффитс, Даг БарронПеревод: ДублированныйПродолжительность: 01:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04E1691FAD920363146C86B87BAE098936D872A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539456   (506458) от 26.08.2012
-
-Школа рока / The School of Rock (2003) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После нескольких лет подъема блестящая карьера рок-звезды Дьюи Финна заканчивается полным провалом. Все, что его теперь ждет, это неоплаченные долги и тяжелая депрессия. Но, перехватив не предназначавшийся ему телефонный звонок и придя в изумление от зарплаты (650 долларов в неделю), Дьюи устраивается работать в частную школу.
-
-Его отношение к музыке и детям творит там чудеса, и вскоре появляется возможность начать звездную карьеру заново. Нужно только выиграть конкурс лучших рок-групп — и все проблемы легко разрешатся. Дьюи полон оптимизма, ведь вместе с ним его новый друг — девятилетний Зак, виртуозно играющий на гитаре!Жанр: Комедия, МузыкаРежиссер: Ричард ЛинклейтерАктеры: Джек Блэк, Адам Паскаль, Крис Стэк, Сара Силверман, Майк Уайт, Лукас Бабин, Джоан Кьюсак, Джордан-Клэр Грин, Вероника АффлербахПеревод: ДублированныйПродолжительность: 01:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E3F13AD737DCA265A4E7C369A6398E4EE28715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539354   (506400) от 26.08.2012
 
 Клаустрофобия / Claustrofobia (2011) HDRip
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506400.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506360.jpg" />
 </div>
 
 
@@ -116,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506356.jpg" />
 </div>
 
 
@@ -143,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506349.jpg" />
 </div>
 
 
@@ -169,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506348.jpg" />
 </div>
 
 
@@ -195,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506337.jpg" />
 </div>
 
 
@@ -221,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506292.jpg" />
 </div>
 
 
@@ -247,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506278.jpg" />
 </div>
 
 
@@ -273,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506274.jpg" />
 </div>
 
 
@@ -299,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506273.jpg" />
 </div>
 
 
@@ -325,7 +269,7 @@ Half-Life: Побег из Сити 17 часть 1, 2 / Half-Life: Escape from 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506170.jpg" />
 </div>
 
 
@@ -351,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506153.jpg" />
 </div>
 
 
@@ -377,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506121.jpg" />
 </div>
 
 
@@ -403,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506119.jpg" />
 </div>
 
 
@@ -429,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506013.jpg" />
 </div>
 
 
@@ -455,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506004.jpg" />
 </div>
 
 
@@ -481,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505958.jpg" />
 </div>
 
 
@@ -507,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505955.jpg" />
 </div>
 
 
@@ -534,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505949.jpg" />
 </div>
 
 
@@ -560,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505947.jpg" />
 </div>
 
 
@@ -586,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505941.jpg" />
 </div>
 
 
@@ -612,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505939.jpg" />
 </div>
 
 
@@ -638,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505900.jpg" />
 </div>
 
 
@@ -665,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505898.jpg" />
 </div>
 
 
@@ -676,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:962B9FE46899D31F2749F7EE0CF6C8C03918ECB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563149   (505891) от 12.07.2022
+
+Стиратель: Возрождение / Eraser: Reborn (2022) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маршал США Мейсон Поллард специализируется на фальшивых смертях свидетелей, не оставляющих следов их существования. Получив очередное задание "стереть" жену погибшего главы преступного синдиката, он сам оказывается целью международных убийц и жертвой двойной игры.Производство: США / Warner Bros. Home Entertainment GroupЖанр: БоевикРежиссер: Джон ПогАктеры: Доминик Шервуд, Джеки Лаи, МакКинли Белчер III, Эдди Рамос, Мамфо Брешия, Soyama Mbashe, Brandon October, Кай Люк Бруммер, Тамер Барджаг, Нэйтан КастлПеревод: Любительский многоголосый (GoLTFilm)Субтитры: Русские (Forced), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA96C644D4469CC3A547DC706BFE2DD0F0CC7E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563109   (505890) от 12.07.2022
+
+Брайан и Чарльз / Brian and Charles (2022) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксцентричный изобретатель Брайан живет в одиночестве в валлийской деревушке. Он изобретает невероятные приспособления, которые редко работают. Но однажды Брайан находит голову манекена и изобретает Чарльза. Робот, собранный из запчастей от разных устройств, учит английский по словарю, чтобы быть достойным собеседником для Брайана. Вскоре Чарльз эволюционирует и (   Читать дальше...   )Производство: Великобритания / Bankside Films, BFI Films, Film4Жанр: комедияРежиссер: Jim ArcherАктеры: Дэвид Эрл, Chris Hayward, Луиза Брили, Джэми Мичи, Нина Сосанья, Линн Хантер, Лори Иззард, Кара Чейз, Sunil Patel, Риши НэйрПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10EAA0D515B32E1BED29EBA77682867EB789CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

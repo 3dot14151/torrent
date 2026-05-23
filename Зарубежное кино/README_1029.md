@@ -1,55 +1,3 @@
-###  Публикация: 1305415   (556891) от 30.05.2019
-
-Ведьма Лапласа / Rapurasu no majo (2018) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Двух, казалось бы, несвязанных между собой людей находят умершими от отравления сероводородом. Приглашённый эксперт, профессор геологии Сюнсукэ Аои, считает, что это несчастные случаи, вероятность повторения которых ничтожно мала. Полицейский детектив из Токио находит связь между погибшими, и никак не может понять способ совершения убийств, если они всё-таки имели (   Читать дальше...   )Производство: Япония / Oriental Light and Magic (OLM), Rakueisha, Toho PicturesЖанр: Детектив, криминал, фантастикаРежиссер: Такаси МиикеАктеры: Сё Сакурай, Судзу Хиросэ, Сота Фукуси, Рэи Дан, Рири Фрэнки, Тао Окамото, Эрико Сато, Мираи Сида, Масанобу Такасима, Хироси ТамакиПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AE94C9AC71A877EB568449E3401BA81AE733AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153471   (556886) от 28.07.2017
-
-Чистка до блеска / Sunshine Cleaning (2008) HDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Чистка до блеска» — это название фирмы по уборке особо грязных мест преступлений, которую открывают две разнохарактерных сестры Роуз и Нора Лорковски. И всё ради того, чтобы отправить сына одной из них в частную школу.Производство: США / Back Lot Pictures, Big Beach FilmsЖанр: ДрамаРежиссер: Кристин ДжэффсАктеры: Эми Адамс, Эмили Блант, Алан Аркин, Джейсон Спивак, Стив Зан, Мэри Линн Райскаб, Клифтон Коллинз мл., Эрик Кристиан Олсен, Пол Дули, Кевин ЧэпменПеревод: Любительский одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EB462F2C860B6DCFCDCF75065642E9EFDC30DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556768   (556869) от 11.06.2022
 
 Аллея кошмаров / Nightmare Alley (2021) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556869.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556829.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556827.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556822.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556787.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556756.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556752.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556726.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556715.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556706.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556703.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556669.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556668.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556663.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556660.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556653.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556639.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556629.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556624.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556622.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556621.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556549.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556534.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556531.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9238E85587AEFEB8B243599016A5745ADF348BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235967   (556530) от 14.07.2018
+
+Рэмпейдж / Rampage (2018) BDRemux [3D/2D] [H.264/1080p] [ISO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приматолог Дэвис Окойи предпочитает держаться подальше от людей и дружит с Джорджем, удивительно умным альфа-самцом - гориллой, которого он воспитывал с самого рождения. Но вышедший из-под контроля генетический эксперимент превращает послушную обезьяну в яростного монстра. Более того, вскоре обнаруживается, что существуют и другие модифицированные хищники. Пока свежесозданные (   Читать дальше...   )Производство: США / New Line CinemaЖанр: Фантастика, боевик, приключенияРежиссер: Брэд ПейтонАктеры: Дуэйн Джонсон, Джеффри Дин Морган, Малин Акерман, Джо Манганьелло, Марли Шелтон, Уилл Юн Ли, Наоми Харрис, Джек Куэйд, Джейк Лэси, Бриэнн ХиллПеревод: Дублированный (BD CEE)Субтитры: Русский (форс., полные), АнглийскийПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE20E3AB871E7D28E3232525467FB9B1CF5FFFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367878   (556525) от 14.07.2018
+
+В петле / In the Loop (2009) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть ли новой войне на Ближнем Востоке? Военная и антивоенная фракции в высших эшелонах британской и американской политики пытаются повернуть события в свою пользу и от того, встретятся ли нужные люди в тиши кабинетов и переспит ли девушка-практикантка с правильным человеком зависит — полетят ли бомбы.Производство: Великобритания, BBC Films, UK Film Council, Aramid Entertainment FundЖанр: Комедия, политическая сатираРежиссер: Армандо ИаннуччиАктеры: Питер Капальди, Гарри Хадден-Патон, Саманта Харингтон, Джина МакКи, Том Холландер, Оливия Пуле, Крис Эддисон, Джеймс Смит, Зэк Вудс, Мими КеннедиПеревод: Многоголосый закадровый, Авторский одноголосый закадровыйСубтитры: Russian, EnglishПродолжительность: 01:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347715149909B15BDEEAADA7CE260B364218B5BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1314785   (517142) от 16.07.2019
-
-Аполлон 8. Миссия, которая изменила мир / Apollo 8: The Mission That Changed The World (2018) HDTVRip
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Старт «Аполлона-8» с астронавтами Фрэнком Борманом, Джеймсом Ловеллом и Уильямом Андерсом на борту состоялся 21 декабря 1968 года. Это был первый пилотируемый старт трёхступенчатой ракеты-носителя «Сатурн-5». Полёт к Луне продолжался менее трёх суток, 66 часов 16 минут и 21,79 секунды. Корабль вышел на окололунную орбиту, 24 декабря и оставался на ней в течение 20 (   Читать дальше...   )Производство: Великобритания, Touchdown FilmsЖанр: Документальный, космос, историяПеревод: Одноголосый профессиональныйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3E3DB113B7DC5EDFE8853AA7C6A3EBFA707EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314783   (517134) от 16.07.2019
 
 Аполлон 8. Миссия, которая изменила мир / Apollo 8: The Mission That Changed The World (2018) HDTVRip [H.264/720p-LQ]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517134.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517096.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517090.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517088.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516992.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516953.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516952.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516794.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516789.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516686.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516660.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516655.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516648.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516570.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516394.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516355.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516262.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516261.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515991.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ NG: Аполлон 8. Миссия, которая изменила мир / Apo
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515974.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515969.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515883.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515757.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515622.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515621.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1077225BF3E7B6831765C37AA07C3012A90EC92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561409   (515590) от 04.07.2022
+
+Как река становится морем. Амазонка / Au Bout c'est la Mer. L'Amazone (2019) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа отправляется в своё очередное путешествие по величайшим водным артериям планеты, в этот раз великая АмазонкаПроизводство: Франция, France television, Step by Step producionЖанр: документальный, познавательный, путешествияРежиссер: Николя БоероПеревод: двуголосый профессиональный (SDI Media)Субтитры: русские (Teletext Subtitle)Продолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F18A28312C56E55DEB1F01D2B4E342A21A60925
 ```
 
 https://mybot314.ru/tekegram_catalog/

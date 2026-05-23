@@ -1,57 +1,3 @@
-###  Публикация: 1516519   (166186) от 11.12.2021
-
-Натали Дженнер | Общество Джейн Остен (2021) [MP3, Юрий Красиков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Финалист премий Goodreads и Amazon в жанре «историческая проза»! Дебютный роман Натали Дженнер – великолепный подарок для всех поклонников Джейн Остен.
-В послевоенном английском захолустье пересекаются судьбы совершенно разных людей. Простой рабочий, молодая вдова, местный врач, юрист и кинозвезда…
-Как забыть то, что они пережили? Что способно залечить раны и наполнить (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 09:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB3F072F0CDAEEBC690A8EF9355F81E2157D10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597485   (165775) от 15.12.2022
-
-Виктор Суворов | Жар-птица (Книга 2). Контроль (2019) [MP3, Алексей Ильин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Остросюжетный исторический роман Виктора Суворова «Контроль», ставший продолжением повести «Змееед» и приквелом романа «Выбор», рассказывает о борьбе за власть, интригах и заговорах в высшем руководстве СССР накануне Второй мировой войны. Автор ярко и обстоятельно воссоздает психологическую атмосферу в советском обществе 1938–1939 годов, когда Сталин, воплощая в (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 11:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D7D9D112187ABC9953E3434ACF0074476A44AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597487   (165754) от 15.12.2022
 
 Виктор Суворов | Жар-птица (Книга 3). Выбор (2019) [MP3, Алексей Ильин]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165754.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165668.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165621.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165014.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164405.jpg" />
 </div>
 
 
@@ -193,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164382.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164291.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164240.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163568.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163478.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163472.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163429.jpg" />
 </div>
 
 
@@ -379,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162891.jpg" />
 </div>
 
 
@@ -405,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162868.jpg" />
 </div>
 
 
@@ -432,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162847.jpg" />
 </div>
 
 
@@ -458,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162839.jpg" />
 </div>
 
 
@@ -484,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162764.jpg" />
 </div>
 
 
@@ -511,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162742.jpg" />
 </div>
 
 
@@ -539,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162349.jpg" />
 </div>
 
 
@@ -566,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162071.jpg" />
 </div>
 
 
@@ -592,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162039.jpg" />
 </div>
 
 
@@ -619,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162013.jpg" />
 </div>
 
 
@@ -646,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161941.jpg" />
 </div>
 
 
@@ -674,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161879.jpg" />
 </div>
 
 
@@ -687,6 +633,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EBFF2E52E7B553723863F16017CB6400847A9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675017   (160627) от 07.11.2023
+
+Артуро Перес-Реверте | Учитель фехтования (2013) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артуро Перес-Реверте – современный испанский писатель, романы которого, написанные в жанре интеллектуального детектива, принесли ему мировую известность.
+В Романе «Учителя фехтования» автор описывает жизнь в Испании XIX века. Какова цена чести? Как выжить в эпоху, раздираемую революциями и политическими дрязгами? Мир, где остались только человеческая подлость и предательство, (   Читать дальше...   )Жанр: Зарубежная литература, исторические приключения, детектив, романИздательство: Нигде не купишьПродолжительность: 11:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17EB49CA4FD142D57A0508B9DBEFF0C60A5D06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 323058   (160515) от 07.11.2023
+
+Артуро Перес-Реверте | Кожа для барабана, или Севильское причастие (2004) [MP3, Ирина Воробьёва]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артуро Перес-Реверте – современный испанский писатель, романы которого, написанные в жанре интеллектуального детектива, принесли ему мировую известность. Созданные в последнее десятилетие XX века, они уже завоевали сердца миллионов читателей. Талантливый прозаик, блестящий знаток истории и искусства, мастер детективной интриги, Перес-Реверте постоянно подбрасывает (   Читать дальше...   )Жанр: Зарубежная литература, детектив, исторический романИздательство: Нигде не купишьПродолжительность: 20:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E0BBA65EB21B2F413F6BBA9BA89EEF0C7607EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

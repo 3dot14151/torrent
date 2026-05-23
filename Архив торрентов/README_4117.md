@@ -6,7 +6,7 @@ JetBrains DataSpell for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171214.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171213.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ O&O DiskImage Professional 18.4 Build 335 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171211.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lucky Patcher 10.9.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171207.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HWiNFO 7.65 Build 5250 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171206.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Capture One 23 Enterprise 16.3.0.76 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171199.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Icecream PDF Editor Pro 3.1.2  Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171197.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ K-Lite Codec Pack Update 17.8.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171196.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171195.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Alfred PowerPack 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171194.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ R-Wipe & Clean 20.0.2427 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171192.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ O&O Defrag Professional + Server 27.0 Build 8046 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171188.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DxO PureRAW 3 for Mac v.3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171187.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Duolingo: изучай языки 5.125.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171185.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ O&O Defrag Professional 27.0 Build 8046 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171180.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.41
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171177.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft .NET 7.0.13 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171174.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Microsoft .NET 6.0.24 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171171.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Topaz Video AI 4.0.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171170.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ DVDFab StreamFab 6.1.4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171169.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ ApowerREC 1.6.7.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171168.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Alt SwitchER 21.3 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171166.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Opera One 104.0.4944.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171162.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Capture One 23 Pro 16.3.0.76 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171159.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Aiseesoft FoneLab for Android 5.0.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171157.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Google Chrome 118.0.5993.118 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171156.jpg" />
 </div>
 
 

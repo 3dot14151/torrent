@@ -6,7 +6,7 @@ Brunettes Shoot Blondes - Bittersweet (2015) [MP3|320 кб/с] <Alternative, Ind
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980694.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Baroness - Purple (2015) [MP3|320 кб/с] <Sludge Metal, Alternative Metal, Pro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979257.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Schwarze Welle: Dark Season (2013) [MP3|320 кб/с]< Alternative Rock, Got
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979168.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ensemble Of Christ The Saviour & Crude Mother Earth - Your Knife Will Show (2019
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977847.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gorillaz - Song Machine Episode 1 (2020) Single [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977747.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nick Cave and the Bad Seeds - Push The Sky Away (2013) [MP3|320 кб/с]<Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977262.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Green Day - Father of All Motherfuckers (2020) [MP3|320 Kbps] <Alternative Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975379.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974335.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BAdbAN - 700 BEERS (EP) (2013) [MP3|320 кб/с]<punk-hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974075.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Eels - Wonderful, Glorious (2013) Deluxe Edition [MP3|320 кб/с]<Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973695.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Theory Of A Deadman - Say Nothing (2020) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973160.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Panic! At the Disco - Death of a Bachelor (2016) [MP3|320 кб/с] <Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973121.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973081.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Nullum / Androgenic Blast - Covers / Butts of Death (Split) (2018-2020) 2 Аль
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971913.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Noir Desir - 12 CDs (1987..2001) Discography [MP3|320 kbps]<Post-Punk, Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969621.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wednesday13 - The dixie dead (2013) [MP3|160 кб/с]<Horror-punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968846.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Our Mirage - Unseen Relations (2020) [MP3|320 Kbps] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967419.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Marky Ramone's Blitzkrieg - DoSol (2010) Live [MP3|320 кб/с]<Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966719.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Browning - Burn This World (2011) [MP3|224-320 кб/с]<deathcore/metalcore/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966671.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Hollywood Undead - New Empire, Vol. 1 (2020) [MP3|320 Kbps] <Alternative, Rapcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963052.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Suede - Night Thoughts  (2016) Deluxe Edition [MP3|320 кб/с] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958428.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ The Casualties - Underground Army (1998) [MP3|320 кб/с] <Rock, Punk, Punk Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957432.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ The Casualties - Stay Out Of Order (2000 [MP3|320 кб/с] <Rock, Punk, Punk Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957429.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ The Casualties - On The Front Line (2004) [MP3|320 кб/с] <Rock, Punk, Punk Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957426.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ The Casualties - Under Attack (2006) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957424.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957420.jpg" />
 </div>
 
 

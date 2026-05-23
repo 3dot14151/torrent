@@ -1,55 +1,3 @@
-###  Публикация: 1536305   (672178) от 13.03.2022
-
-Проект «Адам» / The Adam Project (2022) WEB-DL [H.264/1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-12-летний Адам Рид все еще скорбит по своему отцу, который умер год назад. Однажды он заходит в свой гараж и обнаруживает там раненого пилота, который оказывается самим Адамом из будущего. Взрослый Адам рассказывает маленькому себе о том, что в будущем только-только появилась возможность путешествовать во времени и теперь он пытается вернуться в прошлое, чтобы спасти (   Читать дальше...   )Производство: США / 21 Laps Entertainment, Maximum Effort, Skydance ProductionsЖанр: фантастика, боевик, комедия, приключенияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Уокер Скобелл, Марк Руффало, Дженнифер Гарнер, Зои Салдана, Кэтрин Кинер, Алекс Маллари мл., Брэкстон Бьеркен, Kasra Wong, Люси ГестПеревод: Дублированный (Пифагор)Язык озвучки: русский, украинский, английскийСубтитры: Русские (Forced, full), украинские (forced, Full), английские (forced, SDH)Продолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476CB1B8ED82CC4E09F02C855584926CDA44A1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509570   (672089) от 13.06.2012
-
-Вкус жизни / No Reservations (2007) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Кейт Армстронг, профессиональный шеф-повар, подходит к вопросу приготовления пищи с такой ответственностью и самозабвением, что не обращает внимания ни на что вокруг. Но после внезапной трагедии, произошедшей с семьей ее родственников, она становится опекуншей осиротевшей племянницы Зои, и вся жизнь преуспевающей до недавнего времени женщины кардинально меняется. (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Скотт ХиксАктеры: Кэтрин Зета-Джонс Аарон Экхарт Эбигейл Бреслин Патришия Кларксон Дженни Вэйд Боб Бэлабан Брайан Ф. О’Бирн Лили Рэйб Эрик Сильвер Ария БарейкисПеревод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:44:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463456   (672018) от 23.03.2019
 
 7 дней и ночей с Мэрилин / My Week with Marilyn (2011) Blu-ray [H.264/1080p] [US Transfer] [Custom]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672018.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671980.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671925.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671921.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671919.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671885.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671874.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671871.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671829.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671785.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671773.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671724.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671723.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671716.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671575.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_671346.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671231.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671223.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671206.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671182.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_671082.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670956.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670928.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670894.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13CF31FD3D749596AFF3E4167C2C34944D76E0BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798452   (670885) от 21.06.2014
+
+Вулкан страстей / Eyjafjallajokull (2013) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда исландский вулкан с заковыристым названием начал извергать целые тучи пепла, воздушное движение над всей Европой оказалось парализованным. Столкнувшись с непредвиденными трудностями и желая во что бы то ни стало попасть на свадьбу дочери в Греции, разведенной паре придется совершить путешествие на всевозможных видах транспорта. Ситуация осложняется тем, что (   Читать дальше...   )Производство: Франция, БельгияЖанр: Комедия, ПриключенияРежиссер: Александр Коффре / Alexandre CoffreАктеры: Валери Боннетон, Дани Бун, Дени Меноше, Альберт Дельпи, Беранжер МакНис, Малик Бенталха, Констанс Долле, Мириам Азенкот, Арно Анриет, Ян СортонПеревод: Дублированный (Лицензия R5)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6B9B570E02EEA78FA9583BD19B7266B0DBECF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536999   (670869) от 14.03.2022
+
+Город страха / La cite de la peur (1994) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670869.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Канне проходит очередной кинофестиваль. В восхитительном приморском местечке собрались кинематографисты из всех стран мира. Но в этом ужасном году каннская идиллия обагрится кровью киношников. В этот раз знаменитый курорт превратится в город страха. Здесь орудует маньяк, безжалостно истребляющий киномехаников. Садист появляется в кинотеатре в маске сварщика, а (   Читать дальше...   )Производство: Франция, Téléma, Le Studio Canal+, France 3 Cinéma, M6 FilmsЖанр: комедия, детектив, криминалРежиссер: Ален БерберянАктеры: Шанталь Лоби, Ален Шаба, Доминик Фарруджия, Жерар Дармон, Сэм Карманн, Patrick Lizana, Жан-Кристоф Буве, Эрик Пра, Марк Де Йонге, Валери ЛемерсьеПеревод: профессиональный двухголосый (Премьер Видеофильм), авторский (Роман Янкелевич)Субтитры: французскиеПродолжительность: 01:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0936C05655CC1049E4C129A5640B5EAAD0A4BF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

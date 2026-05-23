@@ -1,31 +1,3 @@
-###  Публикация: 951069   (365661) от 28.10.2015
-
-Побег из Ходоварихи (2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Здесь нет магазинов, машин, кинотеатров… Нет даже улиц.
-Население заполярного полуострова с говорящим названием Русский Заворот очень невилико - всего ... три человека.
-Сегодня от посёлка Ходовариха, расположенного за полярным кругом, осталась только гидрометеостанция. Обслуживают её метеоролог Вячеслав Короткий и его помощник Устин с женой Ритой. Раз в год к станции (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E682ADF11708A75875FECABF79C302AE1F5D9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575713   (365598) от 16.11.2012
 
 Заварка для "чайников" (14.11.2012) SATRip
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365598.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365568.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365538.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365472.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365406.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365255.jpg" />
 </div>
 
 
@@ -190,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365252.jpg" />
 </div>
 
 
@@ -216,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365237.jpg" />
 </div>
 
 
@@ -242,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365172.jpg" />
 </div>
 
 
@@ -268,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365118.jpg" />
 </div>
 
 
@@ -294,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365112.jpg" />
 </div>
 
 
@@ -320,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365110.jpg" />
 </div>
 
 
@@ -346,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364838.jpg" />
 </div>
 
 
@@ -372,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364801.jpg" />
 </div>
 
 
@@ -398,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364793.jpg" />
 </div>
 
 
@@ -424,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364746.jpg" />
 </div>
 
 
@@ -450,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364656.jpg" />
 </div>
 
 
@@ -476,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364599.jpg" />
 </div>
 
 
@@ -502,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364569.jpg" />
 </div>
 
 
@@ -528,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364567.jpg" />
 </div>
 
 
@@ -554,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364566.jpg" />
 </div>
 
 
@@ -580,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364412.jpg" />
 </div>
 
 
@@ -606,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364410.jpg" />
 </div>
 
 
@@ -632,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364403.jpg" />
 </div>
 
 
@@ -658,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364264.jpg" />
 </div>
 
 
@@ -669,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C33D6FD7A02AF5E9C57D0353286918484D6E5E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576623   (364144) от 15.09.2022
+
+Прованс: непреходящая красота / Provence, l'eternelle beaute (2021) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горные деревушки, источники с кристально чистой водой. Провансу есть чем удивить туристов. Этот край прекрасен в любое время года. Чарующая природа Прованса не уступает по красоте и разнообразию историческому и культурному наследию этого региона. Витающий в воздухе аромат роз пробуждает чувства. Этот край с богатым историческим наследием, чтящий свои традиции. Солнце (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, познавательный, путешествияРежиссер: Эрик БакоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Е.Шмагринской, Hiventy), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FAED2404877B9B4735D8AD139E77FC48FDDFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

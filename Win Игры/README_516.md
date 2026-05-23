@@ -1,29 +1,3 @@
-###  Публикация: 1780830   (27042) от 20.02.2025
-
-Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrack Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Новое нарративное путешествие от создателей Life is Strange. Снимите собственный фильм про лето 1995 года, которое вашей новой компании запомнится на всю жизнь. Двадцать семь лет спустя всем вам придется вновь столкнуться с мрачными секретами, о которых вы договорились никогда не вспоминать.Тип издания: RepackРазработчик: DON'T NODЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780955   (27040) от 20.02.2025
 
 Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0.1096) Repack EXROW [Game of the Year Edition]
@@ -32,7 +6,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27040.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27032.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27026.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27025.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27014.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27004.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26974.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26936.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Songs of Silence (2024) [Ru/Multi] (1.2.0-d.8104) Repack FitGirl [Deluxe Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26933.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26867.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.6.32935/dlc) Repack Let'sРlay [The Ixia
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26853.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26844.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26838.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.512) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26832.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26828.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26826.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26821.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26818.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26816.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Geminism (2025) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26811.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26807.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dead of Darkness (2025) [Ru/Multi] (1.0 Update 4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26785.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Living Legends 12: Frozen Destiny / Живые легенды 12: Замёрзш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26781.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ X4: Foundations (2018) [Ru/En] (7.50/dlc) Repack Decepticon [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26746.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.6/dlc) Repack dixen18 [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26744.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B4A6D93ED95F1AE0F484BCD4C08B795DA8CAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781501   (26737) от 23.02.2025
+
+Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack Pioneer
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master of Orion предлагает игрокам исследовать безграничные просторы галактики, выступив на стороне одной из многочисленных разумных рас, населяющих вселенную. Возрожденная Master of Orion наследует лучшие черты своих знаменитых предшественниц, совмещая в себе традиционную философию 4Х (Explore, Expand, Exploit and Exterminate) и новейшие разработки индустрии.Тип издания: RepackРазработчик: NGD Studios и Wargaming.netЖанр: СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 ```
 
 https://mybot314.ru/tekegram_catalog/

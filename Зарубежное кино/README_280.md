@@ -1,55 +1,3 @@
-###  Публикация: 977609   (965536) от 21.01.2016
-
-Спасибо, доктор Рей / Merci Docteur Rey (2002) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Томаса, молодого американского студента, живущего в Париже со своей матерью оперной дивой, приглашает по телефону па вечеринку незнакомый мужчина. Приняв приглашение, молодой человек узнает, что «по правилам игры», он должен следить за встречей незнакомца и его приятеля. Томас приходит незаметно спрятавшись, наблюдает за проходящим. Вечеринка заканчивается трагически-жестоким (   Читать дальше...   )Производство: Франция, США / Eat Your Soup Productions, Merchant Ivory ProductionsЖанр: КомедияРежиссер: Эндрю ЛитвакАктеры: Дайэнн Уист, Джейн Биркин, Станислас Мерхар, Бюль Ожье, Ванесса Рэдгрейв, Карим Салах, Дидье Фламан, Рошди Зем, Натали Ришар, Дэн Херцберг, Джерри ХоллПеревод: Двухголосый закадровыйПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08083885D704A4B966FD03AF6B1775700CCA3F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977504   (965534) от 21.01.2016
-
-Рожденный дважды / Venuto al mondo (2012) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня, итальянка Джемма, отправляется вместе со своим 16-летним сыном Пьетро в Сараево. Она хочет показать Пьетро его родной город и рассказать о его отце Диего, которого он никогда не знал. В аэропорту Джемму встречает ее давний друг Гойко, который в 1984 году во время зимней Олимпиады познакомил ее с фотографом из Генуи Диего — любовью всей ее жизни.Производство: Италия, Испания / Medusa Film, Alien Produzioni, Mod ProduccionesЖанр: Драма, Мелодрама, ВоенныйРежиссер: Серджо КастеллиттоАктеры: Пенелопа Крус, Эмиль Хирш, Аднан Хаскович, Саадет Аксой, Пьетро Кастеллитто, Джейн Биркин, Люка Де Филиппо, Мира Фурлан, Серджо Кастеллитто, Бранко Джурич, Йован Дивьяк, Виничио МаркиониПеревод: Двуголосый закадровыйПродолжительность: 02:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7132076B18689F1F87B00072B62D25C6A8A8F3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977607   (965479) от 21.01.2016
 
 Банк-леди / Banklady (2013) BDRip [H.264] [GER / RU Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965479.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965373.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965368.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965357.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965310.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965304.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965124.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965006.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964990.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964975.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964947.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964944.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964941.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964939.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964935.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964931.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964910.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964909.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964887.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964885.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964884.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964879.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964878.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964877.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1F1B7B64764C2E0C822375A0E9A5C7DF0E70E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359056   (964876) от 11.02.2020
+
+Волан-де-Морт: Корни наследника / Voldemort: Origins of the Heir (2018) WEB-DLRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о юности Волан-де-Морта, сильного тёмного мага из Поттерианы, и о том, как современники узнали его и стали бояться произносить его имя. Помимо Волан-де-Морта в фильме появятся и другие персонажи — его однокурсники с других факультетов Хогвартса. В центре сюжета будет серия таинственных убийств, которые расследует волшебница Гриша МакЛаген.Производство: Италия / Tryangle FilmsЖанр: Фэнтези, приключенияРежиссер: Джанмария ПеццатоАктеры: Стефано Росси, Андреа Баджо, Давид Эллена, Аврора Морони, Андреа Бонфанти, Гелсомина Бассетти, Маддалена Оркали, Андреа Динези, Алессио Далла Коста, Даниэль ДекарлиПеревод: Любительский многоголосый (No-Future)Субтитры: ОтсутствуютПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BEF6A1398F7D5685D8899AFE2E57ADE2224D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359240   (964874) от 11.02.2020
+
+Он и она / Deux moi (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он и Она живут в самом романтичном городе мира — Париже. Они ходят в один магазин, ужинают в одном ресторане, но никогда не встречались. Они одиноки и мечтают встретить свою любовь. Пересекутся ли их дороги однажды?Производство: Франция, Бельгия / Ce Qui Me Meut, StudioCanal, France 2 CinémaЖанр: Драма, мелодрама, комедияРежиссер: Седрик КлапишАктеры: Франсуа Сивиль, Ана Жирардо, Камилль Коттен, Франсуа Берлеан, Симон Абкарян, Эй Айдара, Ребекка Мардер, Пьер Нинэ, Зинедин Суалем, Вирджини ХокПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512B4D816FAA9EC8A3233DE7728DC7C8AD050844
 ```
 
 https://mybot314.ru/tekegram_catalog/

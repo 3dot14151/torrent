@@ -1,84 +1,3 @@
-###  Публикация: 1014350   (776319) от 07.05.2016
-
-Звезда (2002) BDRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лето 1944 года, Красная Армия ведет бои на подступах к западной границе СССР. В тыл врага отправляется группа разведчиков, молодых ребят. Их позывные — «Звезда». Они должны выполнить задание, от которого зависит судьба фронта.
-И они выполняют его, но цена этого задания оказывается слишком дорогой. Полный напряжения и драматизма, фильм заставляет вспомнить, кто победил (   Читать дальше...   )Производство: Россия / АРК-Фильм, МосфильмЖанр: боевик, драма, приключения, военный, историяРежиссер: Николай ЛебедевАктеры: Игорь Петренко, Артем Семакин, Алексей Панин, Алексей Кравченко, Анатолий Гущин, Амаду Мамадаков, Юрий Лагута, Екатерина Вуличенко, Андрей Егоров, Сергей МиллерПеревод: Не требуется (Русский, Лицензия BD RUS)Язык субтитров: АнглийскийПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C996F79A4B87D7AFE9A021485DEB190A2E6AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734388   (776270) от 10.03.2018
-
-Гагарин. Первый в космосе (2013) BDRip [H.264/1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен первым шагам человечества на пути освоения космоса и непосредственно судьбе первого космонавта Ю. А. Гагарина. Основной лейтмотив — борьба за право быть первым: соревнование в первом отряде космонавтов; конкуренция технологий в ракетостроении; противостояние сверхдержав — СССР и США.
-В первый отряд космонавтов отбирали из трёх тысяч летчиков-истребителей (   Читать дальше...   )Производство: РоссияЖанр: драма, биография, историяРежиссер: Павел ПархоменкоАктеры: Ярослав Жалнин, Михаил Филиппов, Владимир Стеклов, Ольга Иванова, Вадим Мичман, Даниил Воробьев, Надежда Маркина, Виктор Проскурин, Инга Стрелкова-Оболдина, Сергей КалашниковСубтитры: ОтсутствуютПродолжительность: 01:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41DEB06D6C3DEF06665098EBA1DDC6D710F8124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212346   (776002) от 11.03.2018
-
-Чтобы выжить (1992) BDRip [H.264/720p] [USA Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эмиссар бывшей «партийной мафии» по кличке «Джафар» готовит и осуществляет ряд провокаций и террористических актов на окраинах страны для создания предпосылок государственного переворота. В ходе налета на один из армейских оружейных складов ранен проводник.
-Бандитам срочно нужно переправить через афганскую границу караван с наркотиками. В качестве проводника Джафар (   Читать дальше...   )Производство: Россия / Cinevest Entertainment GroupЖанр: БоевикРежиссер: Всеволод ПлоткинАктеры: Владимир Меньшов, Сергей Векслер, Александр Розенбаум, Дмитрий Волков, Мурад Алиев, Арсен АмаспюрянцПеревод: Не требуетсяСубтитры: Русские, английскиеПродолжительность: 01:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670F39F5F804542D978DBCC97D2E185C2F5BD2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011900   (775889) от 08.05.2016
 
 Коробка (2015) WEB-DL [H.264/720p-LQ]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775889.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775408.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775024.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774855.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773873.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773341.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_772729.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772629.jpg" />
 </div>
 
 
@@ -296,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772395.jpg" />
 </div>
 
 
@@ -323,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771888.jpg" />
 </div>
 
 
@@ -349,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771627.jpg" />
 </div>
 
 
@@ -375,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771393.jpg" />
 </div>
 
 
@@ -401,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771371.jpg" />
 </div>
 
 
@@ -427,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771367.jpg" />
 </div>
 
 
@@ -453,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771365.jpg" />
 </div>
 
 
@@ -479,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771272.jpg" />
 </div>
 
 
@@ -505,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770888.jpg" />
 </div>
 
 
@@ -531,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770048.jpg" />
 </div>
 
 
@@ -557,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769650.jpg" />
 </div>
 
 
@@ -583,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768921.jpg" />
 </div>
 
 
@@ -609,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768731.jpg" />
 </div>
 
 
@@ -635,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768311.jpg" />
 </div>
 
 
@@ -661,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768130.jpg" />
 </div>
 
 
@@ -672,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A357E40AFF4E11417F7C6DA5016483E86FF5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213602   (768077) от 17.03.2018
+
+Смех в темноте (2011) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой попадает в аварию вместе со своей молодой возлюбленной и теряет зрение. После нескольких недель в больнице, он, вместе с девушкой, приезжает в загородный дом, чтобы прийти в себя и пережить случившееся. Девушка становится для него всем – опорой, поддержкой и самым дорогим человеком в мире, полном темноты и сомнений. Герою слышатся странные звуки, но (   Читать дальше...   )Производство: Россия | ВГИКЖанр: Короткометражный, драмаРежиссер: Таисия РешетниковаАктеры: Сергей Юшкевич, Катерина Шпица, Евгений ТкачукПродолжительность: 00:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E4BF25D956FF4B8228D82F81618C42EAE7A2D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125738   (767749) от 15.04.2017
+
+Сердечная недостаточность (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь матери-одиночки Алены подчинена одной цели — найти деньги на операцию на сердце для своей четырехлетней дочери. К сожалению, ни отец-пенсионер, ни возлюбленный Дима не могут ей помочь. Алена решается на отчаянный шаг — стать суррогатной матерью для своей начальницы, Клавдии Сергеевны, которая давно и безуспешно лечится от бесплодия. Алена заключает договор (   Читать дальше...   )Производство: Россия / Кинокомпания "Русское"Жанр: ДрамаРежиссер: Сергей БорчуковАктеры: Ирина Вальц, Иван Жданов, Ольга Чудакова, Сергей Горобченко, Руслан Ягудин, Вероника Волоха и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7390F9C47459072555AACB2F2F94B92FDFCB857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393485   (767538) от 30.06.2020
+
+Дочь якудзы (2010) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятилетняя Юрико — дочка влиятельного якудзы Тацио Ямада, которого боятся все, а он боится за дочь. Всегда рядом с Юрико бдительная охрана и даже в школу ее сопровождают телохранители. В один прекрасный день у Ямады случаются «временные трудности» и ради безопасности дочери он отправляет ее в Рим. Но по дороге самолет совершает вынужденную посадку на юге России. (   Читать дальше...   )Производство: Россия / Кинокомпания CTBЖанр: КомедияРежиссер: Сергей Бодров, Гульшад ОмароваАктеры: Тика Аракава, Вадим Дорофеев, Сергей Гармаш, Наомаса Мусака, Ирина Розанова, Сергей Газаров, Виктор Сухоруков, Виталий Хаев, Анна Михалкова, Так СакагутиСубтитры: ОтсутствуютПродолжительность: 01:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25DEBBAD5F024E1269C9CA815E42304966AF980
 ```
 
 https://mybot314.ru/tekegram_catalog/

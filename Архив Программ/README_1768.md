@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194318.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The KMPlayer 4.2.2.79 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194306.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Maxon ZBrush 2023.2.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194305.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Illustrator 2023 27.7.0.421 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194298.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Topaz Photo AI 1.5.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194291.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft  Visual C++ Runtimes AIO v0.75.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194288.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Punto Switcher 4.4.5 Build 539 RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194284.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194283.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MediaHuman YouTube Downloader 3.9.9.85 (1308) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194279.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194277.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Snappy Driver Installer Origin R756 | Драйверпаки 23.08.0 / 23.08.2 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194276.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Acrobat Pro 2023.003.20269 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194264.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5.1 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194262.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VMware vCenter Converter Standalone 6.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194261.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Audition 2023 23.6.0.61 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194255.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194252.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Psiphon 3 build 179 (15.08.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194238.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5.1 Build 6 (x64) RePack by AlekseyP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194231.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ CCleaner 6.15.10623 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194230.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Adobe Media Encoder 2023 23.6.0.62 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194211.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Defender Remover Portable 12.5.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194208.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Realtek Ethernet Driver 10.66 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194205.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Xara Designer Pro+ 23.3.0.67471 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194199.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ OpenVPN 2.6.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194196.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Xara Web Designer+ 23.3.0.67471 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194189.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ MAGIX Vegas Pro 21.0 Build 108 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194188.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Autumn's Grief - The Dead Don't Smile (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824938.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Thornyway - Absolution (2014) [FLAC|Lossless|WEB-DL]<deathcore, prog>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824768.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Cosmosquad - The Morbid Tango (2017) [FLAC|Lossless|image + .cue] <Instrumental,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824766.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Capitollium - Engraved Fear (2005) [FLAC|Lossless]<Sympho Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824602.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Diecast - Internal Revolution (2007) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822783.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Deadlock - Wolves (2007) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822782.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Circus Maximus - Isolate (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822781.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Dark Moor - Beyond The Sea (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822778.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Ignea - The Sign of Faith (2017) [FLAC|lossless|tracks + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822743.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Crematory - Monument (2016) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822466.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Dimmu Borgir - Spiritual Black Dimensions (1999) [FLAC|Lossless]<Sympho Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822364.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Demons & Wizards - Touched By The Crimson King (2005) [FLAC|Lossless]<Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822271.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ System Of A Down (SOAD) - 7 albums, 3 singles, 11CD (1998-2011) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822252.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ In Extremo - 20 Releases (1997-2020) [FLAC|tracks|Lossless] <Folk-Metal, Neue De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822105.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Fluisteraars - Gegrepen Door De Geest Der Zielsontluiking (2021) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821447.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blessdivine - Between Sin & Sacrifice (2021) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821446.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ October Falls - A Fall Of An Epoch (2020) [FLAC|Lossless|tracks + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821434.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Last Days Of Eden - Chrysalis (2018) [FLAC|Lossless|image + .cue] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821432.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Destinity - In Continuum (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821345.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Manowar - Louder Than Hell (1996) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821338.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Drama - Silver Brilliance of Nocticula (2006) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821285.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Scythe - Decay (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821191.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Scythe - The Process Of Rotting (2004) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821189.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dimmu Borgir - Stormblast (Special Edition) (2005) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821032.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Within Temptation - Entertain You (2020) Single [FLAC|lossless] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820870.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Beautiful Voices Vol. 1-3 (2005-2008) [FLAC|Lossless|tracks + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819942.jpg" />
 </div>
 
 

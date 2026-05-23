@@ -1,55 +1,3 @@
-###  Публикация: 935783   (497087) от 10.09.2015
-
-Драйвер на ночь / Stretch (2014) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кевин — мужчина средних лет, который так и не смог наладить свою жизнь. Он — водитель лимузина, которого бросила девушка и который проиграл крупную сумму плохим парням. Эти люди не любят долго ждать и дают время до полуночи, чтобы он полностью погасил долг. Пытаясь отыскать необходимую сумму, Кевин становится водителем загадочного миллионера, который славится очень (   Читать дальше...   )Производство: США / Universal Pictures, Blumhouse Productions, Chambara PicturesЖанр: триллер, комедияРежиссер: Джо КарнаханАктеры: Патрик Уилсон, Эд Хелмс, Джеймс Бэдж Дэйл, Бруклин Декер, Крис Пайн, Джессика Альба, Рэй Лиотта, Дэвид Хассельхофф, Рэнди Кутюр, Минди РобинсонПеревод: профессиональный (полное дублирование), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56A834A37FEEC4566BBB20A18DBAE57AEB84F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412642   (497086) от 10.09.2015
-
-Роковая женщина / Femme Fatale (2002) [720p] HDTV
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Лора Эш - искусительница, соблазнительная красавица, "роковая женщина", истинная "femme fatale". Через семь лет после дерзкого похищения брильянтов, она возвращается во Францию под новым именем. Пронырливый журналист Николас делает ее фотографию, чем ставит под угрозу ее жизнь. Чего ему будет стоить это любопытство и станет ли оно для него "роковым"?Жанр: Триллер, ДетективРежиссер: Брайан Де Пальма / Brian De PalmaАктеры: Ребекка Ромин, Антонио Бандерас, Питер Койот, Эрик Эбони, Эдуард Монтут, Ри Расмуссен, Грег Хенри, Фиона Курсон, Даниэль Милгрэм и дрПеревод: Профессиональный (полное дублирование)Продолжительность: 01:49:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935859   (497082) от 10.09.2015
 
 Убрать из друзей / Unfriended (2015) Blu-ray [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497082.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496905.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496829.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496653.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496643.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496630.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496612.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496582.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496580.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496577.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496575.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496574.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496505.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496500.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496314.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496312.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496304.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496302.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496274.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496272.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496223.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496191.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496178.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496174.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9505C45C3B8B2CD0C3DCFFC2D7207AE354706BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053910   (496138) от 18.09.2016
+
+Соседи. На тропе войны 2 / Neighbors 2: Sorority Rising (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496138.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз в дом по соседству с Маком и Келли въезжает университетский женский клуб. Чтобы разобраться с новыми соседями, которые не дают им покоя, Мак и Келли решают обратиться за помощью к их бывшему врагу — Тедди Сандерсу.Производство: США, Good Universe, Point Grey PicturesЖанр: КомедияРежиссер: Николас СтоллерАктеры: Сет Роген, Зак Эфрон, Роуз Бирн, Клои Грэйс Моретц, Айк Баринхолц, Кирси Клемонс, Дэйв Франко, Джеррод Кармайкл, Кристофер Минц-Плассе, Бини ФелдштейнПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956721466EAE399F365FC2A6DA3A23D5122AAC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820408   (496137) от 10.09.2014
+
+Годзилла / Godzilla (2014) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество случайно разбудило гигантское древнее существо, что повлекло за собой ужасающие последствия…Производство: США, Япония / Warner Bros., Legendary Pictures, Disruption EntertainmentЖанр: Фантастика, Боевик, ТриллерРежиссер: Гарет ЭдвардсАктеры: Аарон Тейлор-Джонсон, Брайан Крэнстон, Элизабет Олсен, Жюльет Бинош, Дэвид Стрэтэйрн, Кен Ватанабе, Салли Хокинс, Эл Сапьенза, Брайан Маркинсон, Ричард Т. ДжонсПеревод: Дублированный (Лицензия CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (full, SDH, SDH-colored)Продолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8A37B9948F7401A9B28090AA75E27200FFECEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

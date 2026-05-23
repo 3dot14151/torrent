@@ -6,7 +6,7 @@ DiskDigger 1.20.5.2591 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593302.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GPU-Z 2.46.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593270.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KeePass Password Safe 2.51 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593269.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Symantec Endpoint Protection 14.2 Build 760 (14.2.760.0000) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593238.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Visual Studio Code 1.67.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593235.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox Quantum ESR 60.6.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593206.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BELOFF [dp] 2022.05.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593159.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mozilla Firefox Quantum 66.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593149.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BlueStacks Tweaker 5.11.3 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593119.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Mozilla Firefox Quantum 66.0.4 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593118.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Internet Download Manager 6.33.1 RePack by KpoJIuK [Multi/Ru.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593091.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ BlueStacks App Player 4.70.0.1103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593090.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Arturia - V Collection 7 7.0.0 STANDALONE, VSTi, VSTi3, AAX (x64) RePack by VR [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593089.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Nox App Player 6.2.8.1004 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593087.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ qBittorrent 4.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593066.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ YellowpileXXL 1.0.0.754 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592985.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ PrivaZer 3.0.49 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592970.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Notepad++ 7.5.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592942.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ The Bat! Professional 8.5.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592939.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Abelssoft Win11PrivacyFix 2022 1.03.37835 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592839.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Total Uninstall 6.24.0.520 Professional Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592833.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Hiren’s BootCD PE x64 v1.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592814.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Spotify 1.1.84.716 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592786.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592778.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Cockos - REAPER 5.977 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592753.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ MAGIX - ACID Pro Next Suite 1.0.1 (Build 17) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592746.jpg" />
 </div>
 
 

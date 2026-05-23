@@ -6,7 +6,7 @@ Any Video Converter Professional 6.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774089.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MKVToolNix 30.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774085.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Just Color Picker 5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774081.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ System Ninja 3.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774078.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Punto Switcher 4.4.2 Build 334 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774073.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ uTorrent 3.5.3 Build 44358 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774072.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tails 3.6 [анонимный доступ в сети] [amd64] [2018-03-13] 1xD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774067.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Sims 4 (2014) [En] (1.41.38.1020/dlc) License CODEX [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774062.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Razer Cortex 7.2.16.12597 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774053.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774046.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ R-Studio 8.0 Build 164541 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774041.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wondershare Filmora 9.0.5.1 (x64) Repack by elchupacabra (22.01.2019) + Effect P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774025.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Foxit Reader 9.4.1.16828 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774019.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TeamViewer 13.1.1548 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774013.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Parallels Desktop for Mac Business Edition 13.3.0 (43321) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774011.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774010.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ CCleaner 5.41.6446 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774009.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ WinZip Mac Edition 4.0.2604 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773992.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ R-Studio 8.0 Build 164541 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773989.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773988.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ AdFender 2.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773986.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Daum PotPlayer 1.6.60136 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773983.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ EZ CD Audio Converter 4.0.4.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773982.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ WinToUSB Enterprise 3.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773978.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773976.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Viscosity 1.7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773964.jpg" />
 </div>
 
 

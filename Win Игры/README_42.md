@@ -6,7 +6,7 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049369.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack dixen18 [XXL Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049315.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ River City Girls (2019) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049280.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049279.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049278.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Scott Whiskers: the Search for the Golden Cat (2025) [Multi] (1.0.40) License GO
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049277.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.003.28253.87380/dlc) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049276.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049275.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049274.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.0-10461) Repack FitGirl [Builder's Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049261.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Double Dragon Revive (2025) [Ru/Multi] (1.1.0.0/dlc) Repack Other s [Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049234.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049233.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MARVEL Cosmic Invasion (2025) [Ru/Multi] (1.0.0.12208) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049232.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Store Wars: Multiplayer Shop Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049231.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Berlin Apartment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049230.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ KILL IT WITH FIRE! 2 (2024) [Ru/Multi] (1.0.0.755) Repack FitGirl [Supporter Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049229.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack HardwareMi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049228.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Xenopurge (2025) [Ru/Multi] (Build 20880157) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049227.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Minecraft: Bedrock Edition (2025) [Ru/Multi] (1.21.130) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049223.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Agents of Shadow (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049180.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Oddsparks: An Automation Adventure (2024) [Multi] (1.0.S31386/dlc) Repack Other 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049179.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049120.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Project Zomboid (2013) [Ru/Multi] (42.13.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049119.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Night Swarm (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049118.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049117.jpg" />
 </div>
 
 

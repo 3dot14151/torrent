@@ -6,7 +6,7 @@ Balsamiq Mockups For Desktop 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495811.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Live Home 3D St 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495427.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ OS X El Capitan 10.11 GM (15A282b) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495401.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495265.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Navicat Premium Essentials  16.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494989.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ System Dashboard 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494987.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ AnyMP4 Mac Blu-ray Player 6.3.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494899.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sweet Home 3D 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494790.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Wondershare PDFelement Pro OCR 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494788.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Keyboard Maestro 10 v10.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494779.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ DjVu Reader Pro 2.6.6 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494775.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wondershare Filmora Х 11.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494554.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Vallum 1.2 & Murus 1.4.3b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494405.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ KeyCue 8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494334.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ SimpleMind 1.14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494325.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Tropico 6 v4.20.2 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494284.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ GraphicConverter 10.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494223.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Screens 4.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494127.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lyn 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494123.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ iMazing 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494081.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ NetWorker - Advanced Network Information App 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493837.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Canary Mail 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493713.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ iWatermark Pro 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493695.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ CleanMyMac X 4.0.0b3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493677.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ iSkysoft iMedia Converter Deluxe 10.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493558.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ WiFi Scanner 2.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493398.jpg" />
 </div>
 
 

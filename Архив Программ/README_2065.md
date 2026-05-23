@@ -6,7 +6,7 @@ Opera One 110.0.5130.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RSS Guard 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109541.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.7 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109540.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ashampoo WinOptimizer 27.00.02 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109539.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Opera GX 109.0.5097.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109531.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ HWiNFO 8.03 Build 5445 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109530.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vivaldi 6.7.3329.29 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109529.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Firefox Browser ESR 115.11.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109521.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Firefox Browser 126.0 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109519.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PotPlayer 240514 (1.7.22230) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109518.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PrivaZer Pro 4.0.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109507.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Viber 22.7.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109505.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FolderSizes Enterprise 9.6.483 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109496.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PortableApps.com Platform 29.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109494.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Wave Arts - FinalPlug 7 7.01 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109488.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Google Chrome 125.0.6422.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109484.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Vivaldi 6.7.3329.31 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109482.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ HomeBank 5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109480.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109479.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ DesktopOK 11.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109478.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ RJ TextEd 16.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109468.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Waterfox Current G6.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109467.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Brave Browser 1.66.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109296.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Opera GX 109.0.5097.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109293.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Process Lasso Pro 14.0.3.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109235.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Glary Utilities Pro 6.10.0.14 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109225.jpg" />
 </div>
 
 

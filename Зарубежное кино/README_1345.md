@@ -1,55 +1,3 @@
-###  Публикация: 578556   (352588) от 21.11.2012
-
-Ночь ведьм/ Witches' Night (2007) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чтобы помочь другу пережить разрыв с девушкой, четверо друзей на Хеллоуин отправляются на природу. Прогулка на лодке, посиделки у костра, мужские разговоры под пивко — что может быть лучше? Тем более на соседней поляне расположились такие красотки! И они явно не против скрасить ночь одиноким парням. Но очень скоро идеальный уик-энд превратится в кошмар из которого (   Читать дальше...   )Жанр: УжасыРежиссер: Пол ТрэйнорАктеры: Джил МакКинни (Gil McKinney), Джефф Кристиан (Jeff Christian), Уэсли Уолкер (Wesley Walker), Джефф Альба (Jeff Alba), Бетси Бейкер (Betsy Baker), Лоурен Риланд (Lauren Ryland), Меган Джонс (Meghan Jones), Элизабет Оас (Elisabeth Oas)Перевод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 01:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7373F78EE52B994C47F770D4AC44D49DEE98B74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578259   (352474) от 21.11.2012
-
-Мужчины против женщин / Maschi contro femmine (2010) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Диего — настоящий мачо, коллекционер женских сердец и женских трусиков. Он работает в баре с танцующими официантками и, в общем, доволен всем. Не устраивает его только язвительная соседка по этажу, из-за которой у него однажды начинаются крупные проблемы.Жанр: КомедияРежиссер: Фаусто БрицциАктеры: Паола Кортеллези, Фабио Де Луиджи, Люсия Оконе , Франческо Паннофино, Алессандро Презиоси, Паоло Руффини, Карла Сигнорис, Николас Вапоридис, Джорджиа Верт, Клаудио Бизио, Нэнси Брилли, Джузеппе Чедерна, Лучана Литтиззетто, Эмилио Солфрицци, Сара ФельбербаумПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA5E6879A70708B58A21E2742C094674882B5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255746   (352437) от 09.11.2010
 
 Голубой Торнадо / Blue Tornado (1991) VHSRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352437.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352404.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352402.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352350.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352313.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_352238.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352228.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352197.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352193.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352172.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352094.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352058.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352051.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352050.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352048.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351966.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351965.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351962.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351913.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351910.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351869.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351857.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351805.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351777.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE79E578F5825C0973F925C016A7B030039710D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329033   (351776) от 05.10.2019
+
+10 на 10 / 10x10 (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек средь бела дня очень дерзко похищает девушку прямо с городской улицы. Предварительно у себя дома он соорудил звукоизолированную коробку размером десять на десять футов, куда и поместил свою пленницу. На это ужасное и безумное действие, как оказывается, его толкает чувство неудовлетворенной мести, а девушка, оказавшаяся в ловушке, не является невинной (   Читать дальше...   )Производство: Великобритания, Unstoppable Entertainment, Head Gear Films, Metrol TechnologyЖанр: ТриллерРежиссер: Сьюзи ЮингАктеры: Люк Эванс, Келли Райлли, Ноэль Кларк, Оливия Ченери, Джилл Винтерниц, Джейсон Мацца, Скай Люсия Дегруттола, Джон Майкл Моррис, Бенджамин Хотжес, Джексон КайПеревод: Дублированный, многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB78A2F7525599191DC79C088AC63BE30917E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329362   (351773) от 05.10.2019
+
+Между двумя папоротниками / Between Two Ferns: The Movie (2019) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зак Галифианакис — ведущий популярного шоу «Между двумя папоротниками», которое успело прославиться скандальными интервью со звездами и странными выходками Зака. Во время записи очередной программы, Галифианакис превзошел сам себя и чуть не убил Мэттью МакКонахи, после чего из знаменитого ведущего, он превратился в посмешище, а масла в огонь подлил Уилл Феррелл, (   Читать дальше...   )Производство: США, Funny or DieЖанр: КомедияРежиссер: Скотт ОкерманАктеры: Зак Галифианакис, Мэттью МакКонахи, Рекха Шанкар, Olivia Mekdara, Мо Абул-Зелоф, Гэбриел Гандакер, Фил Хендри, Мэри Шир, Майк Айви, Мэтт БессерПеревод: Двуголосый профессиональный (Кубик в кубе)Субтитры: Русские (форс., полные) - отдельноПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864D589EF8E210D1164B008F340FC91A92A1D6FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

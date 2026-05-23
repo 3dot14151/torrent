@@ -6,7 +6,7 @@ TechSmith Camtasia 22.0.1 (Build 38362) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556056.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 8.46.0.60 Portable by Cento8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556043.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auto Shutdowner 1.1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556034.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GoodbyeDPI 0.2.2. Launcher 5.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556007.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SamDrivers 19.5 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555987.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe After Effects CC 2019 16.1.1.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555973.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Movavi Video Converter 19.3.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555964.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Privacy Eraser Free 4.51.0 Build 2996 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555940.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Photo Supreme 4.3.3.2136 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555929.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ LibreOffice 6.2.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555922.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Telegram Desktop 1.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555914.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ InPixio Photo Maximizer 5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555882.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Auslogics BoostSpeed 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555865.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ XaKeR_CD_2019 v.13.3 (19.04.2019)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555855.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ KMS Tools Portable 01.06.2019 by Ratiborus  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555846.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Allavsoft Video Downloader Converter 3.17.5.7090 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555817.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Master PDF Editor 5.4.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555809.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Mozilla Firefox Quantum 67.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555797.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Format Factory 4.7.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555780.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Transmission 2.94 (d8e60ee44f) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555740.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cent Browser 4.0.9.112 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555738.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ BELOFF 2019.6 Unpacked
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555709.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ BELOFF 2019.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555705.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Wise Disk Cleaner 10.2.1.772 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555680.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ XYplorer 20.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555674.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Pale Moon 28.5.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555672.jpg" />
 </div>
 
 

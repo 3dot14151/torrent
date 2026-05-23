@@ -1,108 +1,3 @@
-###  Публикация: 1346066   (164743) от 17.12.2019
-
-Final Fantasy X | X-2 HD Remaster (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Cборник Final Fantasy X/X-2 HD Remaster на PS3 собрал самые новые версии двух эпизодов культовой серии Final Fantasy, которая в эпоху PS2 была жанровым образцом, как относительно геймплея, так и относительно графической части.
-Время золотого века наступило тогда, когда просвещенной цивилизации, населявшей Спиру, удалось открыть устройство Machina. Но всё это далекое (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: JRPGЯзык озвучки: АнглийскийЯзык субтитров: Русский (X), Английский (X-2)Язык интерфейса: Русский (X), Английский (X-2)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3C9AF2E7A3CA06F6534FA82FA43590A07099DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516004   (163218) от 14.12.2021
-
-Manhunt (2003) [PS2] [NTSC] [Unofficial] [Ru]
-
->>Консольные Игры
->>PS2
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Америка полна мрачных индустриальных городков, где царит вседозволенность. В Карцер-Сити ценят только острые ощущения, самое сильное из которых – игра с человеческой жизнью. Нет ничего более захватывающего, чем желание подарить и отнять жизнь ради забавы. На сей раз стал жертвой ты, Джеймс Эрл Кэш. Они подарили тебе жизнь. Теперь они снова начнут на тебя охоту. Ты (   Читать дальше...   )Тип издания: UnofficialРазработчик: Rockstar NorthЖанр: Stealth, Survival horrorЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC909571C3A37EBF618F5CE8498A04098FA6C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967344   (158559) от 20.12.2015
-
-Gray Matter / Gray Matter. Призраки подсознания (2011) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Gray Matter - приключенческая игра, в которой рассказывается о нейробиологе, докторе Дэвиде Стайлосе, потерявшем жену в ужасной аварии несколько лет назад. После случившейся трагедии он стал вести уединенный образ жизни, проводя свои дни в английском имении Dread Hill House.Тип издания: LicenseРазработчик: WizarboxЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF1C9E94BD559ACE14186EE87CDB2EF95D691AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967451   (158315) от 21.12.2015
-
-Double Dragon Neon (2012) [Xbox360] [RegionFree] FreeBoot [XBLA] [En]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Легендарная Double Dragon снова в деле. Это та самая ночь. Пора уложить волосы гелем, натянуть рваную джинсу, зарядить кассету в бобинник и — на улицу. Потому как на нашу любовь снова посягнули...Тип издания: XBLAРазработчик: WayForward Technologies и Abstraction GamesЖанр: Arcade, Beat em upЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DCF5518ACC85327C4FC137154201ED80A7E5A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968179   (157926) от 22.12.2015
 
 Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
@@ -111,7 +6,7 @@ Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157926.jpg" />
 </div>
 
 
@@ -137,7 +32,7 @@ OCTOPATH TRAVELER (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156698.jpg" />
 </div>
 
 
@@ -164,7 +59,7 @@ Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156093.jpg" />
 </div>
 
 
@@ -190,7 +85,7 @@ Hotline Miami Collection (2019) [Switch] [USA] 16.0.0 [NSP] [License / 2.03] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156078.jpg" />
 </div>
 
 
@@ -216,7 +111,7 @@ I Am Alive [PS3] [PSN] [RUS] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155746.jpg" />
 </div>
 
 
@@ -242,7 +137,7 @@ Red Dead Redemption (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154828.jpg" />
 </div>
 
 
@@ -268,7 +163,7 @@ Mario Kart 8 Deluxe (2017) [Switch] [EUR] 16.1.0 [NSZ] [License / 3.0.0 / DLC] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154809.jpg" />
 </div>
 
 
@@ -294,7 +189,7 @@ Unravel Two (2019) [Switch] [USA] 9.1.0 [NSZ] [License] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154647.jpg" />
 </div>
 
 
@@ -320,7 +215,7 @@ Guitar Hero Van Halen (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153769.jpg" />
 </div>
 
 
@@ -349,7 +244,7 @@ Terraria (2013) [PSVita] [EUR] 3.60 [HENkaku][License] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153086.jpg" />
 </div>
 
 
@@ -375,7 +270,7 @@ MX vs. ATV: Reflex (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152993.jpg" />
 </div>
 
 
@@ -401,7 +296,7 @@ Super Smash Bros. Ultimate (2018) [Switch] [Region Free] 6.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152961.jpg" />
 </div>
 
 
@@ -427,7 +322,7 @@ Grid Autosport (2019) [Switch] [USA] 9.0.1 [NSZ] [License / DLC / 1.5_46790] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152718.jpg" />
 </div>
 
 
@@ -453,7 +348,7 @@ FIFA 19 Legacy Edition / FIFA 19 Издание Legacy (2018) [PS3] [EUR] 4.82 [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151969.jpg" />
 </div>
 
 
@@ -479,7 +374,7 @@ Motorstorm: Pacific Rift [PS3] [PAL] [RUSSOUND] [2.42] [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151423.jpg" />
 </div>
 
 
@@ -505,7 +400,7 @@ MotorStorm: Apocalypse [PS3] [PAL] [RUSSOUND] [3.56] [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151378.jpg" />
 </div>
 
 
@@ -531,7 +426,7 @@ R.U.S.E. (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151041.jpg" />
 </div>
 
 
@@ -557,7 +452,7 @@ Back To The Future: The Game (2012) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150983.jpg" />
 </div>
 
 
@@ -584,7 +479,7 @@ I am Setsuna (2016) [PSVita] [JAP] 3.60  [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149016.jpg" />
 </div>
 
 
@@ -610,7 +505,7 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148476.jpg" />
 </div>
 
 
@@ -636,7 +531,7 @@ Halo: Combat Evolved Anniversary (2011) [Xbox360] [Region Free] FreeBoot [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148073.jpg" />
 </div>
 
 
@@ -662,7 +557,7 @@ Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Re
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146477.jpg" />
 </div>
 
 
@@ -673,6 +568,113 @@ Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD167AFD967438856CCF85B0F36AF1D68C9CBA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087456   (145974) от 27.12.2016
+
+Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торопитесь! Вас ждет прогулка по виртуальному парку отдыха Nintendo и множество развлечений! Откройте для себя более 12 веселых аттракционов, которые оформлены в стиле игр Nintendo. Играть в одиночку или в компании с друзьями — выбор за вами! Это очаровательно, развлекательно и неповторимо, это Nintendo Land!
+
+В Nintendo Land используются широкие возможности консоли (   Читать дальше...   )Тип издания: LicenseРазработчик: NintendoЖанр: Party, Arcade, Mini-gamesЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA76EFB410814B86D33D612943E3EF9BCC3CB2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348216   (145518) от 26.12.2019
+
+New Super Mario Bros. U Deluxe (2019) [Switch] [EUR] 8.1.0 [NSZ] [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145518.jpg" />
+</div>
+
+
+###  Подробнее
+
+В New Super Mario Bros. U Deluxe для Nintendo Switch вас ждут более 160 двухмерных уровней в стиле классических игр Super Mario! Бегайте, прыгайте и топчите врагов в свое удовольствие!
+Прорываться через орды врагов и собирать монетки по пути к финальному флагу можно в компании трех других игроков — или, напротив, бросить им вызов в веселых дружеских соревнованиях! (   Читать дальше...   )Тип издания: LicenseРазработчик: NintendoЖанр: PlatformerЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E587D3ADE2C48FC5E7562446493B4B792EC9209C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348235   (144227) от 27.12.2019
+
+Winter Stars (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MOVE]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Там где есть снег и лед, есть место и зимним видам спорта. Если вы любитель спуститься на лыжах с заснеженного склона, крутануть пируэт на коньках, или просто мечтаете об этом, в таком случае игра просто таки создана для вас. Winter Stars - это глоток свежего воздуха в жанре зимних видов спорта, позволяющий фанатам спорта, разного возраста и с разным уровнем возможностей, (   Читать дальше...   )Тип издания: LicenseРазработчик: 49GamesЖанр: СпортЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409EF555164DFE6834A7491C80D45AF976D7FB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969633   (144128) от 28.12.2015
+
+Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO] [PSN / 1.01] [Ru/Multi] | E3Repacks
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о Кунууксаюка. История о бесконечной метели, грозившей гибелью нашему народу. История об опасном путешествии на ледяном краю мира. История об отваге и истинной дружбе. Сыграй в мою историю. Ты — девочка, и ты — песец, ты идешь по опасным землям и смотришь в лицо ледяному ужасу. Ты встретишь фантастических созданий и увидишь затерянные деревни. Тебе откроются (   Читать дальше...   )Тип издания: PSNРазработчик: Upper One GamesЖанр: Adventure, 2DЯзык озвучки: Язык коренного народа АляскиЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6ED0CE5CBAB1005096FFFBCAD8F0AC60DEB626
 ```
 
 https://mybot314.ru/tekegram_catalog/

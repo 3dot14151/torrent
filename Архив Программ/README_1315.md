@@ -6,7 +6,7 @@ Revo Uninstaller Pro 4.3.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369368.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream PDF Editor PRO 2.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369364.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ StartIsBack++ 2.9.6 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369357.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Total Uninstall 6.21.0 Professional Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369319.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Download Master 6.14.2.1577 RePack (&Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369314.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ X-Mouse Button Control 2.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369291.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BootPass 4.1.0 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369288.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Serato DJ Pro 2.4.1 (2411808) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369247.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CyberLink PowerDVD Ultra 20.0.2212.62 RePack by Lisabon [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369244.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AOMEI Backupper Technician Plus 6.1.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369237.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Revo Uninstaller Pro 4.3.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369233.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Total Uninstall 6.21.0 Professional Edition RePack (& Portable) by KpoJIuK  [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369216.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dism++ 10.1.1000.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369214.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Movavi Screen Recorder 21.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369129.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Tor Browser Bundle 10.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369128.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ The KMPlayer 4.2.2.45 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369126.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ O&O Defrag Professional 24.0 Build 6023 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369122.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ TechSmith Camtasia Studio 9.1.0 Build 2356 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369095.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369088.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ F-Secure Freedome VPN 2.36.6555 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369001.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kerish Doctor 2017 4.65 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368966.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ KMSAuto Net 2016 1.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368963.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe After Effects CC 2018 15.0.0.180 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368958.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Aiseesoft PDF Converter Ultimate 3.2.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368826.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Process Lasso Pro 6.0.1.86 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368772.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Tag&Rename 3.9.9 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368681.jpg" />
 </div>
 
 

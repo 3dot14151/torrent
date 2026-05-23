@@ -6,7 +6,7 @@ DesktopSnowOK 5.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141087.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SRWare Iron 47.0.2500.0 DC 30.12.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.4 Build 4969 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140988.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Foxit PDF Editor Pro 2023.3.0.23028 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140974.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140966.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Bulk Image Downloader Lite 5.86.0.0 repack by Wadimus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140937.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ GreenBrowser 6.8.1228 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140936.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Torch Browser 45.0.0.10802 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140926.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Hard Disk Sentinel PRO 5.61.15 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140911.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ KiCad 5.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140893.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Punto Switcher 4.1.9 Build 903 Final RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140889.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ PIDKey 2.0.9 build 1006 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140870.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ASuite 1.5.2 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140845.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140797.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Adobe Premiere Pro 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140787.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Foxit PDF Reader 2023.3.0.23028 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140773.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Panda Free Antivirus 16.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140772.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Alcohol 120% 2.0.3 Build 8426 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140720.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ScanMyReg 3.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140695.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ChrisPC Win Experience Index 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140669.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Loaris Trojan Remover 3.0.73.208 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140665.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ ICQ 10.0 build 12414 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140645.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ FileZilla 3.29.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140644.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ SamDrivers 19.12 OLD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140643.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ReviverSoft Driver Reviver 5.27.0.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140636.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ OBS Multiplatform 0.12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140618.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ProcessKO 4.41 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656750.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nox App Player 6.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656735.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AVS Registry Cleaner 2.2.3.236 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656727.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ oCam Screen Recorder 405.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656676.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Resource Hacker 4.1.13 Beta Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656658.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ SynWrite 6.18.2105 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656657.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Windows Repair 1.7.5 + Portable [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656626.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ NVIDIA Inspector 1.9.6.6 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656625.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Dr.Web Security Space 11.0.5.6020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656586.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Autodesk AutoCAD Map 3D 2018 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656578.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Vivaldi 1.0.190.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656558.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AV Uninstall Tools Pack 2012.06 / Утилиты для удаления ант�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656504.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Glary Utilities Pro 5.77.0.98 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656491.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656490.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Auslogics Driver Updater 1.13.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656464.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ WebcamMax 7.9.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656431.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Roboscan Internet Security Free 2.5.0.17 (x86/x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656397.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Emsisoft Emergency Kit 2.0.0.8 [Multil/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656390.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656386.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Waterfox 38.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656381.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Photo Slideshow Creator 3.25 [Multi+Rus] + Portable by Invictus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656321.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ WPI SayanDVD v2012.06 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656308.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Mozilla Firefox 38.0.5 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656294.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ AdwCleaner 4.206 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656288.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Uninstall Tool 3.4.3 Build 5410 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656287.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ TuneUp Utilities 2012 12.0.3600.86 Final RePack by elchupacabra [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656253.jpg" />
 </div>
 
 

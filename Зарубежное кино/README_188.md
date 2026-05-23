@@ -1,55 +1,3 @@
-###  Публикация: 1475951   (1011944) от 09.06.2021
-
-Скорость / Speed (1994) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Террорист устанавливает в рейсовом автобусе радиоуправляемую бомбу, которая взорвётся, если скорость автобуса упадёт ниже 80 км/ч. После того, как автобус выезжает на шоссе и набирает скорость, взрывное устройство активируется, и сам автобус превращается в «скоростную бомбу» с заложниками, не имея возможности остановиться. Сотрудник спецслужб вместе со случайной (   Читать дальше...   )Производство: США / Twentieth Century FoxЖанр: боевик, триллер, приключенияРежиссер: Ян де БонтАктеры: Киану Ривз, Сандра Буллок, Деннис Хоппер, Джо Мортон, Джефф Дэниелс, Алан Рак, Гленн Пламмер, Ричард Лайнбэк, Бет Грант, Хоторн ДжеймсПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0F8777AFCE836C3A0FE307E7373C770F0D5981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475648   (1011939) от 09.06.2021
-
-Алита: Боевой ангел / Alita: Battle Angel (2019) UHD BDRemux [H.265/2160p] [4K, HDR10+, Dolby Vision, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит через 300 лет после Великой войны в XXVI веке. Доктор Идо находит останки женщины-киборга. После починки киборг ничего не помнит, но обнаруживает, что в состоянии пользоваться боевыми приемами киборгов. Начинаются поиски утерянных воспоминаний.Производство: США, Япония, Канада / Twentieth Century Fox, Lightstorm Entertainment, Troublemaker StudiosЖанр: Фантастика, боевик, приключенияРежиссер: Роберт РодригесАктеры: Роза Салазар, Кристоф Вальц, Дженнифер Коннелли, Махершала Али, Эд Скрейн, Джеки Эрл Хейли, Кин Джонсон, Хорхе Лендеборг мл., Лана Кондор, Идара ВикторПеревод: Дублированный, Многоголосый, АвторскийСубтитры: Русские (Forced, Blu-Ray, FOCS), Английские (Full, SDH)Продолжительность: 02:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A944FDA439FDB0B7D78BB3671D1112B6EB41ECFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471267   (1011936) от 09.06.2021
 
 Лагерь «Холодный Ручей» / Camp Cold Brook (2018) BDRip [H.264/1080p] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011936.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011927.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011923.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011915.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011913.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011912.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011906.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011901.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011886.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011885.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011881.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011880.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011876.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011841.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011809.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011800.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011798.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011791.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011782.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011779.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011770.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011768.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011765.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011743.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:038AD537156B1903B6B7D6D18F1BCC65D37BF325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476134   (1011738) от 10.06.2021
+
+Пила: Спираль / Spiral: From the Book of Saw (2021) WEB-DLRip  [H.265/1080p-LQ] [HDR10, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Импульсивный детектив полиции Нью-Йорка Зик Бэнкс всю жизнь пытается вырваться из тени своего отца, прославленного ветерана правоохранительных органов. Однажды Бэнксу и его новому напарнику поручают расследование серии жестоких убийств, которые странным образом напоминают преступления прошлых лет. Так они оказываются в эпицентре зловещей игры, и цена проигрыша в (   Читать дальше...   )Производство: Канада, США / Canadian Film or Video Production Tax Credit (CPTC), Dahlstar, Lionsgate, Serendipity Productions, Twisted PicturesЖанр: Детектив, триллер, ужасыРежиссер: Даррен Линн БоусманАктеры: Крис Рок, Макс Мингелла, Марисоль Николс, Сэмюэл Л. Джексон, Зои Палмер, Дженелл Уильямс, Ричард Зэппери, Дэн Петрониевич, Патрик МакМанус, Али ДжонсоПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full) украинские (Forced, Full), английские (Full, SDH)Продолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1407AA1879FD61C88517389C1BAD9E0F2EC711F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475909   (1011734) от 10.06.2021
+
+Пила: Спираль / Spiral: From the Book of Saw (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Импульсивный детектив полиции Нью-Йорка Зик Бэнкс всю жизнь пытается вырваться из тени своего отца, прославленного ветерана правоохранительных органов. Однажды Бэнксу и его новому напарнику поручают расследование серии жестоких убийств, которые странным образом напоминают преступления прошлых лет. Так они оказываются в эпицентре зловещей игры, и цена проигрыша в (   Читать дальше...   )Производство: Канада, США / Canadian Film or Video Production Tax Credit (CPTC), Dahlstar, Lionsgate, Serendipity Productions, Twisted PicturesЖанр: Детектив, триллер, ужасыРежиссер: Даррен Линн БоусманАктеры: Крис Рок, Макс Мингелла, Марисоль Николс, Сэмюэл Л. Джексон, Зои Палмер, Дженелл Уильямс, Ричард Зэппери, Дэн Петрониевич, Патрик МакМанус, Али ДжонсонПеревод: Многоголосый профессиональный (HDRezka Studio), авторский одноголосый (Котов)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), английские (Full, SDH)Продолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3050F7C2B40C2353C56B70404E96D1C0FED1BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

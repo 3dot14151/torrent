@@ -6,7 +6,7 @@ Total Commander 11.03 (14.04.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59672.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Psiphon 3 build 182 (15.04.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59651.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.40.33807.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59645.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aiseesoft FoneLab for Android 5.0.36 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59643.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AOMEI Backupper Technician Plus 7.3.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59638.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NetLimiter 5.3.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59631.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Firefox Browser 125.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59630.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RAM Saver Professional 24.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59629.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ R-Studio Network 9.4 Build 191303 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59621.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TweakPower 2.053 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59620.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aiseesoft Video Converter Ultimate 10.8.30 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59619.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Advanced Renamer 3.95 release 4 + Portable (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59617.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Topaz Photo AI 3.0.0 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59615.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ EarthView 7.9.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59603.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PilotEdit Lite & Pro 18.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59591.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Topaz Video AI 5.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59589.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Navicat Premium 16.3.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59560.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ IObit Smart Defrag Pro 9.4.0.342 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59552.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Cent Browser 5.1.1130.82 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59551.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Rainlendar Lite 2.20.1 Build 176 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59540.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Cent Browser 5.1.1130.82 (x86/x64) Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59524.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ IObit Driver Booster Pro 11.4.0.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59519.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AOMEI Backupper Technician Plus 7.3.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59518.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ FileZilla 3.67.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59510.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Kdenlive 24.02.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59508.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Firefox Browser ESR 115.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59505.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.7.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031488.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rough Justice: '84 (2023) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031314.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031306.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030635.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Crown of Wu (2023) [Ru/Multi] (1.00) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030630.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030543.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030340.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Planetbase (2015) [Ru/Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030305.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windbound (2020) [Ru/Multi] (1.3.40746.183/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030299.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wanderlust 4: The Bermuda Secret (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030191.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Vernal Edge (2023) [Multi] (1.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030172.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Labyrinths of the World 13: Eternal Winter / Лабиринты Мира 13: В�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030141.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WILD HEARTS (2023) [Multi] (1.1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029955.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Valheim (2021) [Ru/Multi] (0.145.6) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029844.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Shore (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029839.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ House Flipper (2018) [Ru/Multi] (1.2136/dlc) Repack xatab (обновляема�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029829.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0/dlc) Repack xatab [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029827.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ A Space for the Unbound (2023) [Multi] (1.0.30.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029764.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dorfromantik (2022) [Ru/Multi] (1.1.5.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029548.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DiRT Rally 2.0 (2019) [Multi] (1.17.0/dlc) Repack  xatab [Super Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029431.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Find Yourself (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029425.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Strange Investigations: Becoming / Удивительные расследова
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029280.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029211.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (60323/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029204.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Mystery Tales 14: Master of Puppets (2021) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029017.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Breathedge (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028957.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1619590   (201250) от 16.03.2023
-
-После Янга / After Yang (2021) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Янг — любимая игрушка в семье Джейка — ломается и не подлежит гарантии. Проблема в том, что Янг — это андроид, не отличимый от настоящего человека, и расстаться с ним не так просто. Джейк обещает дочери во что бы то ни стало починить Янга, и пускается в настоящую одиссею по волнам памяти робота, который окажется куда человечнее.Производство: США / A24, Cinereach, Per Capita ProductionsЖанр: фантастика, драмаРежиссер: КогонадаАктеры: Колин Фаррелл, Джоди Тёрнер-Смит, Хейли Лу Ричардсон, Джастин Х. Мин, Малеа Эмма Тьяндравиджая, Орла Кэссиди, Ричи Костер, Сарита Чоудри, Клифтон Коллинз мл, Ава ДеМэриПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD806164BC0B5C54AC08AE506B43AF30A6B8EDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619102   (201244) от 14.03.2023
-
-1917 / 1917 (2019) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-6 апреля 1917 года, разгар Первой мировой войны, Западный фронт на севере Франции. Британский генерал поручает капралу Блэйку и его сослуживцу смертельно опасную миссию. Они должны пересечь вражескую территорию, вроде бы оставленную германскими войсками, и доставить приказ об отмене наступления во 2-й батальон Девонширского полка, иначе 1600 солдат попадут в ловушку (   Читать дальше...   )Производство: США, Великобритания, Индия, Испания, Канада / Amblin Partners, DreamWorks SKG, Neal Street Productions, New Republic PicturesЖанр: военный, боевик, драма, историяРежиссер: Сэм МендесАктеры: Джордж Маккэй, Дин-Чарльз Чепмен, Марк Стронг, Эндрю Скотт, Ричард Мэдден, Клэр Дюбюрк, Колин Фёрт, Бенедикт Камбербэтч, Дэниэл Мейс, Эдриан СкарбороПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FDE70DDA41E637BF54F4049B3D2936931D7577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619741   (201238) от 17.03.2023
 
 М3ГАН / M3GAN (2022) BDRip [H.264/720p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201238.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201233.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201221.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201220.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201217.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201212.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201211.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201209.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201207.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201204.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201203.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201202.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201201.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201197.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201196.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201190.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201183.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201177.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201167.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201160.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201157.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201155.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201151.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201150.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D0FCE922DED80B3477527248E640F813D471D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619620   (201145) от 17.03.2023
+
+Марлоу / Marlowe (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бей-Сити, Калифорния, 1939 год. Загадочная блондинка нанимает частного детектива Филипа Марлоу, чтобы он нашёл её пропавшего любовника. Матёрый сыщик ещё не подозревает, что это, казалось бы, простое дело вскоре станет для него смертельно опасным.Производство: Ирландия, Испания, Франция /  Parallel Film Productions, Hills Productions AIE, Davis-FilmsЖанр: детектив, криминалРежиссер: Нил ДжорданАктеры: Лиам Нисон, Дайан Крюгер, Джессика Лэнг, Адевале Акинойе-Агбаже, Иэн Харт, Колм Мини, Даниэла Мелшиор, Алан Камминг, Дэнни Хьюстон, Шана КерслейкПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000932008C795E1BA62B2DCE64F40B9A4BD8B0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619699   (201141) от 17.03.2023
+
+Моя пиратская свадьба / Shotgun Wedding (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарси и Том готовятся к роскошной свадьбе на острове. Им немного досаждают мама жениха и бывший невесты. Но вскоре пара поймёт, что это были лишь мелочи: прямо на церемонию врываются пираты и берут гостей в заложники. Дарси и Тому предстоит всех спасти.Производство: США /  Mandeville Films, Maximum Effort, Nuyorican ProductionsЖанр: боевик, мелодрама, комедияРежиссер: Джейсон МурАктеры: Дженнифер Лопес, Джош Дюамель, Ленни Кравиц, Дженнифер Кулидж, Соня Брага, Чич Марин, Стив Култер, Д’Арси Карден, Калли Эрнандес, Десмин БоргесПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95613617D8496295B66E0B4DD744D3F3F63E0196
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 186114   (883364) от 24.03.2010
-
-Сумерки. Сага. Новолуние / The Twilight Saga: New Moon (2009) Blu-ray [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Влюбиться в вампира — страшно и романтично. Но потерять любимого, решившего ценой разрыва спасти свою девушку от роли пешки в вечном противостоянии кланов «ночных охотников», — это просто невыносимо. Белла Свон мучительно переживает исчезновение Эдварда и безуспешно ищет забвения в дружбе с мальчишкой-индейцем Джейкобом Блэком. Она даже не подозревает, что её лучший (   Читать дальше...   )Производство: США, Summit EntertainmentЖанр: ужасы, триллер, фэнтези, мелодрама, драмаРежиссер: Крис ВайцАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Билли Бёрк, Анна Кендрик, Майкл Уэлш, Джастин Чон, Кристиан Серратос, Эшли Грин, Джексон Рэтбоун, Кэм ЖигандеПеревод: ДублированныйСубтитры: Русские, Русские (комментарии), УкраинскиеПродолжительность: 02:10:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372582   (883348) от 04.04.2020
-
-Зверь / Biseuteu (2019) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Лидеры двух конкурирующих опергрупп убойного отдела, детективы Чон Хан-су и Хан Мин-тхэ, изо всех сил пытаются найти убийцу недавно пропавшей школьницы, чьи останки были найдены за городом. Детектив Чон ловит священника, который последним видел девушку живой, и тот под давлением даёт признательные показания, но детектив Хан доказывает, что этот подозреваемый не мог (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, Studio & NewЖанр: Детектив, Триллер, Криминал, БоевикРежиссер: Ли Джон-хоАктеры: Ли Сон-мин, Ю Джэ-мён, Чон Хе-джин, Чхве Даниель, Ким Хо-джон, Ким Бён-чхун, Ли Сан-хи, Ким Хон-пха, Ким Дэ-гон, Ок Ча-ёнПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A19706E2103D86E17A4C160A8F049FF81B5C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103874   (883323) от 13.02.2017
 
 Тупик / Dead End (2003) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883323.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883312.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883282.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883281.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) WEBRip [H.264
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883266.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883206.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883151.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883144.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883059.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883055.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883052.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883050.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883046.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883041.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882995.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882981.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882923.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882915.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882884.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882883.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882800.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882797.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882796.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882792.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:065D2F22571CA20C97C17410F86AECF8CCCCC512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763848   (882785) от 07.03.2014
+
+Спасти мистера Бэнкса / Saving Mr. Banks (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882785.jpg" />
+</div>
+
+
+###  Подробнее
+
+История постановки классического художественного фильма Disney «Мэри Поппинс». Когда Уолт Дисней пообещал своим дочерям снять фильм по их любимой книге, сказке Памелы Трэверс «Мэри Поппинс», он даже не подозревал, что на исполнение этого обещания ему понадобится более двадцати лет. В попытке получить права на экранизацию книги, Уолт столкнулся со своенравной и несговорчивой (   Читать дальше...   )Производство: США, Великобритания, Австралия / BBC FilmsЖанр: Драма, история, биография, музыкаРежиссер: Джон Ли Хэнкок / John Lee HancockАктеры: Эмма Томпсон, Том Хэнкс, Пол Джаматти, Джейсон Шварцман, Колин Фаррелл, Энни Роуз Бакли, Рут Уилсон, Брэдли Уитфорд, Б.Дж. Новак, Лили БигхемПеревод: Многоголосый закадровый (профессиональный)Озвучка / Автор перевода: BaibakoСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (SDH)Продолжительность: 02:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97E012A3B8011CBC82EA0081F848E3628029FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103962   (882777) от 13.02.2017
+
+По соображениям совести / Hacksaw Ridge (2016) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медик Американской армии времён Второй Мировой войны Дезмонд Досс, который служил во время битвы за Окинаву, отказывается убивать людей и становится первым идейным уклонистом в американской истории, удостоенным Медали Почёта.Производство: Австралия, США / AI-Film, Argent Pictures, Bliss MediaЖанр: драма, военный, историяРежиссер: Мэл ГибсонАктеры: Эндрю Гарфилд, Ричард Пирос, Джейкоб Уорнер, Мило Гибсон, Дарси Брайс, Роман Геррьеро, Джеймс Лагтон, Касия Стелмах, Хьюго Уивинг, Рэйчел ГриффитсПеревод: Профессиональный (многоголосый, закадровый) (Студия "Paradox" & Omskbird records)Язык субтитров: Русский, АнглийскийПродолжительность: 02:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF16098A8BC95D2723D5A80C732259A0C98D37F
 ```
 
 https://mybot314.ru/tekegram_catalog/

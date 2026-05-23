@@ -6,7 +6,7 @@ Kekkai Sensen & Beyond | Фронт Кровавой Блокады [TV-2] [2017
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837232.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837231.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837229.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Kami-sama Hajimemashita / Kamisama Hajimemashita / Очень приятно, Б
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836803.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835858.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835769.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835756.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Heavy Object / Тяжёлый объект [2015, TV, 24 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835751.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835520.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834965.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834801.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834464.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Full Metal Panic? Fumoffu | Full Metal Panic Fumoffu | Fullmetal Panic Fumoffu |
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833688.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Full Metal Panic! The Second Raid | Full Metal Panic! Owaru Day By Day | Ста�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833687.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Full Metal Panic! | Стальная тревога! [2002, TV, 24 эп.] BDrip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833686.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Pokemon: Battle Frontier (9 Season) / Покемон: Боевой Рубеж (9
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831946.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Hai to Gensou no Grimga / Гримгал пепла и иллюзий [2016, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829979.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Fairy Tail Zero / Фейри Тейл Зеро [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828087.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827419.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827350.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827349.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827348.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827347.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827346.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826312.jpg" />
 </div>
 
 

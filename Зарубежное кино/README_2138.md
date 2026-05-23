@@ -1,55 +1,3 @@
-###  Публикация: 1734601   (51140) от 04.07.2024
-
-Падение империи / Civil War (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое будущее, в США бушует гражданская война. Объединённые силы Запада — Калифорнии и Техаса — уже близки к взятию Вашингтона. Двое опытных военных корреспондентов и присоединившиеся к ним ветеран журналистики и начинающая девушка-фотограф отправляются из Нью-Йорка в столицу, чтобы успеть взять интервью у забаррикадировавшегося в Белом доме президента, прежде (   Читать дальше...   )Производство: США, Великобритания / A24, DNA Films, IPR.VCЖанр: боевик, драмаРежиссер: Алекс ГарлендАктеры: Кирстен Данст, Вагнер Моура, Кейли Спейни, Стивен Хендерсон, Соноя Мидзуно, Ник Офферман, Джефферсон Уайт, Хуани Фелиз, Нельсон Ли, Эдмунд ДонованПеревод: Дублированный (Пифагор, HDrezka Studio), двухголосый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: (Forced, Full), Английские (Full, SDH)Продолжительность: 01:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF70F138B459EE25C87B7D823040F57B398D194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734686   (51136) от 04.07.2024
-
-Опасный друг / Good Boy (2022) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Познакомившись с Кристианом в приложении для знакомств, Сигрид вне себя от счастья. Ее новый парень богат, красив и обходителен. Есть лишь одна проблема: в доме Кристиана живет его лучший друг, который носит костюм собаки и к которому нужно относиться, как к настоящему псу. Девушке придется узнать, насколько опасной может быть дружба.Производство: Норвегия / NTNU, FredagsfilmЖанр: ужасы, триллерРежиссер: Вильяр БёэАктеры: Гар Фартейн Лёкке Голи, Катрин Ловисе Эпстад Фредриксен, Амалия Виллок Ньястад, Вильяр Бёэ, Мари Ваде ГрённингПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, НорвежскийСубтитры: Английские (Full)Продолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC251C067A11475BC222ABA068C5B441F7631DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734579   (51131) от 04.07.2024
 
 Идеальная зависимость / Perfect Addiction (2023) WEBRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51131.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51128.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51127.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51126.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51123.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51121.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51120.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51118.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51116.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51071.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51070.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51060.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51054.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51053.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51052.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51050.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51047.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51046.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51043.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51028.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51020.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50996.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50994.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50990.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F25A0BCFB941A43986A40CA2B79BD0A157806D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734887   (50983) от 05.07.2024
+
+Сутенер / Le mac (2009) / BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его зовут Жильбер Шапель и он успешный банкир. В один прекрасный день его жизнь круто меняется! Оказывается, у Жильбера есть брат-близнец, который является опасным преступником и сутенером. Полицейские разыскали Жильбера и предложили ему необычную сделку! Жильбер сыграет роль своего брата и у него всего 36 часов на превращение из банкира в сутенера!Производство: Франция / La Petite ReineЖанр: комедия, криминалРежиссер: Паскаль БюрдоАктеры: Хосе Гарсия, Жильбер Мелки, Кармен Маура, Арсен Моска, Джо Престиа, Каталина Дэнис, Ален Фромаже, Лорен Батье, Дуду Маста, Эрик ДефоссПеревод: Дублированный, Профессиональный (многоголосый / 1 Канал)Язык озвучки: русский, французскийСубтитры: французскиеПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8469E421BC8A5142DD8A09EE4C0D279B2D03AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734754   (50972) от 05.07.2024
+
+Маппеты / The Muppets (2011) WEB-DLRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет объединяет потрепанных кукол для финального шоу, которое призвано спасти киностудию от разорения.Производство: США | Walt Disney Pictures, Mandeville Films, Muppets StudioЖанр: мюзикл, комедия, приключения, семейныйРежиссер: Джеймс БобинАктеры: Джейсон Сигел, Эми Адамс, Крис Купер, Рашида Джонс, Джек Блэк, Алан Аркин, Эмили Блант, Стив Уитмир, Эрик Джейкобсон, Дэйв Гольц и другиеПеревод: Дублированный (Невафильм)Язык озвучки: русскийСубтитры: русскиеПродолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29133C06698896A6F46972DF760951597E0AC893
 ```
 
 https://mybot314.ru/tekegram_catalog/

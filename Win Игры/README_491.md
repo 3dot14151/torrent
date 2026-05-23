@@ -1,29 +1,3 @@
-###  Публикация: 1765300   (34431) от 12.12.2024
-
-Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Sea of Stars - динамичное ролевое приключение, разработанное в стилистике игр старой школы девяностых годов. Повелитель плоти восстал и теперь мир находится под угрозой уничтожения. Мы же узнаем историю двух детей Солнцестояния, обладающих особой силой и могуществом, которые и являются единственной надеждой людей на спасение. Твоими противниками станут жуткие потусторонние (   Читать дальше...   )Тип издания: RepackРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9446C0CB712E16FF0FFACE3B3B49DD24E3BAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765507   (34332) от 13.12.2024
 
 This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
@@ -32,7 +6,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34332.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34297.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Gloomy Tales 3: Hotel Frightsylvania / Мрачные истории 3: Отел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34291.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tales of Kenzera: ZAU (2024) [Multi] (1.5.45551) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34249.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Forever Skies (2023) [Ru/Multi] (1.7.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34238.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34235.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Archons (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34223.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34220.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Go Home Annie (2024) [Ru/Multi] (build 16636802) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34195.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Chess King 25 (2024) [Ru/Multi] (25.0.0.2500) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34191.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.00) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34190.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.30) License GOG [Digital Collector's E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34177.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34165.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34158.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34139.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2/dlc) Repack Let'sРlay [Digital D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34135.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ State of Decay 2 (2020) [Ru/Multi] (38/dlc) Repack FitGirl [Juggernaut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34113.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Hot Wheels Monster Trucks: Stunt Mayhem (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34108.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34102.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Baby Blues Nightmares - Toddler Horror Game (2024) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34092.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34089.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34087.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34065.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34045.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2484/dlc) Repack Let'sРlay [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34035.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Trepang2, сумасшедший кровавый шутер от первого
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2D412C16B42AF348E2EE2B3CC70F857A619C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766066   (34033) от 16.12.2024
+
+Battle Shapers (2023) [Ru/Multi] (1.0.0.9952) Repack FitGirl [Original Soundtrack Bundle]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battle Shapers - это молниеносный фантастический шутер от первого лица в котором вы пробиваетесь сквозь армии осквернённых роботов. Используйте мощное оружие, умения и уникальные способности, украденные у беспощадных Повелителей. Вы играете за Аду, которую реактивировали ради одной последней миссии - освободить Новый Элизиум от коварных и порой невыносимых Повелителей (   Читать дальше...   )Тип издания: RepackРазработчик: Metric EmpireЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035EFE2F34D32F3A7A7B1941A89CFD0102F5D26D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Google Chrome 134.0.6998.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24899.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FanControl V216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24886.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sandboxie 5.70.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24881.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.45 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24878.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 7 SP1 7601.27618 x64 3in1 by OneSmiLe [13.03.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24866.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ R-Studio Network 9.4 Build 191460 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24865.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PotPlayer 250312 (1.7.22506) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24864.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CorelDRAW Technical Suite 2025 26.0.0.101 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24859.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NVIDIA GeForce Desktop Game Ready 572.70 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24847.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Audacity 3.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24841.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AIMP 5.40 Build 2667 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24824.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ iTubeGo YouTube Downloader 10.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24817.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ OneCommander Pro 3.95.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24805.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FanControl V217 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24797.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Paint.NET 5.1.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24792.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ QOwnNotes 25.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24782.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ XYplorer 26.90.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24779.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ OCCT 13.1.16 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24761.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PotPlayer 250313 (1.7.22508) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24740.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Luxion KeyShot Enteprise 2025.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24718.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24715.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ PotPlayer 250313 (1.7.22508) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24702.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ FxSound 1.1.31.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24690.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Chaos Vantage 2.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24686.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ CoolUtils Total HTML Converter 5.1.0.310 RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24678.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 10.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24674.jpg" />
 </div>
 
 

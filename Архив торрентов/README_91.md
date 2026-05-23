@@ -6,7 +6,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5122.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032156.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Exposure Software Blow Up 3 v3.1.4.367 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032131.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Exposure Software Snap Art 4 v4.1.3.358 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032123.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ QOwnNotes 23.3.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032109.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Telegram Desktop 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032104.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Exposure X6 v6.0.3.158 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032100.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Exposure X6 Bundle v6.0.3.133 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032090.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ WinCatalog 2020.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032085.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Emurasoft EmEditor Professional 20.5.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032084.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Avast Clear 21.1.5968.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032076.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PeaZip 7.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032075.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ reaConverter Pro 7.628 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032074.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Edge 88.0.705.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032063.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Calibre 5.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032059.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ PanoramaStudio 3.5.6 (12.02.2021) Pro RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032025.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Ashampoo Burning Studio 22.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032017.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Avast Free Antivirus 21.1.2449 (build 21.1.5968.0) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032006.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Acon Digital - Extract:Dialogue 1.0.7 VST, VST3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031982.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031974.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Futuremark 3DMark 2.17.7137 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031961.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Avast Premium Security 21.1.2449 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031960.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ LiteManager 5.0 Free/Pro [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031959.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Sumatra PDF 3.5.15357 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031900.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ GeoGebra 6.0.766.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031898.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ O&O DiskImage Professional 18.3 Build 277 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031897.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Opera GX 96.0.4693.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031876.jpg" />
 </div>
 
 

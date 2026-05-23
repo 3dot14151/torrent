@@ -1,55 +1,3 @@
-###  Публикация: 1114501   (832930) от 14.03.2017
-
-Свет в океане / The Light Between Oceans (2016) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Вернувшийся с войны смотритель маяка Том встречает трепетную девушку по имени Изабель. Зародившаяся между ними любовь полностью преображает Изабель и возвращает опустошенному Тому веру в жизнь. Молодожены поселяются на уединенном острове, к берегу которого однажды пристает лодка с новорожденной девочкой. Супруги решают воспитать младенца как родную дочь, не представляя, (   Читать дальше...   )Производство: Великобритания, Новая Зеландия, США / Amblin Entertainment, DreamWorks SKG, Heyday FilmsЖанр: драма, мелодрамаРежиссер: Дерек СиенфрэнсАктеры: Майкл Фассбендер, Алисия Викандер, Рэйчел Вайз, Флоренс Клери, Джек Томпсон, Томас Унгер, Джейн Менелос, Гарри МакДональд, Энтони Хэйес, Бенедикт ХардиПеревод: Дублированный (Лицензия BD RUS)Субтитры: Русские (Форс.+Полные), Английские (Full)Продолжительность: 02:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2AD65739A953888E8A238FB98B5EBB2CD2988A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114365   (832913) от 14.03.2017
-
-Бен-Гур / Ben-Hur (2016) WEB-DL [H.264/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-История Бен-Гура, потомка знатного иудейского рода, который был предан своим лучшим другом-римлянином. Проведя много лет в рабстве на римских галерах, Бен-Гур в итоге получает возможность вернуться на родину и отомстить обидчику.Производство: США / LightWorkers Media, Metro-Goldwyn-Mayer, Paramount PicturesЖанр: Боевик, Драма, ПриключенияРежиссер: Тимур БекмамбетовАктеры: Джек Хьюстон, Тоби Кеббелл, Родриго Санторо, Назанин Бониади, Айелет Зурер, Йохан Филип Асбек, София Блэк-Д’Элиа, Морган Фриман, Марван КензариПеревод: Дублированный (Blu-ray CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 02:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16A47037C26B03C09F0487E1A97A63B93E508DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114307   (832911) от 14.03.2017
 
 Найди меня, если сможешь / Come and Find Me (2016) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832911.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832897.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832818.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832813.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832802.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832795.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832793.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832770.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832697.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832691.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832689.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832612.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832534.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832526.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832442.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832343.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832338.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832213.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832206.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832138.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ Superнянь 2 / Babysitting 2 (2015) BDRip [H.264/720p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832132.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831974.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ Superнянь 2 / Babysitting 2 (2015) BDRip [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831956.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831955.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F6FC4726E17403F1A49D7010DCCAD44FA24811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497358   (831815) от 12.10.2021
+
+Опасный попутчик / Потерявшиеся на солнце / Lost in the Sun (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о Джоне, он мелкий мошенник. Он встречает подростка по имени Луи и отправляется с ним в дорожное приключение, где обучает его своим темным делам.Производство: США / Floren Shieh Productions, RainMaker FilmsЖанр: Боевик, триллер, драмаРежиссер: Трей НельсонАктеры: Джош Дюамель, Джош Уиггинс, Линн Коллинс, Эмма Фурманн, Аль Хэйтер, Ларри Дотсон, Луис Олмеда, Майкл Энтони Джексон, Дэвид Ламберт, Бо СмитПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6793B18F88EC4AF721AB9B3F9BC4EE34D4D1B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497727   (831744) от 12.10.2021
+
+Фредди против Джейсона / Freddy vs. Jason (2003) WEB-DLRip [H.264/1080p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фредди Крюгер доведен до отчаяния: он больше не может убивать. Лишь используя неуклюжего серийного убийцу Джейсона Вурхиса, Фредди удается истреблять детей с улицы Вязов. Но когда Джейсон начинает понимать, что им попросту манипулируют, планы Фредди готовы рухнуть. Теперь дело за тинейджерами Уиллом, Лори и Кией. Каким-то образом им надо заставить Джейсона раз и (   Читать дальше...   )Производство: США, Канада, Италия / New Line Cinema, Cecchi Gori Group Tiger Cinematografica, Avery Pix, Crystal Lake Entertainment, Sean S. Cunningham Films, WTC Productions, Yannix Technology CorporationЖанр: Ужасы, БоевикРежиссер: Ронни ЮАктеры: Роберт Инглунд, Кен Кирзингер, Моника Кина, Джейсон Риттер, Келли Роулэнд, Крис Маркетт, Брендан Флетчер, Кэтрин Изабель, Локлин Манро, Кайл ЛэбинПеревод: Дублированный (Мосфильм-Мастер)Субтитры: Русские, английскиеПродолжительность: 01:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFD131F4B078EE0167E27C1AF8A24A8A3991876
 ```
 
 https://mybot314.ru/tekegram_catalog/

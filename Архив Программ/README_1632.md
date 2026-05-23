@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 17.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224039.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DirPrintOK 6.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223990.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FileMenu Tools 7.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223975.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Q-Dir 7.97 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223971.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Topaz Gigapixel AI 5.3.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223954.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Photoshop Lightroom Classic 12.0.0.13 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223940.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AnyDesk 7.1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223919.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Skype 8.36.0.52 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223909.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Cockos REAPER 5.99 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223889.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Adobe Photoshop 2023 24.0.0.59 RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_223887.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PDFsam Basic 5.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223882.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223861.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TapinRadio Pro 2.13.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223854.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FinePrint Software (FinePrint 10.43 / pdfFactory Pro 7.43) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223844.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Revo Uninstaller Pro 4.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223834.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Registry Life 5.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223808.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Topaz Gigapixel AI 5.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223806.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Artweaver Plus 7.0.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223791.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Panda Free Antivirus 2016 16.0.2 DC 13.12.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223790.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ DesktopOK 8.03 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223785.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ MiniTool Power Data Recovery 9.1.1 Business Technician RePack (& Portable) by Do
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223766.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Topaz Mask AI 1.3.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223758.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Windows 10 Enterprise LTSB 2016 v1607 x64  by Zosma 10.12.2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223754.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ ASCOMP Synchredible Pro 5.305 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223703.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Soft Organizer Pro 7.51 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223675.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ EximiousSoft Logo Designer 3.83 RePack (& Portable) by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223660.jpg" />
 </div>
 
 

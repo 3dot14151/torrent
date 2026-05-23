@@ -1,57 +1,3 @@
-###  Публикация: 1260221   (313797) от 06.11.2018
-
-Судная ночь. Начало / The First Purge (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хотели бы вы жить в идеальном мире, где нет преступности, безработицы и войн?
-Единственная плата за такое счастливое будущее — это одна ночь абсолютного беззакония в году.
-Ночь, когда дозволено всё. Согласны поучаствовать в таком социальном эксперименте?Производство: США / Platinum DunesЖанр: ужасы, фантастика, боевик, триллерРежиссер: Герард МакМюррейАктеры: И'лан Ноэль, Лекс Скотт Дэвис, Джойван Вейд, Магга, Патрик Дарро, Мариса Томей, Лорен Луна Велес, Кристен Солис, Ротими Пол, МоПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английскиеПродолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D34A6F50144CAD8B0B049A3FACEA499B0F0D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417921   (313795) от 02.12.2011
-
-Чародей и Белая змея / The Sorcerer and the White Snake (2011) DVD5
-
->>Зарубежное кино
->>Азиатское кино (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основывается на легенде о Белой Змее, которая хвалит смелую любовь, между змеиным духом Бай Сужен и ее мужем-человеком Сю Сяном.Производство: Гонконг, КитайЖанр: Фэнтези, БоевикРежиссер: Сиу-Тунг ЧингАктеры: Джет Ли, Чарлин Чой, Альфред Синг, Вивиан Су, Шенг Йи Хуанг, Цзян У, Соня Квок, Рэймонд Лам, Сует Лам, Кар-Йинг ЛауПеревод: Двуголосый закадровый (любительский)Язык субтитров: АнглийскийПродолжительность: 01:38:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182812   (313794) от 11.11.2017
 
 Телохранитель киллера / The Hitman's Bodyguard (2017) HDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313794.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313776.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313763.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313748.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313722.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313697.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313653.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313624.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313615.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313611.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313535.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313517.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313510.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313502.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313464.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313433.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313334.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313326.jpg" />
 </div>
 
 
@@ -535,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313317.jpg" />
 </div>
 
 
@@ -561,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313314.jpg" />
 </div>
 
 
@@ -588,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313306.jpg" />
 </div>
 
 
@@ -615,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313239.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313208.jpg" />
 </div>
 
 
@@ -668,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313207.jpg" />
 </div>
 
 
@@ -680,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C412E11F4A56A7DA7B3D49A2E81450F6600E469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332224   (313202) от 20.10.2019
+
+Сверх(НЕ)естественное / Extra Ordinary (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромная Роуз обладает экстрасенсорными способностями, но соседи достают ее лишь просьбами изгнать духов надоедливых родственников. Однажды в ее родном городке объявляется рок-звезда Кристиан Уинтер. Наделенный дьявольской силой, он околдовывает местную девушку, и ее отец в отчаянии просит Роуз о помощи. У героини появляется шанс раскрыть свой дар, а заодно устроить (   Читать дальше...   )Производство: Ирландия, Бельгия, Blinder Films, Epic Pictures GroupЖанр: Комедия, ужасы, фэнтезиРежиссер: Майк Ахерн, Энда ЛогманАктеры: Маив Хиггинс, Бэрри Уорд, Уилл Форте, Клаудия О`Доэрти, Джэми Бимиш, Terri Chandler, Ристерд Купер, Emma Coleman, Кэрри Краули, Мэри МакЭвойПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F66647163CCDCBCB6310F8A30F82A06F684A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332398   (313201) от 20.10.2019
+
+Музыкальная глухота / Tone-Deaf (2019) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеряв работу и расставшись с парнем, Олив решает по совету друзей выбраться за город и отдохнуть. Она снимает дом на выходные у с виду обычного пожилого вдовца, не подозревая, что попадает в опасную ситуацию. Ведь связалась она с нестабильным типом, которому после смерти жены нечего терять, и теперь он хочет кого-нибудь убить. Кроме того, мужчина негодует из-за (   Читать дальше...   )Производство: США, Best Medicine Productions, Circle of ConfusionЖанр: Ужасы, триллер, комедияРежиссер: Ричард Бейтс мл.Актеры: Аманда Крю, Роберт Патрик, Хейли Норман, Джонни Пембертон, Нэнси Лайнхэн Чарльз, АннаЛинн МакКорд, Рэй Уайз, Ким Делани, Ронни Джин Блевинс, Тейт ЭллингтонПеревод: Многоголосый профессиональный, авторский одноголосыйСубтитры: Русские forced, full (FOCS ненормативная лексика), английские, испанскиеПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE09673DE02ECC5A04D774D0D4E8F53B5C61BF6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1404716   (491307) от 26.08.2020
-
-Юрий Нагибин | Павлик (1964) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Радиопостановка по повести Юрия Нагибина.
-1941 год. Юный Павел направляется на войну в прифронтовую полосу сотрудником фронтовой газеты, основной задачей которой являлась контрпропаганда на немцев, направленная на сдачу в плен солдат Вермахта. Немало испытаний ждет его на этом пути.Жанр: Драма, РадиоспектакльПродолжительность: 01:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928F2392871092B052B96779C9B3B7BC4322B35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382865   (491155) от 02.09.2011
-
-Александра Маринина | Я умер вчера (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-От взрыва в автомобиле погибают два сотрудника телепрограммы «Лицо без грима». Через некоторое время ее ведущий, популярный тележурналист Александр Уханов, узнает, что существует заказ и на его убийство. И заказ сделала его собственная жена. Неожиданно Уханов попадает в поле зрения работников милиции, ведущих следствие по делу об убийстве колдуньи Инессы. Анастасия (   Читать дальше...   )Жанр: ДетективПродолжительность: 19:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD87A9CA727B4D9D99BA9DE4BAE4E667786D8272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404585   (491097) от 26.08.2020
-
-Данил Корецкий | Золушка (Книга 2). Алмазы для Золушки (2020) [MP3, Константин Корольков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман в лучших традициях прозы Корецкого!
-Кира – дочь геолога, открывшего когда-то в джунглях алмазное месторождение, отправляется искать алмазную жилу в составе экспедиции. В этом поиске переплетаются интересы нескольких разведок и опасного авантюриста, а Кира пытается «вычислить» среди участников операции убийцу ее отца. Поход по джунглям опасен и полон приключений. (   Читать дальше...   )Жанр: Шпионские детективыПродолжительность: 10:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58DE9E90D22F70A913E1441A669998C644CBAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404519   (491033) от 26.08.2020
 
 Терри Пратчетт | Плоский мир. Ведьмы (Книга 3). Ведьмы за границей (2020) [MP3, Александр Клюквин]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491033.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491030.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491017.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490954.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490944.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490897.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490884.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490864.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490838.jpg" />
 </div>
 
 
@@ -321,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490709.jpg" />
 </div>
 
 
@@ -347,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490497.jpg" />
 </div>
 
 
@@ -373,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490435.jpg" />
 </div>
 
 
@@ -399,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490331.jpg" />
 </div>
 
 
@@ -425,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490160.jpg" />
 </div>
 
 
@@ -451,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490155.jpg" />
 </div>
 
 
@@ -478,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490145.jpg" />
 </div>
 
 
@@ -504,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490141.jpg" />
 </div>
 
 
@@ -530,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490137.jpg" />
 </div>
 
 
@@ -556,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490115.jpg" />
 </div>
 
 
@@ -582,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490075.jpg" />
 </div>
 
 
@@ -609,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490021.jpg" />
 </div>
 
 
@@ -636,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489836.jpg" />
 </div>
 
 
@@ -663,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489822.jpg" />
 </div>
 
 
@@ -674,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AEE643F28178D90632A99CA647386FA0795800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544833   (489148) от 08.09.2012
+
+Крис Вудинг | Элайзабел Крэй и Тёмное братство [2001] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таниэлю Фоксу всего семнадцать лет, но он с полным правом может назвать себя профессиональным охотником за нечистью. Он – один из тех, кто, еженощно рискуя жизнью, противостоит чудовищам и призракам, наводнившим самый старый район Лондона, не дает им захватить весь город. Его работа щедра на сюрпризы, по большей части – неприятные. Но когда однажды на охоте Таниэль встретил девушку примерно своих лет, он и подумать не мог, что это случайное знакомство приведет его к раскрытию страшного заговора: Темное Братство задумало призвать в мир саму Тьму, по сравнению с которой ожившие кошмары, шныряющие в лондонском тумане, кажутся лишь мелкими неприятностями.Жанр: Фэнтези, мистика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0426925F589EB46BC7F8D6F7105CE4700DC2B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544748   (489138) от 08.09.2012
+
+Урсула Ле Гуин | Шкатулка с темнотой [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой сборник рассказов Урсулы Ле Гуин.Жанр: Зарубежная фантастика, фэнтези, мистика, ужасы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644F1A97A9FFADE0E8122CC9A5B2909133B75F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383220   (489112) от 03.09.2011
+
+Иосиф Бродский | Ранние стихотворения (1996) [MP3, Иосиф Бродский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иосиф Александрович Бродский (1940–1996) – поэт. В 1987 г. Бродский стал лауреатом Нобелевской премии по литературе, которая была присуждена ему за «всеобъемлющее творчество, насыщенное чистотой мысли и яркостью поэзии».Жанр: Русская литература, классика, поэзияИздательство: Sintez Records
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0AB89ED89568CB91BE3349345F5D44664604CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

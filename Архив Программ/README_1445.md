@@ -6,7 +6,7 @@ Opera 49.0.2725.39 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302911.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 9.12 RC 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302909.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Driver Easy Pro 5.5.5.4057 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302908.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Video Converter 18.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Care 365 Pro 2.13.163 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302906.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DisplayFusion Pro 9.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302895.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Raise Data Recovery for FAT/NTFS 5.5.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302892.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Cumulative Update kb4048955 for Windows 10 1709 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302887.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Windows System Control Center 2.1.0.0 Portable [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302882.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Q-Dir 6.45.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302844.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Internet Download Manager 6.26 Build 14 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302829.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Synapse Audio - DUNE 3.2.0 VSTi, AAX (x86/x64) Repack by VR (Rev.4) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302820.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Dreamweaver 2020 20.0.0.15196 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302807.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Graebert ARES Commander Edition 2018 18.3.1.4063 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302766.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Microsoft Office Professional 2003 SP3 (2017.11) RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302763.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Wing IDE Professional 5.1.8 [Multi/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302754.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ DriverPack Solution Online 17.1.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302740.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ KMS Tools Portable 16.11.2017 by Ratiborus  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302727.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Windows 10 Home/Pro 1709 x86/x64 by kuloymin v10.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302726.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ K-Lite Codec Pack 11.7.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302704.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ DFX Audio Enhancer 11.106 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302691.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Q-Dir 6.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302633.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Process Lasso Pro 8.9.8.92 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302631.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ BurnAware Professional 9.7 RePack (& Portable) by D!akov [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302630.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ IObit Driver Booster Pro 3.1.0.365 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302521.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ KMSpico 10.1.8.2 Final + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302518.jpg" />
 </div>
 
 

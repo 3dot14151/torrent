@@ -6,7 +6,7 @@ Goombay Dance Band - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885658.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Roller Disco: Remix And New Generation (2020) [MP3|320 Kbps] <Disco, Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885206.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883642.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Музыкальное потрясение зимы от Русского 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883640.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883639.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Музыкальное зимнее настроение. Русский с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883638.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883631.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Золотые песни 90-х (2009) [MP3|256 кб/c]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883540.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Хиты в тачку. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883517.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Двигай Попой 17 (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883505.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Музыкальные Новинки Интернета. Зимний Вы
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883455.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Весенняя сотка любимой музыки. Часть 6 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882843.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882468.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882128.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Stand By Me: Planet Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882001.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881057.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880628.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880611.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880610.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Танцевальная зима. Снежная 100-ка выпуск №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880191.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Автозвук. Отборный зимний хит. Выпуск № 5 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880188.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Полный отрыв выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880179.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - A Day for Love: Special Valentines Day Selection. Acoustic Versions of Love
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880170.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Дискотека зимних дорог. Индустрия поп му�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880153.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Только хиты. Русский сборник на Hit FM. Верс�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880038.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Smokie - 100% Smokie (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879933.jpg" />
 </div>
 
 

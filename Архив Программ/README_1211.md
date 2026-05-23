@@ -6,7 +6,7 @@ Topaz DeNoise AI 2.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429621.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bandicam 4.6.4.1727 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429618.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ YTD Video Downloader PRO 5.9.13.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429611.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RegCool 1.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429610.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AnyMP4 Video Converter Ultimate 7.2.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429606.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Take Command 25.00.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429605.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LibreOffice 6.3.0 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429602.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ocenaudio 3.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429598.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Opera 90.0.4480.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429569.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MyLanViewer 5.6.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429564.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ LibreOffice 7.4.0.3 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429563.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Room Arranger 9.6.2.625 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429559.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AlterPDF Pro 6.0 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429553.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CoolUtils Total Image Converter 8.2.0.226 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429550.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cockos REAPER 6.14 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429549.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Topaz Mask AI 1.3.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429545.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Vivaldi 3.3.2022.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429543.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ GPU Caps Viewer 1.46.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429538.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Opera 71.0.3770.171 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429537.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sigil 1.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429533.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ TBProAudio - DSEQ 2.2.1 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429488.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Streaming Audio Recorder 4.3.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429485.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ CCleaner 5.72.7994 Technician Edition Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429479.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ FotoSketcher 2.35 Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_429440.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Win7codecs 3.8.0 + x64 Components [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_429431.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BlazeVideo DVD Copy 5.0.0.0 Portable by Invictus [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_429424.jpg" />
 </div>
 
 

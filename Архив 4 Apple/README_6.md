@@ -6,7 +6,7 @@ Mellel 5 v5.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041199.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BluePlum Home Inventory 4 v4.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041197.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Display Maid 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041193.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MacX DVD Ripper Pro 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041192.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mountain Duck 4.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041191.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Things 3 v3.13.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041187.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VideoProc (former MacX Video Converter Pro) 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041158.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Movist Pro 2.6.4 CR 2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041142.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ calibre 5 v5.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041116.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Grids for Instagram 6.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041111.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Piezo 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040953.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1901 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040951.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ CollageIt 3 Pro v3.6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040941.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kaleidoscope 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040927.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ WiFi Signal: Status Monitor  4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040912.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Serial Box 01.2021 + iSerial Reader 2.0.24 + SerialSeeker 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040895.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Nova 4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040196.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Cookie 6.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040195.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ QLab 4 v4.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040194.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VisualDiffer 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040193.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Amadine 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040192.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Alfred 4 Powerpack 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040190.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Grid 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040189.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ WinX DVD Ripper for Mac 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040184.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Avdshare Video Converter for Mac 7.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040163.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ iWork Converter 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040157.jpg" />
 </div>
 
 

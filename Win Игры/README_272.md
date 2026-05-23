@@ -1,29 +1,3 @@
-###  Публикация: 1178952   (352846) от 29.10.2017
-
-Nights of Azure 2: Bride of the New Moon (2017) [En/Ja/Ch] (1.0) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Игрокам предстоит столкнуться с рядом уникальных и подлых существ, в борьбе против которых необходимо будет полагаться на тесные связи со своими товарищами. В бою всегда будет участвовать главная героиня Aluche, дополнительный персонаж на выбор, и до двух монстров-служителей.Тип издания: LicenseРазработчик: KOEI TECMO GAMESЖанр: RPG, Third-person, 3D, JapaneseЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D17DE01062DD554308ED2B463D7C93224FECEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 787111   (352747) от 02.11.2015
 
 DreadOut (2014) [Ru/Multi] (2.2.11/dlc) SteamRip Let'sРlay
@@ -32,7 +6,7 @@ DreadOut (2014) [Ru/Multi] (2.2.11/dlc) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352747.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Karos (2011) [Ru] (19.07.17) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352720.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ring of Pain (2020) [Ru/Multi] (1.0.26) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352676.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352672.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352272.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Family Guy: Back to the Multiverse [En] (L) 2012 l SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352093.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ Endless Fables 4: Shadow Within / Сказки без конца 4: Среди �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351862.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ Mechanic Escape (2014) [En] (1.0/12.11.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351834.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ Kritika online (2019) [Ru] (P.220826-8.6.101-1) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351752.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Omensight (2018) [Ru/Multi] (1.04) Repack R.G. Catalyst [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351678.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351668.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.3.7/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351656.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351581.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351574.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ Gods Basement (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351568.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351565.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Off the Record 5: The Final Interview (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351549.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Whispered Secrets 11: Morbid Obsession (2020) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351223.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Lost Island: Eternal Storm / Затерянный остров: Вечный ш�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350871.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Elven Legend 5: The Fateful Tournament / Эльфийская легенда 5: 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350671.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ ScourgeBringer (2020) [Ru/Multi] (1.42) License GOG [Supporter Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350644.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ The Living Dungeon (2015) [En] (1.0) License SKIDROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350558.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ Bulb Boy (2015) [En] (1.0) License HI2U
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350556.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Sonic Lost World (2015) [En/Multi] (2.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350549.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Toukiden: Kiwami (2015) [En/Multi] (1.1.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350548.jpg" />
 </div>
 
 
@@ -672,6 +646,35 @@ Toukiden Kiwami – это расширенная и дополненная ве
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B820F6AE58398D06F8D010A4534E381D2F308D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724480   (350110) от 20.11.2013
+
+Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-нибудь испытывали жгучее желание покинуть узы Ада и добраться к самой вершине небес - Раю?
+
+В игре Party of Syn вам будут подконтрольны Семь Смертных Грехов, с помощью которых вам предстоит одолеть сложнейшие головоломки, полчища нечисти и злющих боссов. Каждый из грехов наделен своей супер-возможностью, которая поможет вам выбраться из царства мертвых и пробить себе путь на небеса. А кооператив, поддерживающий до четырех игроков, несомненно даст преимущество в решении очередной загадки.
+(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Crankshaft GamesЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, и другиеЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC102E2FFDDB5500A1DE33FC31E347F9DDE0E98
 ```
 
 https://mybot314.ru/tekegram_catalog/

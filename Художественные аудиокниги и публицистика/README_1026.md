@@ -1,84 +1,3 @@
-###  Публикация: 1743925   (46404) от 18.08.2024
-
-О.Шеллина (shellina), Amaranthe | Пётр Романов (Книга 1). Второй шанс (2024) [MP3, Богарт]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Велите сани запрягать, к сестрице своей, Наташеньке, поеду!»
-На этом жизненный путь императора Петра II закончился в нашем мире, но по воле случая, бога, магического артефакта, а может по ошибке, его заносит в параллельный мир, где Романовы никогда не правили, идут разборки влиятельных кланов между собой, развиты технологии, все близкие живы… и, да, тут есть магия. (   Читать дальше...   )Жанр: Попаданцы в магические миры, Бояръ-Аниме, Героическое фэнтезиИздательство: ЛитРес: Чтец, Автор
-Категория: 16+Продолжительность: 07:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE5DC7837C7157EE26287D319BC2D5A3B81E21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743927   (46385) от 18.08.2024
-
-О.Шеллина (shellina), Amaranthe | Пётр Романов (Книга 3). Клирик (2024) [MP3, Богарт]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пётр многому научился в монастыре. И это ему очень пригодится в дальнейшей жизни. Ведь пригодится же?Жанр: Попаданцы в магические миры, Бояръ-Аниме, Героическое фэнтезиИздательство: ЛитРес: Чтец, Автор
-Категория: 16+Продолжительность: 07:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9768CEF826E2F8E1F33847A577CFCE567341A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743814   (46371) от 18.08.2024
-
-Дмитрий Лифановский | Скиталец среди миров  (Книга 1) (2024) [MP3, Мухамет Закиров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я уже не помню сколько жизней прожил. Почти забыл самую первую. Но каждый раз умирая, воскресаю в новом мире в том самом теле семнадцатилетнего парня из маленького сибирского городка. И все приходится начинать сначала. Разве что накопленные в предыдущих жизнях знания остаются. А кем я только не был. Воином-кочевником, вождем первобытного племени, музыкантом-бардом, (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Боевое фэнтезиИздательство: Пересадочная станцияПродолжительность: 07:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9314191AC2E7E062D20448394BA1163FE0C3CE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 418053   (46370) от 19.08.2024
 
 Валентин Азерников | Абонент временно недоступен (Радиоспектакль) (2007) [MP3, Игорь Костолевский]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46370.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46348.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46341.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46271.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46263.jpg" />
 </div>
 
 
@@ -222,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46262.jpg" />
 </div>
 
 
@@ -249,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46261.jpg" />
 </div>
 
 
@@ -276,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46258.jpg" />
 </div>
 
 
@@ -304,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46237.jpg" />
 </div>
 
 
@@ -332,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46235.jpg" />
 </div>
 
 
@@ -359,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46232.jpg" />
 </div>
 
 
@@ -388,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46231.jpg" />
 </div>
 
 
@@ -417,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46230.jpg" />
 </div>
 
 
@@ -444,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46226.jpg" />
 </div>
 
 
@@ -471,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46221.jpg" />
 </div>
 
 
@@ -498,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46181.jpg" />
 </div>
 
 
@@ -526,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46170.jpg" />
 </div>
 
 
@@ -554,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46123.jpg" />
 </div>
 
 
@@ -581,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46044.jpg" />
 </div>
 
 
@@ -607,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46009.jpg" />
 </div>
 
 
@@ -633,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45991.jpg" />
 </div>
 
 
@@ -659,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45936.jpg" />
 </div>
 
 
@@ -687,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45913.jpg" />
 </div>
 
 
@@ -701,6 +620,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53EC2279E761816F204F46989104CB8D5D121A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349988   (45898) от 23.08.2024
+
+Сигизмунд Кржижановский | Автобиография трупа. Материалы к биографии Горгиса Катафалаки (2008) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Архив мировой литературы. Мистические приключения.
+Сигизмунд Доминикович Кржижановский (1887–1950) – русский советский писатель и драматург, философ, историк и теоретик театра. В 1950 году Василий Ян охарактеризовал С.Д. Кржижановского как писателя, чье «присутствие» сделало бы честь любой литературе мира.Жанр: Русская литература, классика, мистика, новелла, повестьИздательство: ООО «АрМир»Продолжительность: 04:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4425E6EDB4468E39F63D92458227DCF5037502E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744863   (45897) от 23.08.2024
+
+Евгений Астахов | Сопряжение (Книга 2). Шериф (2024) [MP3, Владимир Хлопов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй книге герой становится шерифом небольшого городка, и новая служба обещает быть весьма насыщенной и крайне опасной. Но Егерь не собирается оставаться тут надолго, его устремления идут гораздо дальше. А значит, настало время обрастать верной командой и искать союзников. Слушайте продолжение захватывающей истории..Жанр: Боевая фантастикаИздательство: 1С-ПаблишингПродолжительность: 11:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BAF6C8399B55A15A88C46990DF2C2CDE7839FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349975   (45890) от 23.08.2024
+
+Сигизмунд Кржижановский | Возвращение Мюнхгаузена (2008) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Архив мировой литературы. Мистические приключения.
+Сигизмунд Доминикович Кржижановский (1887–1950) – русский советский писатель и драматург, философ, историк и теоретик театра.
+Повесть «Возвращение Мюнхгаузена» написана  в 1928 году. Кто не наслышан о невероятных приключениях барона Мюнхгаузена, о его бесстрашии и находчивости, умении «вытаскивать» себя (   Читать дальше...   )Жанр: Русская литература, классика, мистика, повестьПродолжительность: 05:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27426BB32BC9211D292BC42CFD58ED420A2FE142
 ```
 
 https://mybot314.ru/tekegram_catalog/

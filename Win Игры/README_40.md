@@ -6,7 +6,7 @@ Montgomery Fox 2 and the Case of the Missing Ballerinas / Монтгомери �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.8.1.1) License GOG [Pa
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049899.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Happy Holidays 5: Christmas Never Ends (2025) [Multi] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049863.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The House in Fata Morgana (2016) [Ru/Multi] (1.3it) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049861.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ After... Prologue (2025) [Multi] (1.0) Scene TiNYiSO
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049854.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fuzz Dungeon (2021) [En] (1.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049848.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ JEF (2020) [En] (1.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049833.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cats Hidden Around the World (2024) [Ru/Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049824.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049797.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Vampiress: Eternal Duet (2025) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049751.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893v2/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049743.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049726.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Escape from Mental Hospital / 100 Дверей - Сбеги Из Дурдома 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049666.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.95-1/dlc) Repack FitGirl [Final Cu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049665.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (build 85239/dlc) Repack seleZ
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049664.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Crosak (2025) [Ru/Multi] (1.04) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049663.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049659.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Elephant Collection (2023) [En] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049658.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Magical Drop VI (6) (2023) [Multi] (2.4.9) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049657.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Heroes of Loot 2 (2016) [En] (1.5.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049641.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Welcome to Basingstoke (2018) [En] (109) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049636.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ DeadPoly (2022) [En] (0.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049603.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Book Of Changes / Книга Перемен (2007) [Ru] (1.0.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049602.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Crew (2014) [Ru/Multi] (1.2.0.0/dlc) Repack dixen18 [Unlimited]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049532.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Christmas Fables 4: Nutcracker's Tale / Рождественские Басни 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049501.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ He is Coming (2025) [Ru/Multi] (0.8.33) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049439.jpg" />
 </div>
 
 

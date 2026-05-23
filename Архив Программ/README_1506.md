@@ -6,7 +6,7 @@ Maxthon Browser 5.1.4.2100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268738.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cyberfox 52.5.2 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268709.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268649.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mozilla Firefox ESR 52.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268644.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe InCopy CC 2018 (v13.0.1) x86-x64 repack by m0nkrus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268566.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Dreamweaver CC 2018 (v18.0) x86-x64 repack by m0nkrus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268501.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ TeamViewer 13.0.5640 Free | Enterprise | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268499.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe Muse CC 2018.0 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268442.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Acrobat Pro DC (v18.9) Multilingual RePack by m0nkrus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268434.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Twinkstar 4.9.1000.1811 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268392.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ApowerREC 1.3.2.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268390.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Autorun Organizer 3.03 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268385.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Epic Pen Pro 3.7.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268379.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Your Universal MultiBoot Installer 2.0.6.1a Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268376.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Snooper Professional 3.1.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268341.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ DisplayFusion Pro 9.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268335.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ABBYY FineReader 11.0.102.536 Professional + Corporate Edition (RePack) [анг�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268319.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Aiseesoft Video Converter Ultimate 9.2.76 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268134.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ DiskTrix UltimateDefrag 6.0.40.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268131.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Zoner Photo Studio X 19.1909.2.195 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268126.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ClipGrab 3.8.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268125.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ XnViewMP 0.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268054.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ JetBrains RubyMine 2019.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268051.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ IsMyLcdOK 3.41 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268047.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ JetBrains CLion 2019.2.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267972.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ W10Privacy 3.3.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267970.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AVG Internet Security 2013 Build 13.0.2890 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998169.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.779.0 [MULTi / Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998167.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Radiocent 3.0.1.48 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998048.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Genuine Registry Doctor 2.5.9.8 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998045.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ K-Lite Codec Pack Update 9.6.9 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998043.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sysinternals Suite Portable 10.01.2013 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998041.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Autopano Giga 3.0.2 RePack by AlekseyPopovv [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998035.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Daum PotPlayer 1.5.35174 Stable Full & Lite by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998012.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ NETGATE Spy Emergency 11.0.605.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998008.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Windows 8 Codecs 1.38 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997995.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Instant Demo Studio 8.50.45 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997993.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Windows 7 Manager 4.2 + Portable by Baltagy [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997992.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ DFX Audio Enhancer 11.109 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997971.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Wondershare DVD Slideshow Builder Deluxe 6.1.12 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997934.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VSO Downloader Ultimate 2.9.14.8 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997846.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ SolveigMM Video Splitter 3.6.1301.11 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997818.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Mozilla Firefox 18.0 Portable by GeniTech [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997799.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Chasys Draw IES 4.02.01 [Multi+Rus by Wylek]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997795.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ LinkTreeNotes 2.3 Beta 1 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997774.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Comodo IceDragon 18.0.1.0 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997763.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Daum PotPlayer 1.5.35188 Stable Full & Lite by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997762.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Daum PotPlayer 1.5.35188 Stable [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997746.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DSP pack 1.33 (Winamp/Aimp3) RePack by elchupacabra [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997733.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997711.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Aurora 3D Presentation 13.01.12 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997710.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ AutoRun Pro Enterprise II 6.0.1.136 [Английский+Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997689.jpg" />
 </div>
 
 

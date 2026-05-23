@@ -1,32 +1,3 @@
-###  Публикация: 1013091   (777668) от 04.05.2016
-
-VA - Workout Hits Shade (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-01. Ylona -  Blazing Fire (Club Mix)  3:22
-02. Thomas Strack -  Halt mich fest 2k16 (Bonustrack)  3:57
-03. Rufus -  Say A Prayer for Me (Alex Metric Remix)  7:13
-04. Twoloud -  Affected (Dance Radio Mix)  3:29(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46FD5DAB0F35B3FBE5EE541E2262320BB4CA1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013519   (777665) от 04.05.2016
 
 VA - 100 Ultimate Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -35,7 +6,7 @@ VA - 100 Ultimate Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777665.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - TOP 100 Club Tracks (April) (2016) [MP3|160-320 кб/с] <Club House, Vocal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777663.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Весна плюс 5 (2016) [MP3|256 кб/с] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777653.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Workout Motivation Mix (2016) [MP3|320 кб/с] <House, Electro House, Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777647.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Strictly Pop Classics (2016) [MP3|320 кб/с] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777642.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Top 80 Dance Club Discotheque (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777635.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Гуляй Душа. Хит-Парад (2016) [MP3|256 кб/с] <Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777630.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - TOP 100 Deep House (April) (2016) [MP3|24-320 кб/с] <House, Indie Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777624.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Euro Best Hits N7 Top 100 (2016) [MP3|192-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777620.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Зажигательный молодежный музыкайф на Europ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777619.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Return Of The 90s (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777613.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Главная дискотека мая 50х50 (2016) [MP3|256 кб/с] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777610.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Радио Шансон. Легендарные хиты №1 (2016) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777607.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Workout Music - Work Out Mix (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777587.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777568.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Recuerdos Latinos Locas (2018) [MP3|320 Kbps] <Dembow, Salsa, Reggaeton>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777560.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777550.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Авто Recordный сборник хитов Vol.10 (2016) [MP3|256-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777533.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Radio Record Russian Mix Top 100 May (2016) [MP3|320 кб/с] <House, Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777492.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - 8 марта: Лучшие песни для неё (2018) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777476.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Club Dance Ambience vol.67 (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777413.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Festival Anthems Club EDM (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777344.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Straight Up Ear Candy Vol. 2 (2016) [MP3|320 кб/с] <Electro House >
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777343.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - 50 Dance Club Full of Essential Music (2016) [MP3|320 кб/с] <Club, Hands
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777333.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Top Club Music World Hits Vol.75 (2016) [MP3|320 кб/с] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777315.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Top Club Music World Hits Vol.75 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16740E968B02B195C9C2C835D12B488EA4865C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013772   (777314) от 05.05.2016
+
+VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danky & Brain - Chasing Cars (Radio Mix) (feat. Jenny Joao)
+02. Empir3 - Ride Like the Wind (Blutraxx's Remix) (feat. Pit Bailay)
+03. Marc Mounier - There Were Times (Radio Version)
+04. Honeyz - Definitely Something (Soulshaker Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
 ```
 
 https://mybot314.ru/tekegram_catalog/

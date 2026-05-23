@@ -6,7 +6,7 @@ Google Chrome 89.0.4389.114 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023460.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Sharpen AI 3.0.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023457.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 89.0.4389.114 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023448.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Care 365 Pro 5.6.5.566 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023444.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023442.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ EF Commander + Portable 2021.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023437.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Davinci Resolve Studio 17.1.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023424.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AOMEI Backupper Technician Plus 6.5.0 (DC 30.03.2021) RePack by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023418.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PDF Extra (Quick PDF Scanner) v6.9.4.985 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023407.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 3.8 RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023393.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ AIDA64 6.33.5700 Extreme / Engineer / Business / Network Audit RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023388.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Inspector Waffles (2021) [Multi] (1.0.2.5) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023370.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BELOFF 2021.03 Medium (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023361.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PullTube 1.6.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023343.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Amadine 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023342.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ iNet Network Scanner 2.7.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023340.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ URL Manager Pro 5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023337.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ BluePlum Home Inventory 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023335.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Grids for Instagram 7.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023333.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Downie 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023330.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wondershare DVD Creator 6.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023325.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ OnyX 3.9.5 for macOS Big Sur 11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023323.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Opera 75.0.3969.141 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023319.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ QuarkXPress 2020 16.3.2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023316.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023314.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ CloudMounter 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023308.jpg" />
 </div>
 
 

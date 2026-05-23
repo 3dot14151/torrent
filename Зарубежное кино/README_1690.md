@@ -1,55 +1,3 @@
-###  Публикация: 1583387   (205893) от 14.10.2022
-
-Топ Ган: Мэверик / Top Gun: Maverick (2022) BDRip [H.264/720p] [IMAX]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Пит Митчелл по прозвищу Мэверик более 30 лет остается одним из лучших пилотов ВМФ: бесстрашный летчик-испытатель, он расширяет границы возможного и старательно избегает повышения в звании, которое заставило бы его приземлиться навсегда. Приступив к подготовке отряда выпускников «Топ Ган» для специальной миссии, подобной которой никогда не было, Мэверик встречает (   Читать дальше...   )Производство: США / Paramount Pictures, Skydance Media, Jerry Bruckheimer FilmsЖанр: боевик, драмаРежиссер: Джозеф КосинскиАктеры: Том Круз, Майлз Теллер, Дженнифер Коннелли, Джон Хэмм, Глен Пауэлл, Вэл Килмер, Башир Салахуддин, Чарльз Парнелл, Моника Барбаро, Льюис ПуллманПеревод: дублированный, профессиональный многоголосый, авторскийСубтитры: русские (forced, full), украинские (forced), английские (full, SDH)Продолжительность: 02:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EB578E92F8BCFCEFAAF657774FC04FA40AF950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583348   (205888) от 14.10.2022
-
-Разрушение моста / Duan qiao / The Fallen Bridge (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После внезапного обрушения моста в обломках находят человеческие останки. Дочь одного из опознанных пытается докопаться до правды о смерти отца.Производство: Китай / Laurel FilmsЖанр: драма, детективРежиссер: Ли ЮйАктеры: Сандра Ма, Кэрри Ван, Вэй Фань, Цзэн Мэйхуэйцзы, Ли Сяочуань, Чжао Жуньнань, Гун Бэйби, Хуан Лу, Мокси Цзыши, Цзэн МумэйПеревод: Многоголосый любительский (Колобок)Язык озвучки: русский, китайскийСубтитры: английские (hardsub), китайские (hardsub)Продолжительность: 01:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DEFB0BAD0E117096D4A3D6064E80C8263B92A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654153   (205886) от 19.08.2023
 
 Мы продолжаем / We Go On (2016) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205886.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205884.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205880.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205876.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205861.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205856.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205850.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205847.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205841.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205835.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205832.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205812.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205808.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205796.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205792.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205777.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205767.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205765.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205752.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205746.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205745.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205736.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205728.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205718.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66D88651BFF6AA41FDD75EE50141B1AECC4551A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830932   (205716) от 27.10.2025
+
+Потерянная принцесса / The Lost Princess (2025) WEBRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окутанный мраком и тайнами замок, хранящий память о трагической любви, становится для миллиардера Алека Туати точкой отсчета, открывающей завесу его истинного предназначения. Найдя союзников, он вступает в ожесточенную борьбу, призванную защитить наследие замка и исполнить вековую волю предков.Производство: США, Марокко / H Films, LineDrive StudioЖанр: боевик, приключенияРежиссер: Хичам ХаджиАктеры: Эрик Робертс, Роберт Неппер, Гари Дурдан, Киллиан О’Салливан, Ирма Лэйк, Кейси Моттет Кляйн, Сорайя Аззаби, Люка Перос, Мелоди Каста, Майкл Патрик ЛэйнПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced) hardsubПродолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92147E31E44897AF1BC76A1C93E963F8F84B25B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830566   (205704) от 27.10.2025
+
+Ячейка 234 / Unit 234 (2024) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лори Скайлер владеет семейным предприятием — круглосуточным складским комплексом с ячейками для хранения. Однажды один из клиентов привозит и оставляет в ячейке 234 медицинскую каталку, накрытую тканью. Ночью пожилой мужчина приходит в контору и просит Лори открыть эту ячейку, поскольку он якобы забыл забрать ключ у жены, которая уехала в другой город. Получив отказ, (   Читать дальше...   )Производство: США / Fat Larry Productions, Productivity Media, Red A EntertainmentЖанр: триллер, криминалРежиссер: Энди ТеннантАктеры: Изабель Фурман, Дон Джонсон, Джек Хьюстон, Джеймс ДюМонт, Кристофер Джеймс Бейкер, Хувиан Маркес, Мэнни Галан, Анируд Пишароди, Роземберг Сальгадо, Дженна З. АльварезПеревод: Дублированный (Велес)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), голландскиеПродолжительность: 01:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60A16A3F6683E81F54BFC6E2F1718972F829FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 1557059   (556515) от 12.06.2022
-
-Первая передача на НТВ. Автомобильная передача (12.06.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-- Специфическое ДТП: за что же водителя разбитой машины на год лишили прав? Беззаконие или безграмотность?
-- Лечить «обочечника»: как принципиальному водителю обочина отомстила?
-- Хром в салоне покрылся пятнами: автомобиль на гарантии, но дилер отмахнулся. Машину владелец починил своими силами. Можно ли за это снять авто с гарантии? Конец раскрученного мифа.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773C0646D367FCB55BB766F46B60FBB79F29615E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557069   (556514) от 12.06.2022
 
 Бесогон ТВ. Того ли мы стыдимся? (30.07.2021) WEBRip [H.264/1080p-LQ] (выпуск 195)
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556514.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556512.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556510.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556508.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556505.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556474.jpg" />
 </div>
 
 
@@ -192,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556438.jpg" />
 </div>
 
 
@@ -218,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556436.jpg" />
 </div>
 
 
@@ -244,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556415.jpg" />
 </div>
 
 
@@ -270,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556414.jpg" />
 </div>
 
 
@@ -296,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556409.jpg" />
 </div>
 
 
@@ -322,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556390.jpg" />
 </div>
 
 
@@ -348,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556382.jpg" />
 </div>
 
 
@@ -374,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556356.jpg" />
 </div>
 
 
@@ -400,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556274.jpg" />
 </div>
 
 
@@ -426,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556237.jpg" />
 </div>
 
 
@@ -452,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556126.jpg" />
 </div>
 
 
@@ -480,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556105.jpg" />
 </div>
 
 
@@ -506,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556062.jpg" />
 </div>
 
 
@@ -532,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556053.jpg" />
 </div>
 
 
@@ -558,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556023.jpg" />
 </div>
 
 
@@ -585,7 +557,7 @@ History Channel. Вторая мировая война в HD: утерянны�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556016.jpg" />
 </div>
 
 
@@ -611,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555983.jpg" />
 </div>
 
 
@@ -637,7 +609,7 @@ History Channel. Вторая мировая война в HD: утерянны�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555965.jpg" />
 </div>
 
 
@@ -663,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555927.jpg" />
 </div>
 
 
@@ -675,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDE03363E49A5AC49005A62A3247DACE291F76C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305990   (555907) от 02.06.2019
+
+Космический фронт / Cosmic Front (2013) HDTV [H.264/1080i-LQ] (Сезон 3, серии 06, 18, 20)
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние достижения в наблюдении космоса дают всё более ошеломительные ответы на загадочные вопросы Вселенной. Исследование Магеллановых Облаков, чёрных дыр, астероидов и других явлений.Производство: Япония, NHKЖанр: Документальный, научно-популярный, космосРежиссер: Катаро Мияке, Эрико ХасэПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602F6B13778B563DB7FCFF3ABC3416A97B0D1917
 ```
 
 https://mybot314.ru/tekegram_catalog/

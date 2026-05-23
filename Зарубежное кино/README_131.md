@@ -1,56 +1,3 @@
-###  Публикация: 1453688   (1026638) от 12.03.2021
-
-Разрушитель / Demolition Man (1993) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В 2032 году в крио-тюрьме после 35-летней заморозки пробуждается один из самых опасных преступников Саймон Феникс и решает взять приступом спокойный, свободный от всякого насилия Сан-Анджелес.
-Неспособные справиться с жестокими повадками 1990-х годов, свойственными Фениксу, официальные власти ищут полицейского тех лет, который смог бы одержать верх над преступником (   Читать дальше...   )Производство: США / Warner Bros., Silver PicturesЖанр: Фантастика, боевик, триллерРежиссер: Марко БрамбиллаАктеры: Сильвестр Сталлоне, Уэсли Снайпс, Сандра Буллок, Найджел Хоторн, Бенджамин Брэтт, Боб Гантон, Гленн Шэдикс, Дэнис Лири, Гранд Л. Буш, Пэт СкипперПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: 01:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCB8C8E82F268DBBBD734BEE4510778534108DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453891   (1026590) от 13.03.2021
-
-Техасская резня бензопилой: Начало / The Texas Chainsaw Massacre: The Beginning (2006) BDRip [H.264/720p] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Братья с подружками отправляются в автомобильное путешествие, которое должно стать последним развлечением перед отправкой во Вьетнам. По дороге они попадают в аварию, и тут появляется местный шериф, знакомство с которым становится началом сущего кошмара: ребята оказываются в мрачном доме, где проживает беспощадный убийца по прозвищу Кожаное Лицо.Производство: США / New Line Cinema, Next Entertainment, Platinum Dunes, Texas Chainsaw Productions, Vortex/Henkel/HooperЖанр: Ужасы, триллерРежиссер: Джонатан ЛибесманАктеры: Джордана Брюстер, Тейлор Хэндли, Диора Бэрд, Мэтт Бомер, Р. Ли Эрми, Эндрю Бринярски, Ли Тергесен, Терренс Эванс, Кэти Ламкин, Мэриетта Мэрич и др.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F9122584A26F5D6F0D134933999C45CFBE1763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453368   (1026553) от 13.03.2021
 
 В плену надежды / Hope Gap (2019) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026553.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026544.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026542.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026531.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026527.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026524.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026514.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026512.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026511.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026496.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026490.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026488.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026484.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026483.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026482.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026479.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026474.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026470.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026466.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026366.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026358.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026337.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026332.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026323.jpg" />
 </div>
 
 
@@ -670,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A798F7B49824AC5069740CB70AFD216610AD8C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453998   (1026321) от 14.03.2021
+
+Птица в клетке. Заражение / Songbird (2020) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026321.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году мир все еще находится во власти опасного вируса. Зараженных силой забирают из домов и отправляют в зловещие карантинные лагеря.
+У курьера Нико редкий иммунитет к болезни, и он свободно передвигается по городу. Когда его девушка Сара заражается, Нико понимает, что за ней уже выехали военные и у него есть считанные часы, чтобы спасти возлюбленную.Производство: США / STX Films, Invisible Narratives, Platinum DunesЖанр: Триллер, драма, мелодрамаРежиссер: Адам МэйсонАктеры: Кей Джей Апа, София Карсон, Крэйг Робинсон, Брэдли Уитфорд, Петер Стормаре, Эльпидия Каррильо, Александра Даддарио, Лия МакХью, Пол Уолтер Хаузер, Деми МурПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), английские (SDH)Продолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F413EE04901B39E3197558FABB52BC999D4469D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454235   (1026319) от 14.03.2021
+
+Ты, должно быть, убийца / You Might Be the Killer (2018) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм устроил летний лагерь на участке, который принадлежит его семье много лет. Но что-то пошло не так, и парень обнаруживает себя убегающим от маньяка в маске, который уже зверски покрошил его друзей. Сэм звонит подруге Чак, работнице магазина комиксов и большой специалистке по слэшерам, а та, задав несколько наводящих вопросов, делает ужасающее открытие — Сэм и (   Читать дальше...   )Производство: США / Curmudgeon FilmsЖанр: Ужасы, комедия, детективРежиссер: Бретт СиммонсАктеры: Фрэн Кранц, Элисон Хэннигэн, Бриттани С. Холл, Дженна Харви, Брайан Прайс, Патрик Р. Уокер, Джек Мурильо, Сара Катрин Беллами, Savannah DesOrmeaux, Кэрол Джин УэллсПеревод: Профессиональный (многоголосый закадровый) (HDRezka Studio)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696A160DBBFBA8718D3A38583DEC7E5E1CFC3118
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1523059   (753046) от 10.01.2022
-
-Как я полюбила гангстера / Jak pokochalam gangstera (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Неизвестная женщина повествует о полном взлётов и падений пути Никодема «Никоша» Скотарчака, одного из крупнейших гангстеров в Польше. Основано на реальных событиях.Производство: Польша / Open Mind ProductionЖанр: драма, криминалРежиссер: Maciej KawulskiАктеры: Януш Хабёр, Пётр Цирвус, Себастьян Фабияньский, Анджей Грабовски, Агнешка Гроховска, Эдита Хербус, Кристина Янда, Adrian Klos, Энтони Круликовски, Магдалена ЛямпарскаяПеревод: Дублированный (VSI Moscow)Язык озвучки: Русский, украинский, польскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), польские (Forced, Full), английские (Full, SDH), немецкие, иврит, румынскиеПродолжительность: 03:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5A52A044294E9280631952EF456DB5E027BA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523061   (753036) от 10.01.2022
-
-Как я полюбила гангстера / Jak pokochalam gangstera (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Неизвестная женщина повествует о полном взлётов и падений пути Никодема «Никоша» Скотарчака, одного из крупнейших гангстеров в Польше. Основано на реальных событиях.Производство: Польша / Open Mind ProductionЖанр: драма, криминалРежиссер: Maciej KawulskiАктеры: Януш Хабёр, Пётр Цирвус, Себастьян Фабияньский, Анджей Грабовски, Агнешка Гроховска, Эдита Хербус, Кристина Янда, Adrian Klos, Энтони Круликовски, Магдалена ЛямпарскаяПеревод: Дублированный (VSI Moscow)Язык озвучки: Русский, украинский, польскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), польские (Forced, Full), английские (Full, SDH), немецкие, иврит, румынскиеПродолжительность: 03:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7A1982F8632B9097E32B2FF3021A4C4ACA5C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 663507   (753018) от 01.06.2013
 
 Выбор киллера / Choose (2011) DVD5
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753018.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753013.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753010.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753008.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753007.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753001.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752971.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752969.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752966.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752956.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752955.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752930.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752927.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752925.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752924.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752923.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752919.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752918.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752917.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752916.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752915.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752913.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752912.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752911.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE3756B38192EEE88B2E1597231F2070E56490F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523220   (752825) от 10.01.2022
+
+Тайна Сен-Тропе / Mystere a Saint-Tropez (2021 BDRip [H.265]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийство — это не повод для смеха. Обычно. Но вот попробуйте сдержать улыбку, когда преступление происходит среди харизматичных богачей на курорте Сен-Тропе, а расследование ведет весьма эксцентричный и не самый смышленый сыщик. Мотив есть у каждого, а вот с дедукцией — явно дефицит! Чтобы распутать это дело, горе-детективу придется притвориться дворецким и затеряться (   Читать дальше...   )Производство: Франция, Бельгия | Canal+ (fr), Ciné, Curiosa Films, France 2 Cinéma, France TélévisionЖанр: Комедия, криминал, детективРежиссер: Николя БенамуАктеры: Кристиан Клавье, Бенуа Пульворд, Тьерри Лермитт, Жером Коммандёр, Росси де Пальма, Вирджини Хок, Жерар Депардье, Венсан Дезанья, Николя Бриансон, Жиль АльмаПеревод: Дублированный (iTunes)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88D93D5CD18DCF1F39A2CDE00AFD3804EEF9F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523041   (752820) от 10.01.2022
+
+Война Фараона / Pharaoh's War / Hamlet Pheroun (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный опыт военнослужащего обошелся своему обладателю не малой кровью. Испытанные ужасы войны остаются позади, когда он выходит на заслуженный отдых. Но некоторые из бывших вояк не желают отдыхать и предаваться лени и находят себе соответствующее занятие. И один из таких берётся за крайне сложное и муторное задание, заключающееся в том, чтобы провести (   Читать дальше...   )Производство: Египет, Саудовская Аравия / ElSobky Film, Rotana Film ProductionЖанр: Боевик, триллер, приключенияРежиссер: Рауф АбДель АзизАктеры: Майк Тайсон, Хафтор Бьёрнсон, Амр Саад, Мухаммад Лютфи, Баюми Фуад, Ахмед Фахми, Сюзен Наджим Альдин, Махмуд Абдулмугни, Рамез Амир, Хамди Эль-МерганиПеревод: Дублированный (КиноПоиск HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6870ECCACAC8E17E0EB586936013B257B6702E53
 ```
 
 https://mybot314.ru/tekegram_catalog/

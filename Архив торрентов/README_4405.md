@@ -6,7 +6,7 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122878.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Navicat for Redis on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122877.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ R-Studio Network 9.3 Build 191269 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122870.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WinToUSB Technician 8.5 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122832.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Notepad++ 8.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122829.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122828.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Total Commander 11.02 (15.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122824.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Topaz Video AI 4.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122822.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ALLPlayer 9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122821.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ DefenderKiller 11.1.2 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122818.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Topaz Photo AI 2.3.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122816.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ CrystalDiskInfo 9.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122815.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Imagine 1.3.9 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122805.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ KMPlayer 4.2.3.8 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122802.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WPS Office + PDF 18.6.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122798.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ IObit Driver Booster Pro 11.2.0.46 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122797.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Macrorit Partition Expert 8.1.3 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122796.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ IObit Driver Booster Pro 11.2.0.46 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122795.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VidCoder 9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122788.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Draw.io 22.1.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122782.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ DaisyDisk 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122770.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Fort Firewall 3.10.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122767.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Q-Dir 11.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122761.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ KCNcrew Pack 01-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122752.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ HitPaw Watermark Remover for Mac 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122750.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Magic Disk Cleaner 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122747.jpg" />
 </div>
 
 

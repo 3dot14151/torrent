@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476060.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ DVJ Bazuka - Feelin (Uncensored) (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476059.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Eschaton - Interstellar Signals (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476057.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Artweaver Plus 6.0.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476054.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Artweaver Free 6.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476050.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476040.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476020.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476002.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - World Chillout (Bestsellers) (2015) [FLAC|tracks]<Downtempo, Lounge, Chillo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475994.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475993.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Madlib - Madlib / Quasimoto Reel (2002) [FLAC|Lossless]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475988.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Virtual Riot - Machinery EP (2015) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475982.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475980.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Milan Expo (Lounge Party Night) (2015) [FLAC|Lossless|tracks]<Lounge, Easy 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475979.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ MediaHuman YouTube Downloader 3.9.8.25 (3008) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475951.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Maxthon Browser 5.2.4.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475947.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Pianochocolate - Morning Coffee (2008) [MP3|320 Kbps]<Modern Classical, Downtemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475925.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ OSGeo-Live 6.0 (Дистрибутив для географов, картогр
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475915.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DVD X Studios CloneDVD 5.6.0.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475904.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Daum PotPlayer 1.5.34115 RePack (& Portable) by D!akov [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475903.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Immersive Explorer 0.2.1 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475899.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ LiveCD ESET NOD32 7473 [13.09.2012] [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475898.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Tor Browser Bundle 2.2.39-1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475891.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ TeamViewer 7.0.14563 Enterprise [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475890.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Avast Premium Security 22.7.6025 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475880.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ PowerArchiver 2017 Standard 17.00.92 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475864.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Registry First Aid Platinum 11.3.0 Build 2585 RePack (& portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627705.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TreeSize Free 4.3.1.494 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinTools.net Premium 19.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627691.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Torch Browser 42.0.0.9757 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627617.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Google Chrome 100.0.4896.88 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627595.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Pale Moon 29.4.6 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627594.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Waterfox Classic 2022.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627593.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Shockwave Player 11.6.0.626 [Многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_627531.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Norton Security with Backup 22.5.0.120 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627511.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ EveryLang 1.6.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627502.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.13 (1805) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627494.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Extreme Picture Finder 3.36.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627493.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FileMenu Tools 7.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627490.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Extreme Picture Finder 3.36.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627482.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ R-Drive Image System Recovery Media Creator 7.0 Build 7003 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627475.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ EZ CD Audio Converter 10.0.7.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627472.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AIMP 5.02 Build 2370 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627463.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ DxO PhotoLab Elite 5.2.0 build 4732 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627458.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Aurora Blu-ray Media Player 2.17.2.1987 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627389.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Novicorp WinToFlash Professional 1.11.0000 Final RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627374.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ RarmaRadio Pro 2.73.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627351.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.70.6000 Final RePack (&Po
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627350.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ iZotope - Ozone 9 Advanced 9.12.0 STANDALONE, VST, VST3, AAX (x64) RePack by R2R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627342.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ CCleaner 5.92.9652 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627341.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Advanced SystemCare Pro 8.3.0.807 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627257.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Pepakura Designer 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627168.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1572082   (209730) от 25.08.2022
-
-Фрэнк и Пенелопа / Frank and Penelope (2022) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Его помотало по миру, а она танцует в захудалом стриптиз-клубе. После судьбоносной встречи их жизнь покатится под откос, но они будут готовы рискнуть всем.Производство: США / Dolezal Pictures, Redbud StudiosЖанр: ТриллерРежиссер: Шон Патрик ФлэнериАктеры: Кэйли Кауэн, Билли Будинич, Кевин Диллон, Шон Патрик Флэнери, Джонатон Шек, Донна Д’Эррико, Лин Шэй, Соня Эдди, Брайан Мейлар, Чарли КунцПеревод: Авторский одноголосый (М. Яроцкий)Субтитры: АнглийскиеПродолжительность: 01:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1165EC770C1206A97AE2B4FE87002F4347F0B6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572045   (209725) от 25.08.2022
-
-Стальной алхимик: Месть Шрама / Hagane no renkinjutsushi: Kanketsuhen fukushusha suka / Fullmetal Alchemist: The Revenge of Scar (2022) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Братья Элрик еще никогда не сталкивались с таким сильным оппонентом — в этом сиквеле к первому полнометражному фильму им противостоит серийный убийца с большим шрамом на лбу.Производство: Япония, Warner Bros.Жанр: боевик, фэнтези, приключенияРежиссер: Фумихико СориАктеры: Рёсукэ Ямада, Атому Мидзуиси, Цубаса Хонда, Дин Фудзиока, Макэню, Мисако Рэнбуцу, Рюта Сато, Каната Хонго, Синдзи Утияма, Сэиё УтиноПеревод: Многоголосый профессиональный (Jaskier), двухголосый любительский (RealFake)Субтитры: Русские, английские, немецкие, французские, украинские и др.Продолжительность: 02:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C604FC5FEF42034DC8152C799711F7EE9A6E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644370   (209720) от 05.07.2023
 
 За гранью / Rimiteu (2022) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209720.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209718.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209713.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209699.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209693.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209691.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209660.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209658.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209650.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209645.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209633.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209629.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209624.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209614.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209610.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209609.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209603.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209602.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209601.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209596.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209589.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209580.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209578.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209577.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7196AE35451229AFF04FCE6E4C376F7D33F98B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564249   (209569) от 28.08.2022
+
+Проект Power / Project Power (2020) UHD WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209569.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Новый Орлеан завозят капсулы, которые дают проглотившим их суперспособности на 5 минут. Но какие силы получит человек, предугадать невозможно: кого-то ждёт невидимость или суперскорость, а кого-то - мгновенная смерть. Старшеклассница Робин приторговывает этими пилюлями, чтобы сводить концы с концами и накопить на операцию для больной матери, и иногда снабжает ими (   Читать дальше...   )Производство: США / NetFlix, Screen Arcade, SupermarchéЖанр: боевик, фантастикаРежиссер: Генри Джуст, Эриель ШульманАктеры: Джейми Фокс, Джозеф Гордон-Левитт, Доминик Фишбэк, Родриго Санторо, Кортни Б. Вэнс, Эми Ландекер, Колсон Бэйкер, Машин Ган Келли, Тейт Флетчер, Аллен МальдонадоПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, Full),  английские (Forced, Full)Продолжительность: 01:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430CE4A9E5AED5298FDC094FD980C7F3946682C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605697   (209568) от 19.01.2023
+
+Кружи меня / Spin Me Round (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмбер выигрывает поездку в Италию с возможностью посетить образовательную программу в известной сети итальянских ресторанов. Но это легкое и романтическое приключение оборачивается полнейшим хаосом.Производство: США, Италия / Duplass Brothers Productions, LimelightЖанр: комедия, мелодрамаРежиссер: Джефф БэйнаАктеры: Элисон Бри, Алессандро Нивола, Обри Плаза, Фред Армисен, Тим Хайдекер, Триша Хелфер, Айден Майэри, Эго Нводим, Джейк Пикинг, Дебби РайанПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Украинские, Английские (Full, SDH)Продолжительность: 01:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0912627EF6EE78A4AF632DBFDA45D92474A8AFE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

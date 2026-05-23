@@ -1,55 +1,3 @@
-###  Публикация: 1185035   (296598) от 19.11.2017
-
-Застрявшие в небесах / Skybound (2017) WEBRip [H.264/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пятеро пассажиров частного самолета не могут приземлиться из-за таинственной катастрофы, произошедшей на земле после их взлёта...Производство: Германия, VisionzЖанр: Боевик, ТриллерРежиссер: Алекс ТаваколиАктеры: Скарлет Бирн, Гэвин Стенхаус, Рик Коснетт, Мортен Суурбалле, Тайлер Фэйос, Карла Каролина Пиментел, Джерри Койл, Сами ОмарПеревод: Одноголосый закадровый, любительский (Хихикающий доктор)Субтитры: РусскиеПродолжительность: 01:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52ADF65FDE8AEB6736FCA42AF34FC1E3709CECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184880   (296597) от 19.11.2017
-
-Телохранитель киллера / The Hitman's Bodyguard (2017) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он — телохранитель мирового уровня. Его новая работа — охранять киллера, которого все мечтают убить. Он и сам с удовольствием прикончил бы этого гада. Но работа есть работа: смертельные враги в прошлом, они вынуждены объединиться в настоящем, чтобы выжить. Однако их методы настолько различны, а принципы противоположны, что вопрос выживания — под большим вопросом.Производство: США, Campbell Grobman Films, Cristal Pictures, East Light MediaЖанр: Боевик, КомедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдc, Сэмюэл Л. Джексон, Элоди Юнг, Цуваюки Саотомэ, Рой Хилл, Ричард Э. Грант, Гари Олдман, Род Халлетт, Юрий Колокольников, Надя КоначкиеваПеревод: Дублированный (iTunes), Авторский одноголосый (Михаил Чадов - ненормативная лексика), УкраинскийСубтитры: Русские (Full), Английские (Full)Продолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34E3D82CED7EC22596DA55A9A50CFA779857E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184783   (296594) от 19.11.2017
 
 Темная башня / The Dark Tower (2017) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296594.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296578.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296562.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296557.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296548.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296524.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296517.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296516.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296496.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296473.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296456.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296455.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296452.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296383.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296380.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296365.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296086.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295894.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295838.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295706.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295649.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295578.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295569.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295492.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C022DC1CAFB40B98EE7510B0067F8AEF545D229E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847332   (295490) от 05.12.2014
+
+Геракл / Hercules (2014) BDRemux 3D [1080p] [3D/2D]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более тысячи лет назад измученная душа скиталась по Земле, полубог, получеловек — Геракл — могучий сын царя богов Зевса, совершив все 12 подвигов, потерял семью и теперь находит утешение только в кровавых битвах. За эти годы он собирает вокруг себя шестерых таких же потерянных воинов, единственным смыслом жизни для которых стали сражения и присутствие смертельной (   Читать дальше...   )Производство: США, Flynn Picture Company, Metro-Goldwyn-Mayer (MGM), Paramount Pictures, Radical StudiosЖанр: Боевик, Приключения, ФэнтезиРежиссер: Бретт РэтнерАктеры: Дуэйн Джонсон, Иэн МакШейн, Джон Хёрт, Руфус Сьюэлл, Аксель Хенни, Ингрид Больсё Бердаль, Рис Ричи, Джозеф Файнс, Тобиас Зантельман, Питер МулланПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB749D526C0CFF07E6296C6A6A30DF0EA39FD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079402   (295458) от 03.12.2016
+
+Любовь не по размеру / Un homme a la hauteur (2016) BDRemux [H.264/1080p] [RUS Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потерянный мобильник оборачивается для Дианы знакомством с поистине невероятным человеком по имени Александр. Он умен, неутомим и чертовски обаятелен. У него замечательное чувство юмора и, кажется, нет недостатков. Кроме одного… Его рост — чуть больше метра. Это небольшое препятствие оказывается источником огромных проблем и множества неудобных и смешных ситуаций (   Читать дальше...   )Производство: Франция / Canal+, Centre National de la Cinematographie (CNC), Cine, Creative Andina, M6 Films, Saint Sebastien Froissart, Scope PicturesЖанр: КомедияРежиссер: Лоран ТирарАктеры: Жан Дюжарден, Виржини Эфира, Седрик Кан, Стефани Папаниан, Сезар Домбой, Эдмон Франчи, Мануэлль Гайар, Бруно Гомила, Камилль Дамур, Франсуа-Доминик БленПеревод: Дублированный (Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410E1B41EA0798CC39A247E51C5E920965A8E6A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

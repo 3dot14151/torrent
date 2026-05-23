@@ -1,116 +1,3 @@
-###  Публикация: 972598   (981735) от 06.01.2016
-
-Квартирник у Маргулиса - Евгений Маргулис (2015) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса сам хозяин квартиры - Евгений Магрулис. Выпуск посвящен юбилею Евгения Шулимовича. Дата эфира: 26.12.2015.01. Последняя-2
-02. Я рядом с тобой
-03. Джаз
-04. Заносит(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C8F40A44777FC9A60DA65890FB0F58C64FA41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972334   (981624) от 06.01.2016
-
-Квартирник у Маргулиса. Новогодний квартирник. Часть 2 (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Встречай Новый год вместе с Евгением Маргулисом и его знаменитыми гостями. В новогоднюю ночь на квартирнике соберутся вместе лучшие исполнители: Алексей Кортнев, Александр Пушной, Варвара Визбор и многие другие. В теплой и душевной атмосфере гости квартирника встретят Новый год и исполнят зажигательные композиции для вас. Дата эфира: 01.01.201601. Песенка о белых медведях - Алексей Кортнев
-02. Невезуха - Александр Пушной & Виктория Айзентир
-03. Серега, вынеси елку - Николай Гринько
-04. Желтые глаза - Евгений Феклистов(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77353A73BEC4E3ACFEA512661FAC0A6CD6688227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972192   (981621) от 06.01.2016
-
-Квартирник у Маргулиса. Новогодний квартирник. Часть 1 (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Квартирника не будет! Сегодня будет Новогодник! Встречайте Новый год в веселой компании лучших музыкантов (Найк Борзов, Алексей Кортнев, Александр Пушной, Сергей Галанин, Александр Шевченко,Валерий Сюткин) и радушного хозяина Евгения Маргулиса. Скучно не будет! Дата эфира: 31.12.201501. Песня Зайца и Волка
-02. Верхом на звезде - Найк Борзов
-03. Ради Любви - Найк Борзов
-04. Новый год и Белка - Мангo-Манго(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B8301EE8DEB0FDEA24F081301C6E9EBB41B4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613445   (981342) от 05.02.2013
-
-Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192E56324315FEA2F6D16F20646295D40BFC079B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613728   (981335) от 05.02.2013
 
 Концерт Примадонн VH1 / VH1 Divas Live (2009) HDTVRip
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981335.jpg" />
 </div>
 
 
@@ -153,7 +40,7 @@ Bob Marley And The Wailers - Live at The Rainbow (1977 (Video 1991)) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981328.jpg" />
 </div>
 
 
@@ -188,7 +75,7 @@ Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981297.jpg" />
 </div>
 
 
@@ -214,7 +101,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981116.jpg" />
 </div>
 
 
@@ -243,7 +130,7 @@ Cirque du Soleil: Delirium (2008) HDRip [EN]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981081.jpg" />
 </div>
 
 
@@ -269,7 +156,7 @@ Stars Of The 90'S (2004-2006) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981079.jpg" />
 </div>
 
 
@@ -304,7 +191,7 @@ Cirque du Soleil: Delirium (2008) [720p] HDTVRip [EN]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981077.jpg" />
 </div>
 
 
@@ -330,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981023.jpg" />
 </div>
 
 
@@ -357,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981022.jpg" />
 </div>
 
 
@@ -386,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981018.jpg" />
 </div>
 
 
@@ -415,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980082.jpg" />
 </div>
 
 
@@ -441,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980079.jpg" />
 </div>
 
 
@@ -467,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979134.jpg" />
 </div>
 
 
@@ -493,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979129.jpg" />
 </div>
 
 
@@ -520,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978815.jpg" />
 </div>
 
 
@@ -551,7 +438,7 @@ Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978774.jpg" />
 </div>
 
 
@@ -577,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978744.jpg" />
 </div>
 
 
@@ -606,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978506.jpg" />
 </div>
 
 
@@ -635,7 +522,7 @@ Il Divo - Live In London (2011) DVD 9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978462.jpg" />
 </div>
 
 
@@ -662,7 +549,7 @@ Scorpions. Концерт Moment Of Glory Live (Berliner Philharmoniker) (2000) 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978339.jpg" />
 </div>
 
 
@@ -688,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978166.jpg" />
 </div>
 
 
@@ -717,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978157.jpg" />
 </div>
 
 
@@ -731,6 +618,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E33CD2B93569901FDCB302EF622F10A07DCD219F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436554   (978094) от 17.01.2012
+
+Серия "SOLOS: The Jazz Sessions" / Andrew Hill (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. East 19th Street
+02. Bent Forward
+04. Unsmooth
+05. Tough LoveЖанр: JazzПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973834   (977888) от 10.01.2016
+
+Deep Purple - Live In California 74 (2005) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в Калифорнии - Deep Purple - Live In California 74, это пожалуй самый грандиозный концерт культовой группы Deep Purple. (Очень даже приличное качество)01. Burn
+02. Might Just Take Your Life
+03. Lay Down Stay Down
+04. Mistreated(   Читать дальше...   )Жанр: Hard rockАктеры: David Coverdale (vocals), Glenn Hughes (bass), Jon Lord (keyboards), Ritchie Blackmore (guitar), Ian Paice (drums)Продолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED920478915D5E09C496DA5602057A38ED38BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742398   (977593) от 06.01.2014
+
+Легенды Ретро FM (2014) HDTV [H.264/1080i] [эфир от 05.01.2014]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977593.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Первом канале большая премьера - международный фестиваль "Легенды Ретро FM 2013
+Один из самых масштабных и популярных фестивалей в России приглашает телезрителей в незабываемое путешествие в эпоху суперхитов и суперзвезд!
+Шоу, состоявшееся в "Олимпийском" в предновогодние дни – особенное. Оно посвящено 10-летию радиостанции Ретро FM. Организаторы (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5959AB1229DB81539F3DF7C6F9E1077FAB8CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437633   (977475) от 17.01.2012
+
+Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRip, HDRip, WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Поп-музыка
+Продолжительность: 01:14:32Формат: AVI, MKV, MP4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0EE60B59A2D00B0978C5DBB59F0B3741958952
 ```
 
 https://mybot314.ru/tekegram_catalog/

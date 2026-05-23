@@ -1,55 +1,3 @@
-###  Публикация: 1670154   (171792) от 21.10.2023
-
-Миссия: невыполнима. Смертельная расплата, часть 1 / Mission: Impossible - Dead Reckoning Part One (2023) WEB-DLRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Итан Хант и его команда противостоят системе искусственного интеллекта Entity, которая вышла из под контроля и стала угрозой человечества.Производство: США / Paramount Pictures, Skydance Media, TC ProductionsЖанр: боевик, триллер, приключенияРежиссер: Кристофер МаккуорриАктеры: Том Круз, Хейли Этвелл, Винг Реймз, Саймон Пегг, Ребекка Фергюсон, Ванесса Кирби, Эсай Моралес, Пом Клементьефф, Генри Черни, Шей УигэмПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английские (forced, full)Продолжительность: 02:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1EE9D4DC62B3841D9A2640C0F930135BA3D1496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670811   (171638) от 22.10.2023
-
-Все дети Бога / Toti copiii domnului / All Gods Children (2012) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма Пэвэлаш, ищет свою маму, которая пропала несколько лет назад. Отец умер, а мать, Ирина, находится в руках международной бандитской группировки, которая вынуждает её заниматься проституцией. Ирине удаётся вернуться на родину, в Молдову. Она планирует отдать Пэвэлаша на усыновление, за хорошее вознаграждение. А на деньги, вырученные за сына, попытаться (   Читать дальше...   )Производство: Молдова, Румыния / Artis Film, Diametral Film, Молдова ФильмЖанр: драмаРежиссер: Адриан ПоповичАктеры: Джони Алиджи, Лилия Беджан, Ion Beregoi, Вэс Блэквуд, Emergian Cazac, Анатол Дурбалэ, Аркел Иоселиани, Майкл Айронсайд, Alexei Machevnin, Rodica OantaПеревод: двуголосый любительский (Ариса Лебедева, Семён Ващенко) без цензуры, 18+Язык озвучки: русский, румынский, итальянский, английскийСубтитры: русские- Наталья ЧукановаПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615530667F4E9E27ED0D4129E1605AF11223D736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670799   (171635) от 22.10.2023
 
 Париж. Всё включено / La vie pour de vrai / Life for Real (2023) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171635.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171624.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171619.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171617.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171467.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171457.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171456.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171455.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171452.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171296.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171293.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171283.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171132.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171128.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171125.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171118.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171104.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171102.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171101.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170954.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170907.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170902.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170900.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170879.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A501BE7A5A0D9751152FBBD9EA5BD491C7A7879C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596148   (170840) от 08.12.2022
+
+Дела человеческие / Les choses humaines / The Accusation (2021) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Фарель знают во всей Франции: Жан — известный ученый, а его жена Клэр — писательница, известная своими радикальными феминистскими взглядами. У них есть красавец сын Александр — студент престижного американского ВУЗа. Приехав в гости к родителям, Александр знакомится с Милой — дочерью нового партнера его матери. Молодые люди легко находят общий язык и вместе (   Читать дальше...   )Производство: Франция / Curiosa Films, Films Sous Influence, GaumontЖанр: драмаРежиссер: Иван АттальАктеры: Бен Атталь, Сюзанн Жуанне, Шарлотта Генсбур, Матьё Кассовиц, Пьер Ардити, Одри Дана, Бенжамен Лаверн, Жюдит Шемла, Режан Кердаффрек, Жерар УоткинсПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: Русский, ФранцузскийСубтитры: Английские, Французский (Full, SDH)Продолжительность: 02:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B56E63BC0053543F52E9055EC16F192E36753AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596169   (170833) от 08.12.2022
+
+Дела человеческие / Les choses humaines / The Accusation (2021) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Фарель знают во всей Франции: Жан — известный ученый, а его жена Клэр — писательница, известная своими радикальными феминистскими взглядами. У них есть красавец сын Александр — студент престижного американского ВУЗа. Приехав в гости к родителям, Александр знакомится с Милой — дочерью нового партнера его матери. Молодые люди легко находят общий язык и вместе (   Читать дальше...   )Производство: Франция / Curiosa Films, Films Sous Influence, GaumontЖанр: драмаРежиссер: Иван АттальАктеры: Бен Атталь, Сюзанн Жуанне, Шарлотта Генсбур, Матьё Кассовиц, Пьер Ардити, Одри Дана, Бенжамен Лаверн, Жюдит Шемла, Режан Кердаффрек, Жерар УоткинсПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: Русский, ФранцузскийСубтитры: Английские, Французский (Full, SDH)Продолжительность: 02:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF332EE89218B1FDCE7CA95EF96682C042A3B907
 ```
 
 https://mybot314.ru/tekegram_catalog/

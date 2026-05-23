@@ -6,7 +6,7 @@ Reveal Sound - Spire 1.5.10 VSTi, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842483.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FinePrint 11.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842481.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 80.0.4170.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842476.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Paint.NET 4.3.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842465.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PTC Mathcad Prime 4.0 F000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842430.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sticky Password 5.0.2.200 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842389.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ OBS Studio 25.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842378.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.1.017 + Components [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842374.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Emsisoft Emergency Kit 2021.10.0.11201 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842346.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ O&O ShutUp10 1.9.1424 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842345.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MCS Drivers Disk 21.2.11.1586 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842336.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ OBS Studio 27.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842333.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Picture Cutout Guide 2.2.1 [Rus|Eng] + Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842300.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.04.27 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842253.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Office 2013-2021 C2R Install + Lite 7.3.3 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842218.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Revo Uninstaller Pro 4.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842217.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Revo Uninstaller Pro 4.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842213.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Ashampoo MyAutoPlay Menu 1.0.5.106 [Multi/Rus] + Portable by GRAFF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842194.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842103.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10036 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841806.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ RegScanner 2.16 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841792.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841704.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ jv16 PowerTools X 4.0.0.1513 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841690.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ WonderFox DVD Ripper Pro 7.6 RePacK by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841501.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ DriverEasy Professional 5.0.0.18255 RePack (& Portable) by TryRooM [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841490.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ TagScanner 6.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841423.jpg" />
 </div>
 
 

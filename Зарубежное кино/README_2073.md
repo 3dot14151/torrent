@@ -1,55 +1,3 @@
-###  Публикация: 1779221   (70744) от 12.02.2025
-
-Отсутствие Эдема / The Absence of Eden (2023) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эсми работает танцовщицей в мексиканском баре. В результате самообороны Эсми убивает бандита из наркокартеля, и ей приходится бежать в Штаты. Девушка присоединяется к группе беженцев, где знакомится с молодой матерью и ее дочерью. На границе случается происшествие, и Эсми обещает защитить дочь новой знакомой и помочь им позже воссоединиться в Америке.Производство: Великобритания, США / Ashland Hill Media Finance, Cinestar Pictures, Ingenious Film Partners, Pioneer Pictures (II)Жанр: драмаРежиссер: Марко ПерегоАктеры: Зои Салдана, Адриа Архона, Гаррет Хедлунд, Том Уэйтс, Крис Кой, Сара Минник, Морнинстар Энджелин, София Хаммонс, Мартин Палмер, Эзоди ГейджерПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: Русские (Forced hardsub)Продолжительность: 01:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3B6E3851880304656780CBE89B8303CF2E8B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779477   (70693) от 13.02.2025
-
-Тюрьма Абасири 2 / Abashiri Bangaichi 2 (1965) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Татибана и его корешок Хирос покидают Хоккайдо на большом пассажирском пароме. Намётанным глазом опытный бандит Татибана сразу выделяет в толпе пассажиров карманницу Юми, однако не успевает распознать группу контрабандисток, переодетых католическими монахинями. В сумке у монахинь коробка с пряжей для вязания, а в каждом клубке спрятаны украденные из ювелирного магазина (   Читать дальше...   )Производство: Япония / Toei TokyoЖанр: криминал, боевикРежиссер: Тэруо ИсииАктеры: Кэн Такакура, Митико Сага, Тору Абэ, Куниэ Танака, Кандзюро Араси, Дзёдзи Аи, Итиро Накатани, Хидэо Мурота, Ёко Михара, Сиро ОсакаПеревод: любительский одноголосый (Horror Maker)Язык озвучки: русский, японскийСубтитры: русские (Schwejk), английскиеПродолжительность: 01:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE5AF5E031CF695890FBBE1BC1E5FC661021B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779457   (70692) от 13.02.2025
 
 Тюрьма Абасири 2 / Abashiri Bangaichi 2 (1965) BDRip [H.264] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70692.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70660.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70552.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70408.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70406.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70404.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70323.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70322.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70304.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70292.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70262.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70227.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70211.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70151.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69945.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69802.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69778.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69774.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69751.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69719.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69708.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69177.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69174.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69088.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D2DCD60886F76BC86CD1AC18A382F0F7EFF92C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786446   (69083) от 20.03.2025
+
+Дневной свет / Daylight (1996) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69083.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подземном туннеле между Нью-Йорком и Нью-Джерси происходит масштабная авария, в результате которой свод обваливается, отрезав от внешнего мира полтора десятка выживших. Вытаскивать людей из-под завалов бросается бывший спасатель Кит Латура, случайно оказавшийся около места происшествия...Производство: США / Universal Pictures, Davis Entertainment, Joseph M. Singer EntertainmentЖанр: драма, боевик, приключения, триллерРежиссер: Роб КоэнАктеры: Сильвестр Сталлоне, Эми Бреннеман, Вигго Мортенсен, Дэн Хедайя, Джей О. Сандерс, Карен Янг, Клер Блум, Ванесса Белл Кэллоуэй, Реноли Сантьяго, Колин Фокс, Даниэль Харрис, Трина МакГи, Марселло Тедфорд, Сэйдж Сталлоне, Джо Андерсон (III)Перевод: дублированный (Ист-Вэст), профессиональный многоголосый (OPT; СТС), авторский (Сергей Визгунов; Андрей Гаврилов; Андрей Дольский; Александр Кашкин; Юрий Медведев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA08C53BAF829B59A39A55344D23CC16C580973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786350   (69081) от 20.03.2025
+
+Армия мертвецов / Army of the Dead (2021) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69081.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Лас-Вегасе произошло нашествие ходячих мертвецов. В городе почти не осталось живых, что подталкивает главного героя к идее провернуть крупное ограбление. Он собирает команду наёмников и отправляется в одно из самых опасных мест на земле в надежде сорвать куш.Производство: США / The Stone QuarryЖанр: ужасы, боевикРежиссер: Зак СнайдерАктеры: Дэйв Батиста, Элла Пёрнелл, Ана де ла Регера, Маттиас Швайгхефер, Нора Арнезедер, Хироюки Санада, Рауль Кастильо, Майкл Кэссиди, Гаррет Диллахант, Тиг Нотаро, Саманта Уин, Тео Росси, Омари Хардвик, Лион Бекуив, Сара МинникПеревод: Дублированный (Пифагор)Язык озвучки: Русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced, full), английские (forced, full, SDH)Продолжительность: 02:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDD8E3413B13E083B332E79476FF6035C017A1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

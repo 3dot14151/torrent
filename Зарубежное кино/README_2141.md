@@ -1,55 +1,3 @@
-###  Публикация: 1735488   (50679) от 08.07.2024
-
-Животное / Animal (2023) WEBRip [H.265/2160p] [4K, SDR, 8-bit]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек не может наладить отношения с отцом и постепенно теряет и свое окружение. В результате он остается один на один с миром, полным нечеловеческого отношения к нему, что делает его настоящим зверем.Производство: Индия / Bhadrakali Pictures, Cars on Film, Cine1 StudiosЖанр: боевик, триллер, драма, криминалРежиссер: Сандип Редди ВангаАктеры: Ранбир Капур, Анил Капур, Бобби Деол, Рашмика Манданна, Трипти Димри, Чару Шанкар, Притхвирадж, Шакти Капур, Прем Чопра, Суреш ОберойПеревод: Дублированный (The Kitchen Russia)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 03:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FC38AA4598981A15AC86B10257E0E8608BA72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735563   (50668) от 08.07.2024
-
-Бахубали: Рождение легенды / Baahubali 2: The Conclusion (2017) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Старый Каттаппа рассказывает Шиве, почему убил его отца Амарендру. После того как тот был усыновлён королевой Сивагами, старший сводный брат Бхаллаладева всегда ему завидовал. Зависть достигла апогея после битвы с дикими племенами, когда Сивагами нарекла младшего сына наследником королевства. Бхаллаладева и его хитрый дядя начинают плести грязные интриги, чтобы сжить (   Читать дальше...   )Производство: Индия / Arka MediaworksЖанр: фэнтези, боевик, мелодрамаРежиссер: С.С. РаджамулиАктеры: Прабхас, Рана Даггубати, Анушка Шетти, Сатхьярадж, Рамья Кришна, Таманна Бхатия, Нассар, Суббараджу, Мека Рама Кришна, Раджсекхар АнингиПеревод: дублированный, многоголосый профессиональныйЯзык озвучки: русский, индийский (хинди)Субтитры: русские (full, forced), английскиеПродолжительность: 02:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BEECEAD1263A36FE34D5D7ABBDC00975A18C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735452   (50642) от 08.07.2024
 
 Ангел мести / Судьба / Fatum (2023) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50642.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50637.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50634.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50629.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50625.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50615.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50611.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50609.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50606.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50602.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50600.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50598.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50597.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50587.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50586.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50581.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50580.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50578.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50572.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50563.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50562.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50561.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50551.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50535.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05EA9BE998C5B4C436BFBFC95DAE5ECB38B7F210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735059   (50530) от 10.07.2024
+
+Пацан против всех / Boy Kills World (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья парня была убита Хильдой Ван Дер Кой - главой коррумпированной постапокалиптической династии, а сам он стал глухонемым. Бой сбегает в джунгли, где отшельник обучает его боевым искусствам. Завершив обучение, парень оказывается один в безумном мире и вскоре попадает в группу сопротивления, которая строит планы свергнуть правящую династию.Производство: Германия, ЮАР, США / Nthibah Pictures, Raimi Productions, Ventaro FilmЖанр: боевик, комедияРежиссер: Мориц МорАктеры: Билл Скарсгард, Джессика Рот, Мишель Докери, Бретт Гельман, Яян Рухьян, Куинн Коуплэнд, Эндрю Кодзи, Айзейя Мустафа, Фамке Янссен, Шарлто КоплиПеревод: Дублированный(Мосфильм-Мастер), Многоголосый профессиональный (HDRezka Studio), Авторский (А. Дольский, М. Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, sdh)Продолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD0BDA96290E2AFC8BCDB7E17242A3FC4A58251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735974   (50511) от 10.07.2024
+
+Убийственная компания / Murder Company (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50511.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар вторжения в день-Д , группе американских солдат дается приказ переправить члена французского сопротивления в тыл врага, чтобы убить ценную нацистскую цель.Производство: Болгария / Complex Corp, Maverick FilmЖанр: боевик, военныйРежиссер: Шэйн Дэкс ТейлорАктеры: Келси Грэммер, Уильям Моусли, Джо Андерсон (II), Жиль Марини, Натан Купер, Пуч Холл, Джилон ВанОвер, Джеймс Уайлс, Роман ШомбургПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A273610D48BBEAC0888723678A856B3166E3F6E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

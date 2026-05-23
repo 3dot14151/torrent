@@ -1,81 +1,3 @@
-###  Публикация: 1049457   (542249) от 06.09.2016
-
-Иннокентий Анненский | Избранные произведения (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся русский поэт Иннокентий Федорович Анненский представлен в книге произведениями из сборников "Тихие песни", "Кипарисовый ларец", "Посмертные стихи", переводами античных и европейских поэтов нового времени. Отдельные разделы составляют драматические произведения, "Книги отражений" и другие.Жанр: KлассикаПродолжительность: 28:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848A5F19D90EB87D7298331A5DF525A15F1EC93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049794   (542239) от 06.09.2016
-
-Артур Кестлер | Слепящая тьма (2006) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Артур Кестлер (1905-1983) прожил сложную, исполненную трагических потрясений жизнь. Еврей по национальности, Кестлер родился в Будапеште, детство и юность провел в Венгрии, Австрии и Германии. Европейскую известность как журналист Артур Кестлер завоевал совсем молодым человеком: с 1926 по 1929 год он был корреспондентом немецкого издательского концерна Ульштайна (   Читать дальше...   )Жанр: Политический романПродолжительность: 08:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95B8F9943FCE88A319D13ED44BAB1758F2110E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049781   (542233) от 06.09.2016
-
-Артур Кестлер | Призрак грядущего (2005) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Артур Кестлер (1905-1983) - журналист и психолог, писатель и общественный деятель, всемирно известный своим романом-антиутопией "Слепящая тьма" ("Darkness at Noon", 1940 г.), ознаменовавшим его разрыв с Коммунистической партией и идеологическое возрождение. Венгр по рождению, Кестлер жил в Германии, Австрии, Франции, недолго - в СССР (Туркмения), (   Читать дальше...   )Жанр: Политический детективПродолжительность: 15:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3D2C3BC85240359327ED54EAAB650F4850A03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049454   (542102) от 06.09.2016
 
 Максим Горький | Дело Артамоновых (2011) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542102.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542022.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542018.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542010.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541999.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541916.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541907.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541902.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541901.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541857.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541744.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541716.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541462.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541357.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541125.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541021.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541016.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541015.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541014.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541003.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540889.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540886.jpg" />
 </div>
 
 
@@ -668,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540880.jpg" />
 </div>
 
 
@@ -679,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E444DD23D318BDFB960FE68E30F6B113AE52C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557495   (540875) от 15.06.2022
+
+Юлиан Семенов | Дипломатический агент (2022) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540875.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине XIX века имя Яна (Ивана) Викторовича Виткевича, выходца из семьи польского дворянина, приводило в трепет дипломатические круги России, Великобритании, Персии и Афганистана. Именно Иван Виткевич стал первым посланником России в Кабуле.
+Благодаря хорошим способностям к языкам он свободно говорил на немецком, французском, английском, польском и русском языках; (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 07:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCFCEE0006518E35D26ECFDC1C4FC44153EAA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557426   (540874) от 15.06.2022
+
+Денис Агеев | Арена (Книга 1). Дорога смертников (2022) [MP3, Дмитрий Патрикеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я не хотел идти на эту войну, но у меня не было выбора. Повоевать мне тоже не дали – через два месяца я попал в плен. Сначала хотели убить, но… после того, что произошло потом, я понял, что смерть была бы лучшим вариантом. Потому что меня, как и других пленных, способных еще держать оружие, погнали на легендарную Арену, победить на которой может лишь один – или никто.Жанр: Боевая фантастика, LitRPGПродолжительность: 17:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0C08DB49579502F47BA1E986DAA10F7D02FA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154533   (540646) от 30.07.2017
+
+Ася Казанцева | В интернете кто-то неправ! Научные исследования спорных вопросов (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прививки могут стать причиной аутизма, серьезные болезни лечатся гомеопатией, ВИЧ неизбежно приводит к смерти, ГМО опасно употреблять в пищу – так ли это? Знать верный ответ важно каждому, ведь от этого зависят наша жизнь и здоровье. В своей новой аудиокниге научный журналист Ася Казанцева объясняет: чтобы разобраться, достоверно ли то или иное утверждение, необязательно (   Читать дальше...   )Жанр: Научно-познавательная литератураПродолжительность: 11:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C3F557C19243EFB9B5F6C91CA663C8D911BB8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

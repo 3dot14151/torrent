@@ -1,29 +1,3 @@
-###  Публикация: 1628283   (231100) от 02.06.2023
-
-Сделай один ложный шаг / Take One False Step (1949) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Во время поездки на конференцию в Лос-Анджелес ученый попадает на вечеринку к старой знакомой Кэтрин Сайкс. На следующее утро газеты сообщают о её исчезновении, и Эндрю понимает, что полиция будет разыскивать его по подозрению в возможном её похищении и убийстве. Чтобы избежать скандала и сохранить свою репутацию, Эндрю решает самостоятельно провести расследование (   Читать дальше...   )Производство: США / Universal International Pictures (UI)Жанр: фильм-нуар, триллер, драма, криминал, детективРежиссер: Честер ЭрскинАктеры: Уильям Пауэлл, Шелли Уинтерс, Марша Хант, Дороти Харт, Джеймс Глисон, Феликс Брессарт, Арт Бэйкер, Шелдон Леонард, Ховард Фриман, Хаусли СтивенсонПеревод: Авторский (Андрей Дольский)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C060EDDB5400711EA4BD914BCC865243234C8A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648055   (231086) от 21.07.2023
 
 Дело против Бруклина / The Case Against Brooklyn (1958) BDRip [H.264] [AVO]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231086.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231047.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230980.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230942.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230938.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230888.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230867.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230818.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230789.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230773.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230771.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230762.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230754.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230745.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230742.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230730.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230729.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230726.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230721.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230711.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230696.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230665.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230632.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230581.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230537.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA5DDD046266D27ABBF64FAAA2268C648086EBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647993   (230530) от 25.07.2023
+
+Дело против Бруклина / The Case Against Brooklyn (1958) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о борьбе властей с нелегальным букмекерским синдикатом, который действовал в Бруклине, пользуясь зашитой группы коррумпированных полицейских. Окружной прокурор Норрис проводит секретную операцию, поручая раскрыть имена главарей синдиката и коррумпированных полицейских молодому выпускнику полицейской академии Питу Харрису. Работая под прикрытием, (   Читать дальше...   )Производство: США / Morningside ProductionsЖанр: фильм-нуар, драма, криминалРежиссер: Пол УэндкосАктеры: Дэррен МакГэвин, Маргарет Хэйес, Уоррен Стивенс, Пегги МакКэй, Тол Эйвери, Эмиль Мейер, Нестор Пайва, Брайан Дж. Хаттон, Роберт Остерлох, Джо ТёркелПеревод: Авторский (Андрей Дольский)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2114A4268EC3977801D2AE3136A2ACE56A879A
 ```
 
 https://mybot314.ru/tekegram_catalog/

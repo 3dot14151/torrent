@@ -6,7 +6,7 @@ Tor Browser Bundle 8.0.1 DC 21.09.2018 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Movavi Video Converter 18.4.0 Premium DC 17.08.2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434787.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Anarchy Linux 1.0.1 [x86_x64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434781.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Baki | Боец Баки [ТВ-2] [2018, TV, 13 из 26 эп.] HDTVRip 720p rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434778.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Acrobat Pro DC 2018.011.20063 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434775.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Citrio 50.0.2661.273 (0.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434682.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ QQ Browser 9.5.9244.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434676.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Label Pack - Infusion Recordings - 31 Releases (2014-2016) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434673.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Everything 1.4.1.773 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434671.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe AIR 27.0.0.124 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434665.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Balabolka 2.11.0.611 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434662.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Display Driver Uninstaller 17.0.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434661.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Torch Browser 52.0.0.11657 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434658.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434642.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Bad Balance - Семеро Одного Не Ждут (2009) [APE|Lossless]<Рэ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434559.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Hetman Excel Recovery 2.5 Home Edition RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434499.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Hetman FAT Recovery 2.7 Home Edition RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434498.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ oCam 337.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434491.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ USB Safely Remove 5.4.6.1244 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434490.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434480.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434479.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434475.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Hetman Word Recovery 2.5 Home Edition RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434435.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ CCleaner Professional / Business / Technician 5.34.6207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434432.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Hetman Office Recovery 2.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434427.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ BurnAware Professional 10.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434424.jpg" />
 </div>
 
 

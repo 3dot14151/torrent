@@ -6,7 +6,7 @@ TimeShift (2007) [Ru] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477630.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Desolate (2018) [Ru/En] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476400.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475553.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475542.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Witch Hunt (2018) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475532.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475442.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475425.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soldier of Fortune (2001) [En] (1.07fHF) License GOG [Platinum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473883.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Конец Света (2014) [Ru] (1.0/upd
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472590.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Zero Tolerance (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471829.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Overhead (2018) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471578.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471412.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471093.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kingpin: Life of Crime (1999) [Ru/En] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469746.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Solus Project (2016) [Ru/Multi] (1.13) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467013.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467009.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465745.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463040.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Project Remedium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462906.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462676.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461531.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Stairs (2015) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457079.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456874.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456394.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Nevermind (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454953.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Syndrome (2016) [En] (1.03f) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454491.jpg" />
 </div>
 
 

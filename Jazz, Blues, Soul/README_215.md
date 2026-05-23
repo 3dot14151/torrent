@@ -6,7 +6,7 @@ Dave Hunt - Whiskey And Demons (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632481.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ahmad Jamal - I Remember Duke, Hoagy & Strayhorn (1995) [FLAC|Lossless]<Jazz, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632417.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Old Gray Mule - Have Mercy (2014) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632409.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bobby Messano - Love & Money (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632408.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Enrico Pieranunzi - Monsieur Claude A Travel with Claude Debussy (2018) Bonsai M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632191.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bridget Kelly Band - Blues Warrior (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632107.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tord Gustavsen Trio - Opening (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Contemporar
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631846.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Louis Armstrong - Classics & Rarities: Milestones Of A Jazz Legend (1927 - 1961)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631834.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Houston Person - All Soul (2005) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631799.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tony Bennett - The Beat Of My Heart (1957) 2017, Sony Music [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631798.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Marcus Miller - Laid Black (2018) [FLAC|24/48|Lossless|WEB-DL|tracks] <Jazz, Fus
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631658.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rufus Harley - The Pied Piper of Jazz (1966, 1967) 2000, Label M [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631644.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Matt Andersen - House to House (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631521.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Phil Buckle - Custom Made (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazzy Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631370.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Smithsonian Collection of Classic Jazz (1997) [MP3|Lossless]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631314.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Al Green - The Legendary Hi Albums (2006) [FLAC|Lossless]<Funk / Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_631105.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Elvin Jones, James Moody, Clark Terry - Summit Meeting (1977) Vanguard[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630595.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Gary Moore - The Essential (2012) [FLAC|Lossless]<Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630536.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Work Of Art - Blue-Eyed Blues (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630509.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Diana Ross - Motown's Greatest Hits (1992) Compilation, Repress [APE|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630505.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Joe Blessett - 6 7 8 A O 11 (2016) [MP3|320 Kbps] <Jazz, R&B, Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630409.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Illinois Jacquet - The Definitive Black & Blue Sessions: God Bless My Solo (1978
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630313.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Milt Jackson - And The Thelonious Monk Quintet (2013) [FLAC|Lossless]<Jazz, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630220.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Wynton Marsalis - The Music of America (2012) 2CD /Sony Masterworks/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630219.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Joey DeFrancesco - In The Key Of The Universe (2019) Mack Avenue [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630104.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Tal Farlow - Three Classic Albums Plus (1954 - 1959) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630102.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_881816.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sanremo 2017. Inediti & Cover dei campioni en nuove proposte (2017) [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881694.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881562.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881328.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lorenzo Fragola - Zero Gravity (2016) [MP3|320 кб/с] <Italian Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881276.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881216.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Spagna - You Are My Energy (1988) [MP3|320 кб/с] <Italo-Disco, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881158.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881080.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880832.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880718.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA -   Hidden Gems: Disco, Soul & Funk 70s & 80s (2021) [MP3|320 Kbps] <Disco, F
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880614.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - The Best Of Raw Deep Techno Summer '21 (2021) [MP3|320 Kbps] <Progressive, 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_880606.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Ibiza Summer Sessions Vol. 7 (2021) [MP3|320 Kbps] <Progressive, House, Mel
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880538.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Maria Mendiola - Born Again (1981) LP (ex. Baccara) [MP3|320 Kbps] <Europop, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880532.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Baccara - 5 Albums (1977-2017) Collection [MP3|320 Kbps] <Europop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880375.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880344.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Great Duets (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880230.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ DJ BoBo - Remixes & Unreleased Tracks (2020) [MP3|320 Kbps] <Europop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880221.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880102.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eruption - Disco Stars (2019) Bootleg [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880084.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Billie Eilish - Dont Smile At Me (2018) EP, Japan Limited Edition [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880050.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Home Office Motivation (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Other>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879943.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - BBC Radio 1's Live Lounge (2013) Deluxe Version [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879623.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Delta Goodrem - Child Of The Universe (2012) [MP3|320 кб/с] <Pop, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879402.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Yazz - Wanted (1988) [FLAC|Lossless|image + .cue] <Dance, Funk, Acid House>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879285.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bomb The Bass - Into The Dragon (1988) [APE|Lossless|image + .cue] <Dance, Acid 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879087.jpg" />
 </div>
 
 

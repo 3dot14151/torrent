@@ -1,117 +1,3 @@
-###  Публикация: 199920   (780639) от 15.05.2010
-
-Ромео и Джульетта / Romeo and Juliet (2001) DVD5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МюзиклРежиссер: Gerard PresguvicАктеры: Romeo - Damien Sargue
-Juliette - Cecilia Cara
-Benvolio - Gregori Baquet
-Mercutio - Philippe D'Avilla(   Читать дальше...   )Перевод: ОригинальныйЯзык субтитров: RUПродолжительность: 02:29:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207493   (780556) от 18.02.2018
-
-Квартирник на НТВ у Маргулиса. Квартал (02.17.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла советская и российская рок-группа «Квартал», которая недавно отметила юбилей. Музыканты исполнили свои лучшие композиции для гостей и телезрителей. Евгений Маргулис вспомнил, как в 1988 году «Квартал» играл совместный концерт с «Машиной времени» и рассказал, что Татьяна Литвиненко, солистка группы, пела с легендарными «Би-2».
-Поздравить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F65E6F86218829F6819A3E703560892F2E7699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207087   (780169) от 20.02.2018
-
-Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-LQ] <Pop, Rock> [hand made реставрация]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полное собрание клипов и лучших живых выступлений шведского дуэта. Все видео прошло реставрационную обработку, звук в клипах заменен на CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK000 Intro
-001 Roxette - Neverending Love
-002 Roxette - Soul Deep
-003 Roxette - I Call Your Name(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BFEBC4B4A8525102F62EED27DB2241D693D402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208452   (779924) от 22.02.2018
-
-Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Релиз группа 月亮龍 Production представляет  концерт исполнителя Nana Mizuki который стал заключительным в конце ее  тура по всем городам Японии в 2017 году.   Здесь вы найдете   полный релиз из 4-х дискового издания включившего в себя  2 концерта,  бонусные материалы записи  репетиций,   уникальные кадры  подготовки  второго концерта а так же бонусное выступление (   Читать дальше...   )1. Shimey Murasaki
-2. Power Gate
-3. Don't be long
-4. Pleasure Camelia(   Читать дальше...   )Производство: Япония, King Records Ltd.Жанр: J-popРежиссер: Urara SatoПеревод: ОтсутствуетСубтитры: НетПродолжительность: 01:55:22, 01:52:32, 01:31:52, 00:49:55, 02:11:49, 00:12:58, 00:06:28, 00:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9357B1152BBC9E3490B5412196293DE8301D33FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209180   (779491) от 25.02.2018
 
 Whitesnake - The Purple Tour Live (2018) BDRip
@@ -120,7 +6,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779491.jpg" />
 </div>
 
 
@@ -149,7 +35,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779483.jpg" />
 </div>
 
 
@@ -178,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779479.jpg" />
 </div>
 
 
@@ -205,7 +91,7 @@ Whitesnake - The Purple Tour Live (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779455.jpg" />
 </div>
 
 
@@ -234,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778837.jpg" />
 </div>
 
 
@@ -260,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778683.jpg" />
 </div>
 
 
@@ -287,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778680.jpg" />
 </div>
 
 
@@ -316,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778491.jpg" />
 </div>
 
 
@@ -343,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778460.jpg" />
 </div>
 
 
@@ -372,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778422.jpg" />
 </div>
 
 
@@ -401,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777221.jpg" />
 </div>
 
 
@@ -427,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777219.jpg" />
 </div>
 
 
@@ -453,7 +339,7 @@ Everest of Rock - 1 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777212.jpg" />
 </div>
 
 
@@ -482,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777170.jpg" />
 </div>
 
 
@@ -508,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777147.jpg" />
 </div>
 
 
@@ -534,7 +420,7 @@ Wax Audio - Mashopolos (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777139.jpg" />
 </div>
 
 
@@ -563,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777128.jpg" />
 </div>
 
 
@@ -589,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777078.jpg" />
 </div>
 
 
@@ -615,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776783.jpg" />
 </div>
 
 
@@ -641,7 +527,7 @@ VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776740.jpg" />
 </div>
 
 
@@ -670,7 +556,7 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776704.jpg" />
 </div>
 
 
@@ -699,7 +585,7 @@ The Doors : Live At The Isle Of Wight Festival '1970 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776421.jpg" />
 </div>
 
 
@@ -713,6 +599,116 @@ The Doors : Live At The Isle Of Wight Festival '1970 (2018) DVD5 [hand made]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD19E5FEC30BABA92ED888A7A62D2203596B8F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212241   (776353) от 10.03.2018
+
+Вадим Галыгин и гр. Ленинград / 8 Марта (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное музыкально-художественное произведение создано для привлечения общественного внимания к проблеме отношений между мужчиной и женщиной.Производство: РоссияЖанр: ПопСубтитры: русскиеПродолжительность: 00:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0381696988B2863D616BFFB1D192C33049DE7B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212216   (776301) от 10.03.2018
+
+Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это полное собрание клипов и лучших концертных выступлений немецкой группы. Все видео взято с оригинальных блю рей и двд, звук не менял, так как он превосходный. Поскольку фирменный блю рей с клипами делался из обычного видео с низким разрешением и судя по всему учавствовали в этом процессе люди слабо разбирающиеся в видео, и состряпали халтуру. Выставили в некоторых (   Читать дальше...   )00 Intro
+01 Rammstein - Du riechst so gut
+02 Rammstein - Links 2 3 4
+03 Rammstein - Rammstein(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 03:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E930D1866A57759E9B9616E8D41F4534D94796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212202   (776273) от 10.03.2018
+
+VA - Весенний марафон № 229: (Новые Лучшие Зарубежные клипы) (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весенние (10.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent - Deep In Your Eyes (Official Video) (3:06)
+2. AMI - Niste dragoste (Official Video) (3:17)
+3. Ashley Monroe - Hands On You (Official Music Video) (3:46)
+4. Camila Cabello - Never Be the Same (4:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Soul, House, TranceПродолжительность: 01.39.51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6484DACB8BC435EA6D611BF4C6710D546D3ECB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014175   (776101) от 08.05.2016
+
+Валентин Черных - День приезда - день отъезда (1978) TVRip (2 части) (Театр им. Моссовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по одноименной пьесе В. Черных в постановке Государственного академического театра имени Моссовета. Психологи Петров и Бурцева приезжают из Москвы в небольшой город по просьбе директора завода, чтобы выяснить причины сложившейся на предприятии напряженной обстановки, участившихся увольнений рабочих. Ученым удается выяснить подлинные причины создавшейся (   Читать дальше...   )Производство: СССР, ЦТ, Московский Государственный академический театр им. МоссоветаЖанр: Телеспектакль, драмаРежиссер: Павел Хомский, Юрий ЗавадскийАктеры: Георгий Тараторкин, Ия Саввина, Лариса Наумкина, Людмила Шапошникова, Юрий Кузьменков, Вячеслав Бутенко, Леонид Евтифьев, Александр Леньков, Михаил ПогоржельскийПродолжительность: 2 x ~ 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4849AE621263CF2FCF681D46113F3A25203E52D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

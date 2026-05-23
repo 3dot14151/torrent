@@ -1,55 +1,3 @@
-###  Публикация: 1645053   (195980) от 07.07.2023
-
-Скинфорд: Смертельный приговор / Skinford: Death Sentence (2023) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Однажды парень по имени Джеймс узнает, что его отец смертельно болен. Спасти мужчину может лишь дорогостоящая операция, на которую у него нет денег. Не видя иного выхода, отчаявшийся сын решается на преступление. Казалось, что ограбление загадочного грузовика не отнимет у Джеймса и пары часов времени, но внезапно ситуация оборачивается полнейшим безумием. Герой обнаруживает (   Читать дальше...   )Производство: Австралия / 2Good Productions, Deadhouse FilmsЖанр: Триллер, криминалРежиссер: Ник КасевскиАктеры: Джошуа Бреннан, Шарлотта Бест, Горан Д’Клюе, Роджер Скиберрас, Шаэ Бидман, Лара Швердт, Рик Херберт, Элисон Бенстед, Гари Болтер, Джошуа Мортон, Коко Джек Гиллис, Стив МарескаПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6009D40B0AF439126EF74A34390B932A268FD916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645522   (195979) от 09.07.2023
-
-Уолл Стрит: Деньги не спят / Wall Street: Money Never Sleeps (2010) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Отмотавший срок бывший корпоративный рейдер Гордон Гекко выходит из тюрьмы в совершенно новый мир, стоящий на пороге финансового кризиса. Он — динозавр, чьи методы давно устарели, а репутация играет дурную службу. Но именно его выбирает в партнеры молодой трейдер Джейкоб Мур, предлагающий Гекко сделку: он налаживает отношения старика с дочерью, не общавшейся с ним (   Читать дальше...   )Производство: США / Edward R. Pressman Film CorporationЖанр: драма, мелодрамаРежиссер: Оливер СтоунАктеры: Майкл Дуглас, Шайа ЛаБаф, Джош Бролин, Кэри Маллиган, Фрэнк Ланджелла, Ванесса Ферлито, Томас Белесис, Илай Уоллак, Сьюзен Сарандон, Ричард СтрэттонПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские (full, forced), английские (SDH)Продолжительность: 02:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617A44AB04D06C60922DA73EA48465996BA14D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644912   (195976) от 07.07.2023
 
 Скинфорд: Смертельный приговор / Skinford: Death Sentence (2023) BDRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195976.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195972.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195969.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195963.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195957.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195955.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195953.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195933.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195932.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195929.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195928.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195898.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195897.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195883.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195882.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195878.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195876.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195875.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195861.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195853.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195850.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195842.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195840.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195838.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F9C69DC22C6136A887BB80CAA3493B05FA0E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645783   (195828) от 11.07.2023
+
+Бессмертный / Sisu (2022) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финляндия. 1944 год. Глубоко в глуши Лапландии Аатами Корпи ищет золото. Время от времени в осенней ночи можно услышать пролёт бомбардировщиков и далёкие звуки войны. Наконец, тяжёлая работа вознаграждается, и Аатами намеревается отнести своё золото в ближайший город, но в пути натыкается на нацистский отряд во главе с оберштурмфюрером СС Бруно Хельдорфом...Производство: Финляндия, Великобритания / Good Chaos, Stage 6 Films, Subzero Film EntertainmentЖанр: боевик, военныйРежиссер: Ялмари ХеландерАктеры: Йорма Томмила, Аксель Хенни, Джек Дулан, Мимоса Вилламо, Онни Томмила, Артту Капулайнен, Тату Синисало, Винсент ВиллестрандПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские (надписи и полные), английские, финскиеПродолжительность: 01:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7371747311F287D8F12F5D313F34807783DD8F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646268   (195823) от 13.07.2023
+
+Беглец / Kandahar (2023) BDRemux [H.264/1080p] [UKR, EN / UKR, EN Sub] [DUB, MVO]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник ЦРУ Том Харрис провалил свою миссию, и его личность была раскрыта. Теперь агенту предстоит бежать из Афганистана. Его преследуют лучшие наемники мира и элитный спецназ противника. Добраться в Кандагар — единственный шанс на спасение.Производство: США / Capstone Studios, G-BASE, MBC StudiosЖанр: боевик, триллерРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Навид Негабан, Трэвис Фиммел, Бахадор Фолади, Али Фазал, Том Рис Харрис, Фархад Багери, Митчелл ЛаФорчун, Марк Арнольд, Нина Туссен-ВайтПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: украинский, английскийСубтитры: украинские (forced), английские (forced, full, SDH)Продолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB7DBA9F8D4548E1D7FBAFAAA6622F308D4EAAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

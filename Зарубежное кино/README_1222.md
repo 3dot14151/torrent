@@ -1,55 +1,3 @@
-###  Публикация: 945407   (432955) от 10.10.2015
-
-Инстинкт / Instinct (1999) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В недрах блестящего ума приматолога Итана Пауэлла лежит зловещая тайна, которую не смогли разгадать ни семья, ни власти, заключившие гениального ученого под стражу за убийство в джунглях Руанды. Теперь, заключенный в жестокой тюрьме для умалишенных преступников, Пауэлл, не разговаривавший годами, достается психиатру Тео Колдеру, который должен сломать печать темной (   Читать дальше...   )Производство: США / Spyglass Entertainment, Touchstone PicturesЖанр: Триллер, ДрамаРежиссер: Джон ТартелтаубАктеры: Энтони Хопкинс, Куба Гудинг мл., Дональд Сазерленд, Мора Тирни, Джордж Дзундза, Джон Эштон и др.Перевод: Профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: отсутствуютПродолжительность: 02:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4014CCE2E2FC3E5DFE23E17EB79E93323C03EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829246   (432863) от 09.10.2014
-
-Исходный код / Source Code (2011) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Солдат по имени Коултер мистическим образом оказывается в теле неизвестного мужчины, погибшего в железнодорожной катастрофе. Коултер вынужден переживать чужую смерть снова и снова до тех пор, пока не поймет, кто — зачинщик катастрофы.Производство: США, Канада / The Mark Gordon Company, Vendome, Vendome PicturesЖанр: Фантастика, Боевик, Триллер, ДрамаРежиссер: Дункан ДжонсАктеры: Джейк Джилленхол, Мишель Монахэн, Вера Фармига, Джеффри Райт, Майкл Арден, Кэс Анвар, Расселл Питерс, Брент Скэгфорд, Крэйг Томас, Гордон МастенПеревод: Дублированный, авторский, одноголосый закадровыйЯзык субтитров: ОтсутствуютПродолжительность: 01:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF54943CCE0FEDCA3C459D3DA41676B74E27476A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945671   (432846) от 10.10.2015
 
 Джон Доу. Мститель / John Doe: Vigilante (2014) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432846.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEBRip [H.264/1080p-LQ] [EN / 
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432830.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432828.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432819.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432801.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432646.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432593.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432581.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432576.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432502.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432488.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432487.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432482.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432477.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432404.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432288.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432272.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432267.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432247.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432234.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432224.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432190.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432187.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432179.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8155FD48820A9C1B03EA2CB0A03E5EFEC1EE8230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393415   (432176) от 28.09.2011
+
+Джейн Эйр / Jane Eyre (2011) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викторианская Англия. После восьми лет, проведенных в пансионе для бедных девочек, сирота Джейн Эйр получает место гувернантки в Торнфилде — вотчине Эдварда Ферфакса Рочестера. Хозяин поместья редко наведывается в родные края, а в его отсутствие Джейн должна присматривать за восьмилетней Адель Варанс — воспитанницей аристократа. И вот однажды Рочестер возвращается. (   Читать дальше...   )Производство: США, Великобритания, Focus Features, BBC Films, Ruby FilmsЖанр: Мелодрама, ДрамаРежиссер: Кэри ФукунагаАктеры: Миа Васиковска, Майкл Фассбендер, Джуди Денч, Джейми Белл, Салли Хокинс, Саймон МакБерни, Валентина Черви, Роми Сеттбон Мур, Имоджен Путс, Амелия КларксонПеревод: Дублированный+профессиональный многоголосый закадровыйСубтитры: английскиеПродолжительность: 02:00:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063615   (432154) от 17.10.2016
+
+Капитан Фантастик / Captain Fantastic  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они говорят на нескольких языках, знают квантовую физику и разбираются в философии. Они умеют охотиться и обращаться с оружием. Они живут в лесу в полной гармонии с природой. Лишь стечение обстоятельств заставляет их покинуть родной дом и отправиться в большой город. Что будет, когда они столкнутся с цивилизацией, когда на них обрушится первая любовь и мир гаджетов (   Читать дальше...   )Производство: СШАЖанр: драма, мелодрама, комедияРежиссер: Мэтт РоссАктеры: Вигго Мортенсен, Джордж МакКэй, Саманта Ислер, Анналиса Бассо, Николас Хэмилтон, Шри Крукс, Чарли Шотуэлл, Трин Миллер, Кэтрин Хан, Стив Зан, Элайджа Стивенсон, Тедди Ван ИиПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанский, французскийПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7937738E7CEBB454D784E3EAD0C12E3077E29E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

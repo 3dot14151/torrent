@@ -6,7 +6,7 @@ Kaspersky Tweak Assistant 22.10.30.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191886.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare PDFelement 10.0.5.2453 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191883.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OpenVPN 2.5.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191880.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pale Moon 32.4.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191873.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 116.0.5845.180 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191869.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191868.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ High-Logic MainType Pro 12.0.0.1293 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191865.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Process Lasso Pro 12.3.2.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191864.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MassTube Plus 17.0.0.502 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191862.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NIUBI Partition Editor 9.7.7 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191855.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Araxis Merge Pro 2023.5916 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191843.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ HomeBank 5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191836.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ XnView Classic 2.51.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191828.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Firefox Browser 106.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191826.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ PC Cleaner Pro 9.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191820.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Auslogics BoostSpeed 13.0.0.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191818.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Google Chrome 116.0.5845.180 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191815.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Auslogics BoostSpeed 13.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191813.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ XnView Shell Extension 4.1.8  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191802.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ AMD Radeon Software Adrenalin Edition 23.9.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191797.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Opera 92.0.4561.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191793.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NIUBI Partition Editor 8.0.9 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191791.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191785.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Allavsoft Video Downloader Converter 3.25.1.8338 RePack (& Portable) by TryRooM 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191783.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Clipboard Fusion Pro + Portable + MSI 6.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191780.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft PowerToys 0.64.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191778.jpg" />
 </div>
 
 

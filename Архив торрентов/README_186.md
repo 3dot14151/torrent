@@ -6,7 +6,7 @@ Skype 8.72.0.94 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014009.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Linguist 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014008.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NoMachine 7.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014003.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Chrome 91.0.4472.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013999.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013997.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Process Explorer 16.41 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013996.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013994.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Transcend Elite Data Management 4.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013990.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Gemini 2: The Duplicate Finder 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013985.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sumatra PDF 3.3.13343 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013984.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ WinToUSB Technician 6.0 Release 2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013974.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ DxO PureRAW 1.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013971.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ AOMEI Partition Assistant Standard Edition 9.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013956.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AOMEI Partition Assistant Technician Edition 9.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013946.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SoftPerfect RAM Disk 4.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013945.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Advanced SystemCare Pro 14.4.0.277 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013932.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Keep It 1.10.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013890.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Scrutiny 10 v10.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013889.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Ronski Speed - AVACast Guest Mix (2021-05-25) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013881.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Sans-Fin - Chansons Oubliees (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013876.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Optimage 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013873.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ FireAlpaca 2.5.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013864.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ K-Lite Codec Pack Update 16.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013854.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ GPU-Z 2.40.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013833.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Spotify 1.1.60.672 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013831.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.12 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013829.jpg" />
 </div>
 
 

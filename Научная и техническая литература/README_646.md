@@ -1,133 +1,3 @@
-###  Публикация: 1792697   (20817) от 20.04.2025
-
-А.А. Амосов, Ю.А. Дубинский, Н.В. Копченова | Вычислительные методы (2014) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются вычислительные методы, наиболее часто используемые в практике прикладных и научно-технических расчетов: методы решения задач линейной алгебры, нелинейных уравнений, проблемы собственных значений, методы теории приближения функций, численное дифференцирование и интегрирование, поиск экстремумов функций, решение обыкновенных дифференциальных (   Читать дальше...   )Жанр: МатематикаИздательство: ЛаньФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDBE1F98AA38519CFD7FFD654E760665CDF5E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792694   (20783) от 20.04.2025
-
-В.И. Крылов, В.В. Бобков, П.И. Монастырный | Вычислительные методы [2 книги] (1976 - 1977) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-В книге дано изложение начал теории вычислительных методов математики и приведены наиболее часто применяемые в реальных вычислениях численные методы.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427522D87470665905AE21C7F0DA93006DF19A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 355795   (20762) от 21.04.2025
-
-Подборка | Книги по топографической анатомии и оперативной хирургии (1947-2012) [CHM, DOC(X), DJVU, PDF, ТХТ, ISO]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Моя подборка книг по топографической анатомии и оперативной хирургии. Собиралась из разных источников в течении нескольких лет. Некоторые книги сканировались самостоятельно.Жанр: Топографическая анатомия и оперативная хирургияЯзык: Русский, английский, испанскийФормат: CHM, DOC(X), DJVU, PDF, ТХТ, ISOКачество: Отсканированные страницы - e-book
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF900DCB0DC77822FCAF9AC16D0F84D1F611FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792951   (20728) от 21.04.2025
-
-И.Т. Фролов (ред.) | Философский словарь. 8-е издание (2009) [PDF, DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-«Философский словарь», восьмое издание, представляет собой уникальное явление в философской жизни нашей страны. Философских словарей много, но такой - один. Словарь издаётся с 1939 г. С четвёртого издания, вышедшего в 1980 г., его ответственным редактором был И.Т. Фролов. Предпоследнее, седьмое издание, подготовленное им, появилось в 2001 г., после смерти И.Т. Фролова. (   Читать дальше...   )Жанр: Словари. ФилософияИздательство: Республика; СовременникФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FFFFC2D433FB5FCF88350919C4E8A3AC3F54F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792100   (20603) от 22.04.2025
-
-Р. В. Арутюнян, Л. А. Большов, А. А. Боровой, Е. П. Велихов, А. А. Ключников | Ядерное топливо в объекте «УКРЫТИЕ» Чернобыльской АЭС (2010) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Работа обобщает и систематизирует результаты многолетних исследований разрушенного ядерного топлива, находящегося в объекте «Укрытие». Дается оценка полноты и достоверности имеющихся данных. Разделы книги посвящены методам и средствам, использованным для исследования топлива в объекте «Укрытие» и в его локальной зоне, моделям его поведения в аварийных условиях 4-го (   Читать дальше...   )Жанр: Научно-популярная литература, пособиеЯзык: РусскийИздательство: Издательство «Наука»Формат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E07DAE8A1E6F7F1BE6CDB531D70BD65D0B5D396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793059   (20601) от 22.04.2025
 
 М. Шерешевский | Ассоциативное мышление в шахматах. Сила среднего хода - кладка (2024) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20601.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20572.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20565.jpg" />
 </div>
 
 
@@ -217,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20549.jpg" />
 </div>
 
 
@@ -244,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20541.jpg" />
 </div>
 
 
@@ -270,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20537.jpg" />
 </div>
 
 
@@ -297,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20462.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20461.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20455.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20449.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20346.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20309.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20238.jpg" />
 </div>
 
 
@@ -480,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20217.jpg" />
 </div>
 
 
@@ -508,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20124.jpg" />
 </div>
 
 
@@ -536,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20121.jpg" />
 </div>
 
 
@@ -562,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20107.jpg" />
 </div>
 
 
@@ -590,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20101.jpg" />
 </div>
 
 
@@ -617,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20082.jpg" />
 </div>
 
 
@@ -645,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20075.jpg" />
 </div>
 
 
@@ -673,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20046.jpg" />
 </div>
 
 
@@ -685,6 +555,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B490337EB4C1143D2C09F2DC01815B549F7D93BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794132   (19946) от 28.04.2025
+
+М.Н. Мамедов, И.В. Друк, В.В. Кашталап и др. | Предиабет: диагностика, лечение и профилактика (2024) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19946.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии представлены международные и российские данные о выявлении и лечении ранних нарушений углеводного обмена в системе первичного здравоохранения. Приводится определение, эпидемиология, патогенез, связь с различными соматическими заболеваниями, критерии диагностики, лечебные и профилактические мероприятия для предотвращения сердечно-сосудистых заболеваний (   Читать дальше...   )Жанр: Медицинская литература. Монография.Издательство: КардиопрогрессФормат: PDFКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74255E7342B43FE543B46AEFB1AC840FBDB46DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794663   (19808) от 30.04.2025
+
+Р. Геретшлегер, А.С. Позаментье | Жемчужины геометрии. Треугольники (2025) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планарная геометрия полна чудес, о которых нам почти не рассказывают на уроках в школе. Даже обычный треугольник – один из основных инструментов геометрии – способен удивить нас неожиданными фактами и закономерностями и дать богатую пищу для размышлений. В этой книге собрана одна из самых больших коллекций любопытных фактов и курьезов, связанных с треугольниками. (   Читать дальше...   )Жанр: МатематикаИздательство: ДМК ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219EB8E212B40679309AB0DAC65B6A01DF94C1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794721   (19790) от 30.04.2025
+
+A.S. Posamentier, R. Geretschlager | Geometric Gems: An Appreciation For Geometric Curiosities [3 книги] (2024 - 2025) [PDF] [En]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия из трёх книг об интересных фактах из геометрии треугольников, четырёхугольников и окружностей.Жанр: МатематикаЯзык: АнглийскийИздательство: World ScientficФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F81E1FFDB8FE1EC975F37EB5696E05AC411B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794906   (19674) от 01.05.2025
+
+А.Н. Поляков | Киевская Русь как цивилизация|Образование Киевской Руси [2 книги] (2016, 2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Монография является с одной стороны обоснованием новой теории цивилизации, с другой ‒ применением данной теории и методологии в конкретно-историческом исследовании. Настоящий труд посвящён истории Киевской Руси от её возникновения до монгольского нашествия. На основе выработанного метода исследования цивилизации определяются типологические черты древнерусского (   Читать дальше...   )Жанр: История. МонографияИздательство: Оренбургский государственный университетФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3114255A181C3F31CC290F815D6D048E1CDC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794717   (19667) от 01.05.2025
+
+F.J. Rivas | Process Control with MatLAB/Simulink: A Guide for Beginners (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19667.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book aims to serve as an academic manual designed to aid in understanding and applying key concepts in process control using MatLAB and its associated tools. Each chapter features a brief theoretical introduction to help students contextualize the step-by-step solved problems, which are coded in MatLAB. In some instances, the book also covers the use of Simulink (   Читать дальше...   )Жанр: математика, прикладные компьютерные платформы, учебное пособиеЯзык: АнглийскийИздательство: Cambridge Scholars PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC01B5A2F0AF5A4AF15301E9B9E39B18687F443
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1006625   (826441) от 12.04.2016
-
-Очень опасная штучка / One for the Money (2012) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Продавщица нижнего белья в отставке Стэфани Плам нашла новую работу. Отныне она охотится на мужчин, за поимку которых назначена солидная награда. Ее главное оружие – женская интуиция и модные туфли на высоких каблуках. Но даже они бессильны перед главной целью – мужчиной ее мечты. Он красив, остроумен и смертельно опасен, и при этом он её бывший.Производство: СШАЖанр: КомедияРежиссер: Джули Энн РобинсонАктеры: Кэтрин Хайгл, Джейсон О’Мара, Дэниел Сунджата, Джон Легуизамо, Шерри Шеперд, Дебби Рейнолдс, Дебра Монк, Нат Муни, Адам Пол, Фишер СтивенсПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C42A47D1796F8CB2BD0A657671A3F8F12BFDFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904740   (826437) от 12.04.2016
-
-Мой парень – псих / Silver Linings Playbook (2012) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Бывший школьный учитель Пэт, проведя в психиатрической больнице восемь месяцев, возвращается в родительский дом. Он одержим мыслью помириться с бывшей супругой, к которой не имеет права приближаться по решению суда. Но знакомство с эксцентричной девушкой Тиффани зажигает в Пэте луч надежды…Производство: США / Weinstein CompanyЖанр: драма, мелодрама, комедияРежиссер: Дэвид О. РасселлАктеры: Брэдли Купер, Дженнифер Лоуренс, Роберт Де Ниро, Джеки Уивер, Крис Такер, Анупам Кхер, Джон Ортис, Ши Уигхэм, Джулия Стайлз, Пол ХерманПеревод: профессиональный (полное дублирование), профессиональный (многоголосый закадровый), любительскийЯзык субтитров: русский, украинский, английскийПродолжительность: 02:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DBC8B9DD180EA35B4714758200DA4446DCC940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006255   (826434) от 12.04.2016
 
 Крепкий орешек 4.0 / Live Free or Die Hard (2007) BDRip [H.265/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826434.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826414.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826411.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826402.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826398.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826380.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826328.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826326.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826322.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826321.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826228.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826225.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826223.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826222.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826124.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826121.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826115.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826108.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826052.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825942.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825924.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825923.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825839.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825838.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7227B138521DED2D86A50C70B7F846E08F60BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374486   (825831) от 07.05.2020
+
+Пещера / The Cave (2005) WEB-DL [H.264/1080p] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825831.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лесных дебрях Румынии группа ученых наталкивается на руины аббатства XIII века. Обследовав их, они совершают удивительное открытие — это сооружение было построено над входом в гигантский подземный грот. А по мнению местных биологов, в гроте существует уникальная и еще не познанная экосистема.
+В итоге они отправляются выведывать ее тайны вместе с американскими спелеологами (   Читать дальше...   )Производство: США / Screen Gems, Cinerenta Medienbeteiligungs KG, Lakeshore EntertainmentЖанр: ужасы, фантастика, боевик, триллер, приключенияРежиссер: Брюс ХантАктеры: Коул Хаузер, Эдди Сибриан, Моррис Честнат, Лина Хиди, Пайпер Перабо, Рик Раванелло, Дэниэл Дэ Ким, Киран Дарси-Смит, Марчел Юреш, Влад РадескуПеревод: Профессиональный многоголосый (СТС)Субтитры: русские, английскиеПродолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA8014C3F758EE836512931CFCA715DD9818832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447546   (825826) от 07.05.2020
+
+В тихом омуте / Beneath Still Waters (2005) BDRemux [H.264/1080i]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители города, хранившего страшную древнюю тайну, решают покинуть его и затопить в искусственном озере. Но 50 лет спустя проклятый город оживает вновь, и его призраки угрожают смертью и безумием. То, что казалось далекой легендой, становится реальностью…Производство: Испания, Великобритания / Fantastic Factory (Filmax), Canal+ España, Ministerio de Cultura - ICAAЖанр: Ужасы, Триллер, ДетективРежиссер: Брайан ЮзнаАктеры: Омар Муньос, Santiago Pasaglia, Ева Понт, Норберто Моран, Уго Меса, Эсперанса де ла Вега, Патрик Гордон, Шарлотта Солт, Антонио Портильо, Пилар СотоПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CF4F083CB25E51139BD4D7BA3676DCC1E967EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

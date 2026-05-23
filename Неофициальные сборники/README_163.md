@@ -1,32 +1,3 @@
-###  Публикация: 1198194   (809832) от 10.01.2018
-
-VA - Cheerful Rock'n'Roll (2018) [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01.  Chilli & The Baracudas  -  One More Day  3:02
-02.  Kitty, Daisy & Lewis  -  The Game Is On  3:33
-03.  Beth Lee & The Breakups  -  Only a Dream  2:05
-04.  Nick's Airlines  -  Chili & Tequila  2:54(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 03:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5760CEB6C74FBDDCB9ECBFDC321A8A091F26959F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382627   (809823) от 16.05.2020
 
 VA - Music of Love (2020) [MP3|320 Kbps] <Blues, Soul, Vocal>
@@ -35,7 +6,7 @@ VA - Music of Love (2020) [MP3|320 Kbps] <Blues, Soul, Vocal>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809823.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - The Best Russian Ballads - 3 (2016) [MP3|320 кб/с] <Поп, Рок, Рэ
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809778.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Metal and Rock Ballads (2018) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809730.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - 100 Лучших трэков в стиле Европа Плюс (Част
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809720.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - The Best 80's Vol.1 - Maxi Version (2016) [MP3|192-320 кб/с] <Pop, Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809670.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - The Best Russian Dance Hits Of 90's (2016) [MP3|256-320 кб/с] <Поп, �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809651.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Положительный заряд отличного настроени
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809597.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Танцевальная вечеринка на Hit FM выпуск № 5 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809596.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Deep House Collection Vol.151 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809595.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Deep House Collection Vol.152 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809590.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Need For Speed (2016) [MP3|256-320 кб/с] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809546.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Beatport Synth Electronic: Sound Pack #358 (2021) [MP3|320 Kbps] <Synthwave
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809480.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809465.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809462.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Козырная песня. Выпуск № 5 (2017) [MP3|256 Kbps] <Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809459.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - 100-ка популярных весенних хитов выпуск № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809455.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Вечеринка от радио Шансон выпуск № 7 (2017) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809453.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Ресторан Кураж для друзей выпуск № 9 (2017) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809447.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Лучшие клубные новинки Vol.8 (2018) [MP3|192-320 Kbps] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809400.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809362.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Mr.Credo - Ч@родей (2015) [MP3|256-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809361.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Весенний хит русского шансона (2017) [MP3|256 Kbp
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809302.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Отдыхаем душой на стильном радио Шансон. 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809294.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Музыкальный презент хорошей музыки на Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809291.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Молодежный бум хитовый. Сборник № 8 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809290.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Молодежный бум хитовый. Сборник № 8 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B70C5BF9DE42377DE456ACF8191082E9F61DF58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119142   (809155) от 27.03.2017
+
+VA - Empire Records - Club Hit 12 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodybangers - Sunglasses At Night
+02. Jam Feat. Solamay - One Of Us
+03. GoldFish & Diamond Thug - Deep Of The Night (Original Mix)
+04. Kate Ryan - Wonderful Life (Dj Andy Light & Dj O'neill Sax Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3934B45699DD90CC909589E2D763F876941212
 ```
 
 https://mybot314.ru/tekegram_catalog/

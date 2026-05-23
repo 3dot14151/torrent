@@ -1,55 +1,3 @@
-###  Публикация: 908028   (631722) от 15.06.2015
-
-Время приключений / Le temps de l'aventure (2013) HDTV [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Во сколько же надо встать, чтобы успеть на поезд в 6,50 утра? Аликс — не самой молодой и не самой успешной актрисе — пришлось пойти на такой подвиг, несмотря на неминуемые мешки под красными от недосыпания глазами. Иначе никак не успеть из Кале, где она играет на сцене, в Париж, где её ждут на кинопробы.Производство: Франция, Бельгия, Ирландия, Rectangle Productions, Scope Pictures, Element PicturesЖанр: Драма, МелодрамаРежиссер: Жером БоннелАктеры: Эммануэль Дево, Гэбриел Бирн, Жиль Приват, Орелия Пети, Лорен Капеллуто, Франсуаза Лебрун, Дени Меноше, Себастьен Пудеру, Оливье БрошПеревод: Многоголосый закадровыйПродолжительность: 01:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAFBC070A07379E1B213B10C278CB0D9DCC7457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908021   (631721) от 15.06.2015
-
-Взрыватель / Knock Off (1998) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1997 год. Гонконг - центр подделок. Русские террористы из спецслужб задумали операцию по глобальному шантажу США. Войдя в сговор с мафией, «гастролеры» из России напичкали миниатюрными дистанционными взрывателями поддельные товары - игрушки и джинсы, которые должны были попасть в Штаты. Маркус Рей и его компаньон Томми Хендрик занимались поставкой товаров в США и (   Читать дальше...   )Производство: Аруба, Гонконг, СШАЖанр: Боевик, Комедия, ТриллерРежиссер: Цуй Харк / Tsui HarkАктеры: Жан-Клод Ван Дамм, Роб Шнайдер, Лила Рошон, Пол Сорвино, Карман Ли, Уаймэн Вонг, Глен Чин, Майкл Вонг, Моусес Чан, Линн ЛэнгдонПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C17FDCDBFEA3AFAAC9CEF668D8328E49568988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907697   (631708) от 15.06.2015
 
 Из темноты / Out of the Dark (2014) BDRip [H.264/1080p] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631708.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631659.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631614.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631578.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631574.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631569.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631549.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631525.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631524.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631489.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631487.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_631436.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631414.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631411.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631410.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631409.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631406.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631404.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631402.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631398.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631397.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631392.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631380.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631365.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9F91C36ABB50F5C9A597663694415F53A6F572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520740   (631304) от 09.07.2012
+
+Кровавая работа / Blood Work (2002) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Терри МакКалеб — бывший агент ФБР, специализирующийся на серийных убийствах, перенес операцию по пересадке сердца и теперь находится на пенсии, теша себя починкой своей лодки. Но его талант вновь востребован, и он получает новое задание. А нанимает его некто Граселия Риверс для того, чтобы он расследовал причину гибели ее сестры, сердце которой и было пересажено Терри. Расследование выявило очень интересные факты: сестра Граселии была убита, и убийство было обставлено как инцидент во время ограбления. А убийцей, возможно, был человек, за которым Терри охотился многие годы. Непростая работа для престарелого и имеющего проблемы с сердцем шпиона, который предполагал совсем иначе распорядиться своим временем.Жанр: боевик, триллер, драма, криминал, детективРежиссер: Клинт ИствудПродюсер: Клинт Иствуд, Джуди Хойт, Роберт ЛоренцАктеры: Клинт Иствуд, Джефф Дэниелс, Анжелика Хьюстон, Ванда Де Джисус, Тина Лиффорд, Пол Родригез, Дилан Уолш, Мэйсон Лучеро, Джерри Бекер, Рик Хоффман, Аликс Коромзай, Дина Иствуд, Беверли Лич, Джун Киото Лу, Чао Ли Чи, Гленн Моршауэр, Роберт Харви, Мэтт Хаффман, Марк Томасон, Мария Кьюбан, Брент Хинкли, Аманда Карлин, Тед Руни, П.Дж. Бирн, Сэм Джагер, Крэйг Хоскин, Джеймс В. Гэвин, Тодд Брайант, Брайан ХаннаПеревод: Профессиональный многоголосый, Двухголосый закадровыйПродолжительность: 01:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F8CCA93E8EAF000BEBA05A112F830AB4D9A908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520733   (631297) от 09.07.2012
+
+Романтики / The Romantics (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семеро близких друзей собрались на свадьбу двух из них. Проблемы возникают потому, что между невестой и подружкой невесты существует давняя конкуренция на жениха.Жанр: драма, мелодрама, комедияАктеры: Кэти Холмс, Анна Пакуин, Джош Дюамель, Малин Акерман, Джереми Стронг, Кэндис Берген, Адам Броди, Элайджа Вуд, Ребекка Лоуренс, Питер Дж. Роуэн, Дианна АгронПеревод: Профессиональный (многоголосый)Продолжительность: 01:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6B42F8560759D1D15873EA52003F7D78579324
 ```
 
 https://mybot314.ru/tekegram_catalog/

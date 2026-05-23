@@ -1,55 +1,3 @@
-###  Публикация: 1760963   (37017) от 17.11.2024
-
-Гимнастика для глаз - VisionUp v3.3.32 Mod by frolickof [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-VisionUp: Ваш Окончательный Тренер по Упражнениям для Глаз для Более Четкого Зрения и Повышенной Продуктивности! 👀✨ Улучшите здоровье своих глаз и продуктивность с VisionUp – вашим ежедневным гидом по уходу за глазами и упражнениям. 📈Тип издания: ModРелиз состоялся: 16.11.2024Разработчик: VisionUpMe Inc.Поддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726706   (37010) от 17.11.2024
-
-Fishing Knots Pro / Рыбацкие узлы Pro v8.7.42 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Рыбацкие узлы" - это программа, показывающая как надо вязать узлы. Среди множества узлов рыбаку необходимо выбрать и использовать правильный. В каждом случае - он свой. Как сильно конкретный узел ослабляет леску? Какие узлы использовать для тонких рыболовных лесок, а какие - для толстых? Какие узлы вязать на плетенках? В справочнике собраны узлы для: связывания (   Читать дальше...   )Тип издания: Paid / FullРелиз состоялся: 27.06.2024Разработчик: MP FishПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B4877524CF7360B4604260B54C4D4B4979E9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760968   (36998) от 17.11.2024
 
 Справочник электрика v79.0 Mod by derrin [Ru]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36998.jpg" />
 </div>
 
 
@@ -87,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36985.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36932.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36913.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Image to text - Text scanner / OCR сканер текста v1.5.8 Premium Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36912.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ Speedtest от Ookla 5.5.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36892.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ meteoblue weather & maps Cirrus Uncinus 2.8.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36882.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ Fit AI / Планы Тренировок. Спортзал v1.3.7 Mod by vadj [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36877.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.5 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36828.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ Netmonitor: 5G, Cell & WiFi v1.25.15 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36817.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36802.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ SHINE – Journey Of Light 1.90.13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36774.jpg" />
 </div>
 
 
@@ -379,7 +327,7 @@ INKredible PRO v3.0.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36772.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ Magnifying Glass / Увеличительное стекло v3.9.1 (от Pony M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36690.jpg" />
 </div>
 
 
@@ -434,7 +382,7 @@ Grab Photos From Videos / Фото из видео v11.3.2 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36671.jpg" />
 </div>
 
 
@@ -460,7 +408,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36583.jpg" />
 </div>
 
 
@@ -487,7 +435,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.142 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36530.jpg" />
 </div>
 
 
@@ -514,7 +462,7 @@ Vanced Tube v5.2.80.154 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36518.jpg" />
 </div>
 
 
@@ -540,7 +488,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36496.jpg" />
 </div>
 
 
@@ -567,7 +515,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36291.jpg" />
 </div>
 
 
@@ -593,7 +541,7 @@ Colorize Images v4.0.93 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36282.jpg" />
 </div>
 
 
@@ -619,7 +567,7 @@ AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36274.jpg" />
 </div>
 
 
@@ -645,7 +593,7 @@ NewPipe v0.27.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36191.jpg" />
 </div>
 
 
@@ -671,7 +619,7 @@ Magic Eraser / Магический ластик v2.12.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36169.jpg" />
 </div>
 
 
@@ -682,6 +630,58 @@ Magic Eraser - это революционное приложение для р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DE9D51B582ED1BB25D6A6C29EED710280CB4D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757654   (36157) от 25.11.2024
+
+ГдеПосылка v3.47 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36157.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГдеПосылка — это универсальный и удобный сервис для отслеживания почтовых отправлений. Достаточно знать лишь трекинг-номер, чтобы легко найти посылку как в России, так и в США, Германии, Украине, Китае или Казахстане.Тип издания: AdfreeРелиз состоялся: 25.11.2024Разработчик: PackageRadarПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C44B92921850CB1D7C7C1C8C9FE3F5BFD4849C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762497   (36136) от 25.11.2024
+
+Менеджер Паролей / SafeInCloud 2 v24.17.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке. SafeInCloud — это не просто хранитель паролей, но и 2FA-аутентификатор, генерирующий одноразовые коды для любого (   Читать дальше...   )Тип издания: Pro / Extra ModРелиз состоялся: 25.11.2024Разработчик: SafeInCloud S.A.S.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

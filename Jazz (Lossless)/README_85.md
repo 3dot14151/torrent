@@ -6,7 +6,7 @@ Scott Bradlee's Postmodern Jukebox - 33 Resolutions Per Minute (2017) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767932.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Michael Franks - Collection 1975 - 1987 (2012) Light Mellow [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767884.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Candy Dulfer - Together (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767883.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Louis Hayes And The Cannonball Adderley Legacy Band - Live at Cory Weeds' Cellar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767793.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Olivia Trummer Trio - Westwind (2008) Neuklang [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767772.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Barnaby Finch - Digital Madness (1986) 2014, Warner [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767743.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Lena Horne & Michel Legrand - Lena & Michel (1975) [FLAC|Lossless]<Vocal Jazz, T
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_767676.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Michel Legrand - The Very Best Of Michel Legrand (1990) [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767669.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Michel Legrand/Stephane Grappelli - Legrand/Grappelli (1992) [FLAC|Lossless]<Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_767545.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767414.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Esther Marrow - Sister Woman (1972) Remaster 2010 [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767203.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Fleurine - Meant To Be! (1995) 2000, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767196.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Chet Baker - Live At New Morning (1983) 1992, Century Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767195.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Colette Cassidy & Nigel Clark - Confetti Falling In The Rain (2017) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767194.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ John Coltrane - Giant Steps & Lush Life (1957 - 1959) 2CD, 2011, Not Now Music [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767137.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Kirk Lightsey Quartet - Everything Is Changed (1990) Sunnyside [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766993.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Hank Crawford - South-Central (1993) Milestone Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766991.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ David Hazeltine - I Remember Cedar (2014) Sharp Nine Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766990.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Hank Crawford - Wildflower (1973) 2002, Epic [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766988.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The James Moody And Hank Jones Quartet - Our Delight (2006) 2008, IPO [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766982.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ray Charles Orchestra - Swiss Radio Days Jazz Series, Vol.41: Zurich 1961 (2016)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766949.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766563.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Jimmy Forrest - Black Forrest (1959) 1999, Delmark Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766426.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ John Coltrane - Soultrane & Coltrane (First Trane) (1957, 1958) 2CD, 2010, Not N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766418.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Toots Thielemans & Thierry Lang Trio - Swiss Radio Days Jazz Series, Vol.44: Cul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766416.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Freddy Cole - He Was The King (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766379.jpg" />
 </div>
 
 

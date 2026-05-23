@@ -1,56 +1,3 @@
-###  Публикация: 1095012   (927648) от 19.01.2017
-
-Волки / Les loups (2014) DVDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В северной части Атлантики, вдали от большой земли, на небольшом острове живут люди, чей уклад давно сложился в соответствии со здешним климатом и единственным промыслом - охотой на морских волков. Жители острова знают друг друга. Поэтому появление молодой незнакомки сразу же привлекло к ней внимание и одновременно насторожило местное население. Кто она и с какой (   Читать дальше...   )Производство: Франция, КанадаЖанр: ДрамаРежиссер: Софи ДераспАктеры: Синди-Мэй Арсено, Эвелин Брошу, Бенуа Гуэн, Огустен Легран, Луиза Порталь, Жильбер СикоттПеревод: Одноголосый закадровый, любительский (Cmert)Продолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B989525A491DBC177B6ACF935D53E55F929ADBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094331   (927619) от 19.01.2017
-
-Королева Катве / Queen of Katwe (2016) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка из Уганды тренируется, чтобы стать чемпионкой мира по шахматам. Ей приходится преодолевать тяжесть условий, неодобрение окружающих, и достигать результатов - шаг за шагом. В результате она добивается того, к чему стремилась, и прославляет свою Родину.
-В фильме красочно показана природа и быт Африканского континента, а знакомство местных детей с миром (   Читать дальше...   )Производство: США (Walt Disney Pictures), ЮАРЖанр: ДрамаРежиссер: Мира НаирАктеры: Лупита Нионго, Дэвид Ойелоуо, Нтаре Мвине, Рассел Савадье, Мадина Налванга, Морис Кирйа, Чарити Роуз Пимер, Тэрин Кйазе, Эстер Табандеке, Питер ОдекеПеревод: Многоголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 02:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3146FA25F61153B9A2282C7735A335194022A8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094745   (927618) от 19.01.2017
 
 Мне не стыдно / I'm Not Ashamed  (2016) BDRip [H.264/1080p] [EN]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927618.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927606.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927586.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927564.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927475.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927470.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927468.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927463.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927461.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927458.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927441.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927438.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927437.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927436.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927346.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927340.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927339.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927333.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927331.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927326.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927316.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927207.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927191.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927184.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C63831704EE9981ECBBB7434FD8DB200AB2FCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986866   (927180) от 16.02.2016
+
+Дипан / Dheepan (2015) BDRip [H.264/720p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевик «Тамильских тигров» бежит из Шри-Ланки после конца гражданской войны. Ради получения убежища во Франции он выдает незнакомую женщину с ребенком за свою семью. Трое беглецов поселяются в предместье Парижа и постепенно сближаются, особенно перед лицом жестокости иммигрантских кварталов…Производство: Франция / A Plus Image 5, Canal+Жанр: Драма, КриминалРежиссер: Жак ОдиарАктеры: Джесутасан Антонитасан, Калиеасвари Сринивасан, Клодин Винаситамбу, Венсан Ротье, Фаузи Бенсаиди, Марк Зинга, Басс Дем, Франк ФалисПеревод: Многоголосый закадровый, профессиональный (Line)Субтитры: отсутствуютПродолжительность: 01:51:15Реклама: Внимание! Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14B7460CA4CE307615D12D843925791CDD8C208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986815   (927179) от 16.02.2016
+
+Телохранитель / Maryland (2015) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент нанимается телохранителем к жене очень богатого человека. Его неодолимо влечет к ней, и первоначальная антипатия перерастает в любовь. Сможет ли он спасти любимую?Производство: Франция, Бельгия / Angoa-Agicoa, Canal+ (fr), Centre National de la Cinmatographie (CNC)Жанр: Драма, ТриллерРежиссер: Алис ВинокурАктеры: Маттиас Шонартс, Дайан Крюгер, Поль Ами, Перси Кемп, Виктор Понтекорво, Майкл Даубер, Франк Торресильяс, Чемс Эддин, Филипп ХаддадПеревод: Многоголосый закадровый, профессиональный (iTunes)Язык субтитров: ФранцузскийПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47D56C65CB9A28704868609B7DED26034D728B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 466583   (81621) от 12.03.2012
-
-Прикованная к постели (Картахена) / L'homme de chevet (Cartagena) (2009) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Колумбия. Лео бывший чемпион мира по боксу в полусреднем весе, а теперь просто местный пьяница. Мюриэль — богатая капризная француженка, парализованная после автомобильной аварии. Ей нужна сиделка со знанием французского и Лео, которому отчаянно нужны деньги, соглашается на эту незавидную для него роль. Ненавидя друг друга, два разных человека пытаются сосуществовать рядом. Но от ненависти до любви — всего лишь один шаг…Жанр: ДрамаРежиссер: Алан МоннАктеры: Софи Марсо, Кристофер Ламберт, Маргарита Роза Де Франциско, Родольфо Де СоузаПеревод: Двуголосый закадровыйЯзык субтитров: русский, французскийПродолжительность: 01:30:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466684   (81606) от 12.03.2012
-
-Человек, который хотел оставаться собой / The Big Picture / L'homme qui voulait vivre sa vie (2010) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Поль — сотрудник одной из адвокатских контор Парижа с большой зарплатой и большим домом, красивой женой и двумя сыновьями. Однако вскоре Поль узнает, что его жена изменяет ему с местным фотографом. Слепая ярость толкает Поля на безрассудный поступок. Стоя над трупом любовника, он понимает, что его красивая благополучная жизнь в прошлом…Жанр: ДрамаРежиссер: Эрик ЛартигоАктеры: Ромен Дюри, Марина Фоис, Нильс Ареструп, Бранка Катич, Катрин Денёв, Эрик РуфПеревод: Двухголосый закадровыйПродолжительность: 01:55:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465957   (81507) от 11.03.2012
 
 Братская вечеринка / Frat Party (2009) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81507.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81488.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81476.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81420.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81353.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81319.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81299.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81286.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81285.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81263.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81253.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81183.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81152.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81103.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81101.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81090.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81083.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81060.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81046.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81044.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81022.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81010.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80960.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80895.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54D3BCDE0152436D287F15098A72569A5160DDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464112   (80885) от 08.03.2012
+
+Последняя любовь на Земле / Perfect Sense (2011) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля столкнулась с небывалым бедствием. В разных странах, на каждом континенте люди в самом буквальном смысле лишаются чувств — каждого из пяти, одного за другим… Майкл и Сьюзан считают свою связь мимолетной, но когда становится ясно, что мир неумолимо приближается к концу, герои понимают — им уже не прожить друг без друга. Но что останется, когда пропадут последние чувства?Жанр: Фантастика, Драма, МелодрамаРежиссер: Дэвид МакКензиАктеры: Юэн МакГрегор, Ева Грин, Конни Нильсен, Стивен Диллэйн, Юэн Бремнер, Аластер МаккензиПеревод: Многоголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463924   (80857) от 08.03.2012
+
+Радиоволна / Frequency (2000) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский Джон Салливэн (Джеймс Кэвизел) случайно связывается по любительской радиостанции со своим покойным отцом, пожарным Фрэнком Салливэном (Деннис Куэйд), который погиб во время тушения пожара много лет назад. Удостоверившись в том, что они действительно сын и отец, сын начал давать советы отцу, как можно изменить прошлое, чтобы предотвратить трагическое событие. (   Читать дальше...   )Жанр: Фантастика, Триллер, ДрамаРежиссер: Грегори ХоблитАктеры: Деннис Куэйд, Джеймс Кэвизел, Шоун Дойл, Элизабет Митчелл, Андре Брогер, Ноа Эммерик, Мелисса Эррико, Дэниэл Хенсон, Джордан Бриджес, Стефен ДжоффПеревод: ДублированныйСубтитры: Russian, English, CzechПродолжительность: 01:59:05
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

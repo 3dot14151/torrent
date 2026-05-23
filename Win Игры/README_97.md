@@ -1,29 +1,3 @@
-###  Публикация: 991156   (883911) от 11.03.2016
-
-Cobalt (2016) [Multi] (133b Gold) Repack R.G. Механики
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-И так от создателя Minecraft, kомпания Маркуса «Нотча» Перссона поможет независимой студии Oxeye Games произвести на свет новый экшен/платформер Cobalt с очаровательным киборгом в главной роли. Игра будет располагать несколькими геймплейными режимами (одиночным, кооперативным, соревновательными) и выйдет на компьютерах под управлением Windows ближайшей осенью с последующим (   Читать дальше...   )Тип издания: RepackРазработчик: Oxeye Game StudioЖанр: Arcade (Platform)Язык озвучки: -/-Язык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25476C20DBC2AB6023C10254C712E68EBC2CAFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995522   (883908) от 11.03.2016
 
 The Guest (2016) [Ru/Multi] (1.0) Repack R.G. Механики
@@ -32,7 +6,7 @@ The Guest (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883908.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Emily is Away (2015) [Ru/En] (1.2) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883839.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Guest (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883835.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Blues and Bullets - Episode 2 (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883821.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5.0/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883817.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Figment (2017) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883140.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Order of the Light: The Deathly Artisan / Орден Света: Смертел�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883077.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883051.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Last Will (2016) [En] (1.0) License HI2U [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882910.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Finding Bigfoot (2017) [Ru/Multi] (1.1.7) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882783.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882678.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dark Shores (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882675.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Wild Eight (2017) [Ru/Multi] (09.02.2017) Unofficial VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882671.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882659.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Myths Of The World 8: Born Of Clay And Fire (2016) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882590.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Final Fantasy IV (2021) [Ru/Multi] (1.0) License Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881966.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ NBA 2K22 (2021) [Multi] (7326260) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881952.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Pode (2020) [Ru/Multi] (1.0/hotfix) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881326.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Race The Sun (2013) [En] (1.51/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881063.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880969.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Dreamfall Chapters (2014) [Ru/Multi] (5.4.1.1) SteamRip Let'sPlay [Special Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880965.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ MX Nitro (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880954.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Revolve (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880937.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880282.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.6.0/dlc) License GOG (обнов�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880251.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01FA833C88CB38BE9D6A3F416CE821901C5F9FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373414   (880094) от 06.04.2020
+
+Fairy Godmother Stories: Cinderella / Истории Крёстной Феи: Золушка (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказочное королевство захлестнула волна преступности. Неуловимый грабитель банков всё время уходит прямо из-под носа полиции, оставляя на месте преступления лишь одну улику - хрустальную туфельку. Какого же было их удивление, когда такую же туфельку они обнаружили в доме Крёстной Феи. Отправляйтесь в Сказочное королевство и выясните, кто скрывается под маской преступницы!Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B14316C79E930CC1FEF04A36CC4D7DE99B88CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

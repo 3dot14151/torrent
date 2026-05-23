@@ -1,29 +1,3 @@
-###  Публикация: 959153   (319126) от 23.11.2015
-
-Eventide: Slavic Fable (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Современный отель находится в парке наследия, где обитают славянские мифические существа. Известный ботаник получает тревожное сообщение от своей бабушки, которая является смотрителем таинственной болотистой местности. Здесь действуют законы магии и обитают существа из фольклора. Нужно сохранить исчезающие виды растений - но это самая малая из проблем, которую нужно (   Читать дальше...   )Тип издания: UnofficialРазработчик: House of Fables и Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB109F3039667452B2FBE56FBE23D3E54486546C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959164   (319119) от 23.11.2015
 
 Dark Parables 10: Goldilocks and the Fallen Star (2015) [En] Unofficial [Collector’s Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Dark Parables 10: Goldilocks and the Fallen Star (2015) [En] Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319119.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318798.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Nioh (2017) [Ru/Multi] (1.21.01/u1) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318772.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dark Parables 9: Queen of Sands / Темные притчи 9: Королева 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318700.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ WWE 2K18 (2017) [Multi] (1.04/u1) License CODEX [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318612.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Five Nights at Freddy's 4 (2015) [En] (1.1) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318540.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318449.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.58.02/dlc) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318126.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Storm Chasers: Tornado Islands / Охотники за штормом: Остр�
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318123.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318119.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ State of Mind (2018) [Ru/Multi] (1.2) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318115.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317935.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317906.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Whispered Secrets: Morbid Obsession / Нашептанные секреты 11: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317402.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Escape The Museum / Побег из Музея (2008) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317383.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dark Asylum: Mystery Adventure (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317204.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Carto (2020) [Ru/Multi] (1.0.4) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317021.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ PositronX (2020) [En] (1.0.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317011.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Forgotten Places: Regained Castle / Покинутые места: Обрете�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316790.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Link me / Собери меня (2015) [Ru] Repack Armeniac
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316622.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316369.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316178.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Mystery Case Files 19: Moths to a Flame / За семью печатями 19: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316032.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315835.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.58.02) License GOG [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315780.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Banner Saga 2 – продолжение захватывающей The Bann
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:311E1558F5FD698D14E68A3523BF1726D4434C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185729   (315776) от 05.11.2018
+
+WORLD OF FINAL FANTASY (2017) [Multi] (1.0.0.0/dlc) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315776.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЛОВИТЕ, ИЗМЕНЯЙТЕ И РАЗВИВАЙТЕ! Отправьтесь в волшебное путешествие вместе с близнецами Рейнн и Ланн по бескрайним землям Гримуара. Узнайте тайны прошлого и спасите будущее! Наслаждайтесь очаровательной графикой и ловите, изменяйте и развивайте волшебных существ, составляя их в «башенки».Тип издания: LicenseРазработчик: Square EnixЖанр: RPG, Action, Adventure, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A00CCC663E099A13104477405C29CED1DFD1591
 ```
 
 https://mybot314.ru/tekegram_catalog/

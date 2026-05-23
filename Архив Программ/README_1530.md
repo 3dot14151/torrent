@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253848.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Js Stuff - jBridge v1.3 by ASSIGN x86 x64[английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253837.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Trojan Remover 6.8.3.2604 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253751.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ TagScanner 5.1.611 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253750.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ K-Lite Codec Pack 8.8.0 (x86, Basic, Standart, Full, Mega) / 6.3.0 (x64) [Мул
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253552.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ ArtMoney Pro 7.39 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253514.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Crysonic - Spectra C2 1.0 x86 by ASSiGN[VST][английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253484.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ NFOPad 1.64 & Portable [Ru/En/Multi10]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253378.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VBA32 Personal 3.12.16.8 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253315.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ CyberLink PowerDVD Ultra 12.0.1618.54 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253307.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ AVI ReComp 1.5.4 + Portable x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253286.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Mac Blu-ray Player 2.1.2.0860 [Multi/Rus] Portable by Boomer
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253223.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Photo Montage Guide 1.3.2 [Rus|Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253200.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Process Lasso Pro Final (x86/x64) + Portable 5.1.0.82 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253184.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ System Explorer 3.8.8 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253157.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Windows 7x86x64 Ultimate UralSOFT v.5.5.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253046.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MIDIRenderer 1.4.0.0 [Rus] RePack by kaktusTV
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252942.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ MD5 Checksum Tool 3.0.0.0 [Multi+Rus] + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252891.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Control Center by Sania 1.00 [Только Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252762.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ USB Disk Security RePack + Silent 6.1.0.432 [Мультиязычный (рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252755.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ ActiveState Komodo IDE 7.0.2 build 70257 for Windows [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252728.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 07.05.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252703.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Zemana AntiLogger 1.9.3.157 [Мультиязычный (русский прис
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252695.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Dropbox 1.4.4 Forum Build [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252623.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Windows 10 21H2 Enterprise 2021 LTSC [19044.3030] x64 Mod 6 (13.05.2023) by buly
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252259.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32532.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252250.jpg" />
 </div>
 
 

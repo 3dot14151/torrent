@@ -1,81 +1,3 @@
-###  Публикация: 1355348   (1006439) от 16.07.2021
-
-Царь (2009) BDRip [H.265/1080p-LQ] [10-bit]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1565 год. Темные времена. Правление Ивана Грозного. Русь растерзана голодом и ливонской войной. Во всем мерещатся правителю измена и предательство. Его верные слуги, опричники, залили страну кровью. В каждом готовы они увидеть государева врага. Главный закон для них — царь. Единственный, кто пошел против царской воли и опричных злодейств, — митрополит Филипп, верный (   Читать дальше...   )Производство: Россия, Профит, Мастерская Павла ЛунгинаЖанр: Драма, ИсторияРежиссер: Павел ЛунгинАктеры: Петр Мамонов, Олег Янковский, Юрий Кузнецов, Александр Домогаров, Анастасия Донцова, Алексей Макаров, Александр Негодайлов, Иван Охлобыстин, Алексей Франдетти, Вилле ХаапасалоСубтитры: НетПродолжительность: 02:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66317C8C19BAF8DE6EF744E7C3910E60B5A218FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483689   (1006421) от 16.07.2021
-
-Папа закодировался (2020) WEBRip [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После кодирования от алкоголизма Анатолий Снаров взглянул на свою жизнь новыми, трезвыми глазами. Оказывается, у него есть жена, дети и ответственная должность начальника ЖКХ в уездном городке Сорочинске, которыми он совершенно не занимался раньше. Достигнув просветления, Снаров решает осчастливить окружающих. Он становится примерным семьянином и активным гражданином. (   Читать дальше...   )Производство: Россия / АРТЛАЙТ, Инвада фильмЖанр: комедияРежиссер: Павел ХодневАктеры: Евгений Сытый, Алла Юганова, Федор Семчев, Александр Новиков, Александр Булатов, Николай Шрайбер, Дмитрий Куличков, Александр Головин, Иван Макаревич, Игорь ГудеевПеревод: Не требуется (русский) IVIСубтитры: ОтсутствуютПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043DF12EBDCFF41ABF4AF1782B91D77842192753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484194   (1006272) от 18.07.2021
-
-СуперБобровы (2016) BDRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вместо десерта на ужин семейство Бобровых получило... метеорит. Настоящий, большой, из космоса. Благодаря ему Бобровы вдруг приобретают немыслимые сверхспособности. Дед становится бессмертным, а отец теперь может телепортироваться. Сын начинает понимать собачий язык, а его сёстры получают суперсилу, возможность летать и быть невидимой. Единственное ограничение - (   Читать дальше...   )Производство: Россия / Yellow, Black & WhiteЖанр: комедия, семейный, фантастикаРежиссер: Дмитрий ДьяченкоАктеры: Павел Деревянко, Оксана Акиньшина, Роман Мадянов, Ирина Пегова, Владимир Толоконников, Даниил Вахрушев, Софья Мицкевич, Михаил Шамигулов, Елизавета Кононова, Виталий КищенкоСубтитры: отсутствуютПродолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716661A39CCDE20A12A014DE3C01E7106A684AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482348   (1006200) от 18.07.2021
 
 Сердце и как им пользоваться (2021) WEB-DL [H.264/1080p-LQ]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006200.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ A prima vista (2020) WEBRip [H.264/720p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006151.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005963.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005099.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004935.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004695.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004685.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004412.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004394.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004240.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003904.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003898.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003897.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003643.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003363.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003326.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003179.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003107.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003102.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003089.jpg" />
 </div>
 
 
@@ -607,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002870.jpg" />
 </div>
 
 
@@ -633,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002689.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002455.jpg" />
 </div>
 
 
@@ -670,6 +592,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28F841DA6634B360048AE5B34DFAB5BBB801B87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488115   (1002198) от 10.08.2021
+
+Тайна печати дракона (2019) BDRip [H.264/1080p-LQ] [US Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский путешественник Джонатан Грин получает от Петра I заказ на изготовление карт Дальнего Востока России. Ему вновь предстоит долгий путь, полный невероятных приключений, который приведет его в Китай. Картограф столкнется с массой головокружительных открытий, неожиданных встреч с диковинными существами, китайскими принцессами, мастерами смертоносных боевых (   Читать дальше...   )Производство: Россия, Китай / Buffalo 8 Productions, CTB Film Company, China Film Group CorporationЖанр: приключения, фэнтезиРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Арнольд Шварценеггер, Чарльз Дэнс, Джеки Чан, Яо Синтун, Кристофер Фэйрбэнк, Рутгер Хауэр, Мартин Клебба, Юрий Колокольников, Павел ВоляПеревод: ДублированныйСубтитры: Русские (forced), английские (forced, full)Продолжительность: 02:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2065DEA815BE274DB3B62FC5EFEB70CF3F7AB5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351214   (1002104) от 10.01.2020
+
+Француз (2019) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002104.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1957 году французский студент Пьер Дюран приезжает в Москву на стажировку в МГУ. Здесь он знакомится с балериной Большого театра Кирой Галкиной и фотографом Валерой Успенским. Благодаря этим знакомствам, Пьер погружается в культурную жизнь Москвы, не только официальную, но и подпольную. За год в Москве Пьер проживает целую жизнь, совершенно не похожую на всё, что (   Читать дальше...   )Производство: Россия / Мармот-фильмЖанр: История, драмаРежиссер: Андрей СмирновАктеры: Антон Риваль, Евгения Образцова, Александр Балуев, Евгений Ткачук, Михаил Ефремов, Роман Мадянов, Нина Дробышева, Наталья Тенякова, Лилия Багирова, Люси АронПеревод: Не требуется (Русский) iTunesСубтитры: Русские (форсированные, на французскую речь)Продолжительность: 02:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5FD7A657F6531E45C3ADA568BF7F1BB31BFE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351593   (1001811) от 11.01.2020
+
+Давай разведемся! (2019) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный врач Маша поглощена работой и не сразу замечает, что от нее уходит муж. Жизнь переворачивается вверх дном: на работе аврал, дети требуют постоянного внимания, а привыкшая побеждать Маша не готова уступить любимого мужа красотке фитнес-тренеру. Маша призывает на помощь полный боевой арсенал, включая потусторонние силы. Но новая жизнь открывает новые возможности…Производство: Россия / Кинокомпания CTBЖанр: КомедияРежиссер: Анна ПармасАктеры: Анна Михалкова, Антон Филипенко, Светлана Камынина, Максим Лагашкин, Фёдор Лавров, Анна Рыцарева, Надежда Маркина, Сергей Рост, Дарья Румянцева, Майя СкородумоваПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594BC44F742A30209970A38513F253888F5F2F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

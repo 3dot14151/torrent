@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727169.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IsoBuster Pro 4.9 Build 4.9.0.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727147.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727061.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pepakura Designer 4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727022.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PowerISO 6.6 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727018.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AdwCleaner 6.046 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726988.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Acronis True Image 2017 Build 8053 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726983.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Total Commander 9.0a Extended 17.4 Full | Lite RePack (&Portable) by BurSoft [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726982.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mirillis Action! 2.4.1.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726980.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Icecream Ebook Reader PRO 4.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726944.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Windows 10 Enterprise S Technical Preview 10.0.14352 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726892.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Dreamweaver CC 2015.3 (7888) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726891.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Dreamweaver CC 2015.3 (7888) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726882.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ DAEMON Tools Lite 10.4.0.190 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726859.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Soft4Boost Easy Disc Burner 4.8.3.375 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726702.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Free Studio 6.6.19.602 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726682.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Soft4Boost Dup File Finder 6.2.5.447 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726675.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Soft4Boost Any Uninstaller 6.9.7.541 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726671.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Mozilla Firefox Quantum ESR 60.5.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726543.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Maxthon Browser 5.3.8.300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726536.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726526.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726515.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Soft4Boost Document Converter 4.4.9.347 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726511.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Bootstrap Studio 5.9.3 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726499.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Soft4Boost Secure Eraser 4.0.5.367 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726491.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Soft4Boost Toolbar Cleaner 4.5.7.301 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726484.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Xolodno Compilation [22.12] (Mixed and Compiled by Alexey Viper) (2021) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038835.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VER:WEST(Tiesto) - Aftr:hrs Sessions 01 (2021-01-14) [MP3|320 Kbps] <Tech House,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038770.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2023-01-03) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037863.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Markus Schulz - Global DJ Broadcast - with guest Dennis Sheperd (2021) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037526.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Armin van Buuren & Ruben de Ronde - A State Of Trance 1000 (2021) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037435.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Armin van Buuren - A State Of Trance 1001 (Celebration Mix) (2021) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035471.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Markus Schulz - Global DJ Broadcast - Escape to Fisher Towers (2021) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035205.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Armin van Buuren & Ferry Corsten - A State of Trance 1002 (2021) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033534.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Live @ Tomorrowland NYE Edition (2020-12-31) [MP3|~245 Kbps (V0)] <Electro 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033498.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ David Guetta - Live @ United At Home, Burj Al Arab Dubai, United Arab Emirates (
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032991.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Fuerte & Daveepa - EDM Rewind Mashup Mix 2020 (2021-01-28) [MP3|320 Kbps] <Elect
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032750.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Markus Schulz - Global DJ Broadcast - Escape to Narva (2021) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032127.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Armin van Buuren & Ruben de Ronde & Allen Watts - A State of Trance 1003 (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032077.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bryan Kearney - Vocal Anthems Mix (2021-02-05) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031915.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Steve Angello - Tomorrowland Friendship Mix (2023-03-16) [MP3|320 Kbps] <Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031859.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2021-02-11) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031684.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Armin van Buuren - A State Of Trance 1114 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029411.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ ATB & Topic - SiriusXM Guest Room Mix (2021-02-20) [MP3|~245 Kbps (V0)] <House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028355.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Yotto - A Very Cold DJ Set, Lapland, Finland (2021-03-06) [MP3|320 Kbps] <Deep H
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026747.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026623.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025827.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024258.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024254.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022302.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Specia
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021782.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021432.jpg" />
 </div>
 
 

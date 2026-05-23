@@ -1,55 +1,3 @@
-###  Публикация: 1354112   (988813) от 21.01.2020
-
-Коллекционер / The Collector (2009) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Бывший домушник Аркин забирается в загородный коттедж своего начальника с тем, чтобы ограбив его, выплатить долг бывшей жене. Однако попав внутрь, он вскоре понимает, что дом и его обитатели уже захвачены крайне неприятным типом в плюшевой маске с полным набором пыточных инструментов времен Испанской инквизиции, после чего предпринимает отчаянную попытку спасти семью, (   Читать дальше...   )Производство: США / LD Entertainment, Fortress Features, Imaginarium Entertainment GroupЖанр: ужасы, триллерРежиссер: Маркус ДанстэнАктеры: Джош Стюарт, Майкл Рейли Бурк, Андреа Рот, Хуан Фернандес, Карли Скотт Коллинз, Даниелла Алонсо, Хейли Пуллос, Уильям Прэйл, Дайан Голднер, Алекс ФельдманПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB9AF8152E900A231DCAD6D6FEFF68FFC2AEEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354042   (988809) от 21.01.2020
-
-Малефисента: Владычица тьмы / Maleficent: Mistress of Evil (2019) HDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит через несколько лет после того, как Малефисента наложила злые чары на принцессу Аврору. Фильм рассказывает про сложную взаимосвязь между тёмной феей и будущей королевой, о новых союзниках и противниках в деле защиты волшебного леса и магических существах, которые в нем обитают.Производство: США, Великобритания / Roth Films, Walt Disney PicturesЖанр: Фэнтези, приключения, семейныйРежиссер: Хоаким РоннингАктеры: Анджелина Джоли, Элль Фэннинг, Харрис Дикинсон, Мишель Пфайффер, Сэм Райли, Чиветел Эджиофор, Эд Скрейн, Роберт Линдсей, Дэвид Гяси, Дженн МюррэйПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH), английскиеПродолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3086FC9622E95F5039FA674BF2B1EFAA37CDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354258   (988808) от 21.01.2020
 
 Аббатство Даунтон / Downton Abbey (2019) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988808.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988806.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988803.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988801.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988794.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988793.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988757.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988756.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988753.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988749.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988748.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988746.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988744.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988743.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988718.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988717.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988716.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988712.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988709.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988705.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988704.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988703.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988697.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988604.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
  профессиональный (многоголосый закадровый)
  профессиональный (двухголосый закадровый)
  авторский (одноголосый закадровый)Субтитры: русские, английские, французскиеЯзык субтитров: русский, английский, французскийПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432954   (988603) от 08.01.2012
+
+Ноев ковчег / Noah's Ark (1999) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библейский Ной строит вместе с сыновьями — Яфетом, Симом и Хамом — громадный корабль (ковчег), на котором поместится «каждой твари по паре». Господь обещает вселенский потоп, но обновление мира должно наступить от спасенных в кочеге людей и животных. Долгая засуха побуждает окружение Ноя смеяться над ним. Но внезапный ливень «поглощает» и город, и его обитателей. (   Читать дальше...   )Жанр: Драма, Мелодрама, ПриключенияРежиссер: Джон Ирвин / John IrvinАктеры: Джон Войт, Мэри Стинберген, Ф. Мюррэй Абрахам, Кэрол Кейн, Марк Базелей, Джонатан Кэйк, Алексис Денисоф, Эмили Мортимер, Сидни Тамиа Пуатье, Соня УолгерПеревод: Многоголосый закадровыйПродолжительность: 02:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F3318A7EF0C4D6282F4DC46839B09F7223FDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185834   (988553) от 08.01.2012
+
+Нефть / There Will Be Blood (2007) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа «Нефть», классика американской литературы Эптона Синклера. Действие книги происходит в конце 1920-х в Калифорнии и описывает взлет нефтедобывающей компании, принадлежащей амбициозному и бездушному магнату Плейнвью.Жанр: триллер, драмаРежиссер: Пол Томас АндерсонВ ролях: Пол Дано, Дэниэл Дэй-Льюис, Мартин Стрингер, Кевин Дж. О’Коннор, Джейкоб Стрингер, Мэттью Браден Стрингер, Киаран Хиндс, Диллон Фризье, Джозеф Массей, Barry Del ShermanПеревод: ДублированныйФормат: AVIПродолжительность: 02:38:25
 
 ## Скачать торент
 ```bash

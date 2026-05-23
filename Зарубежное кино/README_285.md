@@ -1,56 +1,3 @@
-###  Публикация: 747292   (962310) от 19.01.2014
-
-Машина Джейн Мэнсфилд / Jayne Mansfield's Car (2012) BDRip [720p] [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-История о сложных человеческих взаимоотношениях, о том, как разные поколения относятся к войне, жизни и смерти. Конец 60-х годов. Американка бросает мужа, уходит к англичанину и уезжает с ним на Туманный Альбион. Когда женщина умирает, бывший супруг должен исполнить последнюю волю почившей и похоронить её на родной земле, в Алабаме. Они не виделись вот уже 30 лет, (   Читать дальше...   )Производство: США, РоссияЖанр: ДрамаРежиссер: Билли Боб ТорнтонАктеры: Рэй Стивенсон, Джон Хёрт, Кевин Бейкон, Роберт Патрик, Билли Боб Торнтон, Роберт Дювалл, Шоуни Смит, Фрэнсис О’Коннор, Типпи Хедрен, Кэтрин ЛаНасаПеревод: Дублированный | LineСубтитры: ОтсутствуютПродолжительность: 02:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3CAFBADBC8AC5752B4D7E45246EBA90DF3F7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855130   (962141) от 01.01.2015
-
-Крокодил Данди в Лос-Анджелесе / Crocodile Dundee in Los Angeles (2001) HDTVRip [H.264/720p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В третьей части этого безумно популярного фильма Мик Данди, следуя за своей подругой, журналисткой Сью Чарльстон, переселяется из деревенской глуши Австралии в модный и суетливый Лос-Анджелес.
-Сью возглавляет лос-анжелесский офис газеты своего отца и пытается выяснить причины гибели одного из лучших журналистов. Данди, которому надоело беспрерывно попадать в глупые (   Читать дальше...   )Производство: Австралия, США / Bungalow Productions, Silver Lion Films, Vision View EntertainmentЖанр: боевик, комедия, криминал, приключенияРежиссер: Саймон УинсерАктеры: Пол Хоган, Линда Козловски, Джер Бернс, Джонатан Бэнкс, Алек Уилсон, Джерри Скилтон, Стив Рэкмен, Серж Кокберн, Аида Туртурро, Пол РодригезПеревод: ДублированныйПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5687577836B1B837B88446F610D4DFAF1A4433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747181   (962127) от 19.01.2014
 
 Философы: Урок выживания / The Philosophers (2013) HDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962127.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962099.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962091.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961956.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961951.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961944.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961943.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961915.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961911.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961908.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961905.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961874.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961863.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961862.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961859.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961857.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.265/720p] [10-bit] [P
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961843.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961838.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961835.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961822.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961805.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961799.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961797.jpg" />
 </div>
 
 
@@ -658,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961796.jpg" />
 </div>
 
 
@@ -669,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D5991F670A1454D0FDDBA941A42698BFA10736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357386   (961794) от 14.02.2020
+
+Что скрывает ложь / What Lies Beneath (2000) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученый и преподаватель Норман Спенсер с женой Клэр остаются в одиночестве после того, как их дочь Кейтлин покидает дом и отправляется в колледж. Вскоре Клэр начинает казаться, что рассудок ее подводит: проливные дожди и звуки ссоры между новыми соседями настраивают ее на тревожный лад, а увидев, как сосед кладет в багажник машины свернутый ковер, она немедленно начинает (   Читать дальше...   )Производство: США, DreamWorks SKG, Twentieth Century Fox Film Corporation, ImageMoversЖанр: Триллер, Ужасы, Драма, ДетективРежиссер: Роберт ЗемекисАктеры: Мишель Пфайффер, Харрисон Форд, Дайана Скаруид, Венди Крюсон, Джеймс Римар, Миранда Отто, Джо Мортон, Эмбер Валлетта, Кэтрин Таун, Виктория БидвеллПеревод: Дублированный, Авторский х2Субтитры: Русские, английские, немецкиеПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77409296B3BCD9390EEEA78AE0AA3CE1BA5EB407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360144   (961783) от 14.02.2020
+
+Последняя пуля / Disturbing the Peace (2020) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий городок оказывается захвачен бандой дерзких и жестоких преступников. Их план — обрубить все каналы связи и держать жителей в заложниках, чтобы ограбить проезжающий через город инкассаторский грузовик с крупным кушем. Им плевать сколько мирных людей погибнет ради их наживы, однако им не стоило недооценивать опытного местного шерифа, который даже в одиночку готов (   Читать дальше...   )Производство: США, Aloe Entertainment, Grodnik /Aloe Productions, Media Finance Capital, Wonderfilm MediaЖанр: БоевикРежиссер: Йорк ШеклтонАктеры: Гай Пирс, Девон Сава, Барби Бланк, Майкл Беллисарио, Дуэйн Камерон, Келли Грейсон, Джейк Гродник, Теренс Дж. Ротоло, Джон Льюис, Эль Е. УоллесПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EB66378FFB13ECABBB02720AA75D0B8474A959
 ```
 
 https://mybot314.ru/tekegram_catalog/

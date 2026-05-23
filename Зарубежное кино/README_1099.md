@@ -1,56 +1,3 @@
-###  Публикация: 376301   (508960) от 18.08.2011
-
-Пол: Секретный материальчик / Paul (2011) BDRip [720p] [Extended Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Два жестких поклонника комиксов и научной фантастики всю жизнь мечтали о двух вещах. Поехать в Америку и побывать во всех местах, так или иначе связанных с упоминанием пришельцев и, собственно, повстречать одного из них.
-И вот они отправляются на одно из самых значимых фанатских событий в области фантастики — конвент ComicCon в Америке. По пути, неподалёку от известной (   Читать дальше...   )Производство: США, Франция, Великобритания, Испания, Universal Pictures, Relativity Media, Working Title FilmsЖанр: Фантастика, Комедия, ПриключенияРежиссер: Грег МоттолаАктеры: Саймон Пегг, Ник Фрост, Сет Роген, Джейн Линч, Сигурни Уивер, Джейсон Бейтман, Кристен Уиг, Билл Хэйдер, Блайт Даннер, Джефри ТэмборПеревод: 1 - Профессиональный (дублированный)Продолжительность: 01:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1558461FE97DD1740E41D2830F14C7584728C702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562559   (508876) от 09.07.2022
-
-Пьяный мастер / Zui quan / Drunken Master (1978) BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодой Вонг Фей-Хун, будущий народный герой Китая, защитник обездоленных и обиженных, в молодости был весьма строптив и дерзок. Настолько, что отец отослал неуправляемого сына к дяде, известному мастеру кунг-фу и большому эксперту в двух вещах: распитии крепких спиртных напитков и выбивании дури из самонадеянных юнцов. Неудивительно, что герой сбегает от дяди-садиста (   Читать дальше...   )Производство: Гонконг / Seasonal FilmЖанр: боевик, комедияРежиссер: Юэнь У-ПинАктеры: Джеки Чан, Юань Сяотянь, Янг Ли Хванг, Дин Шек, Лам Кау, Линда Линь, Тино Вон, Сюй Ся, Фу Чан Ши, Хань Чан ВонгПеревод: Профессиональный многоголосый (ОРТ)Субтитры: Русские, английскиеПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6117EDC81B06AEFB1714FE8E7637CBAEB89BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932548   (508855) от 29.08.2015
 
 Ловушка для родителей / The Parent Trap (1998) WEB-DL [H.264/720p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508855.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508816.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508813.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508811.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508808.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508780.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508770.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508761.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508760.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508725.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508722.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508721.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508707.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508704.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508670.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508668.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508622.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508616.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508610.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508561.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508503.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508442.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508304.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508301.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36EF90A975333AAC6DAA607BE46D5EB9EB48F81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538767   (508290) от 24.08.2012
+
+10 причин моей ненависти / 10 Things I Hate About You (1999) [H.264] HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Строгий отец поставил условие: Бьянка пойдет на свидание, если ее сестра Кэт тоже согласится встретиться с парнем. Но Кэт — синий чулок и отчаянная мужененавистница. Бьянка пытается найти для сестры такого же зануду, как она.Производство: США, Jaret Entertainment / Mad Chance / Touchstone PicturesЖанр: Мелодрама, КомедияРежиссер: Джил ДжангерАктеры: Хит Леджер,Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B5E80AE6452E7F27EC6934C41B50621B7A9A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377150   (508257) от 19.08.2011
+
+Счастливы вместе / HappyThankYouMorePlease (2010) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм — молодой нью-йоркский писатель. Как часто бывает в жизни, великий роман ещё не написан, а в личной жизни полный провал. Но все меняется, когда Сэм случайно знакомится с бездомным чернокожим мальчиком, который прилипает к нему, как банный лист. С этого момента жизнь начинает течь быстрее.Производство: Paper Street Films, Tom Sawyer Entertainment, Back Lot Pictures / СШАЖанр: драма / комедияРежиссер: Джош РэднорАктеры: Джош Рэднор, Кейт Мара, Зои Казан, Пабло Шрайбер, Тони Хейл, Фэй Вульф, Мария Елена Рамирез, Малин Акерман, Майкл Альери, Джейкоб Аппельман и др.Перевод: Многоголосый (профессиональный)Язык субтитров: русскийПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

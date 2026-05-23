@@ -1,55 +1,3 @@
-###  Публикация: 1339343   (263135) от 25.11.2019
-
-12 ребят, которые хотят умереть / Juni-nin no shinitai kodomo-tachi / 12 Suicidal Teens (2019) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-12 парней и девушек, которые решили покончить с собой, собираются в заброшенном доме. Когда они находят тело и пытаются выяснить, кто убийца, всплывают причины каждого отважившегося на такой отчаянный шаг.Производство: Япония, Chukyo TV Broadcasting Company, Fukuoka Broadcasting System, Hiroshima TelecastingЖанр: Триллер, детективРежиссер: Юкихико ЦуцумиАктеры: Хана Сугисаки, Макэню Арата, Такуми Китамура, Махиро Такасуги, Юина Куросима, Канна Хасимото, Аи Ёсикава, Рику Хагивара, Юто Футино, Рёта БандоПеревод: Двуголосый (XDUB DORAMA)Субтитры: Русские, английскиеПродолжительность: 01:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA1A23524759FF09AECAB6C92DBCC6E04E779CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339340   (263132) от 25.11.2019
-
-Божественная ярость / Saja / The Divine Fury (2019) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Когда Ён-ху был ребёнком, его отец, полицейский и очень религиозный человек, погиб при исполнении. С тех пор парень живёт, затаив на Бога обиду, не любит сближаться с людьми и предпочёл реализоваться в MMA. Однажды на ладони ударной правой руки Ён-ху проступает стигмат, и с тех пор по ночам его приходят мучить злые потусторонние сущности. Пытаясь разобраться в происходящем, (   Читать дальше...   )Производство: Южная Корея, KeyEast, Lotte EntertainmentЖанр: Триллер, ужасы, боевикРежиссер: Ким Джу-хванАктеры: Пак Со-джун, Ан Сон-ги, У До-хван, Пак Чи-хён, Чон Джи-хун, Ли Сын-хи, Щим Хи-соп, Ким Щи-ын, Чхве У-щик, Ли Чхан-юПеревод: ДвуголосыйСубтитры: английские (отдельно), корейский (хардсаб)Продолжительность: 02:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF111AA7EC4088EA296AAB3BE7DBA1D73FCFE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340824   (263129) от 25.11.2019
 
 Малолетка / Miseongnyeon / Another Child (2019) WEB-DLRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263129.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263125.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263124.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263123.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263122.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263121.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263120.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263119.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263097.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263076.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263018.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263014.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263001.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262984.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262981.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262979.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262975.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262968.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262965.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262964.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262890.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262875.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262827.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_262816.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD52A920D092D1EAC2CA210CCCA17DCF37EAF48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 225127   (262814) от 26.11.2019
+
+Универсальный солдат 3: Возрождение / Universal Soldier: Regeneration (2009) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чеченский террорист по фамилии Топофф захватывает Чернобыльскую АЭС и угрожает взорвать ее. На его стороне — бывший сотрудник программы «Универсальный солдат», поставивший на службу террористу грозное оружие — одного из своих подопечных. Ситуация осложняется тем, что в заложниках оказываются дети видного государственного деятеля. Попытки освободить опасный объект (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ДрамаРежиссер: Джон ХайамсАктеры: Жан-Клод Ван Дамм, Дольф Лундгрен, Андрей «Питбуль» Арловский, Майк Пайл, Кори Джонсон, Гарри Купер, Эмили Джойс, Захари Бахаров Аки Авни, Керри ШейлПеревод: Многоголосый закадровыйПродолжительность: 01:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B196C72CB05AE90E01DBA09CE0B7C3CDBD87055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340865   (262813) от 26.11.2019
+
+Гемини / Gemini Man (2019) WEBRip [H.264/1080p-LQ] [UKR, EN / ENG Sub] [Line]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри Броган, первоклассный киллер, становится мишенью таинственного оперативника, который, кажется, знает каждый его шаг наперед.Производство: США, Китай, Alibaba Pictures, Fosun Group Forever Pictures, Jerry Bruckheimer Films, Skydance ProductionsЖанр: Боевик, ФантастикаРежиссер: Энг ЛиАктеры: Уилл Смит, Мэри Элизабет Уинстэд, Клайв Оуэн, Бенедикт Вонг, Дуглас Ходж, Теодора Вулли, Ральф Браун, Линда Эмонд, Андреа Суч, Илья ВолохПеревод: ОтсутствуетЯзык озвучки: Украинский, английский (оригинал)Субтитры: английские (Full)Продолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49785F35557C0C06C66D38752CF61DFE271C861
 ```
 
 https://mybot314.ru/tekegram_catalog/

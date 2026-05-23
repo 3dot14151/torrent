@@ -6,7 +6,7 @@ MadLove - White With Foam (2009) [MP3|~245 кб/с (V0)]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997597.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Glass Delirium - Diamond Lullabies (2012) [MP3|320 кб/с]<Alternative Rock, Pi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997558.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Beach Fossils - Clash the Truth (2013) [MP3|320 Kbps] <Indie, Lo-Fi>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997290.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sex Pistols - 47 albums (1976-2008) Discography [MP3|112-320 kbps] <Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997144.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Love, Robot - Rebuild | Rebirth (2012) [MP3|256 кб/с]<Alt. Rock, Post-Hardcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997053.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Linkin Park - 3 Альбома (2012) [MP3|255-320 kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996894.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Yo La Tengo - Fade (2013) [MP3|256 кб/с]<Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996520.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Villagers - Awayland (2013) [MP3|320 кб/с]<Indie-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996485.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Coheed and Cambria - The Afterman: Descension (2013) [MP3|320 kbps] <Alt. Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996185.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Everything Everything - Arc (2013) [MP3|320 кб/с]<Indie-Rock, Indie-Pop, Expe
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996184.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sin Fang - Flowers (2013) [MP3|320 кб/с]<Indie-Rock, Dreampop, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995253.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ School Of Seven Bells - 3 альбома, 2 EP (2007-2012) Дискографи�
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994883.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Trapt - Reborn (2013) Deluxe Edition [MP3|320 кб/с]<alternative rock, modern 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994835.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Razorlight - Razorlight (2006) [MP3|320 кб/с]<Инди-рок>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994539.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Dirtwire - Electric Rivеr (2019) [MP3|320 Kbps] <Indie, Electronica, Experiment
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993229.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Hatebreed - The Divinity Of Purpose (2013) Scene [MP3|276-296 кб/с]<Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992824.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Unknown Mortal Orchestra - II (2013) [MP3|320 кб/с]<Psychedelic, Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992803.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Wave Machines - Pollen (2013) [MP3|320 кб/с]<Alternative Rock, Indie-Rock, El
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992373.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Stranglers - Giants (2012) [MP3|320 кб/с]<Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992297.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Bombay Bicycle Club - Flaws (2010) [MP3|320 кб/с]<Инди-рок>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992177.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Black Light Burns - Lotus Island (2013) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991158.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Mogwai - Les Revenants (2013) [MP3|320 кб/с]<Post-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989221.jpg" />
 </div>
 
 
@@ -751,7 +751,7 @@ Breaking Benjamin - Aurora (2020) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987016.jpg" />
 </div>
 
 
@@ -780,7 +780,7 @@ Local Natives - Hummingbird (Deluxe Edition) (2013) [MP3|320 кб/с]<Indie Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986099.jpg" />
 </div>
 
 
@@ -815,7 +815,7 @@ Message Through Motion - Earthshaker (2013) [MP3|320 кб/с]<Alt.Rock / Post-Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984433.jpg" />
 </div>
 
 
@@ -850,7 +850,7 @@ Thousand Foot Krutch - Oxygen: Inhale (2014) [MP3|320 кб/с] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981861.jpg" />
 </div>
 
 

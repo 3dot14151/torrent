@@ -1,55 +1,3 @@
-###  Публикация: 1240366   (528535) от 11.08.2018
-
-Опасное расследование (Шок и трепет) /  Shock and Awe (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История о военной кампании США по вторжению в Ирак под предлогом обнаружения там оружия массового поражения. Операция, получившая неофициальное название «Шок и трепет», началась 20 марта 2003 года с целью свержения режима Саддама Хуссейна и растянулась на долгие 9 лет.Производство: США / Acacia Filmed Entertainment, Castle Rock Entertainment, Savvy Media HoldingsЖанр: триллер, драма, биография, историяРежиссер: Роб РайнерАктеры: Вуди Харрельсон, Джеймс Марсден, Роб Райнер, Томми Ли Джонс, Джессика Бил, Милла Йовович, Ричард Шифф,  Терренс Розмор, Марго Мурер, Майкл Хардинг, Кейт БатлерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF48A5D05F555E5C8C042CB5244D6AF74A7127F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240426   (528532) от 11.08.2018
-
-Огненная стена / Firewall (2006) WEB-DLRip [H.264] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Крупный специалист по компьютерным системам безопасности Джек Стэнфилд успешно работает в одном из банков Сиэтла. В личной жизни у Джека тоже все складывается удачно: у него замечательная жена-архитектор Бет и двое прелестных детей. Однако Джек не догадывается, что у него есть одно уязвимое место и что этим собирается воспользоваться беспощадный и расчетливый вор. (   Читать дальше...   )Производство: США / Beacon Pictures, Thunder Road, Village Roadshow Pictures, Warner Bros. Pictures Co.Жанр: Триллер, КриминалРежиссер: Ричард ЛонкрэйнАктеры: Харрисон Форд, Пол Беттани, Вирджиния Мэдсен, Карли Шредер, Джимми Беннетт, Мэри Линн Райскаб, Роберт Патрик, Роберт Форстер, Алан Аркин, Мэттью Карри ХолмсПеревод: Дублированный, двухголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E001FC01473D67A4D12F4C93D820D315E8B12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240333   (528527) от 11.08.2018
 
 Небоскреб / Skyscraper (2018) WEBRip [H.264/720p-LQ] [EN / KOR Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528527.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528480.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528479.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528478.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528471.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528469.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528466.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528465.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528430.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528428.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528092.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528081.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ Dом Zомби / Wicked Little Things (2006) BDRemux [H.264/1080p] [GER Transfe
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528036.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528034.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528021.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528006.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527986.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527981.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527971.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527935.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527932.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527923.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527922.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527898.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC1C20F04CE56B3F19D184952C4722A1238A1751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312986   (527886) от 07.07.2019
+
+Плейбой под прикрытием / Nicky Larson et le parfum de Cupidon (2018) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив (и ловелас по совместительству), известный как Городской Охотник, получает на руки запутанное дело. По просьбе своей эффектной и неприступной напарницы сыщик соглашается взяться за работу. Теперь плейбою под прикрытием предстоит отправиться в Монако - на территорию больших денег и красивых женщин...Производство: Франция / Axel Films, Baf Prod, M6 FilmsЖанр: боевик, комедия, криминалРежиссер: Филипп ЛашоАктеры: Филипп Лашо, Элоди Фонтан, Тарек Будали, Жюльен Аррути, Дидье Бурдон, Памела Андерсон, Жерар Жюньо, Камел Генфу, Одри Лами, Шанталь ЛадезуПеревод: Дублированный (iTunes)Субтитры: русские (полные), французские (полные)Продолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441607D2EDD5509D95C3C3D79A027A4F5999F295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313156   (527882) от 07.07.2019
+
+План побега 3 / Escape Plan: The Extractors (2019) BDRip [H.264/1080p] [MVO] [CAN Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непревзойденный взломщик тюрем Рэй Бреслин опять ввязался в смертельно опасную авантюру: вместе со своей командой он берётся разыскать похищенную дочь своего друга — бизнесмена из Гонконга. Нити расследования приводят к одной из самых секретных тюрем Америки, которая называется «Пункт Дьявола».Производство: США / Emmett/Furla/Oasis Films (EFO Films), Leomus Pictures, Twirly Films LimitedЖанр: Боевик, триллерРежиссер: Джон ХерцфелдАктеры: Сильвестр Сталлоне, Дэйв Батиста, 50 Cent, Джейми Кинг, Макс Чжан, Девон Сава, Гарри Шам мл., Расселл Вонг, Дэниэл Бернхард, Лидия ХаллПеревод: Многоголосый профессиональный (СВ Студия)Субтитры: Русские, английскиеПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A788B29A9E50E5B045AF4783B2AC2A6A08F81F6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

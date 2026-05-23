@@ -1,56 +1,3 @@
-###  Публикация: 1492905   (898547) от 01.09.2021
-
-Кодекс киллера / The Protege (2021) WED-DL [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-С самого детства она знает, как убивать и со временем именно это становится ее ремеслом. В своем деле Анна — профессионал, так как обучалась у лучшего из наемников. После смерти наставника ассасины выходят на тропу войны, но и девушка, обученная различным видам единоборства, готова принять вызов. В ее арсенале не только оружие и ножи, но еще и искусство соблазнителя. (   Читать дальше...   )Производство: США, Великобритания / Arthur Sarkissian Productions, Campbell Grobman Films, Fourteen Films, Millennium Media, Seven Stars Film Studios, Signature PicturesЖанр: Триллер, криминал, боевикРежиссер: Мартин КэмпбеллАктеры: Сэмюэл Л. Джексон, Майкл Китон, Мэгги Кью, Дэвид Ринтул, Патрик Мэлахайд, Рэй Фиарон, Ори Феффер, Роберт Патрик, Флорин Пьерсик мл., Тудор КирилэПеревод: Любительский двухголосый (Pazl Voice) Tnx.KinoPubЯзык озвучки: Русский, АнглийскийСубтитры: Английские (forced, full)Продолжительность: 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A0414D2E090BBF7173C4F7C3938DD8F9888EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992708   (898493) от 03.03.2016
-
-Молодость / Youth (2015) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фрэд — прославленный композитор и дирижер, вопреки просьбам Ее Величества, отказывается выступить на дне рождения принца Филиппа, и на это у него есть веская причина. Мик, оскароносный режиссер, вовсю работает над новым сценарием «фильма-откровения», но дело не слишком спорится.
-Фрэд и Мик уже полвека дружат, смеются над собой и дивятся красоте и несправедливости (   Читать дальше...   )Производство: Италия, Франция, Великобритания, Швейцария / Barbary Films, Bundesamt für Kultur (EDI), C-Films AGЖанр: драма, комедияРежиссер: Паоло СоррентиноАктеры: Майкл Кейн, Харви Кейтель, Рэйчел Вайс, Пол Дано, Джейн Фонда, Марк Козелек, Роберт Ситалер, Алекс МакКуин, Луна Зимич Мийович, Том ЛипинскиПеревод: Дублированный (Лицензия R5)Язык субтитров: РусскийПродолжительность: 02:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF69635528D42770F0F84470059740CBBA9B6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992749   (898474) от 03.03.2016
 
 Молодость / Youth (2015) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898474.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898468.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898450.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898425.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898420.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898385.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898334.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898328.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898324.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898191.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898190.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898188.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898184.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898181.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898104.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898101.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898092.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898006.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898005.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897990.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897989.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897954.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897887.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897555.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3BF4AD0085561B36CA58B033E03A4662058DA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098659   (897521) от 05.02.2017
+
+Джуниор / Junior (1994) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-медики Алекс Хесс и Ларри Арбогаст работают над уникальным препаратом, который должен помочь женщинам избежать выкидышей. Когда финансирование исследований прекращается, друзья принимают неординарное решение, чтобы проверить эффективность изобретенного ими средства. Выкрав замороженную женскую яйцеклетку, Арбогаст вводит ее в тело Хесса, который согласился (   Читать дальше...   )Производство: США / Universal Pictures, Northern Lights EntertainmentЖанр: Фантастика, Мелодрама, КомедияРежиссер: Айвен РайтманАктеры: Арнольд Шварценеггер, Дэнни ДеВито, Эмма Томпсон, Фрэнк Ланджелла, Памела Рид, Аида Туртурро, Джеймс Экхаус, Меган Кэвэна, Антуанетт ПераджинеПеревод: Многоголосый закадровый, Двуголосый закадровый, АвторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F7FBA0C38122913757266210D0D34DAF9AB1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761288   (897489) от 27.02.2014
+
+Ранчо Скинуокер / Skinwalker Ranch (2013) BDRip [720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа исследователей-уфологов снимают на видео доказательства сверхъестественных проявлений, а так же ищут следы инопланетян. Им предстоит так же расследовать загадочную пропажу 10-ти летнего сына местного фермера…Производство: СШАЖанр: Ужасы, Фантастика, ТриллерРежиссер: Девин МакДжиннАктеры: Тейлор Бейтмен, Стив Берг, Майкл Блек, Эрин Кехилл, Керол Колл, Кайл Дэвис, Майк Флинн, Джон Грайз, Майкл ХорсПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: VANOСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03A9263C8A3238E18E641E310BBB4AA84B62800
 ```
 
 https://mybot314.ru/tekegram_catalog/

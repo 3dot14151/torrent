@@ -1,134 +1,3 @@
-###  Публикация: 1850968   (1054949) от 01.02.2026
-
-Астрономы обнаружили сотни космических аномалий с помощью нового инструмента
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Астрономы из Европейского космического агентства (ESA) разработали новый инструмент на базе искусственного интеллекта под названием AnomalyMatch, который позволил провести систематический поиск редких и необычных объектов в огромном архиве данных космического телескопа «Хаббл» (Hubble). За 35 лет наблюдений накопился неподъёмный для анализа человеком набор данных. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850971   (1054935) от 02.02.2026
-
-Никто никому ничего не должен
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Депутаты Национального собрания Франции (нижняя палата парламента) единогласно поддержали законопроект, который отменяет понятие «супружеский долг», сообщает BFMTV. В случае его принятия в законе будет закреплено, что супруги не обязаны вступать в половые отношения. Теперь документ рассмотрят в Сенате.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850866   (1054899) от 31.01.2026
-
-Акции Microsoft показали сильнейшее падение с 2020 года
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Акции Microsoft упали на 11%, что стало самым сильным падением почти за шесть лет, передает Bloomberg. Снижение произошло после того, как компания отчиталась о рекордных расходах и замедлении роста продаж облачных услуг, отмечает агентство. Это усилило опасения инвесторов по поводу того, что компания не сможет окупить вложения в ИИ так быстро, как ожидалосьАкции (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850916   (1054725) от 01.02.2026
-
-В ответах ChatGPT обнаружили региональную дискриминацию
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-ChatGPT систематически отдаёт предпочтение богатым западным регионам в ответах на широкий спектр вопросов в диапазоне от «Где люди красивее?» до «Какая страна безопаснее?», и виной всему предубеждения в обучающих массивах. Таким открытием поделились учёные Оксфордского (Великобритания) и Кентуккийского (США) университетов.Исследователи представили анализ 20 млн запросов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850342   (1054579) от 30.01.2026
-
-Во Франции депутаты поддержали закон о запрете соцсетей для детей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Национальное собрание Франции в первом чтении приняло законопроект, который запрещает детям младше 15 лет использовать социальные сети, передает Franceinfo. Голосование прошло в ночь на 27 января. За принятие законопроекта проголосовали 116 депутатов.Президент Франции Эмманюэль Макрон попросил правительство ускорить процедуру принятия закона. По его словам, запрет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850625   (1054429) от 29.01.2026
 
 Ил-114-300 выполнил демонстрационный полет в Индии
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054429.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054325.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054133.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054121.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053934.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053866.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053865.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053714.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053563.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053460.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053417.jpg" />
 </div>
 
 
@@ -428,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053360.jpg" />
 </div>
 
 
@@ -454,7 +323,7 @@ Zapret GUI 1.60 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053264.jpg" />
 </div>
 
 
@@ -482,7 +351,7 @@ Micron запустила строительство мегафабрики па
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053214.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053144.jpg" />
 </div>
 
 
@@ -535,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053021.jpg" />
 </div>
 
 
@@ -561,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052968.jpg" />
 </div>
 
 
@@ -587,7 +456,7 @@ SSD теперь реально дороже золота: твердотель�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052849.jpg" />
 </div>
 
 
@@ -613,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052627.jpg" />
 </div>
 
 
@@ -640,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052597.jpg" />
 </div>
 
 
@@ -667,7 +536,7 @@ Zapret GUI 1.50 [Ru] (авторский релиз)
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052559.jpg" />
 </div>
 
 
@@ -680,6 +549,139 @@ Zapret GUI 1.50 [Ru] (авторский релиз)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9643224D15E5970040A2E898505A3A7638B89899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847493   (1052387) от 15.01.2026
+
+За голосовые оскорбления в интернете будут штрафовать
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправка голосового сообщения с нецензурной бранью через мессенджер в России может стать основанием для наложения административного штрафа. Об этом говорится в судебных материалах, содержание которых приводит РИА Новости.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847427   (1052251) от 14.01.2026
+
+Эксклюзив от Micron: почему потребители совершенно неправильно понимают ситуацию с нехваткой памяти
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Micron, являющаяся одним из трех крупнейших производителей памяти на рынке, решила объяснить сложившуюся в нем ситуацию с самой памятью, заверив, что компания не бросила потребительский рынок, как можно было бы подумать.Напомним, ранее Micron отказалась от потребительского бренда Crucial , которому почти 30 лет, чтобы сильнее привлекать внимание на рынке (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847474   (1052118) от 13.01.2026
+
+NekoVPN — премиальное качество по удивительно низким ценам! YouTube без рекламы. Подключение до 5 устройств. От 100 рублей в месяц
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052118.jpg" />
+</div>
+
+
+###  Подробнее
+
+NekoVPN позволит настроить защищенное соединение на любом устройстве за 1 минуту!Бесплатный тест 15 дней 🚀🔸 Прямой выделенный доступ 10 Гбит/с на каждом сервере!
+🔸 Youtube без рекламы, 4K грузится за секунды.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847420   (1052117) от 13.01.2026
+
+Италия потребовала от Cloudflare блокировать сайты без суда в течении 30 минут
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский регулятор связи AGCOM оштрафовал Cloudflare на 14,2 млн евро за отказ блокировать доступ к пиратским сайтам через сервис DNS 1.1.1.1. Компания ответила на претензии.Компания заявила, что будет оспаривать решение и не исключает радикальных мер вплоть до вывода своей инфраструктуры из страны.Штраф выписан в рамках закона Piracy Shield, который обязывает (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847348   (1052026) от 13.01.2026
+
+0xZeOn взломал Denuvo в Dead Space Remake, а voices38 обошел DRM в FIFA 22 и Sonic Colors Ultimate
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Похоже, что в сообществе «крякеров» появился еще один специалист, способный взламывать антипиратскую защиту Denuvo Anti-tamper.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1293248   (638825) от 02.04.2019
-
-Святая Агата / St. Agatha (2018) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1957 год, маленький городок штата Джорджия. Молодая авантюристка Мэри сбежала от жестокого отца и хочет завязать с мошенничеством. А когда девушка узнаёт, что беременна, у неё не остаётся выбора, кроме как укрыться в женском монастыре. Монахини с порога заявляют ей, что учреждение лишилось поддержки церкви, и здесь царят свои строгие порядки, но Мэри может уйти, (   Читать дальше...   )Производство: США / Dragon Blood Holdings, St. Agatha, The Outside WritersЖанр: Ужасы, триллер, драмаРежиссер: Даррен Линн БоусманАктеры: Сабрина Керн, Кэролин Хеннеси, Кортни Хэлверсон, Сет Майклс, Трин Миллер, Линдсэй Сейм, Шоун Флетчер, Джэйсон Уорнер Смит, Максимус Мёрра, Марша Фи БергерПеревод: Дублированный (iTunes)Субтитры: ФранцузскиеПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407C70BF16B2CB77FF545C1B6C3307DE5DCB9D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293235   (638814) от 02.04.2019
-
-Счастливый Лазарь / Lazzaro felice (2018) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В крошечной итальянской деревеньке Инвиолата время остановилось в буквальном смысле слова. Местные жители принадлежат сказочной маркизе де Луна, которая нещадно использует их труд. Всё меняется в один из визитов семьи патронов в Инвиолату. Молодой аристократичный Танкреди заводит дружбу с Лазарем — прекрасным и простодушным деревенским юношей. Фантастические коллизии (   Читать дальше...   )Производство: Италия, Швейцария, Франция, ГерманияЖанр: ДрамаРежиссер: Аличе РорвахерАктеры: Адриано Тардиоло, Агнесса Грациани, Лука Чиковани, Альба Рорвахер, Серхи Лопес, Наталино Балассо, Томмазо Раньо, Николетта Браски, Маддалена БайоккоПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуют.Продолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2092574E928ECD464B9F6510D18EED01E9E014C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142937   (638813) от 16.06.2017
 
 Рождение нации / The Birth of a Nation (2016) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638813.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638801.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638799.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638757.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638742.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638722.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638720.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638718.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638717.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638713.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638694.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638692.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ SuperАлиби / Alibi.com (2017) BDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638687.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638684.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638680.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638642.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638639.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638636.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638627.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638602.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638592.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638589.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638588.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638586.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:033A3D619D3AA2BC9BED98A762DB3EE1FE9CCE0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542224   (638489) от 06.04.2022
+
+Замена (Заместитель) / El sustituto / The Replacement (2021) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрес — молодой, но закалённый суровой борьбой с безжалостной мадридской мафией полицейский, берёт на работе отпуск и едет со своей дочерью в небольшой приморский городок, где девочке предстоит пройти лечение в здешнем санатории. Городок кажется очень мирным, но внезапно здесь происходит серьёзное преступление — кто-то убивает местного инспектора. Теперь правоохранительной (   Читать дальше...   )Производство: Испания, Бельгия, Entre Chien et Loup, À Mèdia, Amazon Prime VideoЖанр: Боевик, триллер, криминал, приключенияРежиссер: Оскар АйбарАктеры: Рикардо Гомес, Виктория Луэнго, Пере Понсе, Поль Лопес, Хоакин Климент, Нурия Эрреро, Франк Фейс, Бруна Кузи, Суси Санчес, Гильермо МонтесиносПеревод: Авторский (Роман Янкелевич)Субтитры: отсутствуютПродолжительность: 01:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16529AF9B1711CBAE3095854A50B7D9AE237A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142884   (638455) от 16.06.2017
+
+Трансформеры: Эпоха истребления / Transformers: Age of Extinction (2014) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоботы и десептиконы оставили человечество собирать планету по кусочкам. Между тем группа могущественных бизнесменов и гениальных ученых пытается извлечь уроки из ошибок прошлого и улучшить технологии до такой степени, чтобы выйти за пределы контролируемого ранее. В это время другая группа — древних мощных трансформеров — берет Землю под прицел.Производство: США, Китай / Paramount Pictures, Hasbro, Di Bonaventura PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Майкл БэйАктеры: Марк Уолберг, Никола Пельтц, Джек Рейнор, Стэнли Туччи, Келси Грэммер, Титус Уэлливер, ТиДжей Миллер, Ли Бинбин, София Майлс, Питер КалленПеревод: ДублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 02:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3950D40E3CC446879FE158F8A89566431A0BF40C
 ```
 
 https://mybot314.ru/tekegram_catalog/

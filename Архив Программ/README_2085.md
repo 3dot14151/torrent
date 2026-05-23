@@ -6,7 +6,7 @@ Mozilla Thunderbird 10.0.4 Final (Extended Support Release) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100399.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Thunderbird 12.0 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100090.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla SeaMonkey 2.9 Beta 4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100068.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Thunderbird 12.0 Beta 5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100052.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Registry Cleaner v7.15 build 453 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100048.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla SeaMonkey 2.9 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99705.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HostsMan 4.0.84 Beta5 & Portable [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99439.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Alcohol 52% 2.0.2 Build 3929 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99430.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mozilla Thunderbird 12.0 Beta 4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99378.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wise Disk Cleaner v7.21 build 478 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99313.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ FeedDemon 4.0.0.22 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99208.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Sumatra PDF 2.0.1 Final + Portable [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99123.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ FireAlpaca 1.0.29 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99033.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ McAfee Avert Stinger Portable 10.2.0.574 [англ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98969.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ BWMeter v6.2.0 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98966.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ WinUtilities Pro 10.5 RePack by от loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98948.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Data Flow Accelerator 3.4.2.24 Portable [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98942.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Data Flow Accelerator 3.4.2.24 Beta [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98904.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ LibreOffice 3.5.2 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98797.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Wise Registry Cleaner 7.14 build 451 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98795.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Wise Disk Cleaner v7.17 build 474 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98773.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98744.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mozilla Thunderbird 12.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98743.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98525.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98455.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98451.jpg" />
 </div>
 
 

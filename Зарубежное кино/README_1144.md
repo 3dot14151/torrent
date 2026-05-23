@@ -1,55 +1,3 @@
-###  Публикация: 700199   (482614) от 15.09.2013
-
-Легенда о великом мастере дзюдо (части 1-2) / Sugata Sanshiro & Zoku Sugata Sanshiro (1943/1945) 2*DVD5
-
->>Зарубежное кино
->>Азиатское кино (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Производство: Япония, Toho Company Ltd.Жанр: Боевик, приключенияРежиссер: Акира Куросава/Akira KurosawaАктеры: Дэндзиро Окоти, Сусуму Фудзита, Рюносукэ Цукигата, Акитакэ Коно, Юкико Тодороки, Сёдзи Киёкава, Масаюки Мори, Сэйдзи Миягути, Ко Ишида, Казу Хикари, Кокутэн Кодо, Итиро Сугаи, Осман Юсуф, Рой Джеймс, Е.Х. Эрик и др.Перевод: Профессиональный (одноголосый, закадровый)Язык субтитров: Русский, английскийФормат: DVD5Продолжительность: 01:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A90826A0150535A1EDCE9BD9F08330FB1E376EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405104   (482608) от 30.08.2020
-
-Билл и Тед / Bill & Ted Face the Music (2020) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Музыканты-раздолбаи Билл и Тед всю жизнь верили в пророчество, что их рок-н-ролл спасёт вселенную от гибели. И вот, глобальная катастрофа уже на носу, и на спасение мира у парней остается чуть больше часа. И тогда они решают отправиться в будущее, чтобы стырить песню… у самих себя. Вместе с папашами в путешествие отправляются уже взрослые дочери Билла и Теда. Смогут (   Читать дальше...   )Производство: США, Канада, Италия / Dial 9, Dugan Entertainment, Hammerstone StudiosЖанр: комедия, фантастика, музыкаРежиссер: Дин ПаризоАктеры: Киану Ривз, Алекс Уинтер, Кристен Шаал, Самара Уивинг, Бригитт Ланди-Пейн, Уильям Сэдлер, Энтони Кэрриган, Эринн Хэйс, Джейма Мейс, Хэл Лэндон мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E94890C16AB0FBFEA9BF38B8F0B76238167ACA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405561   (482603) от 30.08.2020
 
 В ожидании варваров / Waiting for the Barbarians (2019) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482603.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482602.jpg" />
 </div>
 
 
@@ -114,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482596.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482570.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482502.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482497.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482490.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482472.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482470.jpg" />
 </div>
 
 
@@ -300,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482469.jpg" />
 </div>
 
 
@@ -326,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482461.jpg" />
 </div>
 
 
@@ -353,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482411.jpg" />
 </div>
 
 
@@ -379,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482400.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482398.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482388.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482319.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482311.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482304.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482229.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482150.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482143.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482066.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482059.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482048.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BFBB7F7460E70896A66807538E745CBCFB075C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566493   (482043) от 29.07.2022
+
+Обряд / Долгая ночь / The Long Night / The Coven (2022) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грэйс росла в приюте и никогда не знала своих родителей. Спустя годы ей попадается зацепка, способная пролить свет на прошлое, и девушка вместе со своим парнем отправляется из Нью-Йорка в сельскую глушь на юге страны. Но на месте их ожидают не ответы на вопросы, а мистический культ, одержимый желанием исполнить апокалиптическое пророчество.Производство: США / Adirondack Media Group, El Ride Productions, Hillin Entertainment, Sprockefeller PicturesЖанр: ужасыРежиссер: Рич РэгсдэйлАктеры: Скаут Тэйлор-Комптон, Нолан Джерард Фанк, Дебора Кара Ангер, Джефф Фэйи, Кевин Рэгсдэйл, Кинг Орба, Эрика Стасюлевичюте, Джунипер Гази, Уэнди Девор, Рокко БовоПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3568F90A87B9026963F4528B5F09255D0F67DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546125   (482025) от 11.09.2012
+
+Люди в черном 3 / Men in Black 3 (2012) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Джей узнает, что никакого защитного галактического щита, способного отразить иноземный удар, не существует. Агент Кей не построил его, потому что был убит в 1969 году. Агент Джей должен совершить путешествие во времени, чтобы спасти Землю и жизнь напарника.Жанр: Фантастика, боевик, комедия, приключенияРежиссер: Барри ЗонненфельдПродюсер: Лори МакДональд, Уолтер Ф. Паркс, Дж. Мак БраунАктеры: Уилл Смит, Джош Бролин, Томми Ли Джонс, Джемейн Клемент, Эмма Томпсон, Майкл Стулбарг, Майк Колтер, Николь Шерзингер, Майкл Чернус, Элис ИвПеревод: ДублированныйЯзык субтитров: Русский (форс.)Продолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12E8B99572E69616E7E5C33D5A92C14664AB732
 ```
 
 https://mybot314.ru/tekegram_catalog/

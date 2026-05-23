@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556918.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ QuickRes 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556842.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Path Finder 8 v8.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556751.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HDRsoft Photomatix Pro 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556696.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PDF Expert 2.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556578.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sketch 55.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556316.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lyn 1.9.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556199.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ SteamWorld Quest: Hand of Gilgamech (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556115.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ BusyCal 3 v3.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555833.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Find Any File (FAF) 1.9.4b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555827.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ iTrash 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555826.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Persecond 1.4.5 (119) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555824.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Cinemagraph Pro 2.8.2 (221) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555792.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Adguard Premium 2.0.4 (552) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555791.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Native Instruments Reaktor 6 v6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555790.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Alfred 4 Powerpack v4.0.1 (1078) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555787.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Imperator: Rome (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555772.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555708.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ PDF Expert 2.4.24 (617) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555707.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Weedcraft Inc (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555312.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ The Sims 4 v1.44.88.1020 (2014) [Eng] [macOS WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554615.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Europa Universalis IV v.1.28 (2013) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554573.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Sketch 51.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554226.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553821.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Swinsian 2.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553735.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Mate: Universal Tab Translator 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553717.jpg" />
 </div>
 
 

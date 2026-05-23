@@ -1,29 +1,3 @@
-###  Публикация: 494640   (251060) от 10.05.2012
-
-Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Приключение продолжается [Ru] (RePack) 2009 | Fenixx
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Компьютерная игра о похождениях Индианы Джонса отправляет игрока в огромный и удивительный мир LEGO, где его ждут захватывающие приключения в компании легендарного киногероя и его отважных друзей. В начале игры доступен всего лишь один набор — «Индиана Джонс и Королевство хрустального черепа», однако по мере выполнения заданий будут появляться новые интересные возможности. Игроки смогут не только открывать новые уровни, но и создавать собственные, приобретать разнообразных героев и составлять кругосветные маршруты, путешествуя по которым Индиана Джонс встретится с невероятными опасностями.Тип издания: RePackЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: Язык легоЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615A6E99038440E59F1EC1418695C358A5BA32D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494623   (251033) от 10.05.2012
 
 Мои Монополии (L) 2011
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251033.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250939.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20625643) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250932.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250931.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Metal Garden (2025) [Multi] (2.4.0) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250930.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250923.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250921.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250913.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250889.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ KIBORG (2025) [Ru/Multi] (2025.11.05:1:83) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250887.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250881.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Need for Speed: Heat (2019) [Ru/En] (1.0.60.7040/dlc) Repack Decepticon [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250879.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250877.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250875.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250873.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Citadel Arcanes (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250865.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Legendary Tales 4: Map of Hope / Легендарные предания 4: Ка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250839.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250750.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250678.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ THW-Simulator 2012 [Ger] (L) 2012 | ALiAS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250670.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Realms of Madness (2025) [En] (1.0.1) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250635.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Alien Shooter 2 - The Legend (2020) [Ru/En] (1.3.2) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250600.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250597.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Nine Sols (2024) [Ru/Multi] (202511032357.953572b8.0) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250586.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250575.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07C26DF26086B0B09DABE927A5132176282480F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834859   (250565) от 05.11.2025
+
+Escape Simulator 2 (2025) [Ru/Multi] (16494r) Repack seleZen
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Escape Simulator 2 - это продолжение самого продаваемого квеста в реальности. Новые захватывающие локации, еще более глубокие головоломки и инновационный конструктор - встречай лучший эскейп-рум с видом от первого лица. Исследуй новые локации, разработанные в сотрудничестве с мастерами жанра эскейп-рум и легендарными создателями уровней из нашего сообщества.Тип издания: RepackРазработчик: Pine StudioЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25CF56D9AE5DD77A628C70F9B985039DEEFC984
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ IObit Driver Booster Pro 11.4.0.60 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58659.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Glary Utilities Pro 6.9.0.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58655.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Disk Cleaner 11.1.1.826 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58653.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OneCommander Pro 3.77.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58652.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NetLimiter 5.3.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58651.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sumatra PDF 3.6.16047 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58647.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ ACDSee Photo Studio Ultimate 2024 17.1.0.3778 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58619.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58609.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AnyDesk 8.0.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58606.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Internet Download Manager 6.42 Build 9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58567.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ISO Workshop 12.8 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58563.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58556.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ KMPlayer 2024.4.25.13 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58555.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ DVDFab 13.0.1.6 x64 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58545.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Internet Download Manager 6.42 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58542.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Foxit PDF Editor Pro 2024.2.0.25138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58472.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PowerISO 8.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58468.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Topaz Photo AI 3.0.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58463.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ WinRAR 7.01 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58455.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Luminar Neo 1.19.0.13323 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58454.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MobaXterm 24.1 build 5208 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58447.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ ByClick Downloader Premium 2.4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58446.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ PowerISO 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58374.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ UltraUXThemePatcher 4.4.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58372.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Format Factory 5.17.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58367.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Punto Switcher 4.5.0 Build 576 RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58362.jpg" />
 </div>
 
 

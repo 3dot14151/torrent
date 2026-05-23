@@ -6,7 +6,7 @@ Audacity 3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025727.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025720.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Duplicate Photos Fixer Pro 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025680.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MediaHuman Youtube Downloader 3.9.9.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025679.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Reeder 5 v5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025677.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Rhinoceros 7 v7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025675.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Kid3 3.8.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025662.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Opera 74.0.3911.232 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025659.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Privacy Eraser Free 5.9.2 Build 3850 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025657.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FBackup 9.0.199 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025655.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Arturia Analog Lab V v5.1.0.1325 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025654.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Adobe XD CC v36.2.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025652.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AnyGo 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025651.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Desktop Aquarium Wallpapers 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025647.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ djay Pro AI 3.0.6  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025644.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Microsoft Edge 89.0.774.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025639.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Ocenaudio 3.10.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025638.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Opera 74.0.3911.232 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025634.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ NoMachine 7.3.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025632.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ GPU Caps Viewer 1.50.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025630.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ LibreOffice 7.1.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025614.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Comodo Dragon 88.0.4324.190 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025610.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Cyberduck 7.8.3 Build 34411 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025607.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ IObit Uninstaller Pro 10.4.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025603.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rainlendar Lite 2.16.1 Build 168 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025589.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Psiphon 3 build 164 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025580.jpg" />
 </div>
 
 

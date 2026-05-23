@@ -1,109 +1,3 @@
-###  Публикация: 1764388   (34902) от 07.12.2024
-
-Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Heartbeat» - песня испанского певца и автора песен Энрике Иглесиаса. В среднетемповой балладе звучит вокал американской певицы Николь Шерзингер. Режиссером клипа на песню «Heartbeat» стал Хиро Мураи, премьера состоялась 14 сентября 2010 года.Жанр: Электро-попПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14805A04C9BC51C0BC68F0146641865273794E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764387   (34901) от 07.12.2024
-
-Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Feels» (с англ. — «Чувства») — песня шотландского музыканта и продюсера Кельвина Харриса, записанная при участии американских исполнителей певца Фаррелла Уильямса, певицы Кэти Перри и американского рэпера Big Sean. Видеоклип для «Feels» поставил британский режиссёр Эмиль Нава. Премьера прошла 26 июня 2017 года на канале Vevo на YouTube. В этом клипе (   Читать дальше...   )Жанр: Диско-фанк, скаПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBA4D4505B7C6E3AE39E633E623BDE33050A8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764384   (34896) от 07.12.2024
-
-The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Starboy» (с англ. — «Старбой») — песня канадского певца The Weeknd, записанная при участии французского электронного дуэта Daft Punk и выпущенная в качестве лид-сингла для его третьего студийного альбома с тем же названием 21 сентября 2016 года. Музыкальное видео на песню было снято постоянным коллаборатором Грантом Сингером, который снял предыдущие (   Читать дальше...   )Жанр: Синти-поп, современный ритм-н-блюзПродолжительность: 00:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE355B27D34209B92B4C20BADC9BEFC5D69F16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752320   (34895) от 07.12.2024
-
-Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В раздаче представлены три видеоклипа: "Raise The Red Flag", "Sacrilegious", "As Sick As The Secrets Within".01 - Sacrilegious
-02 - Raise The Red Flag
-03 - As Sick As The Secrets WithinПроизводство: Nuclear BlastЖанр: Pop-RockПродолжительность: 00:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634C66AE3752C129E2DA57D6EC3F16ECFDC42674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764386   (34885) от 07.12.2024
 
 Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -112,7 +6,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34885.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34836.jpg" />
 </div>
 
 
@@ -167,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34471.jpg" />
 </div>
 
 
@@ -193,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34083.jpg" />
 </div>
 
 
@@ -222,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34058.jpg" />
 </div>
 
 
@@ -250,7 +144,7 @@ Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33685.jpg" />
 </div>
 
 
@@ -276,7 +170,7 @@ Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33684.jpg" />
 </div>
 
 
@@ -302,7 +196,7 @@ Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33670.jpg" />
 </div>
 
 
@@ -328,7 +222,7 @@ Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33669.jpg" />
 </div>
 
 
@@ -354,7 +248,7 @@ Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33664.jpg" />
 </div>
 
 
@@ -380,7 +274,7 @@ Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33660.jpg" />
 </div>
 
 
@@ -406,7 +300,7 @@ The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33654.jpg" />
 </div>
 
 
@@ -432,7 +326,7 @@ The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33650.jpg" />
 </div>
 
 
@@ -458,7 +352,7 @@ Depeche mode - Devotional Tour. Live In Barcelona (1993) WEBRip [H.264/1080p] [h
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33487.jpg" />
 </div>
 
 
@@ -487,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33344.jpg" />
 </div>
 
 
@@ -516,7 +410,7 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32746.jpg" />
 </div>
 
 
@@ -542,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32721.jpg" />
 </div>
 
 
@@ -568,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32547.jpg" />
 </div>
 
 
@@ -596,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32538.jpg" />
 </div>
 
 
@@ -623,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32237.jpg" />
 </div>
 
 
@@ -652,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31739.jpg" />
 </div>
 
 
@@ -678,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31644.jpg" />
 </div>
 
 
@@ -690,6 +584,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E5A6F4478F9B824657874766A2A53AA335277D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770715   (31430) от 10.01.2025
+
+Щелкунчик (2024) HDTV [H.264/1080i] [Балет. Трансляция спектакля Большого театра]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись прямой трансляции спектакля Большого театра 31 декабря 2024г.
+Основные события в балете разворачиваются накануне большого и светлого праздника - Рождества. В доме Штальбаума собрались гости и крестный Мари, который пришел с кучей подарков для детей. Среди них заметно выделяется кукла, предназначенная для колки орехов – Щелкунчик.Производство: Россия / Первый канал, Большой театрЖанр: балетРежиссер: Юрий ГригоровичАктеры: Андрей Ситников, Анастасия Меськова, Елизавета Кокорева, Элина Камалова, Денис Савин, Артем Овчаренко, Михаил Крючков, Никита Опарин, Ульяна Мокшева, Елизавета Гапоненко, Акиб АнварЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFFC01B8EAAEFCA55BCE2C7E9778AA0A67C12DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762327   (30669) от 17.01.2025
+
+The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRip [H.265/1080p] [10-bit] [The Criterion Collection]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма представляет собой один «обычный» день из жизни «Битлз». Самая известная рок-группа в мире едет из родного Ливерпуля в Лондон, чтобы выступить на телевидении. Музыканты пытаются добраться до студии и не быть разорванными на сувениры восторженными поклонниками, доводят до нервного срыва своего менеджера, развлекаются и влипают в разнообразные приключения. (   Читать дальше...   )Производство: Великобритания /  Proscenium Films, Walter Shenson FilmsЖанр: мюзикл, комедияРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол Маккартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257259AAF8FFA7D2074F782B5706CFB8216CD7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774244   (30406) от 19.01.2025
+
+Def Leppard: One Night Only. Live at the Leadmill (2023) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Def Leppard's One Night Only: Live at The Leadmill Sheffield captures the energy and intimacy of a rare club performance by the stadium fillers in their hometown. Recorded on May 19, 2023, the show took place in front of just under 900 fans, marking the smallest venue the band had played in the UK or Europe in over 35 years. Returning to their roots, the band performed (   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D8393557D4297BD05130AAC194AAAD40772DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 172497   (30390) от 20.01.2025
+
+Этот фантастический мир. Выпуск 2 (1979) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во втором выпуске популярного цикла "Этот фантастический мир" зрителям были представлены фрагменты произведений советских и зарубежных фантастов: "Алло, Парнас!" Валентина Берестова, "Янки при дворе короля Артура" Марка Твена, "Маракотова бездна" Артура Конан Дойля и "Победитель невозможного" Евгения Велтистова.
+Начиная (   Читать дальше...   )Жанр: Фильм-спектакльРежиссер: Тамара ПавлюченкоАктеры: Кирилл Агеев, Виктор Сергачев, Галикс (Георгий) Колчицкий, Николай Болотов, Иван Власов, Елена Кондратова, Наталья Вихрова, Сергей Колесников, Лев Иванов, Георгий Шевцов, Елена Добронравова, Вацлав Дворжецкий, Алексей Борзунов, Александр Дик, Александр Вокач, Владимир Земляникин, Георгий БогадистПеревод: ОригинальныйПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245102E07AAC98E1D1FD04435BEC1056F12F1CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,193 +1,3 @@
-###  Публикация: 1869592   (1068336) от 07.05.2026
-
-Вальс со смертью (2025) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Юная балерина из Смоленска мечтала о сцене и аплодисментах, но все её планы на успешное будущее растоптала война. Вместе с другими жителями оккупированных земель её угоняют в немецкий лагерь на территории Восточной Пруссии, где каждый день — это непрерывная борьба за выживание. Но даже этим нечеловеческим условиям не сломить её дух. Голодная и измученная девушка, (   Читать дальше...   )Производство: Россия | «Волонтеры победы»Жанр: Драма, военныйРежиссер: Андрей КирилловАктеры: Анна Сотникова, Евгений Сидихин, Степан Дворянкин, Олеся Шилякова, Евгений Фоминцев, Софья Сорокина, Мария Старосельцева, Анастасия ВиктороваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDAC95C98D4BDB3A63E660BE50DF09C37C35193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869604   (1068335) от 07.05.2026
-
-Запретный плод / Forbidden Fruits (2026) WEB-DL [H.264/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Трём сотрудницам магазина модной одежды Free Eden — Эппл, Черри и Фиг — завидует весь универмаг. Девушки красивы и обладают безупречным вкусом, но никто не догадывается, что они создали свой культ и после закрытия магазина проводят ритуалы прямо в примерочной. Когда в дружный коллектив вливается новенькая Пампкин, она понимает, что в отношениях девушек не всё так (   Читать дальше...   )Производство: США / 100 ZEROS, Bright Panic Pictures, Lollipop WoodsЖанр: драма, комедия, ужасыРежиссер: Мередит ЭллоуэйАктеры: Лола Тун, Лили Рейнхарт, Виктория Педретти, Александра Шипп, Гэбриэл Юнион, Сиддхартх Шарма, Эмма Чемберлен, Джордан Дуарте, Зак Томпсон, Р. Остин БоллПеревод: Дублированный (Ultradox Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CB8198332A54FB82FE46828B4778B72D36EA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869674   (1068334) от 07.05.2026
-
-Петр Алмазный | Сборник произведений [36 книг] (2025-2026) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пётр Алмазный пишет альтернативную историю, попаданцев, исторические приключения, советскую ретро‑драму, а также военную прозу с сильным уклоном в реконструкцию эпохи. Его тексты почти всегда строятся вокруг идеи: современный человек попадает в прошлое и меняет ход событий.
-О чём он пишет в целом — если обобщить:
-О влиянии одного человека на историю, если дать (   Читать дальше...   )Жанр: Назад в СССР, Попаданцы во времени, Альтернативная история, БоевикИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE634791A96F35AD6DCC2F7F90CDDFF69D9078B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869659   (1068333) от 07.05.2026
-
-Книжная серия | Отцы-Основатели. Продолжатели [74 книги] (2006-2022) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мега-проект издательства «Эксмо», посвящённый собраниям сочинений мэтров мировой фантастики, сравнимый по масштабам только с серией «Миры...» издательства «Полярис».Жанр: Фантастика, фэнтезиИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B7A6A660C7923DB966E88CA720C983EFB67E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869657   (1068332) от 07.05.2026
-
-Книжная серия | Фэнтези-магия [81 книга] (2018-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Новая серия "Фэнтези - магия" от издательства АСТ. Логотип оформления напоминает серию "Фантастический боевик", которая является "долгожителем" в мире серийных изданий. Будет ли такое славное будущее у "Фэнтези-магии" покажет время.Жанр: Боевая фантастика, фэнтезиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184DBF09FE05F85DF5B7C19F79B139341AB45E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869530   (1068331) от 07.05.2026
-
-Frontmusic - Relaxing Piano (2026) [MP3|320 Kbps] <Chillout, Piano, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Ambience (2:29)
-02. Drifting (2:22)
-03. Gentle (3:04)
-04. Gravity (2:24)(   Читать дальше...   )Жанр: Chillout, Piano, InstrumentalПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD04C4A394EF26DEF31B083B5F1FFEE52205B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869527   (1068330) от 07.05.2026
-
-Frontmusic - Italo Disco 80s (2026) [MP3|320 Kbps] <Disco, Instrumental>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On 90th (2:29)
-02. Love Message From 90s (2:45)
-03. 80s Dance Pop Show (2:11)
-04. 80s Dance (3:10)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D1307B85D72CDF3B22783417511E82AD6606B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869526   (1068329) от 07.05.2026
 
 Frontmusic - 90s Dance Pop (2026) [MP3|320 Kbps] <Pop, Instrumental>
@@ -196,7 +6,7 @@ Frontmusic - 90s Dance Pop (2026) [MP3|320 Kbps] <Pop, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068329.jpg" />
 </div>
 
 
@@ -225,7 +35,7 @@ Frontmusic - Deep Chill Lounge (2026) [MP3|320 Kbps] <Chillout, Lounge>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068328.jpg" />
 </div>
 
 
@@ -254,7 +64,7 @@ ABBA-DJ - Non-Stop Club Remixes (2002) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068327.jpg" />
 </div>
 
 
@@ -283,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068326.jpg" />
 </div>
 
 
@@ -309,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068325.jpg" />
 </div>
 
 
@@ -335,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068324.jpg" />
 </div>
 
 
@@ -361,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068323.jpg" />
 </div>
 
 
@@ -387,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068322.jpg" />
 </div>
 
 
@@ -405,33 +215,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869598   (1068321) от 07.05.2026
-
-Первое достижение: 1000 релизов от lipi
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от lipi Дорогие друзья и гости клуба...Он рос простым пареньком. Не пил, не курил, занимался спортом. Но однажды связался с хорошей компанией и пошло-поехало: первый релиз, второй, третий... тысячный.
-Ну а рассказ о том, как он успешно не борется с этой полезной привычкой, расскажет сам виновник торжества. Только нужно вежливо попросить. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869673   (1068320) от 
 
 Почему фашистская Германия капитулировала дважды
@@ -440,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068320.jpg" />
 </div>
 
 
@@ -467,7 +250,7 @@ Eagle PDF 1.0.0 RePack [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068319.jpg" />
 </div>
 
 
@@ -493,7 +276,7 @@ UniGetUI 2026.1.8 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068318.jpg" />
 </div>
 
 
@@ -519,7 +302,7 @@ Thenewno2 - Thefearofmissingout (2012) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068317.jpg" />
 </div>
 
 
@@ -548,7 +331,7 @@ Linda Perry - Let It Die Here (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068316.jpg" />
 </div>
 
 
@@ -577,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068315.jpg" />
 </div>
 
 
@@ -603,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068314.jpg" />
 </div>
 
 
@@ -629,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068313.jpg" />
 </div>
 
 
@@ -655,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068312.jpg" />
 </div>
 
 
@@ -681,7 +464,7 @@ Just Cause (2006) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068311.jpg" />
 </div>
 
 
@@ -692,6 +475,224 @@ Just Cause (2006) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED1243A816D68BAC07F3B2AB5F530F051C568DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869366   (1068310) от 
+
+Ковбои против пришельцев / Cowboys & Aliens (2011) BDRip [AV1/1080p] [handmade Remastered AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1873, Абсолюшен, штат Аризона. В эту глухую американскую провинцию прибывает потерявший память незнакомец. Единственный намек на его прошлое — это странные кандалы на одном из его запястий. Странник быстро узнает, что жители городка не рады незнакомцам, да и вообще они выходят на улицы лишь по приказу полковника Долархайда, правящего в этой местности железной рукой. (   Читать дальше...   )Производство: США, Индия / Canadian Film or Video Production Tax Credit (CPTC), Corus, DreamWorks SKG, Paramount Pictures, Touchstone Pictures, Universal PicturesЖанр: фантастика, боевик, триллерРежиссер: Джон ФавроАктеры: Дэниэл Крэйг, Харрисон Форд, Оливия Уайлд, Сэм Рокуэлл, Адам Бич, Пол Дано, Ноа Рингер, Кит Кэрредин, Рауль Трухильо, Клэнси БраунПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A592899F2DE79866DB2C97EF89D0C7C03B0057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869365   (1068309) от 
+
+Морская полиция: Спецотдел / NCIS (2010-2011) WEB-DL [H.264/720p] (сезон 8, серии 1-24 из 24) Gravi-TV
+
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о приключениях команды профессиональных спецагентов. Их миссия - расследовать преступления, которые каким-то образом связаны со служащими морской пехоты. Группу следователей возглавляет специальный агент Гиббс. Его команда — это экс-детектив Энтони ДиНоззо, выхоженка из Моссад — Зива Давид, специалисты в области судмедэкспертизы — Эбби Шуто и Дональд Маллард, (   Читать дальше...   )Производство: США / Belisarius Productions, CBS Television StudiosЖанр: боевик, триллер, драма, криминал, детективРежиссер: Деннис Смит, Терренс О’Хара, Тони УормбиАктеры: Шон Мюррэй, Дэвид Маккаллум, Марк Хэрмон, Брайан Дитцен, Роки Кэрролл, Поли Перретт, Майкл Уэтерли, Коте де Пабло, Уилмер Вальдеррама, Эмили УикершемПеревод: Любительский (двуголосый, закадровый) /Gravi-TV/
+pAKk 1,2 серии
+Творческая группа переводчиков d722tar с 3 серии
+gifira, marina556678, Marlboro, Shtopor96Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7041BF5E15E6FBA9DFA0F8D53F26F33C1ACA5C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869368   (1068308) от 
+
+Winhance 26.04.21 & Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winhance — это приложение на C#, предназначенное для упрощения, оптимизации и настройки работы с Windows. От управления программным обеспечением до оптимизации и настройки системы, Winhance предоставляет все необходимое для улучшения работы с Windows 10 и 11.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD8244622EEBA30FB7C0836855661222193FFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869369   (1068307) от 
+
+qBittorrent 5.2.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068307.jpg" />
+</div>
+
+
+###  Подробнее
+
+qBittorrent - абсолютно бесплатная, без рекламы, мощная и простая в работе программа.
+Несмотря на кажущуюся простоту, она обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация по IP, удаленное управление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E0F4CC02E951ACFD1832B555E83D1526A1A11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869370   (1068306) от 
+
+YT Downloader 10.3.15 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068306.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AE616CF8C90AA665C10CE39C848046CF96F479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869371   (1068305) от 
+
+Bandizip Professional 7.43 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandizip — программа для работы с архивами. Данное средство сможет вполне стать основным программным обеспечением на компьютере для создания архивов или для распаковки сжатых файлов наиболее популярных форматов, так как представленный архиватор действительно простой, легкий, достаточно шустрый и распространяется совершенно бесплатно (кроме расширенного функционала). (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A509621E5C89ADEBA67E49236BA22C8C6B23C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869373   (1068304) от 
+
+The Sword - Age of Winters (20th Anniversary Edition, 2026 Remastered Version) (2004) Remastered, 2026, Kemado Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal, Stoner Rock ...
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Celestial Crown (2026 Remastered Version) (01:58)
+ 02. Barael's Blade (2026 Remastered Version) (02:48)
+ 03. Freya (2026 Remastered Version) (04:34)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Stoner RockПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5018477F3BA7C0A23FED4C0522EA37641909A4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869339   (1068303) от 
+
+VA - Saturday Vibes Dance Music Collection 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FaraoN, Nowakowski & Akos Sax - Hurts 04:27
+02. Padukov - Marble Lies 04:25
+03. Kristianov - Heartstrings 05:10
+04. Alex Denver, Nowakowski & Kristianov - Surrounded 04:26(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18616C47455D070CB3C2FED92AB66F01598012A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

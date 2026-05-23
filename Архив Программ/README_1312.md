@@ -6,7 +6,7 @@ Glary Utilities Pro 5.107.0.132 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370680.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaHuman YouTube Downloader 3.9.9.7 (1310) Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370675.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 3.0.55 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370669.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils Total PDF Converter 6.1.0.157 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370668.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Revo Uninstaller Pro 3.1.7 RePack by Alker [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370625.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Muse CC 2017.0.0.149 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370618.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Abelssoft SSD Fresh Plus 2017 6.0 Retail [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370617.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mirillis Action! 2.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370610.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows Update MiniTool 30.09.2016 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370607.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinToUSB Technician 7.1 Release 2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370579.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CrystalDiskInfo 8.17.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370577.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NirLauncher Package 1.23.64 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370574.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ YoWindow Unlimited Edition 3.0 Build 113 Final [Multi/Rus] Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370557.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wise Care 365 Pro 2.09.156 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370546.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ GPU-Z 2.13.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370513.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Advanced SystemCare Pro 10.0.3.669 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370468.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BS.Player Pro 2.63 Build 1071 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370394.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ GPU-Z 2.13.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370383.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Auslogics BoostSpeed 10.0.17.0 DC 11.10.2018 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370376.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ MediaMonkey Gold 4.1.22.1880 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370375.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CrystalDiskInfo 7.8.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370372.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Geek Uninstaller 1.4.5 Build 130 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370369.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Acme CAD Converter 2019 8.9.8.1482 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370366.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ SpeedyFox 2.0.25 Build 135 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370286.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Glarysoft Malware Hunter PRO 1.67.0.651 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370281.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Notepad++ 7.5.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370263.jpg" />
 </div>
 
 

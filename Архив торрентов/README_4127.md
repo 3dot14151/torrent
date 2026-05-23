@@ -6,7 +6,7 @@ Avira Phantom VPN Pro 2.29.2.24183 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170032.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Expert 2.5.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170030.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Topaz Photo AI 2.0.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170029.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Total Commander 11.02 RC4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170026.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170024.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Topaz Video AI 4.0.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170019.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Third Party - Deep Set at Lymm Water Tower (2020-12-06) [MP3|320 Kbps] <Tech Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170017.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ EZ CD Audio Converter 11.3.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170015.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ DJ KUBA & NEITAN - Yearmix 2020 (2020-11-28) [MP3|320 Kbps] <Electro House, Big 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170006.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Topaz Photo AI 2.0.7 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170005.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Templates for Keynote - DesiGN 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170003.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ SILKYPIX Developer Studio Pro 11.0.11.0 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169989.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ PopClip 2020.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169988.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ NVIDIA GeForce Desktop Game Ready 545.92 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169977.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hallmark Card Studio 2022 Deluxe 22.0.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169972.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ O&O Defrag Professional + Server 27.0 Build 8050 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169963.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Brave Browser 1.18.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169962.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169960.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Calibre 5.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169949.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe InDesign 2020 15.0.1.209 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169931.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Aiseesoft FoneLab for Android 5.0.28 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169925.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Revo Uninstaller Pro 4.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169909.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ MetaProducts Offline Explorer Enterprise 8.5.0.4970 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169907.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ DjVu Reader Pro 2.4.3 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169897.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Path Finder 10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169894.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ save2pc Ultimate 5.6.2.1610 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169893.jpg" />
 </div>
 
 

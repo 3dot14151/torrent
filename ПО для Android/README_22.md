@@ -1,58 +1,3 @@
-###  Публикация: 1447179   (1030151) от 20.02.2021
-
-Лучшие книги 20 века v2.0.12 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В этом приложении мы собрали для вас самые замечательные книги писателей мировой литературы 20 века, которые достойны прочтения абсолютно всеми. Книги, собранные в эту коллекцию, являются абсолютно бесплатными для чтения, не имеют ознакомительных версий и прочих подвохов. Приложение не требует постоянного подключения к интернету, выбранная книга скачивается только (   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 25.03.2020Разработчик: DuoSoftПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A18526CB3B6C75616B915CED9259FD6AF9DD3A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444309   (1030109) от 20.02.2021
-
-ВидеоЗона v4.0 [Ru] (обновляемая)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-ВидеоЗона — альтернативный клиент для онлайн-кинотеатра Zona. Также есть два дополнительных источника с фильмами и сериалами. Доступны ТВ-каналы.
-- большая база фильмов и сериалов;
-- возможность добавлять видео в избранное для дальнейшего просмотра;
-- возможность скачивать видео в память устройства;(   Читать дальше...   )Тип издания: Пиратка (AdFree: удалена реклама)Релиз состоялся: 20.01.2021Разработчик: zonafilms.ruПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E0C85A19385BFEC9C77758520FC07D29D9BC25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413401   (1030104) от 20.02.2021
 
 Справочник электрика v2.0.1 (50) [Ru] (обновляемая)
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030104.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ Vinylage Music Player v2.0.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029686.jpg" />
 </div>
 
 
@@ -115,7 +60,7 @@ Family Locator - GPS Tracker v5.23.1 [Ru/Multi] - контроль за мест
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029636.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029512.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ Enhance it v4.0.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029208.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028609.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028327.jpg" />
 </div>
 
 
@@ -248,7 +193,7 @@ ElLi - Расчет проводки v1.3.33  Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028283.jpg" />
 </div>
 
 
@@ -277,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028279.jpg" />
 </div>
 
 
@@ -306,7 +251,7 @@ Calc for Electronics v3.3.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028043.jpg" />
 </div>
 
 
@@ -332,7 +277,7 @@ Piano Melody ver.Tokyo Ghoul Fix (200) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027836.jpg" />
 </div>
 
 
@@ -361,7 +306,7 @@ Freezer v0.6.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027834.jpg" />
 </div>
 
 
@@ -388,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027714.jpg" />
 </div>
 
 
@@ -414,7 +359,7 @@ SAI (Split APKs Installer) v4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027463.jpg" />
 </div>
 
 
@@ -440,7 +385,7 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027391.jpg" />
 </div>
 
 
@@ -467,7 +412,7 @@ eWeather HD v8.2.4 Premium [Ru/Multi] - погода, качество возд�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027266.jpg" />
 </div>
 
 
@@ -496,7 +441,7 @@ Handy GPS 35.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027168.jpg" />
 </div>
 
 
@@ -522,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027141.jpg" />
 </div>
 
 
@@ -551,7 +496,7 @@ WOW Volume Manager v1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027058.jpg" />
 </div>
 
 
@@ -577,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027011.jpg" />
 </div>
 
 
@@ -603,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026908.jpg" />
 </div>
 
 
@@ -629,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026565.jpg" />
 </div>
 
 
@@ -656,7 +601,7 @@ Easy Text Scanner - Распознавание текста (OCR) v1.1.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026563.jpg" />
 </div>
 
 
@@ -682,7 +627,7 @@ ToonApp v1.0.29 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026538.jpg" />
 </div>
 
 
@@ -693,6 +638,58 @@ ToonApp - карикатура фоторедактор лучшее прило�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1353EFBBC03B316108145A9F40D90AEAAFE0ADF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446528   (1026495) от 13.03.2021
+
+AVG Cleaner v5.5.0 Pro [Ru/Multi] - Ускорение телефона, Очистка бесплатно
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026495.jpg" />
+</div>
+
+
+###  Подробнее
+
+C AVG Cleaner ваше устройство Android будет работать быстро и без сбоев, хранить больше данных и дольше обходиться без подзарядки. AVG Cleaner - это интеллектуальный инструмент управления и оптимизации, который используют более 50 млн пользователей.Тип издания: Пиратка (Pro)Релиз состоялся: 13 марта 2021 г.Разработчик: AVG Mobile appsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF92B504562B4C8FFF91C8ACBFECF7121307CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434271   (1026476) от 13.03.2021
+
+Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и оптимизация
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освободите в памяти дополнительное место, о доступности которого вы даже не знали! Avast Cleanup - это высокоэффективное приложение для очистки от кэша и ненужных данных для устройств с ОС Android. Удалите остаточные файлы и неиспользуемые приложения простым касанием, чтобы увеличить скорость работы и производительность телефона. Avast Cleanup оптимизирует производительность (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 9 марта 2021 г.Разработчик: Avast SoftwareПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9047971DDB0B2721C33A8E379893AF15BD5A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

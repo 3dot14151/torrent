@@ -1,29 +1,3 @@
-###  Публикация: 1816129   (4566) от 03.09.2025
-
-Prison Architect (2015) [Ru/Multi] (1.02 r11056/dlc) Repack Let'sРlay [Total Lockdown]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-С самыми безжалостными преступниками планеты справится только по-настоящему безжалостный начальник. В Prison Architect вы сможете создать исправительное заведение по собственному вкусу. В этом симуляторе компании Introversion игрок одновременно выступает в роли капиталиста, архитектора, управленца и блюстителя морали. Игра ставит самые разные, часто противоречащие (   Читать дальше...   )Тип издания: RepackРазработчик: Introversion Software, Double ElevenЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F341A530F6574DB52D2E7B4705BCED7A076293B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816121   (4549) от 03.09.2025
 
 Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4549.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Re:Fresh (2023) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4540.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4537.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.28) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4535.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4532.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4520.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4517.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4515.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Coral Island (2023) [Multi] (1.2.1239/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4513.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tiny Glade (2024) [Ru/Multi] (1.14.2) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4509.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.77/dlc) Repack Let'sРlay [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4508.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack SE7EN
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4506.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Vault of the Void (2022) [Ru/Multi] (2.6.55.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4497.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4495.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4488.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Neyyah (2025) [Ru/Multi] (Build 19847679) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4487.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4480.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4467.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831_2044-321866/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4466.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4455.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4451.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Central Bank / Центральный Банк (2025) [Ru/Multi] (0.99b) Scene T
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4446.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4404.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87547) License GOG [Collect
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4376.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4371.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60138992E8109604F05E30B53F0ADB067F62B317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792456   (4368) от 05.09.2025
+
+Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры развернется в уже знакомой игрокам вселенной Stygian: Reign of the Old Ones. Вам предстоит не только принять участие в событиях, предшествовавших «Черному дню», но и возможность в определенной мере повлиять на них. Вы погрузитесь в мир, полный опасностей, запретных тайн сокрытых в темных уголках на краю сознания и древнего ужаса, суть которого недоступна (   Читать дальше...   )Тип издания: LicenseРазработчик: Misterial GamesЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA1841B8C7FE7971F5B0B0C6A0278A9394AA6A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

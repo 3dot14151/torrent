@@ -1,56 +1,3 @@
-###  Публикация: 862638   (616787) от 22.07.2016
-
-Убийцы фазана / Fasandrberne (2014) BDRip [1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 1994 году двое детей близнецов были найдены зверски убитыми в летнем загородном доме. Ряд фактов указывал на причастность к делу группы молодых студентов, но расследование было прекращено, после того как местный отшельник признал себя виновным в этом инциденте.
-20 лет спустя это дело попадает на стол Карлса Мёрка, который начинает подозревать, что в нем что-то (   Читать дальше...   )Производство: Дания, Германия, Швеция / Zentropa EntertainmentsЖанр: Детектив, Триллер, КриминалРежиссер: Миккель НёргорАктеры: Николай Ли Каас, Фарес Фарес, Даница Чурчич, Сара-Софи Бусснин, Йоханна Шмидт, Пилу Асбек, Давид ДенсикПеревод: Одноголосый закадровый, любительский (А.Агапов)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCF33C0A153565336E2ACB35F07CE3A048BE95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804079   (616775) от 11.07.2014
-
-Железный рыцарь 2 / Ironclad: Battle for Blood (2014) BDRip [720p] [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, выживший после Великой осады Рочестерского замка, охраняет свой народ от кельтских захватчиков.Производство: Великобритания, International Pictures One, Gloucester Place FilmsЖанр: Боевик, ПриключенияРежиссер: Джонатан ИнглишАктеры: Мишель Фэйрли, Роксанна МакКи, Дэниэл Уэбб, Рози Дэй, Twinnie Lee Moore, Том Остин, Энди Бекуив, Дэвид Ринтул, Предраг Бьелак, Дэвид КавеПеревод: Дублированный (Чистый звук) студия "Пифагор"Субтитры: ОтсутствуютПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056BE30D6AE359F0508CA81D0B1FD9FE221F0F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 803647   (616773) от 11.07.2014
 
 Долгое падение / A Long Way Down (2014) BDRemux [1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616773.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616772.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616737.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616736.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616718.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616649.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616638.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616634.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616628.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616625.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616620.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616619.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616606.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616605.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616603.jpg" />
 </div>
 
 
@@ -455,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616596.jpg" />
 </div>
 
 
@@ -483,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616497.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616491.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616480.jpg" />
 </div>
 
 
@@ -563,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616472.jpg" />
 </div>
 
 
@@ -590,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616470.jpg" />
 </div>
 
 
@@ -616,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616469.jpg" />
 </div>
 
 
@@ -642,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616461.jpg" />
 </div>
 
 
@@ -668,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616460.jpg" />
 </div>
 
 
@@ -679,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D20F9AD36B188F86607BFF0A6AFCB331C9AAA35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545130   (616379) от 18.04.2022
+
+Психиатрическая больница Конджиам / Gonjiam: Haunted Asylum / Gon-ji-am (2018) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616379.jpg" />
+</div>
+
+
+###  Подробнее
+
+После группового самоубийства 42 пациентов и исчезновения главврача 26 октября 1979 года психиатрическую больницу Конджиам закрыли. С тех пор это место притягивает любителей пощекотать нервы, и о нём ходят легенды — якобы здание населено призраками, и никому не удалось открыть дверь в зловещую комнату 402. Видеоблогер, ведущий шоу ужасов на YouTube, набирает команду (   Читать дальше...   )Производство: Корея Южная, Hive Mediacorp, Constantin Film, ZDFЖанр: УжасыРежиссер: Чон Бом-щикАктеры: Ви Ха-джун, Пак Чи-хён, Пак Сон-хун, О А-ён, Мун Е-вон, Ю Джэ-юн, Ли Сын-ук, Пак Чи-аПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, КорейскийСубтитры: Английские, корейские (PGS)Продолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0FF386C5A8AB96ABF9123306B6C49B3AB45164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185308   (616325) от 16.07.2012
+
+Двадцать одно / 21 (2008) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карточная игра — комбинация уникальных математических расчетов, превосходных актерских талантов и хладнокровной выдержки. Карточный игрок — человек особого склада. Молодые люди решили провернуть аферу века и разорить крупнейшие казино страны на астрономическую сумму. Они решили взять Вегас! Их пятеро. Игра захватила их целиком. Их игра поразила своей виртуозностью. (   Читать дальше...   )Жанр: ДрамаРежиссер: Роберт Лукетич.Актеры: Джим Стерджесс, Кевин Спейси, Кейт Босворт, Аарон Йу, Лиза Лапира, Джекоб Питтс, Лоренс Фишбёрн, Джек МакГи, Джош Гад, Сэм Голзари и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 02:02:41
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

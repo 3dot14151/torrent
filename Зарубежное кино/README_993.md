@@ -1,55 +1,3 @@
-###  Публикация: 1553266   (579790) от 28.05.2022
-
-Бэтмен / The Batman (2022) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После двух лет поисков правосудия на улицах Готэма Бэтмен становится для горожан олицетворением беспощадного возмездия. Когда в городе происходит серия жестоких нападений на высокопоставленных чиновников, улики приводят Брюса Уэйна в самые тёмные закоулки преступного мира, где он встречает Женщину-Кошку, Пингвина, Кармайна Фальконе и Загадочника. Теперь под прицелом (   Читать дальше...   )Производство: США / Warner Bros, DC Entertainment, 6th & Idaho ProductionsЖанр: Детектив, криминал, драма, боевикРежиссер: Мэтт РивзАктеры: Роберт Паттинсон, Зои Кравиц, Пол Дано, Джеффри Райт, Джон Туртурро, Питер Сарсгаард, Барри Кеоган, Джейми Лосон, Энди Серкис, Колин ФарреллПеревод: Дублированный (iTunes), профессиональный многоголосый (Jaskier, HDRezka Studio, TVShows)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894C51231C9C1FC10C354F6FEE1C23A11B4DD8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360174   (579773) от 08.07.2011
-
-Геттисбург / Gettysburg (1993) BDRip [Director's Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Осень 1863 года. Армия конфедератов продвигается к северу Пенсильвании. Впереди их ожидают вражеские дивизии. Две великие армии встретятся в Геттисбурге. Три долгих дня судьба будущей неделимой нации будет висеть на волоске…Жанр: Драма, Военный, ИсторияРежиссер: Рональд Ф. Максвелл / Ronald F. MaxwellАктеры: Том Беренджер, Мартин Шин, Джефф Дэниэлс, Стивен Ланг, Ричард Джордан, Эндрю Прайн, Купер Хукаби, Патрик Горман, Бо Бринкман, Джеймс ЛанкастерПеревод: Профессиональный (многоголосый, закадровый) Премьер Видео ФильмСубтитры: Русские (форсированные), Английские SDH (внешние, srt)Продолжительность: 04:31:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920158   (579754) от 22.07.2015
 
 Писака / The Scribbler (2014) BDRip [H.264/1080p] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579754.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579752.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579749.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579744.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579740.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579717.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579707.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579706.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579699.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579696.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579695.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579640.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579633.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579630.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579629.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579612.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579499.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579481.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579472.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579376.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579362.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579359.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579238.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579230.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA9A9A72A6281FD6F6172297C7D22717A349AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811475   (579223) от 09.08.2014
+
+Операция «Мертвый снег» 2 / Dod Sno 2 (2014) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579223.jpg" />
+</div>
+
+
+###  Подробнее
+
+После встречи в горах с нацистами-зомби лишь Мартину удалось добраться до цивилизации, в то время как все его приятели погибли. Однако парень забыл о маленьком подарке, который он получил от своей возлюбленной Ханны, — золотой монете, которую та нашла в старом доме. Эта монета — часть клада, который подчиненные штандартенфюрера Герцога собирали для своего фюрера. (   Читать дальше...   )Производство: Норвегия, ИсландияЖанр: Ужасы, Боевик, КомедияРежиссер: Томми ВирколаАктеры: Амрита Ачария, Жослин Де, Лофи Эльясдоттир, Кристиан Фидженшоу, Шарлотта Фрогнер, Орхан Гамст, Ингар Хельге Гимле, Томас Торхаллур ГудмундсонПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (full)Продолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592AAFC6C4704CB5D42FE7D3795A417C766A073F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811476   (579219) от 09.08.2014
+
+Операция «Мертвый снег» 2 / Dod Sno 2 (2014) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579219.jpg" />
+</div>
+
+
+###  Подробнее
+
+После встречи в горах с нацистами-зомби лишь Мартину удалось добраться до цивилизации, в то время как все его приятели погибли. Однако парень забыл о маленьком подарке, который он получил от своей возлюбленной Ханны, — золотой монете, которую та нашла в старом доме. Эта монета — часть клада, который подчиненные штандартенфюрера Герцога собирали для своего фюрера. (   Читать дальше...   )Производство: Норвегия, ИсландияЖанр: Ужасы, Боевик, КомедияРежиссер: Томми ВирколаАктеры: Амрита Ачария, Жослин Де, Лофи Эльясдоттир, Кристиан Фидженшоу, Шарлотта Фрогнер, Орхан Гамст, Ингар Хельге Гимле, Томас Торхаллур ГудмундсонПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (full)Продолжительность: 01:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C59D6C93663A5F761347AB86BE1DE5A2553514D
 ```
 
 https://mybot314.ru/tekegram_catalog/

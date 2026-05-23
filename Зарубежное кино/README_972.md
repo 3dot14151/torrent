@@ -1,55 +1,3 @@
-###  Публикация: 916831   (590317) от 09.07.2015
-
-Бадди Хатчинс / Buddy Hutchins (2015) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бадди Хатчинс - обычный парень, делает все возможное чтобы содержать жену и двух детей. Выздоравливающий алкоголик Бадди, не выпивал уже больше года, но оказывается, что единственная награда за свой трезвый образ жизни, это неудачи в бизнесе и измена жены. И вот когда чаша терпения переполнена, достаточно небольшого толчка, маленькой оплеухи или грубого слова, чтобы (   Читать дальше...   )Производство: США / Switzer Entertainment Group, Traplight MediaЖанр: Триллер, УжасыРежиссер: Джаред КонАктеры: Джейми Кеннеди, Сэлли Кёркленд, Сара Малакул Лэйн, Дэвид Гир, Стив Хэнкс, Николь Александра Шипли, Деметриус Стеар, Эдвард ДеРуитерПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: XixidokСубтитры: отсутствуютПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087A53146450CEBF008E76A19550FC8328CD56E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916732   (590315) от 09.07.2015
-
-Зловредная / Pernicious (2014) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это должен было быть обычное приключение в их жизни , как три молодые девушки проводили лето в Таиланде. Но их приключение быстро становится кошмаром , когда трио раскрывает дух убитого ребенка, у которого только одно на уме - месть.Производство: США, ТаиландЖанр: Триллер, УжасыРежиссер: Джеймс Каллен БрэссакАктеры: Сиара Ханна, Эмили О Брайэн, Джеки Мур, Расселл Джеффри Бэнкс, Байрон Гибсон, Джек Принья, Джаред Кон, Сара Малакул ЛэйнПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7D20A81F9CBF514298A33796B5C12977BFAC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916493   (590300) от 09.07.2015
 
 Убить Де Билла / Cheerleader Ninjas (2002) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590300.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590281.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590279.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590273.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590252.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590218.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590156.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590155.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590017.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590002.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589899.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589874.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589870.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589847.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589843.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589842.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589835.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589824.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589809.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589805.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589804.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589799.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589793.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589790.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DA5F4B04CB72AB320C56769E278BE62E411103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916869   (589789) от 10.07.2015
+
+Ультиматум Борна / The Bourne Ultimatum (2007) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он хотел одного - исчезнуть. Вместо этого за Борном теперь охотятся люди, которые сделали его таким, какой он есть. Он потерял память и человека, которого он любил. Но его не удается сдержать даже новому поколению профессиональных убийц. У него только одна цель: вернуться к началу и узнать кем он был, Джейсон Борн. Он мечется от Москвы к Парижу, через Мадрид и Лондон (   Читать дальше...   )Производство: США, Германия | Universal Pictures, The Kennedy/Marshall Company, Motion Picture BETA Produktionsgesellschaft, Ludlum Entertainment, Bourne Again, Angel StudiosЖанр: Боевик, ТриллерРежиссер: Пол ГринграссАктеры: Мэтт Дэймон, Джулия Стайлз, Дэвид Стрэтэйрн, Джоан Аллен, Брайан Ринтс, Эдгар Рамирес, Альберт Финни, Скотт Гленн, Джои Анса, Кори Джонсон, Даниэль Брюль, Пэдди Консидайн, Колин Стинтон, Дэн Фреденбёрг, Люси Лиманн, Джон РоберсонПеревод: Профессиональный дублированный, профессиональный двухголосый, авторскийЯзык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 01:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B248658F3FB11D31867CB0D02F875400BA8C3BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551467   (589762) от 16.05.2022
+
+Лов Джоунс / Love Jones (1997) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дариус Лавхолл-молодой чернокожий поэт из Чикаго, который начинает встречаться с Ниной Мозли, красивым и талантливым фотографом. Они Пытаются понять, есть ли между ними любовь или это просто интрижка, они много говорят о любви и сексе. Затем Нина проверяет силу чувств Дария и приводит в движение цепь романтических осложнений.Производство: США, Addis Wechsler Pictures, New LineЖанр: Драма, мелодрамаРежиссер: Теодор УитчерАктеры: Лоренц Тейт, Ниа Лонг, Исайя Вашингтон, Лиза Николь Карсон, Билл Беллами, Леонард Робертс, Бернадетт Л. Кларк, Халил Кейн, Дэвид НисбетПеревод: Авторский (Дмитрий Есарев)Субтитры: АнглийскиеПродолжительность: 01:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139D8953759FAA1D9D5672DB67E0CFAEA0AF3517
 ```
 
 https://mybot314.ru/tekegram_catalog/

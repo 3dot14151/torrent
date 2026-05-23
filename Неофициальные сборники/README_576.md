@@ -1,32 +1,3 @@
-###  Публикация: 965932   (222582) от 16.12.2015
-
-VA - Inner Miracle (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-001. CherryVata - Always (Miracle Edit)
-002. Flavour Animus - Kaffee in Time
-003. Future Mind - Spaceworld 2
-004. Bluesolar - Believe in Me (Chill Out Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A4363606393FFBE5583F61CBDF7EE7C5A79D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425268   (222507) от 20.11.2020
 
 VA - Gothic organ (Vampire Music) (2020) [MP3|320 Kbps] <Organ, Classical, Alternative>
@@ -35,7 +6,7 @@ VA - Gothic organ (Vampire Music) (2020) [MP3|320 Kbps] <Organ, Classical, Alter
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222507.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Country Western Rock (2020) 2CD [MP3|320 Kbps] <Country Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222446.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Autumn Dances (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222439.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Halloween Stories (2022) [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222386.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Шансон Зима (2019) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222125.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - не Громкие новинки недели 45 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222116.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - В машине с музыкой Vol.312 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222104.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Понемногу отовсюду by Yuridar #T (1957-2021) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221903.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Дискотека 2022 Dance Club Vol. 213 (2022) от NNNB [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221892.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Hard Dance Electro Extra Mixes (2019) [MP3|320 Kbps] <Hardstyle, Hard Edm>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221723.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Новинки с разных популярных MP3 сайтов Ver.90
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221712.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Exclusive Offer Christmas Approach (2018) [MP3|320 Kbps] <Big Room, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221497.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Happiness In The Air (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221490.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Радио Шторм - NeРусский Шторм - 82 (2012) [MP3|320 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221458.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ VA - Gum Rot Funk: Hip Hop Line (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221429.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ VA - After Christmas Lounge Chilled and Relaxed Lounge Tunes (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221171.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221130.jpg" />
 </div>
 
 
@@ -534,7 +505,7 @@ VA - Bedroom Chillout and Ambient (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221095.jpg" />
 </div>
 
 
@@ -563,7 +534,7 @@ VA - Radio Top musicFM - October (2016) [MP3|128-320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221069.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ VA - Dance Fight Track Hits (2015) [MP3|251-320 кб/с] <Club, Happy Sound, Voc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221047.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ VA - Mega Party Hits - Headlights Message (2015) [MP3|192-320 кб/с] <Club, Eu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221028.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ VA - Top 100 Amnezia Hits (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221014.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ VA - A Jazzy Little Christmas: 50 Jazz and Swing Holiday Favorites (2016) [MP3|3
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221006.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ VA - SVS Collection vol. 7 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220976.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ VA - Royal Lounge: Relax Partitura (2016) [MP3|320 Kbps] <Chillout, Lounge, Down
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220915.jpg" />
 </div>
 
 
@@ -751,6 +722,41 @@ VA - Royal Lounge: Relax Partitura (2016) [MP3|320 Kbps] <Chillout, Lounge, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA4F132972CD7A69D5651155D198F3AB279EE888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588030   (220850) от 11.12.2012
+
+VA - Зимний Hit (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Ортман - Притяжение
+02. Аника - В Этот Новый Год
+03. Inna - J'Adore (Radio Edit)
+04. Paul Dima feat. Dj Deelyte & Edwardo Base - I Miss You (Radio Edit)
+05. Доминик Джокер - Прощай (Paul Vine Remix)
+06. Lavinia - Romanian Girl (Radio Edit)
+07. Bingo Players & Far East Movement - Get Up (Rattle)
+08. Иван Дорн - Новый Год (Праздник К Нам Приходит)
+09. Dj Dark & Shidance ft. Da Fleiva - Vina Mea (Radio Edit)
+10. Kolvinkov Sky & Женя Юдина - Там Где(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 03:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01283863CDD4204C63CDB206FBA9EA779B24347E
 ```
 
 https://mybot314.ru/tekegram_catalog/

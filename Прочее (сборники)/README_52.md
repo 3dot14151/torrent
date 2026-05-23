@@ -6,7 +6,7 @@ VA - Зайцев.Нет: Февраль (Музыкальные Новинки)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784223.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 2000s Party Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784178.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Cosmotronica & Space Disco Vol.7 (2018) [MP3|320 Kbps] <House, Spacesynth, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784070.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Музыка, Которая То, Что Надо (Sound Clinic - Just Rel
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784028.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Demo - Солнышко (2017) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783691.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Дискотека 2000х Dance Club - The Best! Лучшие танцев�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783687.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - ЕвроХит Топ 40 Europa Plus 12.06.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783658.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Music News vol.19 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783565.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Fitnes Hits (2018) [MP3|320 Kbps] <Pop, House, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783475.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - The Official UK Top 40 Singles Chart 12.06.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783413.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Громкие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance, O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783274.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - House Clinic (2018) [MP3|320 Kbps] <House, Electro House, Big Room>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783252.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Ham!d Production January 2018 [MP3|320 Kbps] <Dance, Pop, Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783238.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Sensuality x San Valentino (Deezer Playlist) (2018) [MP3|320 Kbps] <Pop, R&
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783221.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Top 50: Зайцев FM / Февраль (2018) [MP3|320 Kbps] <Pop, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783076.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Зайцев.нет Лучшие новинки Июня (2020) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782991.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - MonsterJam Eurodance (2018) [MP3|320 Kbps] <Eurodance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782967.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - не Громкие новинки недели 71 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782669.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Happy Birthday Fish (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782532.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Best Hits 80s от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Pop, Disco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782487.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Europa Plus: ЕвроХит Топ 40 / 09.02. (2018) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782115.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Две Судьбы, Два Голоса (2018) [MP3|256-320 Kbps] <Поп,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782111.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Cheb Khaled - Aicha (2017) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781966.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Peoples Choise: Pop Rock Retrospective (2018) [MP3|320 Kbps] <Pop Rock, Ret
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781722.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781278.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.06.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781002.jpg" />
 </div>
 
 

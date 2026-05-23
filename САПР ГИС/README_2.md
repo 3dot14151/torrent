@@ -6,7 +6,7 @@ Autodesk Robot Structural Analysis Professional 2019 (32.0.0.6490) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680564.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Autodesk AutoCAD Civil 3D 2019 (13.0.613.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680548.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676161.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CST Studio Suite 2015.01 SP1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661748.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Autodesk СПДС модуль 6.0 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658549.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Graitec Advance Suite 2012 SP1 1.1.553 [Ru, Eng] x32 x64
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654159.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Autodesk Navisworks Manage 2016 13.0.1240.52 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644944.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ DipTrace 2.4.0.2 Full Portable by SunOK [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644787.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ sPlan 7.0 AIO Upd 23.05.2016 Repack (& Portable) by Robby [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616783.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ PLS-CADD 9.20 Portable [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615163.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sprint-Layout 6.0 AIO Upd 06.06.2016 Repack (& Portable) by Robby [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614873.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Autodesk AutoCAD Civil 3D 2013 x32 [original] + автономная справ�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612490.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Autodesk AutoCAD 2013 SP1.1 (2012) Build G.114.0.0 [Русский / Англи�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609780.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Autodesk AutoCAD Map 3D 2020 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601532.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Autodesk AutoCAD Plant 3D 2020 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601521.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Autodesk AutoCAD Architecture 2023 8.5.50.0 [Ru/En] (+ offline help)
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599300.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ SketchCut PRO 4.0.3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590052.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Siemens Solid Edge ST9 109.00.00.111 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588018.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ CutList Plus fx 12.5.3 Platinum [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585110.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ GPS Map Edit 1.0.67.2 [Multi&Russian]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579440.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Autodesk Inventor Professional 2020 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575534.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Netfabb Private 5.2.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558901.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Autodesk СПДС модуль 3.2 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551912.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Autodesk СПДС модуль 4.1 AutoCAD 2015-2016 (x86/x64) [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530911.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Mentor Graphics ModelSim SE 10.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508817.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Mentor Graphics HDL Designer 2013.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507843.jpg" />
 </div>
 
 

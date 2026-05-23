@@ -1,55 +1,3 @@
-###  Публикация: 1498638   (852306) от 29.09.2021
-
-Клаустрофобы 2: Лига выживших / Escape Room: Tournament of Champions (2021) BDRemux [H.264/1080p] [Extended Cut] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Шестеро незнакомцев, каждый из которых стал единственным победителем одного из смертельно опасных квестов, вновь оказываются в игре не по своей воле. Но прежние задания покажутся им сущим пустяком по сравнению с жуткими испытаниями, которые ожидают их на этот раз: игра стала еще опаснее и безжалостнее, а шансы на выживание стремятся к нулю.Производство: США / Columbia Pictures, Original Film, Shaken Not StirredЖанр: ужасы, боевикРежиссер: Адам РобителАктеры: Тейлор Расселл, Логан Миллер, Дебора Энн Уолл, Томас Кокерел, Холлэнд Роден, Индия Мур, Карлито Оливеро, Matt Esof, Джеми-Ли Мани, Уэйн ХаррисонПеревод: Любительский двухголосый (Pazl Voice)Субтитры: Русские, английскиеПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527241893F291B2B7F7FCDFABCF7C2F3DEDBAA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876181   (852251) от 09.03.2015
-
-Обмануть всех / I Spy (2002) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мир организованной преступности бросает новый вызов. Похищен новейший самолет-невидимка, и правительство США посылает команду из двух непобедимых бойцов - суперагента Алекса Скотта и чемпиона по боксу Келли Робинсона. Необходимо во что бы то ни стало вернуть попавший в руки Арнольда Гундарса, подпольного торговца элитным вооружением, прототип истребителя нового поколения (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, комедия, приключенияРежиссер: Бетти ТомасАктеры: Эдди Мёрфи, Оуэн Уилсон, Фамке Янссен, Малкольм МакДауэлл, Гэри Коул, Фил Льюис, Вив Ликок, Кейт Даллас, Тейт Тейлор, Линда Бойд, Билл Монди, Ларри Мерчант, Шуга Рэй Леонард, Джимми Леннон мл., Джо Кортез, Гордон Расетт, Стив Альберт, Бобби Чез, Даррен Шахлави, Дэна Ли, Эдмонд Вонг, Гас Линч, Малик МакКолл, Рэй ГаллеттиПеревод: Дублированный (iTunes)Язык субтитров: РусскийПродолжительность: 01:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF417DF8B23110E6935448B2EAD0C81CA377DF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359239   (852226) от 25.04.2013
 
 Остров проклятых / Shutter Island (2010) [H.264/720p-LQ] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852226.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852143.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852142.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852141.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852061.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851914.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851847.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851656.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851624.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851620.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851617.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851526.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851519.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851518.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851515.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851505.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851501.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851406.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851396.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851392.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851377.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851127.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851020.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850908.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:909CF98A2C17DB0093C5D3319EFEDFAA6495CB9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498973   (850904) от 30.09.2021
+
+Судная ночь навсегда / The Forever Purge (2021) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этим летом все правила будут нарушены. Группа мародеров решает, что ежегодная Судная ночь не должна заканчиваться с наступлением утра, а может продолжаться бесконечно. Никто больше не будет в безопасности.Производство: США, Мексика / Blumhouse Productions, Man in A Tree, Perfect World (Beijing) Pictures Co., Platinum Dunes, Universal PicturesЖанр: Ужасы, боевик, триллерРежиссер: Эверардо Валерио ГоутАктеры: Ана де ла Регера, Теноч Уэрта, Джош Лукас, Ливэн Рамбин, Кэссиди Фриман, Алехандро Эдда, Уилл Пэттон, Уилл Бриттейн, Сэмми Ротиби, Зан МаккларнонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9709F1368EFE45D1E3F3A775DBFEF8E44C381A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495488   (850898) от 30.09.2021
+
+Врата тьмы / Pay the Ghost (2015) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует древнее поверье, что раз в год, на Хэллоуин, открываются врата между миром живых и миром мертвых. В этот день зло практически всесильно… Во время ночного праздничного парада в Нью-Йорке у профессора Майка Кола бесследно пропадает его маленький сын. Полиции не удается найти ребенка, однако после собственного расследования отец узнает, что некое мощное древнее (   Читать дальше...   )Производство: США, Midnight Kitchen Productions, Voltage FilmsЖанр: Ужасы, ТриллерРежиссер: Ули ЭдельАктеры: Николас Кейдж, Сара Уэйн Каллис, Алекс Маллари-мл., Вероника Феррес, Лирик Бент, Эрин Бойес, Джек Фултон, София Уэллс, Элизабет Джинна ле Ру, Марк Ирвингсен, Максвелл МакКейб-Локос, Хуан Карлос Велис, Лорен БиттиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD187C466B69D086C3E188E6038B65A56726B1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

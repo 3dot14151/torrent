@@ -1,55 +1,3 @@
-###  Публикация: 1115557   (825873) от 18.03.2017
-
-Затерянные в Тихом океане / Lost in the Pacific (2016) WEB-DLRip [AD]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-2020 год. Самые богатые люди мира собрались на борту гигантского самолёта — так называемого Небесного Титаника. Во время перелета через Тихий океан самолёт сталкивается с заброшенным авианосцем. Пилот принимает решение посадить авиалайнер на необитаемый остров посреди океана. На борту воцаряется хаос и паника. Однако вскоре пассажиры самолёта начинают понимать, что (   Читать дальше...   )Производство: США, КитайЖанр: Фантастика, триллер, приключенияРежиссер: Винсент ЧжоуАктеры: Брэндон Рут, Юки Чжан, Расселл Вонг, Бернисе Лью, Мэнцзе Цзянь, Каиви Лайман, Винсент Уорд, Тазито Гарсиа, Санни ВангПеревод: Любительский многоголосый (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 01:30:21Реклама: Присутствуют вставки голосовой и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C720CA184EDD72473010EE89AEDE0656E1E3A15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372631   (825839) от 07.05.2020
-
-Призрачный гонщик 2 / Ghost Rider: Spirit of Vengeance (2011) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается на задворках Восточной Европы, где главный герой Джонни Блэйз безуспешно пытается справиться со своим проклятием. Его принимает на работу некая секта, которая пытается заполучить дьявола в тот момент, когда он пытается вселиться в тело его смертного сына на дне рождения мальчика.Производство: США, ОАЭ / Columbia Pictures, Marvel KnightsЖанр: фэнтези, боевик, триллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Николас Кейдж, Кристофер Ламберт, Киаран Хайндс, Виоланте Плачидо, Джонни Витуорт, Идрис Эльба, Фергус Риордан, Спенсер Уидлинг, Сорин ТофанПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF6400384B189C2A4B320401B8F9D8714691BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381505   (825838) от 07.05.2020
 
 РЭД / RED (2010) BDRip [H.265/1080p-LQ] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825838.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825831.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825826.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_825813.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825807.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825804.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825783.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825737.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825727.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825726.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825724.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825722.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825719.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825706.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825705.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825702.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825678.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825637.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825630.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825629.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825518.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825455.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825382.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825329.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4421D545AD2B277007468D3F9639FDD1D00FEB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775007   (825250) от 08.04.2014
+
+Тор 2: Царство тьмы / Thor: The Dark World (2013) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений одного из членов команды Мстителей, скандинавского бога Тора, которому на этот раз в одиночку предстоит защитить Землю и все девять миров от нашествия неизвестного врага. Могучему Тору предстоит вновь сразиться за восстановление порядка в галактике, встретившись лицом к лицу с древней инопланетной расой, ведомой злодеем Малекитом, жаждущим (   Читать дальше...   )Производство: США / Marvel EntertainmentЖанр: Фэнтези, боевик, приключенияРежиссер: Алан Тейлор / Alan TaylorАктеры: Крис Хемсворт, Натали Портман, Том Хиддлстон, Энтони Хопкинс, Кристофер Экклстон, Джейми Александер, Закари Левай, Рэй Стивенсон, Таданобу Асано, Идрис ЭльбаПеревод: ДублированныйЯзык субтитров: Русский (forced, full), английский (forced, full), чешский, словацкий, латышский, литовский, эстонскийПродолжительность: 01:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B84B204CC65B83183BD98ADB3643316D745F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774969   (825245) от 08.04.2014
+
+Мизерере / La marque des anges - Miserere (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В армянском соборе Святого Иоанна Крестителя в Париже убит чилийский беженец Вильгельм Гетц, регент хора мальчиков и органист. Касдан, офицер полиции в отставке и прихожанин собора, немедленно начинает собственное неофициальное расследование. К нему присоединяется Фрэнк Салек из отдела по защите прав несовершеннолетних. Оказывается, в прошлом исчезло несколько мальчиков (   Читать дальше...   )Производство: Франция, Бельгия | Liaison Films, Pathé, TF1 Films ProductionЖанр: ТриллерРежиссер: Сильвен УайтАктеры: Жерар Депардье, Джои Старр, Рюдигер Фоглер, Элена Ногуэрра, Марта Келлер, Тьерри Лермитт, Кевин Меффр, Иван Франек, Жерар Шеллу, Джеймс ЖерарПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342AB367EDD22671D19CB9BAEF6B05DC5E6CB17A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Auslogics Disk Defrag Professional 4.9.20.0 RePack (& Portable) by TryRooM [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703231.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Epic Pen Pro 3.7.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703225.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ StrokesPlus.net 0.5.6.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703215.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FBackup 9.5.520 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703212.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SUMo Pro 5.14.11.519 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703208.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIMP 5.02 Build 2365 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703203.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PDF Annotator 5.0.0.508 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703168.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703148.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Epubor Ultimate 3.0.12.707 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703146.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Daum PotPlayer 1.7.21280 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703144.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe Audition 2020 13.0.9.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703139.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ SamDrivers 20.7 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703132.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Efficient Sticky Notes Pro 5.50 Build 544 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703106.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AusLogics Disk Defrag Pro 4.9.20.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703104.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Skype 8.81.0.268 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703087.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AOMEI Partition Assistant Standard Edition 9.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703082.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ GOM Player Plus 2.3.74.5338 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703075.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ ProgDVB 7.08.9 Professional Edition + Channels [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703018.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ OSForensics Pro 3.1 Build 1007 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703012.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Adobe After Effects 2020 17.1.3.40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703009.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ DameWare Mini Remote Control 12.1.1.273 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702993.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702989.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe Photoshop Lightroom Classic 9.4.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702986.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Light Image Resizer 5.0.5.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702935.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VidCoder 2.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702933.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ AOMEI Partition Assistant Technician Edition 9.6.1 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702909.jpg" />
 </div>
 
 

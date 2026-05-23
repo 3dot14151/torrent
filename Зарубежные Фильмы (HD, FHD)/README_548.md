@@ -1,55 +1,3 @@
-###  Публикация: 1241952   (516882) от 20.08.2018
-
-Дэдпул 2 / Deadpool 2 (2018) Blu-Ray [H.264/1080p] [EUR] [Super Duper Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Единственный и неповторимый болтливый наемник — вернулся! Ещё более масштабный, ещё более разрушительный и даже ещё более голозадый, чем прежде! Когда в его жизнь врывается суперсолдат с убийственной миссией, Дэдпул вынужден задуматься о дружбе, семье и о том, что на самом деле значит быть героем, попутно надирая 50 оттенков задниц. Потому что иногда чтобы делать (   Читать дальше...   )Производство: США / Marvel EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Дэвид ЛитчАктеры: Джош Бролин, Райан Рейнольдс, Морена Баккарин, Зази Битц, Брианна Хилдебранд, Брэд Питт, Билл Скарсгард, ТиДжей Миллер, Терри Крюс, Роб ДеланиПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английские, французские, датские, нидерландские, финские, немецкие, итальянские, японские, норвежские, шведские, эстонские, хинди, латышские, литовские, тамильские, телугу, украинскиеПродолжительность: 02:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0562FEEE774CF40A78B7D379063F4547903CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242011   (516881) от 20.08.2018
-
-Псы под прикрытием / Show Dogs (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Серьезному детективу предстоит работа с необычным напарником — говорящим псом Максом, который не замолкает ни на минуту и фанатеет от рэпа. Вместе они отправятся в Лас-Вегас, где на элитной выставке собак проворачиваются аферы по перепродаже редких животных. И сядут мошенникам на хвост.Производство: Великобритания, США / Open Road Films (II), Riverstone PicturesЖанр: Комедия, приключения, семейныйРежиссер: Раджа ГоснеллАктеры: Уилл Арнетт, Наташа Лионн, Алан Камминг, Стэнли Туччи, РуПол, Делия Шеппард, Шакил О’Нил, Лудакрис, Габриэль Иглесиас, Джордин СпарксПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7EF57DB1C028360F176CE816AD637D26EC792E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241421   (516878) от 20.08.2018
 
 Профессионал / Сибирь / Siberia (2018) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516878.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516870.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516838.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516832.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516752.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516747.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516746.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516650.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516596.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516592.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516529.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516496.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516493.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516484.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515993.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515891.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515822.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515818.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515815.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515755.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515752.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515751.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515698.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515518.jpg" />
 </div>
 
 
@@ -667,6 +615,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA79A94097365BA515E613F0750BED55952F8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374679   (515380) от 12.08.2011
+
+Детоксикация / D-Tox (2002) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР Джейк Малой стал свидетелем зверского убийства. Джейку так и не удалось справиться с пережитым шоком: он начинает искать забвение в алкоголе. Пытаясь вернуться к нормальной жизни, агент соглашается пройти детоксикацию в закрытой клинике для "опустившихся" полицейских. Клиника отрезана от внешнего мира и расположена глубоко в заснеженном лесу. (   Читать дальше...   )Жанр: Боевик, Триллер, КриминалРежиссер: Джим ГиллеспиАктеры: Сильвестр Сталлоне, Чарльз Даттон, Крис Кристофферсон, Том Беренджер, Джеффри Райт, Полли Уокер, Шон Патрик Флейнери, Дина Мейер, Кортни Б. Вэнс, Стивен Ланг, Кристофер ФулфордПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFD0C2B61E6D6F2C009FEAA0A3953B4509DF602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374580   (515341) от 12.08.2011
+
+16 кварталов / 16 Blocks (2006) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515341.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 кварталов — это расстояние от полицейского участка до здания суда в одном из районов Нью-Йорка. 16 кварталов должны преодолеть полицейский и свидетель, которому предстоит давать показания в суде.
+
+ Полицейский Джек Мосли — белый, немолодой, усталый, молчаливый, почти спившийся, почти продажный, но все-таки еще сохранивший в себе и остатки самоуважения, и остатки (   Читать дальше...   )Жанр: Боевик, Триллер, ДрамаРежиссер: Ричард ДоннерАктеры: Брюс Уиллис, Мос Деф, Дэвид Морс, Дженна Штерн, Кэйси Сэндер, Силк Козарт, Дэвид Зайас, Роберт Раски, Патрик Гэрроу, Стив Нюк, Саша Ройз, Конрад Пла, Хехтер Убарри, Ричард Фицпатрик, Питер МакРобби, Майкл Ф. Кинэн, Роберт Клохесси, Джесс Мэл Гиббонс, Тиг Фонг, Бренда Прессли, Ким ЧанПеревод: Профессиональный (полное дублирование)Продолжительность: 01:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D591B006B5C4E0043FC9A6CA2351ECD1C3228712
 ```
 
 https://mybot314.ru/tekegram_catalog/

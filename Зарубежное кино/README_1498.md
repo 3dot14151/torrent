@@ -1,55 +1,3 @@
-###  Публикация: 1190605   (266516) от 10.12.2017
-
-Могучие рейнджеры / Power Rangers (2017) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Пять обычных старшеклассников узнают, что их маленький город Энджел Гроув и весь мир находятся на грани уничтожения инопланетной угрозой. Избранные судьбой наши герои быстро понимают, что они единственные, кто может спасти планету.Производство: США, Гонконг, Япония, Мексика, Канада, Новая Зеландия / LionsgateЖанр: фантастика, боевик, приключенияРежиссер: Дин ИзраэлайтАктеры: Дакре Монтгомери, Наоми Скотт, АрДжей Сайлер, Луди Линь, Бекки Джи, Элизабет Бэнкс, Брайан Крэнстон, Билл Хэйдер, Мэтт Шайвли, Коуди КирслиПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Форс., полные), английские (full, SDH, SDH Colored)Продолжительность: 02:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD88AC290EB23D9E315695FC9A8474A183E777CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267450   (266490) от 06.12.2018
-
-Проклятие монахини / The Nun (2018) Blu-Ray [H.264/1080p] [EUR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Когда в уединенном монастыре в Румынии совершает самоубийство молодая монахиня, расследовать происшествие Ватикан отправляет священника с туманным прошлым и послушницу на пороге невозвратных обетов. Рискуя не только жизнями, но и верой, и даже своими душами, они сталкиваются со злобной силой, принявшей облик демонической монахини, а монастырь становится полем ужасающей (   Читать дальше...   )Производство: США / New Line CinemaЖанр: ужасы, триллер, детективРежиссер: Корин ХардиАктеры: Демиан Бишир, Таисса Фармига, Йонас Блоке, Бонни Ааронс, Ингрид Бису, Шарлотта Хоуп, Сандра Телес, Аугуст Матуро, Джек Фальк, Линетт ГазаПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английские, китайские, арабские, корейские, болгарские, корейские, хорватские, чешские, эстонские, венгерские, литовские, латвийские, польские, португальские, румынские, словенские, тайские, турецкиеПродолжительность: 01:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE942898111F63411F741AD6E90E42163436AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267448   (266463) от 06.12.2018
 
 Проклятие монахини / The Nun (2018) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266463.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266451.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266448.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266443.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266436.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266382.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266362.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266361.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266356.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266351.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266350.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266349.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266347.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266344.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266325.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266301.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266300.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266299.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266296.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266294.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266291.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266290.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266273.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266252.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 429244   (266251) от 29.12.2011
+
+Майор Пэйн / Major Payne (1995) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэймон Уэйэнс в роли майора, так и не дослужившегося до полковника, так как единственное, что он хорошо умел - это убивать. Его отправили в отставку, в полиции он не прижился, и бедняга подыхал от скуки в номере отеля. Но тут ему дали новое задание - тренировать мальчишек в военном училище. О том, как этот "зверюга" нашел общий язык с ребятишками и с молодой (   Читать дальше...   )Жанр: КомедияРежиссер: Nick Castle / Ник КаслАктеры: Дэймон Уэйнс / Damon Wayans, Майкл Айронсайд / Michael Ironside, Кэрин Парсонс / Karyn Parsons, Уильям Хикки / William Hickey, Альберт Холл / Albert Hall, Стивен Мартини / Steven MartiniПеревод: Авторский (одноголосый закадровый)Продолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CE19CBAFEF2DFE0DF2794D0ECB369841180850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339345   (266146) от 19.11.2019
+
+Плывущие облака / Ukigumo / Floating Clouds (1955) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Второй мировой войны на территорию французского Индокитая из Японии приезжает молодая машинистка Юкико Кода. На службе в Лесном департаменте она знакомится с чиновником Кэнго Томиокой. У них завязывается роман, Томиока обещает по возвращении в Японию развестись с женой и жениться на Юкико.Производство: Япония,  	Toho CompanyЖанр: Драма, мелодрамаРежиссер: Микио НарусэАктеры: Хидэко Такаминэ, Масаюки Мори, Марико Окада, Исао Ямагата, Тиэко Накакита, Дайскэ Като, Маюри Мокусё, Норико Сэнгоку, Фуюки Мураками, Хэйхатиро ОкаваПеревод: Одноголосый любительский (kofka)Субтитры: Русские (Dartel), английские (BFI), французские, итальянские, португальские, испанские, турецкие - отдельными файламиПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F6CB1D0834515504D9A7AD030B08D0F22568BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

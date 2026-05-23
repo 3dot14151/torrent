@@ -1,243 +1,3 @@
-###  Публикация: 1079208   (295699) от 03.12.2016
-
-Mageia 5.1 Cauldron [i586] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03707FDD6FB5D2927941EF1391FE2B320F1F371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079211   (295586) от 03.12.2016
-
-Mageia 5.1 Cauldron [x86-64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6BF2D82F887BE95C5A9149C82E4D3E8BFD3553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731871   (295400) от 08.12.2013
-
-PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Здесь представлен релиз PCLinuxOS 2013.12 KDE FullMonty. Основанный 24 октября 2003 года на Mandrake 9.2, PCLinuxOS придерживается собственного пути развития.  Редакция 'KDE Full Monty', где помимо обычной KDE-инсталляции содержится специальная структура рабочего стола, а также многие дополнительные приложения и предустановленные драйверы. В FullMonty разработчиками применена новая концепция: activity-focused формат виртуального рабочего стола, разработанный для обращения к типовым задачам и потребностям пользователя.
-
-В релизе PCLinuxOS 2013.12:  KDE 4.11.3;   ядро 3.4.70-pclos1; комплект свежих версий проприетарных графических драйверов NVidia; тема PCLOS410;  уведомляющая о возможности обновления установленных приложений утилита QT-update-notifier.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A2E5C7E4ECCC379BB0826DFD461822CF441D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847733   (293797) от 06.12.2014
-
-Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 14.12, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным.  Добавлены новые ядра - Linux Kernel 3.10, 3.12.
-
-Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962659   (292315) от 05.12.2015
-
-Linux Mint 17.3 Rosa (Mate, Cinnamon) [64bit] 2xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Внимание! Разработчики просят подождать некоторое время (с их слов "несколько дней") тех, кто хотел бы обновится с предыдущих версий Linux Mint до того момента, пока не будет исправлен менеджер обновлений.
-
-Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu LTS. Цель дистрибутива заключается в предоставлении конечному пользователю (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D97D033C30514F173740B662DE1731F04FA86E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262785   (290931) от 17.11.2018
-
-Arco Linux 18.11.2 [x86_x64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Arco Linux - это дистрибутив, сочетающий в себе мощь Arch Linux, пользовательского репозитория AUR и собственных наработок авторов Arcolinux. Данная версия включает в себя окружения рабочего стола Xfce, Openbox and i3, установщик Calamares и различный софт, темы и иконки, устанавливаемые "из коробки". Остальное можно доустановить из терминала или используя (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23B590375CE92F3350D40CBAD8C4E26FC620170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963033   (290558) от 06.12.2015
-
-Oracle Linux 7 Update 2 Server [x86-64] 1xDVD + 2CD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Oracle Linux — инициатива Oracle Corporation по созданию собственного дистрибутива операционной системы, основанного на Red Hat Enterprise Linux. Это специализированный дистрибутив предназначенный для установки на сервера баз данных. В дистрибутив включены все критичные для работы базы данных Oracle апдейты, исправлены ошибки. Кроме того, начиная с марта 2012 года, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02141C56C60EEA84559882CC8020E5CEF9EDE0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964136   (283276) от 10.12.2015
-
-Elementary OS Freya 0.3.2 [i386,amd64] 2xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Elementary OS Freya — это дистрибутив позиционируемый в качестве быстрой и открытой замены Windows и OS X. Основное внимание в проекте уделяется качественному дизайну, нацеленному на создание действительно простой в использовании системы, потребляющей минимальные ресурсы и обеспечивающей высокую скорость запуска. Проектом развивается собственное окружение рабочего (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FCCCCA86184154170914CC82EEE8B5BCFDD4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849693   (280369) от 13.12.2014
-
-openSUSE 13.2.1 Education Li-f-e [i686, x86-64] 2xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Команда OpenSUSE Education с гордостью представляет еще одну версию OpenSUSE - Education Li-f-e (Linux образования) на основе OpenSUSE 13.2 Li-f-e поставляется со всем, что может понадобится для студентов, родителей, учителей и системных администраторов образовательных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B4DAC44309961E3EA291A2362DFD884C5F7D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 850277   (278986) от 14.12.2014
 
 Linux Mint 17.1 Rebecca (Mate, Cinnamon) (nocodecs) [64bit] 2xDVD
@@ -246,7 +6,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) (nocodecs) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278986.jpg" />
 </div>
 
 
@@ -274,7 +34,7 @@ Linux Mint 17.1 oem Rebecca (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278879.jpg" />
 </div>
 
 
@@ -302,7 +62,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) nocodecs [32bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278874.jpg" />
 </div>
 
 
@@ -330,7 +90,7 @@ Red Hat Enterprise Linux 8.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276854.jpg" />
 </div>
 
 
@@ -356,7 +116,7 @@ Red Hat Enterprise Linux 7.7
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275776.jpg" />
 </div>
 
 
@@ -384,7 +144,7 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275404.jpg" />
 </div>
 
 
@@ -410,7 +170,7 @@ Linux Mint 18.1 Serena (Mate) [64bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274390.jpg" />
 </div>
 
 
@@ -436,7 +196,7 @@ Linux Mint 18.1 Serena (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273115.jpg" />
 </div>
 
 
@@ -462,7 +222,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262589.jpg" />
 </div>
 
 
@@ -490,7 +250,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262563.jpg" />
 </div>
 
 
@@ -518,7 +278,7 @@ KNOPPIX 8.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262547.jpg" />
 </div>
 
 
@@ -544,7 +304,7 @@ Red Hat Enterprise Linux 10.1 [x86_64, aarch64] 4xDVD 1xWSL
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261599.jpg" />
 </div>
 
 
@@ -572,7 +332,7 @@ Astra Linux Special Edition 1.7.4 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251824.jpg" />
 </div>
 
 
@@ -599,7 +359,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250316.jpg" />
 </div>
 
 
@@ -627,7 +387,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250305.jpg" />
 </div>
 
 
@@ -655,7 +415,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249347.jpg" />
 </div>
 
 
@@ -681,7 +441,7 @@ Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239989.jpg" />
 </div>
 
 
@@ -694,6 +454,248 @@ Xubuntu 22.04 под кодовым названием Jammy Jellyfish — эт�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D897CD86C6230F27E3D790DC727D7A0ABF51D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578945   (233177) от 25.09.2022
+
+Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано пятое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 58 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
+
+Из изменений в Debian 11.5 можно отметить: Обновлены до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B5AFD5E5D75404649F461CF51B1D185B8FF494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423078   (228774) от 16.11.2020
+
+SUSE Linux Enterprise Desktop Server 15
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15. Пакеты SUSE 15 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, SUSE Manager 3.2 и SUSE Linux (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423081   (228765) от 16.11.2020
+
+SUSE Linux Enterprise Desktop Server Workstation 15.1
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228765.jpg" />
+</div>
+
+
+###  Подробнее
+
+После года разработки компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15 SP1. Пакеты SUSE 15 SP1 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15.1. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5874EB378E306F63875F3569564D1CA3764F0266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423085   (228519) от 16.11.2020
+
+SUSE Linux Enterprise Desktop Server Workstation 15.2
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228519.jpg" />
+</div>
+
+
+###  Подробнее
+
+После года разработки компания SUSE представила релиз промышленного дистрибутива SUSE Linux Enterprise 15 SP2. Пакеты SUSE 15 SP2 уже использованы в качестве основы в поддерживаемом сообществом дистрибутиве openSUSE Leap 15.2. На основе платформы SUSE Linux Enterprise также сформированы такие продукты, как SUSE Linux Enterprise Server, SUSE Linux Enterprise Desktop, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBF19A69D9F75D0CBF2DE1AE0783A7E4B7E9B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736442   (226455) от 19.12.2013
+
+openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда OpenSUSE Education с гордостью представляет еще одну версию OpenSUSE - Education Li-f-e (Linux образования) на основе OpenSUSE 13.1 Li-f-e поставляется со всем, что может понадобится для студентов, родителей, учителей и системных администраторов образовательных учреждений. В релиз включено программное обеспечение для математики, химии, астрономии; а также ПО для образовательных серверов KIWI-LTSP, Fedena, ERP, система Moodle для управления образовательным курсом, с полной поддержкой мультимедиа , графики, офисный пакет, многих популярных языков программирования, в том числе AMP, Java, C, C + +, Python и Ruby, последние стабильные GNOME и KDE рабочие столы, добавлен Cinnamon.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017AF542CB49FE6B41693AE32461D2C64E850EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965211   (225010) от 14.12.2015
+
+ROSA Desktop Fresh LXQT R6 [i586, x86-64] 2xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225010.jpg" />
+</div>
+
+
+###  Подробнее
+
+"НТЦ ИТ РОСА" представила 13 декабря очередной дистрибутив ROSA Desktop Fresh с рабочим столом LXQT:
+
+Вплоть до версии Fresh R5 в качестве рабочего стола мы использовали LXDE, основанного на использовании библиотек GTK+2. Однако последний крупный релиз серии 2.x стека GTK+ состоялся четыре года назад; в настоящее время ветка 2.x еще поддерживается в плане (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A86A08D3DD18E442FC25B0B0DE5B01D48798CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966205   (219544) от 17.12.2015
+
+ROSA Enterprise Desktop (RED) X2 2014.1 [i586, x86_64] 2xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219544.jpg" />
+</div>
+
+
+###  Подробнее
+
+ROSA Enterprise Desktop — операционная система, рекомендованная к применению в корпоративной среде и предназначенная для оснащения рабочих мест и серверов без специальных требований по информационной безопасности. Продукт сочетает в себе простоту и доступность Linux с наличием гарантии от производителя. ROSA Enterprise Desktop технологически совместима с сертифицированными (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03EFC2CD2C1A5CE63C2C9222238EC10D14E3F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737373   (218257) от 22.12.2013
+
+Sabayon 14.01 [x86] 4xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Sabayon Linux 14.01, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным. Дистрибутив доступен в сборках с KDE 4.11.4 (2.4 Гб), GNOME 3.10.3 (1.9 Гб) и Xfce 4.10 (1.6 Гб).
+
+Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью совместима с Portage 2.2 (EAPI2), пользователь имеет возможность установки программ как из исходных текстов, так и используя готовые бинарные пакеты, собранные для платформ ARMv7, x86 и x86-64. Для x86 и x86-64 в репозитории насчитывается около 14000 пакетов, а для ARMv7 - более 2000.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479EA1463F4DA2E940492442507C8C2EB6AD7403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737372   (218181) от 22.12.2013
+
+Sabayon 14.01 [amd64] 4xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Sabayon Linux 14.01, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным. Дистрибутив доступен в сборках с KDE 4.11.4 (2.4 Гб), GNOME 3.10.3 (1.9 Гб) и Xfce 4.10 (1.6 Гб).
+
+Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью совместима с Portage 2.2 (EAPI2), пользователь имеет возможность установки программ как из исходных текстов, так и используя готовые бинарные пакеты, собранные для платформ ARMv7, x86 и x86-64. Для x86 и x86-64 в репозитории насчитывается около 14000 пакетов, а для ARMv7 - более 2000.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E99422D40E247168F9476B3F328EE159034C45C
 ```
 
 https://mybot314.ru/tekegram_catalog/

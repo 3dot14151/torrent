@@ -1,55 +1,3 @@
-###  Публикация: 1379252   (840838) от 28.04.2020
-
-Райские врата / Hemelpoort / Heavenly Gate (2015) WEBRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Старик Билл умирает и предстаёт пред Райскими вратами. Но прежде, чем попасть в рай, ему предоставляется возможность выбрать и заново прожить одно воспоминание из своей жизни.Производство: Нидерланды | EEN Film VanЖанр: короткометражнный, комедияРежиссер: Chris de Krijger, Миша ДольсАктеры: Барт де Рийк, Роми Хеверс, Крис Тейтс, Марит ван Бохемен, Генри ван Лон, Ulrica de la MarПеревод: Многоголосый закадровый (DeeAFilm)Субтитры: Английские (hardsub)Продолжительность: 00:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482D0F90BF2307910B244333E5C229666CA9D85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500259   (840831) от 06.10.2021
-
-Макс Фист / Заклятый враг / Archenemy (2020) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Макс Фист утверждает, что он — супергерой из другого измерения, провалившийся сквозь время и пространство на Землю и потерявший из-за этого свои суперспособности. Его рассказам не верит никто, кроме паренька по кличке Хомяк.Производство: США / SpectreVision, Head Gear Films, Legion MЖанр: Боевик, криминалРежиссер: Адам Иджипт МортимерАктеры: Джо Манганьелло, Скайлан Брукс, Золи Григгс, Гленн Хауэртон, Эми Саймец, Пол Шир, Джозеф Д. Рейтман, Джессика Уильямс, Мак Брандт, Киран ГаллахерПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C010DAB35C35DF98FDC3B7892BCED66CC5CEAECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500371   (840830) от 06.10.2021
 
 Американская ночь / American Night (2021) WEBRip [H.264/1080p-LQ] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840830.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840754.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840740.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840698.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840697.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ V.I.P. / V.I.P. (2017) WEBRip [H.264/1080p-LQ] [MVO] [PR]
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840693.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840680.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840648.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840646.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840642.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840635.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840633.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840629.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840626.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840625.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840620.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840619.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840618.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840595.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840591.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840588.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840586.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840584.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840583.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF9305FB91239C8DA0C46F68FE917BD7FD3D389F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309630   (840581) от 16.03.2011
+
+Три дня на побег / The Next Three Days (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Джона казалась идеальной, пока его красавицу жену не арестовали по подозрению в убийстве. Пока Лара сидит в тюрьме, Джон один воспитывает сына и пытается всеми способами доказать ее невиновность.
+Но, когда законные способы освободить любимую исчерпаны, единственное, что ему остается — разработать изощренный план побега. Джон готов рискнуть всем ради нее… Но что если она действительно виновна?Жанр: Триллер, Драма, МелодрамаРежиссер: Пол ХаггисАктеры: Рассел Кроу, Элизабет Бэнкс, Майкл Бьюи, Моран Атиас, Реми НозикПеревод: ДублированныйПродолжительность: 02:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D715EFA1E1E18EA2F3326050742B1B70B000CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379426   (840555) от 28.04.2020
+
+Джейсон Борн / Jason Bourne (2016) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир на грани катастрофы, а значит пришло время ему вернуться. Неаполь, Мюнхен, Нью-Йорк — его имя знают повсюду. Элитный суперагент, лучший из лучших, даже в Лас-Вегасе игра пойдет по его правилам. Он — Джейсон Борн.Производство: США, Китай / Universal Pictures, Perfect World Pictures, The Kennedy/Marshall CompanyЖанр: боевик, триллерРежиссер: Пол ГринграссАктеры: Мэтт Дэймон, Алисия Викандер, Томми Ли Джонс, Венсан Кассель, Джулия Стайлз, Риз Ахмед, Ато Эссонда, Скотт Шеперд, Билл Кэмп, Винцец КиферПеревод: ДублированныйСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C542DE947A01850BB8C49B2878CD8D70ED9476F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

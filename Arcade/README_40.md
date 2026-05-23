@@ -6,7 +6,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/u3) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156208.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Street Fighter X Tekken [Ru/En/Multi11] (Steam-Rip/1.02/9 DLC) 2012 | R.G. GameW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155589.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155068.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154619.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154529.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151947.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves (2023) [Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151893.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Street Fighter V 2017 (2016) [Ru/Multi] (2.0/dlc) Repack Other s [Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151042.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150113.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149935.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ FlashBack 2 (2023) [Multi] (1.00) Scene FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148400.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Grand Theft Auto Mission Pack: London 1969 & 1961 (1999) [Ru/Multi] (1.0) Lossle
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148086.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grand Theft Auto (1997) [Ru/Multi] (1.0) Lossless Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147991.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Grand Theft Auto 2 / GTA 2: Беспредел (1999) [Ru/Multi] (11.44) Lossles
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147874.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Death's Gambit (2018) [Multi] (1.2) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146369.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146187.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145572.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144983.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143018.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NotGTAV (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142159.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141656.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141252.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141180.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Sine Mora [En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141131.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.0.3) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140995.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140031.jpg" />
 </div>
 
 

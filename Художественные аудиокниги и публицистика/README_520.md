@@ -1,84 +1,3 @@
-###  Публикация: 1565238   (496713) от 22.07.2022
-
-Филип Дик | Вкус Уаба (2016) [MP3, Максим Тарлавин (Scaners)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Испытывая недостаток в пище и провизии, команда землян забирает с Марса большую партию животных. Среди них есть животное, прозванное местными туземцами уабом. Уаб чем-то похож на свинью и капитан корабля Франко предлагает сразу же испробовать на вкус мясо этого зверя.
-Но дело в том, что сам уаб не очень-то и хочет, чтобы его съели, о чем тут же и докладывает Франко…Жанр: ФантастикаПродолжительность: 00:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC77ADC4FFEE07FCAC96A4F152678B7C47C1A874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564920   (496708) от 22.07.2022
-
-Владимир Першанин | Братская могила экипажа. Самоходки в операции «Багратион» (2022) [MP3, Владимир Большаков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новые атаки отчаянных самоходок Су-76, которые из-за слабой брони и открытого боевого отделения на фронте прозвали «брезентовым фердинандом», «сукой» и «братской могилой экипажа».
-Однако эти легкие подвижные машины с мощной пушкой и высокой проходимостью, ставшие самыми массовыми САУ СССР, сыграли огромную роль во второй половине войны.
-Особенно отличились экипажи (   Читать дальше...   )Жанр: Боевики, Книги о войнеПродолжительность: 08:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FF62B748BCA41E76900D77AB32F95AAA64BBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565231   (496707) от 22.07.2022
-
-Артур Кларк | Кассета бессмертия (2021) [MP3, Максим Тарлавин (Scaners)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это последние часы человека обреченного на смерть на Марсе. Это запись его слов к тем, кто придет позднее. И перед смертью он, как единственный человек в истории, увидит впечатляющую картину — противостояние Солнца, Земли и Луны. Все они сойдутся в одну линию друг за другом — с перспективы человека, находящегося на Марсе. Такое происходит только раз в сто лет. И (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD1B60C052AB81265CFD0BD05995D1F8E5F7336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565064   (496646) от 22.07.2022
 
 Ли Чайлд | Джек Ричер (Книга 4). Гость (2022) [MP3, Владимир Голицын]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496646.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496570.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496477.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496412.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496373.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496363.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496309.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496289.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496258.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496251.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496166.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496164.jpg" />
 </div>
 
 
@@ -405,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496103.jpg" />
 </div>
 
 
@@ -432,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496102.jpg" />
 </div>
 
 
@@ -459,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496026.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496019.jpg" />
 </div>
 
 
@@ -512,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496011.jpg" />
 </div>
 
 
@@ -538,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496008.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495963.jpg" />
 </div>
 
 
@@ -592,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495927.jpg" />
 </div>
 
 
@@ -618,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495735.jpg" />
 </div>
 
 
@@ -647,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495682.jpg" />
 </div>
 
 
@@ -673,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495680.jpg" />
 </div>
 
 
@@ -685,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90D044CA738F4CD93ABA6FD78426239A083572E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543015   (495596) от 05.09.2012
+
+Эжен Сю | Парижские тайны [1991] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман " Парижские тайны " привлекает читателей увлекательным сюжетом. Персонажи книги - люди парижских трущоб и выходцы из высшего общества. Сложные взаимоотношения героев, эгоизм и благородство являются лейтмотивом произведения, ставшего значительным явлением в литературе XIX века.Жанр: роман
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A060FE5359281F6DD38604A3B6A78639010C908C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936230   (495505) от 11.09.2015
+
+Карл Саган | Мир, полный демонов. Наука — как свеча во тьме (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495505.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мир, полный демонов» — последняя книга Карла Сагана, астронома, астрофизика и выдающегося популяризатора науки, вышедшая уже после его смерти. Эта книга, посвященная одной из его любимых тем — человеческому разуму и борьбе с псевдонаучной глупостью, — своего рода итог всей его работы. Мифы об Атлантиде и Лемурии, лица на Марсе и встречи с инопланетянами, магия и (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 03:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC6738B67BE3EBCA36046C21C489CFC08A201E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158080   (495424) от 14.08.2017
+
+Наташа Мамлеева | Отказ – удачный повод выйти замуж! (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли девушке из монастыря рассчитывать на благосклонность судьбы в академии магии? Можно, если твой парень - сын герцога. А если он женится на принцессе? Тогда можно попробовать женить на себе суверена Подземного царства. Главное, чтобы потом он не оказался еще и твоим преподавателем...Жанр: Романтическое фэнтезиПродолжительность: 09:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B062D235262C7CE05115122B51372685E7BC1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

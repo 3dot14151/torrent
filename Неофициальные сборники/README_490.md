@@ -1,32 +1,3 @@
-###  Публикация: 1071849   (356969) от 11.11.2016
-
-VA - Top Chart радио DFM: ноябрь (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn feat. Alma - Bonfire 3:03
-02. KSHMR & Tigerlily - Invisible Children (Extended Mix) 3:45
-03. Charlie Puth feat. & Gomez - We Don't Talk Anymore (Anthony El Mejor & DJ Nil Remix) 3:15
-04. Cedric Gervais & Willy Monfret - Make Me Feel (Extended Mix) 4:42(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EC40FC6F6962E2F0AEB238EC4CDFF04E3F7946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577387   (356880) от 18.09.2022
 
 VA - В машине с музыкой Vol.304 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -35,7 +6,7 @@ VA - В машине с музыкой Vol.304 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356880.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Зайцев.Нет - Самые Горячие Новинки (2016) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356823.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Зайцев нет. Лучшие Hовинки Ноября (2016) [MP3|16
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356818.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - В машине с музыкой Vol.302 (2022) MP3|320 Kbps |<Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356768.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Songs for the Car (2022) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356759.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - 80s Top Tracks (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356651.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Romantic Melodies / Collection 15 albums  (2004 - 2008) [MP3|320 kbps]<Pop,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356542.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ The Heavy Horses - Murder Ballads & Other Love Songs (2012) [MP3|320 Kbps] <Coun
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356410.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ VA - Trance Pure (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356334.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ VA - Chill Acoustic (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356211.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Lotus Space - Music for Chillout & Dreaming (2015) [MP3|320 кб/с]<Downtempo, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356194.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ VA - Options Remake Of Tracks October -B- (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356160.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ VA - Sense of Vocal Trance Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356145.jpg" />
 </div>
 
 
@@ -414,7 +385,7 @@ VA - Acoustic Covers of Love Songs (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356049.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ VA - The Best Of Raggastep (Ragga Dubstep) (Compiled by Zebyte) (2015) [MP3|256-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356043.jpg" />
 </div>
 
 
@@ -472,7 +443,7 @@ VA - Beatport Top 100 30.10.2015 (2015) [MP3|320 кб/с]<House, Electro, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356041.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ VA - Melodic Techno Tom III [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355939.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ VA - TOP 100 Club Tracks (October) (2015) [MP3|320 кб/с]<Club House, Vocal Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355891.jpg" />
 </div>
 
 
@@ -559,7 +530,7 @@ VA - TOP October (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout, Pop, Dee
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355862.jpg" />
 </div>
 
 
@@ -588,7 +559,7 @@ VA - In the Name of the Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355860.jpg" />
 </div>
 
 
@@ -617,7 +588,7 @@ VA - Rare Disco Dance (2018) [MP3|320 Kbps] <Electronic, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355820.jpg" />
 </div>
 
 
@@ -646,7 +617,7 @@ VA - Trance Maniacs Party: Trancefer Wave #116 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355798.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ VA - По волне моей памяти Том 19 (Compiled by Виктор31
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355777.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ VA - По волне моей памяти: Том 18 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355776.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ VA - За рулем по дороге домой время Шансона (201
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355723.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ VA - За рулем по дороге домой время Шансона (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A5A7F0BFF32D37236669E7A7F39787152FE9BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952284   (355457) от 01.11.2015
+
+Seryoga (Серёга) - FightClub99 (2015) [MP3|320 кб/с]<Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Оттенков Серого (03:32)
+02. Killing Me Softly (04:13)
+03. Боржоми (03:17)
+04. В теме (03:41)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1572D08D042DA70C001E6885756513906E9A0346
 ```
 
 https://mybot314.ru/tekegram_catalog/

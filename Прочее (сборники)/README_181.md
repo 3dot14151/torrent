@@ -6,7 +6,7 @@ VA - Cамые Качающие Треки для Авто - Топ 55 [1-10] (2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90302.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - 50 Самых Скачиваемых Треков Весны (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89801.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ VA - Сборник медленных хитов Vol.5 (2012) [MP3|320 kbps]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89408.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89371.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - Взрывной танцевальный Top DFM (2012) [MP3|192-248 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88756.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Romantic Collection - Spring Tenderness (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88611.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Russian Tracks Remix DJ(2012) [MP3|256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88607.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Красота медленных хитов (2012) [MP3|~256 kbps]<Pop | R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88579.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Hardcore Legends Top 100 (2012) [MP3|320 kbps]<Hardcore>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88563.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - MAXI. Вибрация тела на Радио Record (2012) [MP3|320 kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88158.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Top 100 Зайцев.нет (11.04.2012) (2012) [MP3|128-320 kbps]<Alternat
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88005.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Дискотека 90-Х Часть 2 (Mixed by Alex Mega) (2012) [MP3|320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87969.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Beatport Top 100 Download April (2012) [MP3|320 kbps]<House | Dance | Tranc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87720.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Disco Remix DJ (2012) [MP3|320 kbps]<Disco | Dance | Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87492.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - The Best Of Lounge Music (2012) [MP3|320 kbps]<Chillout | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87368.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Beautiful and Relaxing music (2012) [MP3|320 kbps]<Chillout | Lounge | Rela
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87008.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - 100 Русских рок хитов - Ностальгия (2012) [MP3|~24
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86968.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Взгляд назад (2012) [MP3|320 кб/с]<Рок>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86734.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Топ 100 NRJ 11 50/50 (2012) [MP3|256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86699.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - MAXI. Лучшие ремиксы популярных хитов (2012) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86602.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - 50 Лучших Клубных Треков в Тачку (2012) [MP3|~249-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86540.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Top 100 Зайцев.нет (04.04.2012) (2012) [MP3|128-320 kbps]<Pop|Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86539.jpg" />
 </div>
 
 
@@ -767,7 +767,7 @@ VA - 50 Fitness & Aerobic Songs (2012) [MP3|320 кб/с]<House, Deep House, Tech
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86513.jpg" />
 </div>
 
 
@@ -802,7 +802,7 @@ VA - Disco Remix Hits Зарубежный (2012) [MP3|320 kbps]<Dance | Disco |
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85855.jpg" />
 </div>
 
 
@@ -837,7 +837,7 @@ VA - Disco Remix Hits Русский (2012) [MP3|256 кб/с]<Disco, Dance, Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85647.jpg" />
 </div>
 
 
@@ -872,7 +872,7 @@ VA - L.O.V.E. (LOVE) volume 1 - 5 [Chillout Music Collection] (2012) [MP3|320 к
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85561.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ qBittorrent 4.6.4 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61854.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CrystalMark Retro 1.0 Beta 2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61851.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wirecast Pro 16.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61847.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Office Tool Plus 10.9.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61846.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Balabolka 2.15.0.865 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61838.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ HopToDesk 1.41.8.0 Portable +Install [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61836.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ USB Device Tree Viewer 4.1.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61835.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Simple Sticky Notes 6.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61822.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Office Installer & Office Installer+ 1.09 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61821.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Text Editor Pro 28.4.4 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61818.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Text Edit Plus 14.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61814.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Waterfox Current G6.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61807.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ USB Device Tree Viewer 4.1.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61798.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ iTop VPN 5.4.0.5166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61787.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Snappy Driver Installer Origin R762 | Драйверпаки 24.03.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61759.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Internet Download Manager 6.42 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61758.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ qBittorrent 4.6.4 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61735.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AOMEI Backupper Technician Plus 7.3.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61733.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Wise Care 365 Pro 6.6.6.636 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61731.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Macrorit Disk Scanner 6.7.2 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61730.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Serif Affinity Photo 2.4.1.2344 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61728.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Blender 4.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61726.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ CrystalMark Retro 1.0.0 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61722.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AOMEI Backupper Pro 7.3.4 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61721.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Office Installer & Office Installer+ 1.10 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61718.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ AOMEI Backupper Technician Plus 7.3.4 (21.03.2024) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61715.jpg" />
 </div>
 
 

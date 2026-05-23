@@ -1,29 +1,3 @@
-###  Публикация: 1797586   (15612) от 05.06.2025
-
-Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Last Vanguard - шутер-платформер в жанре метроидвания с элементами ролевой игры и нарисованной от руки покадровой анимацией. Исследуйте потрясающий мир, созданный вручную, опустошенный войной и управляемый злым тираном. Сражайтесь с самыми разными врагами , настраивая свою стратегию , меняя оружие и открывая активные и пассивные способности. Создавайте неожиданные (   Читать дальше...   )Тип издания: RepackРазработчик: Cool Tapir StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587698   (15604) от 05.06.2025
 
 Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
@@ -32,7 +6,7 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15604.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.3.104/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15594.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Kaodi (2025) [Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15588.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50. 5_31: 0:01) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15582.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ NOBUNAGA'S AMBITION: Awakening (2022) [Multi] (1.1.6/dlc) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15523.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ DuckTales: Remastered (2013) [Ru/Multi] (Build 1384683) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15519.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Roboquest (2020) [Ru/Multi] (51755 build 651/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15514.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Moroi (2025) [Ru/Multi] (1.10) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15513.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Archons (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15508.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1-51755) Repack Let'sРlay [Digital Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15503.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Symphony of War: The Nephilim Saga (2022) [Ru/Multi] (1.10.23/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15429.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15426.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15420.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Shardpunk: Verminfall (2023) [Multi] (1.1.9.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15419.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15415.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15407.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dying Light 2: Stay Human (2022) [En] (1.22.4/dlc) Scene Tenoke [Reloaded Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15403.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15394.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (Build 14218760) Repack FitGi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15384.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15383.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ InfraSpace (2021) [Ru/Multi] (1.52.450) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15329.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Starcom: Unknown Space (2022) [Multi] (21540-a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15326.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15324.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (1.1010742/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15323.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Hellslave (2022) [Multi] (1.46) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15317.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Hellslave (2022) [Multi] (1.46) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4AA3975327B37B4714B7F2A5EC907617C70D90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801080   (15312) от 08.06.2025
+
+Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [Supporter Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15312.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Tainted Grail: The Fall of Avalon» - это серьезная ролевая игра от первого лица в открытом мире, созданном в стиле мрачного фэнтези по мотивам легенд о короле Артуре. Вас ждет сложноустроенная, разветвленная сюжетная линия, в которой ваши решения будут определять наследие короля Артура и результат напряженной 600-летней борьбы для всего мира.Тип издания: RepackРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61958DD977126516A081180A5DF20D6F2EEA7FCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

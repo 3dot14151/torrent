@@ -6,7 +6,7 @@ Windows 11 (9in1) by Updated Edition (12.09.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189080.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189077.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5589.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189056.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Balabolka 2.15.0.829 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189048.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chromium 107.0.5304.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189043.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ iVentoy 1.0.19 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189042.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Adobe Acrobat Pro 2023.006.20320 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189037.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ MKVToolNix 72.0.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189006.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Room Arranger 9.7.0.627 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188997.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MEmu 8.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188995.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Display Driver Uninstaller 18.0.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188994.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NVIDIA GeForce Desktop Game Ready 526.86 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188990.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Reg Organizer 9.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188975.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ASAP Utilities for Excel 8.0.2 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188952.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188950.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Icecream Slideshow Maker PRO 5.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188937.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ QOwnNotes 23.9.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188934.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinRAR 6.20 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188925.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Monkey's Audio 10.22 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188916.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Icecream Video Converter Pro 1.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188911.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 11.2022 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188905.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5365.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188903.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Waterfox Current G5.1.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188902.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Firefox Browser ESR 115.2.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188894.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Sumatra PDF 3.5.15500 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188892.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ WinSnap 6.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188888.jpg" />
 </div>
 
 

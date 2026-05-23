@@ -1,56 +1,3 @@
-###  Публикация: 489002   (101879) от 28.04.2012
-
-Мистер Ганджубас / Славный малый / Mr. Nice (2010) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по популярной автобиографии Говарда Маркса, одного из самых известных в мире контрабандистов марихуаны.
-Крепкая, местами захватывающая биография преступника, украшенная экспериментами со стилем и убедительной игрой исполнителя главной роли.Производство: Великобритания, ИспанияЖанр: Драма, КомедияРежиссер: Бернард Роуз / Bernard RoseАктеры: Рис Иванс, Клоэ Севиньи, Дэвид Тьюлис, Эльза Патаки, Криспин Гловер, Эндрю Тирнан, Омид Джалили, Джек Хьюстон, Джэми ХаррисПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3225143D16A2C60F3460922FA8EF327AD39F1455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489381   (101876) от 28.04.2012
-
-Мы купили зоопарк / We Bought a Zoo (2011) [H.264] HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Лента рассказывает о том, как британское семейство Ми потратило все сбережения, чтобы спасти заброшенный сельский зверинец с двумя сотнями экзотических животных, которым грозила гибель.Производство: США / Twentieth Century Fox Film Corporation, LBI Entertainment, Vinyl FilmsЖанр: Комедия, Драма, СемейныйРежиссер: Кэмерон КроуАктеры: Мэтт Дэймон, Скарлетт Йоханссон, Томас Хейден Чёрч, Колин Форд, Мэгги Джонс, Энгус МакФадьен, Эль Фаннинг, Патрик Фьюджит, Джон Майкл Хиггинс, Карла ГаллоПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:03:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488994   (101813) от 28.04.2012
 
 Мистер Ганджубас / Славный малый / Mr. Nice (2010) HDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101813.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101627.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101623.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101622.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101614.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101598.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101597.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101324.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101321.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101320.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101055.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100999.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100990.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100981.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100978.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100975.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100970.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100967.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100962.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100955.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100954.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100951.jpg" />
 </div>
 
 
@@ -639,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100910.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100909.jpg" />
 </div>
 
 
@@ -676,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C5F0C373291CF503144A6B15DDBB11D72D34E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822285   (100833) от 06.10.2025
+
+Розали / Rosali (2023) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, 1870-е. Розали от других девушек отличает повышенная волосатость — у неё растут борода и густые волосы на теле. Розали боится насмешек, но и затворницей быть тоже не хочет, поэтому вынуждена постоянно бриться. Отец выдаёт девушку замуж за обременённого долгами владельца бара, который до первой брачной ночи не догадывается о секрете жены. Когда тайна раскрывается, (   Читать дальше...   )Производство: Франция, Бельгия / Trésor Films, Gaumont, Laurent Dassault Rond-PointЖанр: драма, историяРежиссер: Стефани Ди ЖюстоАктеры: Надя Терешкевич, Бенуа Мажимель, Бенжамин Бьоле, Гийом Гуи, Гюстав Керверн, Анна Биолэй, Эжен Маркус, Жюльет Армане, Серж Бозон, Пери БургундияПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, французскийСубтитры: русские, французские (full, SDH), английские, испанскиеПродолжительность: 01:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394ED596F5ACE2D3655927C904CAA1C2C609580F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 4262   (100798) от 07.10.2025
+
+Персонаж / Stranger Than Fiction (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о жизни Гарольда Крика, налогового инспектора. Гарольд ведёт чрезвычайно монотонную жизнь — встаёт и ложится спать в одно и то же время и даже считает движения зубной щетки, когда чистит зубы. Совершенно неожиданно он начинает слышать голос, который комментирует его действия. Гарольд обращается за помощью к психиатру, но диагноз шизофрения его не (   Читать дальше...   )Жанр: фэнтези, драма, мелодрама, комедияРежиссер: Марк Форстер / Marc ForsterВ ролях: Уилл Феррелл, Мэгги Джилленхол, Эмма Томпсон, Дастин Хоффман, Куин Латифа, Линда Хант, Том Халс, Уильям Дик, Гай Мэсси, Марта ЭспинозаПеревод: Профессиональный (дублированный)Субтитры: нетПродолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F33C66C4B63760C341F487E5E7A0D2733DF05A
 ```
 
 https://mybot314.ru/tekegram_catalog/

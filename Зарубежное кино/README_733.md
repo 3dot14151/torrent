@@ -1,55 +1,3 @@
-###  Публикация: 1021920   (730225) от 31.05.2016
-
-По ту сторону двери / The Other Side of the Door (2016) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Идиллическая жизнь молодой семьи за границей в Индии трагически прерывается гибелью маленького сына. Безутешная мать узнает о существовании древнего ритуала, который позволяет на время вернуть умерших, чтобы с ними попрощаться. Девушка отправляется в заброшенный храм, где двери служат порталом между мирами живых и мертвых, но пренебрегает предупреждением не открывать (   Читать дальше...   )Производство: Индия, ВеликобританияЖанр: Ужасы, ТриллерРежиссер: Йоханнес РобертсАктеры: Сара Уэйн Кэллис, Джереми Систо, София Росински, Хавьер Ботет, Джакс Малкольм, Сучитра Пиллай-МаликПеревод: Дублированный (iTunes 0Субтитры: английские (full + SDH)Продолжительность: 01:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C77ADDD8FF36332CD7C57F23D02C6E961B4881F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021875   (730223) от 31.05.2016
-
-Элвис и Никсон / Elvis & Nixon (2016) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-О чем болтали король рок-н-ролла Элвис Пресли и президент США Ричард Никсон, когда они встретились в Овальном кабинете? Обеспокоенный стремительным распространением в Америке наркомании и социализма, Элвис просит назначить его тайным агентом наркоконтроля. Президент принимает предложение певца, но заставить Пресли соблюсти хотя бы протокол Белому дому так и не удалось…Производство: США / Amazon StudiosЖанр: Комедия, ИсторияРежиссер: Лиза ДжонсонАктеры: Кевин Спейси, Майкл Шеннон, Алекс Петтифер, Джонни Ноксвил, Колин Хэнкс, Эван Питерс, Скай Феррейра, Трэйси Леттс, Тейт Донован, Эшли БенсонПеревод: Дублированный (iTunes)Продолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC22D8A04F6057538E3100BA2BF8D39B4F3553B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021499   (730218) от 31.05.2016
 
 Ужастики / Goosebumps (2015) BDRip [H.265/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730218.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730200.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_730198.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730187.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_730149.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_730147.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729715.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ CTRL Z / CTRL Z  (2017) WEBRip [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729711.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729705.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729697.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729691.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729689.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729684.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729678.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729617.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729614.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729611.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729588.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729586.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729579.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729574.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729562.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729556.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729555.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FAC1548E3E5709A4D077C6299B5BB2A5C551585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667108   (729543) от 11.06.2013
+
+Создать мистера Совершенство / Как создать идеал / Making Mr. Right (2008) SATRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Составляя список завидных женихов для нью-йоркского журнала, журналистка решает превратить одного мошенника в идеального мужчину.Производство: США / Johnson Production Group, Eddie Productions, Ignite EntertainmentЖанр: Драма, Мелодрама, Комедия,Режиссер: Пол ФоксАктеры: Дин Кэйн, Кристина Кокс, Дэвид Льюис, Жослин Ловен, Грег Роджерс, Том Батлер, Дэймон Джонсон, Майкл Карл Ричардс, Шафин Карим, Майкл ДэйнджерфилдПеревод: Двуголосый закадровый (SDI Media)Продолжительность: 01:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ACD71B83E8E50FDCFC69D9BB135D1DBF972B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127985   (729502) от 23.04.2017
+
+Вне правил / Rules Don't Apply (2016) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о молодой женщине, влюбляющейся в эксцентричного миллионера Говарда Хьюза в самый разгар своих отношений с его водителем.Производство: США / Considered Entertainment, Demarest Films, Fiore Group, RatPac Entertainment, Regency EnterprisesЖанр: Драма, Комедия, МелодрамаРежиссер: Уоррен БиттиАктеры: Уоррен Битти, Лили Коллинз, Олден Эренрайк, Аннетт Бенинг, Мэттью Бродерик, Алек Болдуин, Хейли Беннетт, Кэндис Берген, Дэбни Коулмен, Стив КуганПеревод: Многоголосый (iTunes)Субтитры: Русские, Английские, УкраинскиеПродолжительность: 02:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23701072792BB671F570F53E68FC8370D60F1A32
 ```
 
 https://mybot314.ru/tekegram_catalog/

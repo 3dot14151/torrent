@@ -1,32 +1,3 @@
-###  Публикация: 1330162   (345447) от 08.10.2019
-
-VA - 100 Rock Ballads Vol.1 (2019) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Damn Yankees - High Enough 4:46
-002. Doro - Even Angels Cry 4:47
-003. Journey - After All These Years 4:11
-004. Saxon - Requiem (Acoustic Version) 3:30(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 07:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596C1AC9B6F9D9E9CAE4B82EE86FBB05C0610BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073142   (345388) от 16.11.2016
 
 Lenny Wolf - Thy Kingdom Come (2016) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
@@ -35,7 +6,7 @@ Lenny Wolf - Thy Kingdom Come (2016) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345388.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Old School Hits Collection от ALEXnROCK (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345299.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Calypso Blues (2018) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345195.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Top50: Tracks Deep House Ver.5 (2018) [MP3|320 Kbps] <House, Deep House, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345036.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Trance Serpent Vol. 07 (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344795.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Collection Chillhouse Beats (2015) [MP3|320 кб/с]<Deep House, Chill Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344767.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Leonard Cohen - Hits (Presents: Elgujakviso) (2016) [MP3|256 Kbps] <Folk; Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344763.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ The Prodigy - No Good (2016) Remix [MP3|320 Kbps] <Deep House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344726.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - Summer Chillout Area (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Re
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344702.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ VA - Urban Inspiration: Trance Session (2020) [MP3|320 Kbps] <Trance, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344701.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ VA - White Night Affair (2020) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344698.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ VA - Сборник дабстепа с женским вокалом (2010-2012
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344689.jpg" />
 </div>
 
 
@@ -386,7 +357,7 @@ VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344666.jpg" />
 </div>
 
 
@@ -414,7 +385,7 @@ VA - Extra Trance: Bonus [02] (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344657.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ VA - До утра vol.2 (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Di
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344656.jpg" />
 </div>
 
 
@@ -472,7 +443,7 @@ VA - Empire Records - Chill Clinic (2017) [MP3|320 Kbps] <Chillout, Downtempo, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344578.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344570.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344557.jpg" />
 </div>
 
 
@@ -559,7 +530,7 @@ VA - Yellow Day: National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344555.jpg" />
 </div>
 
 
@@ -588,7 +559,7 @@ VA - ЕвроХит Топ 40 Europa Plus 23.10.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344546.jpg" />
 </div>
 
 
@@ -617,7 +588,7 @@ VA - Танцевальный рай Dream House (2007) [MP3|320 кб/с]<Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344532.jpg" />
 </div>
 
 
@@ -652,7 +623,7 @@ VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344435.jpg" />
 </div>
 
 
@@ -681,7 +652,7 @@ VA - Open Air House (2020) [MP3|320 Kbps] <Club, Dance, Future House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344431.jpg" />
 </div>
 
 
@@ -710,7 +681,7 @@ VA - Eurobeat Classic (Vol.2) (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344429.jpg" />
 </div>
 
 
@@ -739,7 +710,7 @@ VA - The Music Liveshow (2020) [MP3|320 Kbps] <Vocal, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344422.jpg" />
 </div>
 
 
@@ -753,6 +724,35 @@ VA - The Music Liveshow (2020) [MP3|320 Kbps] <Vocal, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABA1B8A697C1961CF6AAA865ABE9218E9CE4153D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418404   (344421) от 26.10.2020
+
+VA - The Best Of  The Alternative (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344421.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Charmer - Wolf Fang Fist
+002. Helicon - The Sun Also Rises
+003. Lovedrug - Black Wave
+004. Villagers - Hold Me Down(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 06:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFB9F9447D9C689781688C16B02BA1048322F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

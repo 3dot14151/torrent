@@ -6,7 +6,7 @@ Dog Wallpapers (25.01.13) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992938.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Animal Wallpapers (25.01.13) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pagani And Ferrari Wallpaper (25.01.13) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992934.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Desktop Wallpapers (4/2013) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992930.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ River Wallpapers (4/2013) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992927.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Firearms Wallpapers (25.01.13) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992924.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992916.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Gilrs Wallpaper Collection (4/2013) [Wallpapers 16+] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992898.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Interior Wallpapers (25.01.13) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992897.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992896.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Global DJ Broadcast Top 20 - January 2013 (2013) [MP3|320 кб/с]<Trance/ 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992894.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wallpapers - Wallpapers Fantasy №29(Pavel)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992891.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cinema Wallpapers  (25.01.13) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992890.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992888.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992887.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ HQ Wallpapers for a desktop (4/2013) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992886.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ HQ Wallpapers Perfect Women (4/2013) [Wallpapers 16+] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992885.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Computer Desktop Wallpapers Collection (4/2013) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992884.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Nature Wallpapers (4/2013) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992858.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992856.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Aircraft Wallpapers  (25.01.13) [Wallpapers] (jpg)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992854.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Wallpapers - Wallpapers Fantasy №28(Pavel)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992851.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Wallpapers - Wallpapers Fantasy №30(Pavel)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992848.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992844.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992840.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ SUMo 3.5.1.194 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992839.jpg" />
 </div>
 
 

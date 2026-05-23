@@ -1,377 +1,3 @@
-###  Публикация: 1528277   (734994) от 01.02.2022
-
-VA - Cafe Arte (Finest Chillout & Lounge Downbeat Playlist) (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Bonnee - Slow Motion (Atmospheric Lounge Mix) (4:00)
-02. Bernon - Into the Cloud (Electronic Vocal Chill Cut) (4:12)
-03. Oliver Schlolaut, Frank Doberitz - The Sun is Shining (Sunray Vocal Mix) (5:53)
-04. Area 42 - Part of the Heart (Low Percussion Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B4CD80C2ED1B119152136B8E0FA4A5971C7E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528283   (734993) от 01.02.2022
-
-VA - Raylinx Music Best of 2021 (2021) [AAC|~314 Kbps] <Dubstep>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. AntiAll - Hyperspace (3:09)
-02. KOSORV - Samurai (3:42)
-03. Jaskaroth - Demon Slayer (5:05)
-04. Vappordash - Darling074 (2:50)(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F795787DAB89E044650BE8A0715DB3B8BEE5B88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528280   (734991) от 01.02.2022
-
-VA - Cafe Arte, Vol. 2 (Finest Chillout & Lounge Downbeat Playlist) (2019) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Innercity Lights (City Chillout Lounge Mix) (5:36)
-02. Nightbar Jazz - Down Under City (Jazzy Bar Mix) (4:52)
-03. Friendly Breaks - Jazzy City Walk (Deep Lounge Mix) (4:44)
-04. Artenovum - Dulcimers Vibes (Chillout Mix) (4:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B417455E8F4D28A5EC49F408FFA97B07C31A911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528272   (734990) от 01.02.2022
-
-VA - Sicilian Lounge, Vol. 1 (2015) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - For Laurent (4:37)
-02. Newton, Jana Tarasenko - The Right Time (4:09)
-03. Johannes Huppertz - Bitter Symphonie (4:35)
-04. Living Room - Your Love (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D688B15188166CE40CB7BAC9447DCF3E945B99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528264   (734988) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 3 (2010) [AAC|~332 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. So Far So Good - Jack and Dianne (4:05)
-02. Manly Ferry - Land Downunder (3:13)
-03. Soul Glow - Le Freak (3:33)
-04. Girls Club - Lets Get Loud (3:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E45D111461B4DB4FD93378DC40233CD7B37CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528285   (734987) от 01.02.2022
-
-VA - Bar Lounge Costes, Vol. 5 (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. sarosa - Elektra Glyde (Instrumental Mix) (3:49)
-02. Digby Jones, Airglo - Mello (Original Mix) (3:30)
-03. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
-04. Marga Sol - Talk to Me (5:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, Nu JazzПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E06BDA7DE8FEF226F7B24B5653174318C93AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528256   (734985) от 01.02.2022
-
-Simon Le Grec - 25 Years Anniversary (Unique Music) (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Is It Love (Radio Mix) (4:17)
-02. About Us (Radio Mix) (4:32)
-03. Blue Planet (Radio Mix) (3:35)
-04. Feelings (Piano Mix) (5:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FFCC5847B6EAF6CC549C125A2FDA71DD38BB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528268   (734984) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 4 (2010) [AAC|~338 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. DREAD EFFECT - Play That Funky Music (4:17)
-02. The Sharons - Preacher Man (2:55)
-03. Manly Ferry - Pressure Down (3:45)
-04. DREAD EFFECT - Red Red Wine (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A4647A3C1A08EFC3A5D5AAA2F46472EFDC460C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528270   (734979) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 5 (2010) [AAC|~325 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Bogan Bingo - Sweet Home Alabama (4:25)
-02. The Tainted Love - Tainted Love (2:54)
-03. Sensation Ltd - Tear Drops (4:40)
-04. Sensation Ltd - That's the Way (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B8681083373F377D2F292272F3D48E47A30A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528260   (734978) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 2 (2010) [AAC|~328 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Tango in the Night - Dreams (4:15)
-02. So Far So Good - Eagle Rock (4:13)
-03. JWL - Faith (2:37)
-04. Sensation Ltd - Funky Town (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DDBDA79FFAA3928181768183BA2129F51A6B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528275   (734975) от 01.02.2022
-
-VA - Sexy Sax & Chill (2017) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Delectable - Woman in Love (Extended Mix) (6:51)
-02. Guru Sax - People Can't Stop Chillin (Relax Mix) (5:59)
-03. Dial J for Jazz - The Smooth Soul of Life (Guitar del Mar Mix) (5:50)
-04. Saxlounger - Mousetrap (Sax My Brass Mix) (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Smooth JazzПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA569A8AF720E81095688376C50F23D4F24A1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528258   (734967) от 01.02.2022
-
-VA - ReCovered Hits, Vol. 1 (2010) [AAC|~331 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. JWL - 1973 (3:57)
-02. The West Coast Sound Machine - 1000 Miles (3:58)
-03. Sensation Ltd - Ain't Nobody (3:56)
-04. All I Wanna Do - All I Wanna Do (4:36)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF62DCB018FBACAD2C6836F11DAB2AADCE98CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528426   (734925) от 01.02.2022
-
-Свалка / Trash (2014) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История о трех мальчиках, живущих в стране третьего мира. Они еле сводят концы с концами, копаясь в мусоре. Однажды они находят кожаную сумку, содержимое которой окунает их в ужасное приключение…Производство: Великобритания, Бразилия, Германия / O2 Filmes, PeaPie Films, Working Title FilmsЖанр: Триллер, драма, криминал, детектив, приключенияРежиссер: Стивен Долдри, Кристиан ДуурвоортАктеры: Вагнер Моура, Селтон Мелу, Мартин Шин, Руни Мара, Риксон Тевес, Жозе Дюмон, Даниел Зеттел, Эдуардо Луис, Luis Felipe da Silva Costa, Gabriel Dias da Costa SilvaПеревод: ДублированныйСубтитры: Русские, украинские, английские, португальскиеПродолжительность: 01:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B14354EFFE3FE9E3098328DA8396843B1C3FBD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398910   (734609) от 28.07.2020
 
 Верность  (2019) BDRip [720p] [GER Transfer] ATV
@@ -380,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734609.jpg" />
 </div>
 
 
@@ -406,7 +32,7 @@ VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [AAC|~321 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734479.jpg" />
 </div>
 
 
@@ -435,7 +61,7 @@ Bhakta - India all Over (2003) [AAC|~291 Kbps] <Tribal, Downtempo, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734477.jpg" />
 </div>
 
 
@@ -464,7 +90,7 @@ Darpan & Bhakta - Temple of Glowing Sound, Vol. 1 (2006) [AAC|~341 Kbps] <Tribal
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734476.jpg" />
 </div>
 
 
@@ -493,7 +119,7 @@ VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734475.jpg" />
 </div>
 
 
@@ -522,7 +148,7 @@ Bhakta - Snow on Venus (2003) [AAC|~345 Kbps] <Tribal, Downtempo, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734474.jpg" />
 </div>
 
 
@@ -551,7 +177,7 @@ VA - Ibiza Live Radio 1 (2018) [AAC|~326 Kbps] <Chill Out, Downtempo, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734473.jpg" />
 </div>
 
 
@@ -580,7 +206,7 @@ VA - The Best of Lump Records (2020) [AAC|~320 Kbps] <Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734472.jpg" />
 </div>
 
 
@@ -609,7 +235,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 4 (2021) [AAC|~325 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734471.jpg" />
 </div>
 
 
@@ -638,7 +264,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 2 (2021) [AAC|~324 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734470.jpg" />
 </div>
 
 
@@ -667,7 +293,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 3 (2021) [AAC|~333 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734469.jpg" />
 </div>
 
 
@@ -696,7 +322,7 @@ VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 1 (2021) [AAC|~325 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734466.jpg" />
 </div>
 
 
@@ -725,7 +351,7 @@ Chillhop Guitar, Sebastien Zunino - Secret Lover (2022) [AAC|~306 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734462.jpg" />
 </div>
 
 
@@ -739,6 +365,368 @@ Chillhop Guitar, Sebastien Zunino - Secret Lover (2022) [AAC|~306 Kbps] <Chill O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E794839ACC604309C86E3F7FD3A1FD074B5C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528555   (734450) от 02.02.2022
+
+VA - Олег Кваша "Суббота есть суббота" (Лучшие песни 1982 - 1992) (1997) [AAC|~329 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алла Пугачёва - Крысолов (3:32)
+02. Михаил Боярский - Горбун (5:07)
+03. Лариса Долина - Бегущая по волнам (4:58)
+04. Тынис Мяги - Воздухоплаватель (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06139553A492A3725E03C0FC8F49B93FF2259C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528516   (734448) от 02.02.2022
+
+Союз Каламари / Calamari Union (1985) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятка полтора-два суровых парней, каждый из которых носит имя Фрэнк, решают отправиться из Каллио в Эйра, из бедного квартала Хельсинки в южный богатый квартал. Не важно, что подлинная длина маршрута едва ли превышает пару километров. Неискушенные городом первобытные мужики из Великой Степи ступают на самую опасную тропу своей жизни.Производство: Финляндия / Villealfa Filmproduction OyЖанр: КомедияРежиссер: Аки КаурисмякиАктеры: Тимо Еранко, Кари Хейсканен, Асмо Хурула, Сакке Ярвенпаа, Сакари Куосманен, Дэйв Линдхольм, Микко Маттила, Пате Мустаярви, Туомари Нурмио, Пиркка-Пекка ПетелиусПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английские, финскиеПродолжительность: 01:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6C732DD5A6E541CA453BD8E6A17087940984DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528561   (734433) от 02.02.2022
+
+ВИА Самоцветы Юрия Маликова - Лучшие песни (2021) [AAC|~342 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой адрес - Советский Союз (3:07)
+02. Там, за облаками (3:14)
+03. Увезу тебя я в тундру (3:16)
+04. Всё, что в жизни есть у меня (4:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C04A40E5976AD57701B3C2EAE82864442245709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528517   (734429) от 02.02.2022
+
+ВИА Пламя - Снег кружится (2021) [AAC|~286 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег кружится (4:11)
+02. Переведи часы назад (4:34)
+03. Может, я тебя выдумал (2:51)
+04. На дальней станции сойду (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4960F99B53A05C5A9513C324F9B7729A8422A126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528519   (734421) от 02.02.2022
+
+VA - На волнах СССР-FM (2022) [AAC|~308 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Беликов - Живи, родник (3:06)
+02. Уч-Кудук - Уч-Кудук (Live) (4:18)
+03. Примус - Две станции метро (4:48)
+04. СВ - Кто виноват? (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117E507DBA67B4655395B362DAAEF559E13772FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528566   (734418) от 02.02.2022
+
+Михаил Боярский - Мои лучшие песни, Часть 1 (2020) [AAC|~324 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рыжий конь (3:15)
+02. Песня мушкетёров (Из к/ф "Д`Артаньян и три мушкетёра") (3:11)
+03. Робинзон (3:21)
+04. Большая медведица (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53F501FEE2A918D2DBBCD83B3B858162CEE69D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399180   (734277) от 29.07.2020
+
+Глотай / Swallow (2019) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734277.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодой домохозяйки Хантер вроде бы всё хорошо - прекрасный дом, богатый муж, на работу ходить не нужно. Но когда женщина беременеет, и семейство окружает её удушающей заботой, она вдруг начинает находить странное утешение в глотании всяких неподходящих для этого предметов.Производство: Франция, США / The Population, CharadesЖанр: Триллер, драмаРежиссер: Карло Мирабелла-ДэйвисАктеры: Хейли Беннетт, Остин Стоуэлл, Дэнис О’Хэр, Элизабет Марвел, Дэвид Раш, Луна Лорен Велес, Забрина Гевара, Лэйт Накли, Бабак Тафти, Николь КанПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300558190007B1B0F697A219A47DF54E7A7C357F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399176   (734268) от 29.07.2020
+
+Глотай / Swallow (2019) BDRip [1080p] ATV3
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734268.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодой домохозяйки Хантер вроде бы всё хорошо - прекрасный дом, богатый муж, на работу ходить не нужно. Но когда женщина беременеет, и семейство окружает её удушающей заботой, она вдруг начинает находить странное утешение в глотании всяких неподходящих для этого предметов.Производство: Франция, США / The Population, CharadesЖанр: Триллер, драмаРежиссер: Карло Мирабелла-ДэйвисАктеры: Хейли Беннетт, Остин Стоуэлл, Дэнис О’Хэр, Элизабет Марвел, Дэвид Раш, Луна Лорен Велес, Забрина Гевара, Лэйт Накли, Бабак Тафти, Николь КанПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C333974FBF2E0B72D4E6DC51CECB5683FE42A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398373   (734220) от 29.07.2020
+
+Алексей Калугин | Лабиринт [трилогия] (2007) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая исследовательская группа землян, работающая на одной из далеких планет случайно обнаруживает Лабиринт - загадочное древнее строение, созданное еще до Большого взрыва, в результате которого была создана нынешняя Вселенная. Ходы Лабиринта связывают между собой самые удаленные уголки Вселенной, но люди не могут сознательно воспользоваться ими, поскольку непонятен (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 38:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C093AD7F4AA809B379C1BF75DC9EA88DB794C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788869   (734091) от 22.05.2014
+
+Кровные узы / Blood Ties (2013) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 1974 г. После многих лет, проведенных в тюрьме по обвинению в убийстве, 50-летний Крис освобожден за примерное поведение. У дверей тюрьмы его поджидает младший брат Фрэнк — многообещающий полицейский. Братьев разделяет не только выбор «карьеры», но и взгляды на жизнь, и детское соперничество… Фрэнк надеется, что Крис изменился, и хочет дать ему шанс: находит ему жилье, работу, помогает возобновить отношения с детьми и бывшей женой Моникой. Однако несмотря на все усилия, Крис вновь берется за старое. Для Фрэнка это — последнее предательство. Больше он ничего не сделает для брата. Но слишком поздно… Их судьбы переплелись навсегда.Жанр: Триллер, драма, криминалПродюсер: Ален Аттал, Гийом Кане, Джон ЛешерВ ролях: Клайв Оуэн, Билли Крудап, Марион Котийяр, Мила Кунис, Зои Салдана, Маттиас Шонартс, Джеймс Каан, Ноа Эммерик, Лили Тейлор, Доменик ЛомбардоззиПеревод: Многоголосый (закадровый) (Baibako)Язык субтитров: АнглийскийПродолжительность: 02:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC32BFE7B82555601E911D01CCE1A2DD1172A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528805   (734024) от 03.02.2022
+
+Монгол Шуудан - Чересчур (1995) [AAC|~367 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не моя забота (3:58)
+02. А пуля точно знает… (3:22)
+03. Пение ветра (3:59)
+04. Москва (4:51)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D4951E93CBCFB4334A5793B2B926A1A1BE8876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528758   (734023) от 03.02.2022
+
+Ольга Стельмах - Страна Есения (2013) [AAC|~337 Kbps] <Pop, Folk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В этом мире я только прохожий (3:10)
+02. Весенний вечер (3:06)
+03. Восход солнца (3:16)
+04. Голубая да веселая страна (3:14)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC057E2B91134FA7D164F092E8E104D78F70D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528756   (734020) от 03.02.2022
+
+Александр Подболотов - Клён ты мой опавший. Песни на стихи Сергея Есенина (1999) [AAC|~310 Kbps] <Folk, World, & Country>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отговорила роща золотая (3:33)
+02. Над окошком месяц (2:56)
+03. Не жалею, не зову, не плачу (3:03)
+04. Русь кабацкая (4:02)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4538C4DB0A857C2802B0020D6593EFF38510BF52
 ```
 
 https://mybot314.ru/tekegram_catalog/

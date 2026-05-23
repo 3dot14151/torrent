@@ -1,30 +1,3 @@
-###  Публикация: 1170425   (399299) от 01.10.2017
-
-Экшены - GraphicRiver - Edge Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Edge - этот экшен фотошоп превратит ваши фотографии в красочное полотно акварельных брызг. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.
-Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в диапазоне от 2500px – 3500px.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5833241E2773613A474D46A9E89F4D8E8895E6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169977   (399295) от 01.10.2017
 
 Экшены - GraphicRiver - Watercolor Mixed Artistic Photoshop Action - 20616376 [ATN, ABR, PAT]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399295.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399292.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399222.jpg" />
 </div>
 
 
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399163.jpg" />
 </div>
 
 
@@ -138,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399161.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398467.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398454.jpg" />
 </div>
 
 
@@ -218,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398452.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ Digital Juice - Animated Canvases Collection 09: Clear Visions (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397587.jpg" />
 </div>
 
 
@@ -271,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397550.jpg" />
 </div>
 
 
@@ -297,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397456.jpg" />
 </div>
 
 
@@ -323,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397450.jpg" />
 </div>
 
 
@@ -349,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397399.jpg" />
 </div>
 
 
@@ -375,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397381.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396534.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396494.jpg" />
 </div>
 
 
@@ -456,7 +429,7 @@ Digital Juice - Jump Backs SD 24: Tunnel Vision I (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395724.jpg" />
 </div>
 
 
@@ -482,7 +455,7 @@ Digital Juice - Editor's Toolkit Pro Singles 174: Ambercast (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395715.jpg" />
 </div>
 
 
@@ -508,7 +481,7 @@ Digital Juice - Editor's Toolkit Pro Singles 179: Circular Arc (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395655.jpg" />
 </div>
 
 
@@ -534,7 +507,7 @@ Digital Juice - Editor's Toolkit Pro Singles 164: Future Damage (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395602.jpg" />
 </div>
 
 
@@ -560,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395572.jpg" />
 </div>
 
 
@@ -586,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395439.jpg" />
 </div>
 
 
@@ -614,7 +587,7 @@ Digital Juice - Jump Backs SD 26: Future Tech (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394810.jpg" />
 </div>
 
 
@@ -640,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394712.jpg" />
 </div>
 
 
@@ -667,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394658.jpg" />
 </div>
 
 
@@ -679,6 +652,32 @@ Collage Mix - превосходный экшен фотошоп, напомин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBE35875A5A1700AACBDDF5521C4B6687D29BE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716235   (394531) от 28.10.2013
+
+Векторный клипарт - Этикетки / Labels [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разнообразные этикетки с превью в JPEGФормат: EPS, превью в JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8989B7A1FAA0118BA1087A2385B17B410D384A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

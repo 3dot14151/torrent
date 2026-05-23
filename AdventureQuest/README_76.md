@@ -1,29 +1,3 @@
-###  Публикация: 1715572   (59958) от 12.04.2024
-
-Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ereban: Shadow Legacy в быстро развивающемся стелс-платформере вы окажетесь на месте Аяны, последней представительницы забытой расы. Вы будете использовать уникальную смесь мистических теневых способностей и высокотехнологичных гаджетов, сражаясь или крадясь, раскрывая детали своей биографии. Ставки высоки - вы выполняете миссию по спасению гибнущей вселенной, но (   Читать дальше...   )Тип издания: RepackРазработчик: Baby Robot GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D4272434600BBDDBB328FE7559E2145BC49E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715594   (59955) от 12.04.2024
 
 Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
@@ -32,7 +6,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59955.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59948.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59938.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Scene Rune [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59863.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ MythForce (2023) [Ru/Multi] (1.0.5.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59838.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Turbo Kid (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59837.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59834.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59819.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59806.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59803.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59757.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ One Last Breath (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59747.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Shadow Corridor 2 (2024) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59722.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Deber (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59721.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Yet Another Fantasy Title / YAFT (2024) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59565.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Harold Halibut (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59455.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59436.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Die Again (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59355.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59334.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59325.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Purpose 1951 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59319.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Grand Canyon (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59242.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Lil Doll House (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59230.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Inspector Schmidt - A Bavarian Tale (2023) [Multi] (1.0.1.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59222.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58954.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABFE3E271D949215F4C2212551C0DD8EF52346BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717886   (58936) от 22.04.2024
+
+My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под огнями Сеула вы, назначенный водитель, выхватываете заказ у загадочной девушки. Перед вами стоят ангелы женской группы страны. В результате внезапного скандала вы выдаете себя за их агента и становитесь опорой музыкальной индустрии! Вас ждет аромат любви и блеск карьеры – как выберете? Попросту говоря, перед вами довольно не самая обычная игра, а фантастическая (   Читать дальше...   )Тип издания: SceneРазработчик: Bing WorldЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: КорейскийЯзык субтитров: Английский, Китайский (традиционный), КорейскийЯзык интерфейса: Английский, Китайский (традиционный), Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

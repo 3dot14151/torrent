@@ -6,7 +6,7 @@ Impire [Ru/En] (RePack/1.0.1.2) 2013 | R.G. Repackers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954951.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Armed & Dangerous (2003) [Multi] (1.00) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954922.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Brutal Legend [En/Multi5] (Steam-Rip/3DLC) 2013 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954812.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Brutal Legend [En] (RePack) 2013 | =Чувак=
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953894.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Don't Starve [En] (Steam-Rip/Beta/2013.02.26) 2013 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953131.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Tomb Raider [PS3] [EUR] [En] [4.30 CFW] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951935.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Naruto Shippuden: Ultimate Ninja Storm 3 [XBOX360] [NTSC-U] [En] [LT+3.0] (XGD2/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951930.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Sniper Elite V2 [Ru/En] (Steam-Rip/1.11) 2012 l R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951840.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Men of War (2009) [En] (1.17.5) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951461.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Sniper Elite: Nazi Zombie Army [En] (RePack) 2013 | xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950428.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Sniper Elite: Nazi Zombie Army [En] (Steam-Rip) 2013
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950368.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Xenus 2: Белое золото / Xenus 2:  White Gold [Ru] (RePack) 2008 | R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950162.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Party Hard (2015) [Ru/Multi] (1.3.1 Hotfix) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950093.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Divinity: Original Sin 2 (2016) [En] (3.0.15.252) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950032.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949365.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Sniper Elite: Nazi Zombie Army [En] (Repack) 2013 | R.G. ILITA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948778.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Sniper Elite: Nazi Zombie Army / Sniper Elite: Армия Тьмы (2013) [En] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948683.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sniper Elite: Nazi Zombie Army [Ru/En] (RePack) 2013 | =Чувак=
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946784.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Road Redemption (2014) [En] (22.12.2015) Repack Andrxaxa [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946443.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Darksiders Warmastered Edition (2016) [Ru/Multi] (1.0.2400) SteamRip R.G. Игр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945423.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Tomb Raider [Ru/En/Multi] (L) 2013 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945281.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Besiege (2020) [Ru/Multi] (1.01) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944786.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ History: Great Battles Medieval / Великие сражения: Средне�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944445.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944351.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ History: Great Battles Medieval / Великие сражения: Средне�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943199.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942971.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1143184   (636809) от 17.06.2017
-
-WRC 6 FIA World Rally Championship (2016) [Multi] (1.0) License STEAMPUNKS
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На треке все решает машина. В ралли — водитель. В WRC 6 вас ждут испытания: туман, грязь, проколы, ночная гонка, поломки двигателя… со всем этим придется справляться. WRC 6 включает весь официальный контент 2016, включая Rally China, 11 суперспецучастков в масштабе 1:1Тип издания: LicenseРазработчик: Kylotonn Racing GamesЖанр: Racing, Sport, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13991A8BCBF1290D56F10F11B86A3B3F12E9E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293371   (636780) от 03.04.2019
 
 House of Evil 2 (2019) [Ru/Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636780.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ GoNNER (2016) [Ru/Multi] (1.0.16111501) License GOG [BluEBERRY EDiTiON]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636775.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Grim Facade: Sinister Obsession Collector's Edition / За гранью жест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636708.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.16) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636673.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636662.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Pathway (2019) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636652.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Political Animals (2016) [Multi] (1.0.0083) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636529.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Danse Macabre 4: Thin Ice (2015) [En] Unofficial [Collector's Edition / Колл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636049.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ New York Mysteries 2: High Voltage (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635973.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635694.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635551.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Secrets of the Dark: The Flower of Shadow / Тайны Тьмы: Цветок Т
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635434.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mystery Tales 11: Dealer's Choices (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635376.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.2.0/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635264.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635084.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635077.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ What Makes You Tick: A Stitch in Time / WMYT: Всему свое время (P)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635056.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634952.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634945.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Star Vikings Forever (2016) [Ru/Multi] (240219) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634834.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Shank - Дилогия (Lossless RePack) [Ru/En] 2010-2012 l R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634791.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634650.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Shank 2 (Repack/1.0dc120305) [Ru] 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634626.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Streets of Moscow / Адреналин 2: Час пик  (L) [Ru] 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634616.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634585.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64291FA19DF48F1EFA6E633799933F26F035ABB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519911   (634518) от 07.07.2012
+
+Distant Worlds [En] (RePack/1.0.2) 2010 | R.G. R3PacK
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Distant Worlds с самого начала подкупает своим невероятным масштабом. Мы эту мысль решили высказать в первую очередь. А все потому, что глобальная карта у бюджетной 4X-стратегии за авторством Code Force настолько огромна, что на ее полное исследование придется пожертвовать где-то... страшно сказать, сколько времени. Если вы соскучились по олдскульным космическим приключениям с умиротворяющей динамикой, неспешностью улитки и вселенскими размерами в прямом смысле этого слова, то Distant Worlds точно для вас.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time / Grand strategy)Язык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE90350411A84CB4800C609C4329F33E424FB6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

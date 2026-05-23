@@ -6,7 +6,7 @@ Unhappy / Anne-Happy / Невезучие [2016, TV, 12] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669977.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ragnastrike Angels / Ангелы Рагнастрайк [2016, TV, 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669903.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ansatsu Kyoushitsu (2016) / Assassination Classroom (2016) / Класс убий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669872.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Netoge no Yome / And You Thought There Is Never a Girl Online? / А ты дум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669745.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kamigami no Asobi / Game gods / Игры богов [2014, TV, 12 из 12] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668922.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Garo: Vanishing Line | Гаро: Линия схода [2017, TV, 24] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666930.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Puka Puka Juju / Дюгонь Дюдю [2012, TV-sp] HDTV 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657843.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Buta / Хряк [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657750.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Otona Joshi no Anime Time: Kawamo o Suberu Kaze / A Wind Skimming the River's Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656400.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Onee-chan ga Kita | Сестра без приглашения [2014, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656144.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sabiiro no Armor: Reimei | Rusted Armors: Daybreak | Ржавые доспехи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655872.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655861.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655672.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mayoiga | The Lost Village [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653058.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Project Scard: Praeter no Kizu | Scar on the Praeter | Проект Скард [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652636.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652335.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Ueno-san wa Bukiyou | How Clumsy You Are, Miss Ueno. | Неуклюжая Уэн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652083.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Fantasy Bishoujo Juniku Ojisan to / Life with an Ordinary Guy Who Reincarnated i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651910.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Shounen Maid / Парень-горничная [2016, TV, 12] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650910.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Revisions | Ревизия [2019, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650378.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Pastel Memories | Пастельные воспоминания [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650248.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Futsal Boys!!!!! | Футзалисты [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650208.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650135.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Lupin Sansei: Part 6 | Lupin the Third Part 6 | Люпен III: Часть VI [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649976.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Arakawa Under the Bridge / Под мостом Аракавы [2010, TV, 13] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649132.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Virtual-san wa Miteiru | Virtualsan Looking | Виртуальный просм�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648622.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ CyberLink PowerDirector Ultimate 21.0.2116.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354290.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent Pro 3.5.5 Build 46514 Stable RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354288.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kodi 19.4 (Matrix) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354284.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Audio Hijack 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354267.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354262.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ KLS Backup 2015 Professional 8.4.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354258.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Slim - Ikra (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354257.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ DevID Agent 4.29 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354255.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354253.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ GO Speed (Cleaner & Boost) 2.7.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354246.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ XeroWeight Flashback 2.0.0.703 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354244.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354195.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Infix PDF Editor Pro 7.4.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354192.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ DMG Audio - All Plugins (2019.06.29) VST, VST3, AAX, RTAS (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354191.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Krita 4.2.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354187.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ iZotope - Ozone Advanced 9.0.1 STANDALONE, VST, VST3, AAX (x64) RePack by VR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354186.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Topaz DeNoise AI 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354180.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Topaz Sharpen AI 1.4.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354176.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mozilla Firefox Quantum ESR 60.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354153.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Process Lasso Pro 9.0.0.502 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354149.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Slimjet 20.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354141.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Stand Up (2018.10.21) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 10)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354140.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Movavi Video Editor 15 Business v15.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354139.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Ocenaudio 3.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354137.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354113.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ SolveigMM Video Splitter 6.1.1611.11 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354110.jpg" />
 </div>
 
 

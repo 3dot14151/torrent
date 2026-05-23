@@ -6,7 +6,7 @@ DVDFab 12.0.3.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007700.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tor Browser Bundle 10.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007687.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Auslogics BoostSpeed 12.1.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007682.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Reg Organizer 8.75 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007677.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Reg Organizer 8.75 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007674.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Radmin VPN 1.1.4392.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007670.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.0.14) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007663.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007645.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ djay - DJ App & AI Mixer 3.1.4  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007639.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cookie 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007638.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BusyCal 2021.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007637.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Outline 3.2106.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007636.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ArchCommander 2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007635.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Allavsoft Video Downloader Converter 3.23.7.7852 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007632.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dash 6.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007629.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ GoodNotes 5 v5.7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007625.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Aiseesoft Mac Video Converter Ultimate 10.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007617.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ MaxCommander 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007615.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ TechSmith Camtasia 2021 Studio 2021.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007613.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Capture One 21 Pro Pro Beta 4 v14.3.0.254  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007612.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Opera 77.0.4054.203 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007601.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Auslogics Registry Cleaner Pro 9.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007592.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ iToolab UnlockGo 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007583.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Wolfram Mathematica 12.3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007577.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Windows 10 Manager 3.5.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007557.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Auslogics Windows Slimmer 3.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007556.jpg" />
 </div>
 
 

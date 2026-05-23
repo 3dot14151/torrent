@@ -1,30 +1,3 @@
-###  Публикация: 1036462   (616801) от 22.07.2016
-
-Кладбище домашних животных / Pet Sematary (1989) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Доктор Луис Крид переезжает в маленький городок, где его семью ждет большой дом, а самого Луиса - скромная должность лечащего врача местного колледжа. Новая, просторная обитель четы Кридов расположена на краю густого, величественного леса. А в самом лесу - маленькое и мрачное кладбище, где местные жители хоронят своих домашних животных.
-Несчастье приходит и в дом (   Читать дальше...   )Производство: США / Laurel Productions, Paramount PicturesЖанр: Ужасы, Триллер, Фэнтези, ДрамаРежиссер: Мэри ЛамбертАктеры: Дэйл Мидкифф, Фред Гуинн,Дениз Кросби, Брэд Гринквист, Майкл Ломбард, Мико Хьюз, Блэйз Бердаль, Сьюзан Бломмарт, Мара Кларк, Кави Раз, Мэри Луиза Уилсон, Эндрю ХубатсекПеревод: Многоголосый закадровый (Киномания)Продолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB98A71398E4B960FC4D19E8ADC8EA6414EB1611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457157   (616742) от 14.04.2019
 
 Долгий путь домой / The Long Voyage Home (1940) DVDRip [AVO]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616742.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616739.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616733.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616731.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616728.jpg" />
 </div>
 
 
@@ -165,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616706.jpg" />
 </div>
 
 
@@ -191,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616653.jpg" />
 </div>
 
 
@@ -217,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616651.jpg" />
 </div>
 
 
@@ -243,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616645.jpg" />
 </div>
 
 
@@ -269,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616622.jpg" />
 </div>
 
 
@@ -295,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616543.jpg" />
 </div>
 
 
@@ -321,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616540.jpg" />
 </div>
 
 
@@ -347,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616493.jpg" />
 </div>
 
 
@@ -373,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616456.jpg" />
 </div>
 
 
@@ -399,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616451.jpg" />
 </div>
 
 
@@ -425,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616419.jpg" />
 </div>
 
 
@@ -451,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616388.jpg" />
 </div>
 
 
@@ -477,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616375.jpg" />
 </div>
 
 
@@ -503,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616329.jpg" />
 </div>
 
 
@@ -529,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616302.jpg" />
 </div>
 
 
@@ -557,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616285.jpg" />
 </div>
 
 
@@ -584,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616195.jpg" />
 </div>
 
 
@@ -610,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616106.jpg" />
 </div>
 
 
@@ -636,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616105.jpg" />
 </div>
 
 
@@ -664,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615964.jpg" />
 </div>
 
 
@@ -675,6 +648,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE96650CA228E11977974DBCA72BBBF8303BCA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141730   (615955) от 28.06.2017
+
+Девушки Харви / The Harvey Girls (1946) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сьюзен Брэдли — молодая девушка из штата Огайо. Она отправляется в Аризону выйти замуж по переписке, по дороге Сьюзен знакомится с веселыми и жизнерадостными подругами, работающими в недавно построенной закусочной под названием «Харви».
+Прибыв в городок Брэдли выясняет, что ее обманули. Вместо умного и романтичного героя «по переписке», ее встречает грубый и «немытый» (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Комедия, ВестернРежиссер: Джордж СидниАктеры: Джуди Гарлэнд, Джон Ходиак, Рэй Болджер, Анджела Лэнсбери, Престон Фостер, Вирджиния О’Брайэн, Кенни Бэйкер, Марджори Майн, Чилл Уиллс, Селена РойлПеревод: Профессиональный (многоголосый закадровый)Субтитры: АнглийскиеПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985CF8AAEBFFEB33FABAE6F6768488987A45984D
 ```
 
 https://mybot314.ru/tekegram_catalog/

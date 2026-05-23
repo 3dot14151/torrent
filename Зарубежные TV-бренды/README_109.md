@@ -1,29 +1,3 @@
-###  Публикация: 1603546   (204296) от 09.01.2023
-
-Зона 51: Секретные файлы ЦРУ / Area 51: The CIA's Secret Files (2014) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Совершив короткий перелёт из Лас-Вегаса глубоко в пустыню штата Невада, можно найти секретный объект ЦРУ под названием "Зона 51". Это огромная тайная база, существование которой власти Соединенных Штатов не признавали на протяжении почти 60 лет. Однако, в августе 2013 ЦРУ наконец согласилось, что это место действительно существует. Но до сих пор воздушное (   Читать дальше...   )Производство: Великобритания, Warehouse 51 Productions, Sky Vision, National GeographicЖанр: документальный, история, военныйРежиссер: Пол НельсонПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA3FAD2F369D036172D5B5620D0ABF31BA2F774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656017   (203941) от 28.08.2023
 
 BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (серии 1-3 из 3)
@@ -32,7 +6,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203941.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203763.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203029.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202578.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202522.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201678.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ NG: Чудо-юдо динозавры / Bizarre Dinos (2009) WEB-DL [H.264/1080
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201313.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201308.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ NG. Реальность или фантастика? Бермудский тр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201195.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Discovery. Виагра: маленькая голубая таблетка, и�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200994.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200524.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2022) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199921.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199595.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ NG. НЛО: Расследование неизвестного / UFOs: Investig
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199545.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199490.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199466.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199084.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199074.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198955.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198933.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198828.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198560.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198239.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197884.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197876.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF5A53DD73CD82666B45025A263F4F8AF54FF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636060   (197810) от 28.05.2023
+
+Доисторическая планета / Prehistoric Planet (2023) WEB-DLRip (сезон 2, серии 1-5 из 5) Невафильм
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая серия документальных фильмов от Джона Фавро и продюсеров сериала «Планета Земля» познакомит вас с прежде невиданными чудесами нашего мира. Вы вернётесь на 66 миллионов лет назад, когда землю, океаны и небо населяли величественные динозавры и множество других необычайных существ.Производство: США, Великобритания / Apple TV, BBC StudiosЖанр: документальный, доисторический мир, реконструкцияРежиссер: Энди Джонс, Адам ВалдезПеревод: Профессиональный многоголосый (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские, английские, украинские | отдельными файламиПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0CCF3E9FADC03762014A6613279E51A749F9F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

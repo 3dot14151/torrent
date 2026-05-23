@@ -6,7 +6,7 @@ R-Studio Network 9.1 Build 191044 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361633.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Edge 105.0.1343.42 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361630.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Eassos DiskGenius Professional 5.4.6.1432 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361627.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Calibre 6.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361621.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CyberLink AudioDirector Ultra 13.0.2108.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361612.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ jv16 PowerTools 7.6.0.1498 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361610.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kdenlive 22.08.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361607.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361565.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wise Registry Cleaner Pro 9.34.605 RePack by KaktusTV [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361554.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Maxthon Browser 5.2.6.200 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361508.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ SPC Plugins - ArcSyn 2.1.5 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361504.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Accusonus - Regroover Pro 1.7.7 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361497.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WinToUSB Technician 7.1 Release 2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361474.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.19 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361467.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ LibreOffice 7.4.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361462.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Celemony - Melodyne Studio 5.3.0.011 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361461.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ R-Studio Network 9.1 Build 191044 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361458.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wise Auto Shutdown 1.7.3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361373.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PointerStick 3.36 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361342.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Complete Internet Repair 3.0.2.2625 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361324.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SlimBrowser 11.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361211.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ LibreOffice 6.1.2.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361210.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ SlimBrowser 7.00 Build 131 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361190.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ XMedia Recode 3.3.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361163.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Icecream PDF Split and Merge PRO 2.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361156.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Windows 10 Manager 2.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361127.jpg" />
 </div>
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 265885   (999268) от 06.01.2013
-
-Защищая твою жизнь (Защита) / Defending your life (1991) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Что происходит с нами после того, как мы умираем? Внятного ответа не даст никто. Тем более, что этот вопрос меньше всего интересовал нашего героя, Дэниэла Миллера, когда он вальяжно колесил по бульвару Лос-Анджелеса на своём новеньком «БМВ», слушая, как Барбара Стрейзанд поёт о том, что «что-то грядёт».
-И, надо заметить, что Стрейзанд не обманула бедолагу Миллера: (   Читать дальше...   )Производство: США / Geffen Pictures SeeЖанр: фэнтези, драма, комедияРежиссер: Альберт БруксАктеры: Альберт Брукс, Мэрил Стрип, Рип Торн, Ли Грант, Бак Генри, Джордж Уоллес, Лиллиан Леман, Питер Шак, Шарли Стюарт, Ширли МакЛейнПеревод: Профессиональный двухголосый (НТВ), Авторский одноголосый (А. Михалёв)Субтитры: отсутствуютПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5051B25EC01A9A81FEF2385D9E7F14094F1FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599344   (999256) от 06.01.2013
-
-Охотники за реликвией / Das Jesus Video (2002) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Во время раскопок близ Иерусалима молодой археолог Штеффен обнаруживает гробницу двухтысячелетней давности. А в ней — такой же древний скелет, сжимающий в руке инструкцию к суперсовременной видеокамере, еще не поступавшей на рынок, и листок с именем Иисус.
-Штеффен предполагает, что нашел останки путешественника во времени, посетившего древнюю Палестину, а камера (   Читать дальше...   )Производство: Medienfonds GFP, Rat Pack Filmproduktion GmbHЖанр: Фантастика, Фэнтези, Боевик, Триллер, ДетективРежиссер: Себастьян НимэннАктеры: Матиас Кеберлин, Найке Ривелли, Ману Любовски, Ганс Диль, Дитрих Холлиндербаумер,  Heinrich Giskes, Робинзон Райхель, Клаус Грюнберг, Пьер Семмлер, Frank ScharПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 03:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4B8598E9EAAAE43E1D507B000D45D1EF54EDDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597276   (999245) от 06.01.2013
 
 Плохой Санта / Bad Santa (2003) [H.264] BDRip [Hi10P]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999245.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999242.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999229.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999226.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999224.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999219.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999215.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999214.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999135.jpg" />
 </div>
 
 
@@ -296,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999097.jpg" />
 </div>
 
 
@@ -322,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999043.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999036.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998993.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998899.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998884.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998876.jpg" />
 </div>
 
 
@@ -479,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998874.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998854.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998853.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998839.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998833.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998832.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998793.jpg" />
 </div>
 
 
@@ -662,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998791.jpg" />
 </div>
 
 
@@ -673,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C57B7EFDF9D8AD49E64C1A728629DD90B24B1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599630   (998783) от 08.01.2013
+
+Полиция Майами: Отдел нравов (Режиссерская версия) / Miami Vice (Unrated Directors Cut) (2006) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективы Джеймс Крокет и Рикардо Таббс полны решимости остановить торговцев наркотиками, наводняющих Майами этим смертельным зельем. Они работают «под прикрытием», внедряясь в мафиозные структуры с целью их уничтожить. Но однажды Джеймс Крокет влюбляется… в девушку мафиозного босса.Жанр: Боевик, Триллер, КриминалРежиссер: Майкл МаннАктеры: Колин Фаррелл, Джейми Фокс, Ли Гон, Наоми Харрис, Киаран Хиндс, Джастин Теру, Бэрри Шебака Хенли, Луис Тосар, Джон Ортиз, Элизабет РодригезПеревод: Двухголосый закадровый, Одноголосый закадровый, ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 02:19:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600574   (998770) от 08.01.2013
+
+В финале Джон умрет / John Dies at the End (2012) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый препарат, наркотик, наводнил улицы, его действие — просто сумашествие, но есть один страшный побочный эффект — после употребления не все возвращаются в реальный мир людьми… Два друга, Джон и Дэвид, оказываются ввязаны в историю с адским препаратом и вынуждены противостоять надвигающемуся ужасу так спешащему выбраться в наш мир через эту дрянь.Жанр: Ужасы, Фэнтези, КомедияРежиссер: Дон КоскареллиАктеры: Чейз Уильямсон, Роб Майес, Пол Джаматти, Клэнси Браун, Глинн Тёрмен, Даг Джонс, Дэниэл Робак, Фаббианн Терез, Джонни Уэстон, Джимми ВонгПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9370E49B91784DD0673D83E3669319F8F185CE50
 ```
 
 https://mybot314.ru/tekegram_catalog/

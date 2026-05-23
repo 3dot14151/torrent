@@ -6,7 +6,7 @@ A Better Finder Rename 11 v11.45 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639240.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mitti 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639239.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639238.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blocs 4.5.0.b4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639232.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ RAW Power 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639229.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Permute 3 v3.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639202.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Postbox v6.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639194.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ ProPresenter 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639174.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Lord of the Ring:  War in the North v. 1.0 (2011) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639172.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ KeepVid Pro 6.2.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639081.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Disk Drill Entreprise 3.2.831 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639076.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MAMP & MAMP PRO 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639013.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ WidsMob Viewer Pro 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638938.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hype 4 Pro v4.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638842.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bartender 3 v3.0.63b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638714.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Cookie 5.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638239.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ CodeRunner 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638150.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ AppDelete 4.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637773.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ GraphicConverter 10 v10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637660.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MovieSherlock 5.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637561.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Retrobatch Pro 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637558.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Artstudio Pro 4.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637517.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Mac Blu-ray Player Pro 3.2.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637512.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-4 v. 1.0 (2015) [Ru] [OS X N
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637426.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Downie 3 v3.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637417.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ djay - DJ App & AI Mixer 3.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637395.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 920553   (578787) от 23.07.2015
-
-Туннель / Der Tunnel / The Tunnel (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 1961 году огромная каменная стена разделила послевоенный Берлин, в угоду политикам разлучив отцов и детей, влюбленных и неразлучных друзей. Но не все смирились с гнетом тоталитарного режима. Среди тех, кто бросил вызов системе, был Гарри Мельхиор, чемпион ГДР по плаванию. Сбежав в Западный Берлин, Гарри и его друзья поклялись обмануть жестокую судьбу и подарить (   Читать дальше...   )Производство: ГерманияЖанр: ДрамаРежиссер: Роланд Зузо Рихтер / Roland Suso RichterАктеры: Хайно Ферх, Николетт Кребиц, Себастьян Кох, Александра Мария Лара, Клаудия Михельсен, Феликс Эйтнер, Мехмет Куртулус, Генрих Шмайдер, Уве Кокиш, Карин БаальПеревод: Многоголосый закадровыйПродолжительность: 02:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8968274EF0CB1C0D0A124AF814DB3AB607242B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920548   (578785) от 23.07.2015
-
-Национальная Народная Армия / NVA (2005) DVDRip [De / De, Ru Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Комедия, рассказывающая о жизни армии ГДР в конце существования республики. Режиссёр Л. Хаусман и сценарист Т. Брусиг (автор книг "Солнечная аллея" и "Герои вроде нас") представили в фильме собственные ощущения Бруссига во время службы в армии. Главную роль исполняет бывший солист группы "Эхт" Ким Франк, играющий чувственного солдата (   Читать дальше...   )Производство: Германия, Seven Pictures FilmЖанр: КомедияРежиссер: Леандер ХаусманАктеры: Ким Франк, Оливер Брёкер, Детлев Бук, Жасмин Швиерс, Анника Куль, Игнац Кирхнер.Перевод: ОтсутствуетЯзык озвучки: НемецкийЯзык субтитров: Русский, немецкийПродолжительность: 01:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD3E4DFCF5A0CE16354FA943A3C83F5BFC60662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920727   (578781) от 23.07.2015
 
 Небольшой хаос / A Little Chaos  (2014) BDRip [H.264/720p] [EN / EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578781.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578777.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578773.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578743.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578738.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578736.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578734.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578733.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578713.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578703.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578698.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578685.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578680.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578647.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578645.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578643.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578624.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578604.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578603.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578602.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578601.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578598.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578584.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578552.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE6BB844A4A50DC2796AC8B94B78904D8EA557CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765614   (578549) от 23.07.2015
+
+Гангстер / American Gangster (2007) BDRip [H.264] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США / Universal Pictures, Imagine Entertainment, Relativity MediaЖанр: Криминал, ДрамаРежиссер: Ридли СкоттАктеры: Дензел Вашингтон, Рассел Кроу, Чиветел Эджиофор, Джош Бролин, Лимари Надаль, Тед Левайн, Роджер Гуэнвёр Смит, Джон Хоукс, Юл Васкез, Малкольм Гудвин, Руби ДиПеревод: Дублированный  (вставки многоголоски от "Киномании" на расширенные моменты), Профессиональный (многоголосый закадровый) "Киномания", Авторский (одноголосый закадровый) Ю.СербинЯзык субтитров: Русский, английскийПродолжительность: 02:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAB6E3B90CA6F602131AC9EEE8D1FB37F86C0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920581   (578548) от 23.07.2015
+
+Тупой и еще тупее 2 / Dumb and Dumber To (2014) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ллойд стал постоянным клиентом психиатрической больницы, Гарри же болен и для него нет шансов вылечиться. Возраст берет свое, но на умственных способностях это не отразилось: парочка осталось такой же недалекой, как раньше. 20 лет Ллойд находится под присмотром психиатров - какие тут приключения! Но его плохое состояние - всего лишь обман! Именно вопрос здоровья (   Читать дальше...   )Производство: США | Universal Pictures, Conundrum Entertainment, New Line Cinema, Red Granite PicturesЖанр: КомедияРежиссер: Питер Фаррелли, Бобби ФарреллиАктеры: Джим Керри, Джефф Дэниелс, Роб Риггл, Лори Холден, Рэйчел Мелвин, Кэтлин Тёрнер, Стив Том, Дон Лейк, Патриция Френч, Билл Мюррей, Темби Лок, Пол Блекторн, Брэйди Блум, Эдди Шин, Томми Снайдер, Аткинс Эстимонд, Линдсэй ЭйлиффПеревод: Дублированный, многоголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875C88054678FD2426C8AABD1AE6ED18CF5E9AA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

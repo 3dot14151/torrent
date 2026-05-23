@@ -6,7 +6,7 @@ Opera 96.0.4693.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201960.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Partition Assistant Technician Edition 9.15.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201950.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Revo Uninstaller Pro 5.1.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201947.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Audition 2023 23.6.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201945.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.36.32420.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201927.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MAGIX Vegas Pro 20.0 Build 326 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201921.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MAGIX Vegas Pro 21.0 Build 108 RePack by KpoJIuK + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201920.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 10 Manager 3.7.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201919.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.3324]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201918.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft  Visual C++ Runtimes AIO v0.67.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201915.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ COMSOL Multiphysics 6.1 build 282 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201912.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Your Universal MultiBoot Installer exFAT (BIOS and UEFI USB Boot) 1.0.1.3 Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201911.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ StartAllBack 3.6.2 StartIsBack++ 2.9.18 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201908.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AOMEI Partition Assistant Standard Edition 9.15.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201905.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ AOMEI Partition Assistant Technician Edition 9.15.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201893.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Hetman Partition Recovery 4.9 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201833.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ OpenVPN 2.6.6 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201816.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 08.2023 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201797.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ AIDA64 Extreme Edition 6.85.6341 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201745.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ qBittorrent 4.5.2 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201733.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VSDC Video Editor Pro 8.1.2.455 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201723.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CPUID HWMonitor Pro 1.51 (x64) Portable by zeka.k [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201722.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Gilisoft Audio Recorder Pro 11.5.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201714.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ StopUpdates10 4.0.2023.0306 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201712.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Sweet Home 3D 7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201711.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ nthLink 6.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201699.jpg" />
 </div>
 
 

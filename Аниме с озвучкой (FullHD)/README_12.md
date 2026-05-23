@@ -6,7 +6,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Эта глупая с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790570.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789963.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789960.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789613.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Zero no Tsukaima F| Подручный Бездарной Луизы: Финал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786862.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Zero no Tsukaima: Princess no Rondo | Подручный Бездарной Лу
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786854.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ True Tears | Настоящие Слезы [2008, TV, 13 ep + 8 Specials] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786617.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786615.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786614.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786613.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786612.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786611.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Гра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786492.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786491.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Godzilla. Kaijuu Wakusei  | Годзилла. Планета Чудовищ [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786490.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Shirobako | Белая Коробка [2014, TV, 24 ep + 2 Specials] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785041.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Non Non Biyori | Деревенская Глубинка [TV-1] [2013, TV, 12 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785040.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Kidou Senshi Gundam F91 | Mobile Suit Gundam F91 | Мобильный воин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784692.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые Ведьмы: Оп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784427.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Anime-Gataris | Аниме Истории [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784426.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Denpa Teki na Kanojo | Электромагнитная Подружка [2009, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784425.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Yagate Kimi ni Naru | В Конечном Счёте я Стану Твоей [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784423.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Go-Toubun no Hanayome | Пять Невест [TV-1] [2019, TV, 12 ep] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784422.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Strike Witches the Movie | Штурмовые Ведьмы Фильм [2012, Mov
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784121.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782989.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781750.jpg" />
 </div>
 
 

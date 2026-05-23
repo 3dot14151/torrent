@@ -6,7 +6,7 @@ TapinRadio 2.15.95.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043721.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GiliSoft Video Converter Discovery Edition 11.9.0 Pro RePack (& Portable) by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043720.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ RadioMaximus 2.31.1 (29.01.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043717.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ OpenMPT 1.30.10.00 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043716.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ SyMenu 7.03.8322 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043691.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ StemRoller 2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043689.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BELOFF 2023 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043665.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ XYplorer 24.0.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043647.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Privacy Eraser Free 5.33.0 Build 4435 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043643.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VidCoder 8.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043633.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kid3 3.9.3 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043625.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Topaz Video AI 3.1.1 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043624.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WonderFox HD Video Converter Factory Pro 26.1 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043623.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AIMP 5.11 Build 2421 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043619.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Files Inspector Pro 3.25 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043616.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Topaz Photo AI 1.1.9 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043615.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ultimaker Cura 5.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043598.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Start Everywhere 1.4.0.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043594.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bigasoft Total Video Converter 6.5.0.8427 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043593.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043592.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Audacity 3.2.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043590.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ XYplorer 24.00.0400 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043569.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VueScan Pro 9.7.97 (30.01.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043558.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ FileZilla 3.63.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043554.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ IObit Uninstaller Pro 12.2.0.7 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043549.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ StaxRip 2.13.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043545.jpg" />
 </div>
 
 

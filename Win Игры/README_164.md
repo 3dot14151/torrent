@@ -1,29 +1,3 @@
-###  Публикация: 1219743   (711112) от 15.04.2018
-
-Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В свежеиспеченной части игрокам вновь предстоит посетить Кокон – небесный мир альтернативного будущего, переживающий не лучшие времена. Эре благополучия и всеобщего процветания под правлением Санктума приходит конец, и вот уже мир рушится на глазах.Тип издания: RepackРазработчик: SQUARE ENIXЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170C91885ED7E7C6066B675B5A54291B7E542BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160391   (711106) от 15.04.2018
 
 Distrust (2017) [Ru/Multi] (1.1.4/Upd4) Repack Other s [Cruise Edition]
@@ -32,7 +6,7 @@ Distrust (2017) [Ru/Multi] (1.1.4/Upd4) Repack Other s [Cruise Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711106.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Onechanbara Z2: Chaos (2016) [Jp/En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711065.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Driver: San Francisco (2011) [Ru/En] (1.0.04.1114) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711064.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ PuppetShow 16: Fatal Mistake / Шоу марионеток 16: Роковая о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710849.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710604.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Space Engineers (2019) [Ru/Multi] (1.189.039) License CODEX
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710603.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Synergia (2020) [Multi] (1.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710583.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710461.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710449.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710362.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Aragami (2016) [Ru/Multi] (01.08/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710278.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Monster Slayers (2017) [En] (1.1.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710205.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710155.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) SteamRip R.G. Игроманы
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709814.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Amaranthine Voyage 4: The Obsidian Book (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709436.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ BloodLust Shadowhunter (2015) [En] (1.028) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709190.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ TransOcean 2: Rivals (2016) [Ru/Multi] (1.0.8) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709181.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Roads of Time 2: Odyssey / Дороги времени 2: Одиссея (2020) 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708921.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Elven Legend 7: The New Generation / Эльфийская Легенда 7: Но
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708852.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Hold Out (2020) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708820.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Resolutiion (2020) [Ru/Multi] (1.1.4.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708818.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Kenshi (2018) [Ru/Multi] (1.0.17) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708714.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ XScreamKaraoke / Вы орете великолепно (2021) [Ru/En] (2.10) Li
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708636.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Space Engineers (2019) [Ru/Multi] (1.189.039/dlc) SteamRip R.G. Origins [Deluxe 
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708616.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.0.5) License CPY [patch]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708258.jpg" />
 </div>
 
 
@@ -667,6 +641,33 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.0.5) License CPY [patch]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27579A02DE91CDFD9E427AD265847EAB67A37C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792558   (707691) от 03.06.2014
+
+Silent Hill: Homecoming (2009) [Ru/En] (1.0) RePack Audioslave
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные, тревожащие сны начали мучить Алекса Шепарда еще вдали от дома. А когда профессиональный военный, наконец, вернулся в родной городок Шепардс Глен, то обнаружил, что кошмар обернулся явью. В подворотнях сгустился мрак, улицы опустели, а дом самого Алекса превратился в обитель страха и отчаяния. Младший брат пропал, отправившийся на его поиски отец не вернулся, а мама замкнулась в себе и отрешилась от окружающего мира.
+Silent Hill: Homecoming — это достойное продолжение знаменитой серии, каждый эпизод которой натягивает нервы и леденит кровь не хуже первоклассных психологических триллеров и фильмов ужасов. В роли Алекса Шепарда вам вновь предстоит посетить утопающий в вязком тумане городок Сайлент Хилл, где за белесой пеленой скрываются порождения худших ночных кошмаров. Что произошло, пока Алекс отсутствовал и как его брат, еще подросток, связан с царящим вокруг безумием? Найти ответы на эти вопросы можете только вы.(   Читать дальше...   )Тип издания: RePackРазработчик: Double Helix GamesЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA141ECFFEC9A9F64C6805CB25AF92EF9C088D13
 ```
 
 https://mybot314.ru/tekegram_catalog/

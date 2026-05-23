@@ -6,7 +6,7 @@ Altarsoft Photo Editor 1.51 Portable by elcafe [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599755.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Savard Software TurboLaunch v 5.1.4 [английский+руссификато
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596459.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HashTab 6.0.0.34 RePack by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596134.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Setup Factory 9.5.0.0 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594330.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Compare Suite Pro 8.5.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588971.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ContaCam 9.9.22 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588836.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Toolkit 2.7.3 Stable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588782.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PS Tray Factory 3.31 Repack by kallegaul [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587128.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Malwarebytes FileASSASSIN 1.06 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583623.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ XTV Suite 7.7.0.4 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581748.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ A-Clock ToolBox 3.0.0 Beta [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581220.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Karaoke Disk Unpacker 1.11 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578674.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Top Task Bar v1.6 Final [Ru] [29.06.2018]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575782.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AM-DeadLink 4.7 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574100.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Re-Loader Activator 2.6 Final [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573870.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ColorBug 3.1.0.0 + Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567021.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ USB Disk Ejector 1.3.0.4 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562870.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Collection Studio 4.71 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562524.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ InputMapper 1.5.31 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558618.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Vpings 4.0.0.3 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554097.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Advanced Woman Calendar 6.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551668.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Multrin 0.4.1 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548491.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Linker 2.3.1.17 Portable[Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541804.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Easy Context Menu 1.6 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534682.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Grisha 6.04 build 231 Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533922.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Govorilka 2.22 [Русский]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533711.jpg" />
 </div>
 
 

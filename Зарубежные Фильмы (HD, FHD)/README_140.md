@@ -1,57 +1,3 @@
-###  Публикация: 744922   (970007) от 12.01.2014
-
-Угнать за 60 секунд / Gone in Sixty Seconds (2000) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Что можно успеть за 60 секунд? Выкурить сигарету или выпить чашку кофе. Но только один профессионал в мире, легендарный вор по кличке Мемфис, может за считанные секунды угнать любой автомобиль.
-
-Однако на этот раз ему предстоит сделать невозможное: чтобы спасти своего брата, Мемфис должен за одну ночь угнать 50 первоклассных машин. Чтобы вырваться из двойного капкана (   Читать дальше...   )Жанр: Боевик, Триллер, КриминалРежиссер: Доминик СенаПеревод: Дублированный | ЛицензияСубтитры: Вшитые ОтключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EDF9C00572A10099499E0027AEDC9DE45F5781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357816   (969568) от 07.02.2020
-
-Жизнь на повторе / Un homme pressе (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ален — бизнесмен и блестящий оратор. Он вечно в движении, и никто не может заставить его остановиться и передохнуть… пока однажды его не поражает инсульт. Двигательные функции восстановились быстро, чего нельзя сказать о речи и памяти… Реабилитацией Алена занимается молодой логопед Жанна, и им обоим придется набраться сил и терпения, а также как следует узнать друг (   Читать дальше...   )Производство: Франция / Albertine Productions, Gaumont, France 2 CinémaЖанр: Драма, комедияРежиссер: Эрве МимранАктеры: Фабрис Лукини, Лейла Бехти, Ребекка Мардер, Игорь Готсман, Клеманс Массар, Ив Жак, Миша Лекот, Фредерик Тирмон, Эвелин Диди, Эрик ВаплерПеревод: Многоголосый профессиональный (iTunes)Субтитры: отсутствуютПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0057F057EBB6A112C57BAA161F716AFD3768E401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358367   (969559) от 07.02.2020
 
 Выпьем за любовь / Der Vorname (2018) BDRip [H.265/720p] [10-bit] [PR]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969559.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969484.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969477.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969438.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969433.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969408.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969404.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969397.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969391.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969362.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969355.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969344.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969340.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969311.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969297.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969241.jpg" />
 </div>
 
 
@@ -479,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969237.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969187.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969083.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968984.jpg" />
 </div>
 
 
@@ -585,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968932.jpg" />
 </div>
 
 
@@ -613,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968924.jpg" />
 </div>
 
 
@@ -639,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968623.jpg" />
 </div>
 
 
@@ -665,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968583.jpg" />
 </div>
 
 
@@ -676,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C28CC2755B4F73B7B1B608E00C46160F4A3F0A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358546   (968576) от 08.02.2020
+
+Дело Коллини / Der Fall Collini (2019) BDRip [H.265/720p] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каспару Лайнену предстоит расследовать запутанное дело непримечательного механика, Фабрицио Коллини, который на первый взгляд безо всяких мотивов убил немецкого бизнесмена Ханса Майера, после чего сам сдался полиции. Положение вещей осложняется не только молчанием Коллини, но и его личным причастием к делу: внучка жертвы Йоханна была его юношеской любовью...Производство: Германия | Constantin Film, Mythos Film, SevenPictures FilmЖанр: триллер, драма, криминалРежиссер: Марко КройцпайнтнерАктеры: Элиас ЭмБарек, Хайнер Лаутербах, Александра Мария Лара, Франко Неро, Манфред Цапатка, Яннис Нивёнер, Райнер Бок, Катрин Штрибек, Пиа Стутценштайн, Петер ПрагерПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37956C3E4CBBC458F6CE48E904A9D6108D8E93F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358211   (968563) от 08.02.2020
+
+Рома / Roma (2018) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968563.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета ленты — история жизни обычной семьи среднего класса в Мехико в начале 1970-х годов. Отец редко бывает дома, мать воспитывает четырёх детей, опираясь на помощь двух служанок родом из местных индейцев. Судьбу героев переламывают студенческие беспорядки во время католического праздника 10 июня 1971 года, когда демонстранты были расстреляны солдатами.Производство: Мексика, США / Esperanto Filmoj, Participant, Pimienta FilmsЖанр: ДрамаРежиссер: Альфонсо КуаронАктеры: Ялица Апарисио, Марина Де Тавира, Диего Кортина Отри, Карлос Перальта, Марко Граф, Даниэла Демеса, Nancy García García, Verónica García, Andy Cortés, Fernando GrediagaПеревод: Многоголосый профессиональныйСубтитры: Русские (полные), английские (полные)Продолжительность: 02:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BC52F667E22FFA943EE4838334C1F911BE89D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

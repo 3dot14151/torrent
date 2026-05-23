@@ -6,7 +6,7 @@ Discovery. Преступники Третьего рейха / Hitler's Most Wa
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Игра на жизнь / Survive That! (2013) HDTVRip [Сезон 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598337.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Игра на жизнь / Survive That! (2014) HDTVRip [Сезон 2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598331.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Встречи на краю света / Encounters at the End of th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597663.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Крушение Concordia: Взгляд изнутри / Cruise Ship
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597294.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597136.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Уличные гонки: Новый Орлеан / Discovery. Stree
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597090.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597076.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTVRip [Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595992.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594545.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. Разгаданные тайны Библии / Biblical Mysteries E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594518.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594488.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594485.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTV [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594198.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Discovery. Пчелиный король / Bee Czar (2022) WEBRip [H.264/1080p-L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593266.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery: Разрушители легенд. Посадка в самолёт
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592248.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery. Дома на деревьях / Treehouse Masters (2014-2015) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592230.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592187.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Discovery. Хуже не бывает / World's Worst (2014) HDTVRip [Серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591837.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591834.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Discovery. Реальные дальнобойщики / Outback Truckers (2014-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591817.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591812.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591775.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591772.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590388.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588931.jpg" />
 </div>
 
 

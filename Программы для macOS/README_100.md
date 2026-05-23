@@ -6,7 +6,7 @@ MKVtools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393929.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Boris RED 5.1.5.1161 x64
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393439.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AVITools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393040.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Priime Styles 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391957.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ sdspeed 3.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391156.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Wondershare Data Recovery 6.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390474.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wallpaper Wizard 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390402.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ FileMaker Pro 16 Advanced 16.0.3.302 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390359.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ PDF Expert 2.2.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389645.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ KeepVid Pro 6.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389626.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Chatty for Facebook 2.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388941.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Social Media Lab - Templates 1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387583.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ DiskExpert 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387527.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Tap 1.5 11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387250.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.188 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387104.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Desktop Clock 1.8.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386945.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Movavi Screen Capture Pro 5 v5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385087.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Patterns - The Regex App 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385029.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Leaf - RSS News Reader 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384989.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Movavi Video Editor 5 Plus 5.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384831.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Wondershare PDF Converter Pro (OCR) 5.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384360.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ popCalendar 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383398.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Deskovery3 v3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382655.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Intaglio 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381772.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ DjVuReader EX 1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381125.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ IINA 0.0.14 (build 45) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380928.jpg" />
 </div>
 
 

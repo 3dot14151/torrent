@@ -1,55 +1,3 @@
-###  Публикация: 1546092   (609167) от 22.04.2022
-
-Выжить в игре / Survive the Game (2021) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полицейский по имени Дэвид получает травму во время неудачной спецоперации по борьбе с наркотиками. Его партнер Кэл преследует двух преступников до отдаленной фермы, которая принадлежит Эрику — пострадавшему ветерану войны. Постепенно на ферму съезжается все больше мафии, и Кэлу с Эриком необходимо противостоять целой сети наркоторговцев.Производство: США / BondIt Media Capital, Buffalo 8 Productions, Emmett/Furla/Oasis Films (EFO Films)Жанр: Боевик, триллерРежиссер: Джеймс Каллен БрэссакАктеры: Чад Майкл Мюррэй, Брюс Уиллис, Свен Теммел, Майкл Сироу, Кейт Кацман, Зак Уорд, Саймон Филлипс, Шон Кэнан, Адам Уэль Поттер, Донна Д’ЭррикоПеревод: Дублированный (Zone Vision)Язык озвучки: русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC5416128F51BCDE6E9B03553D68AE13CAD9FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546134   (609166) от 22.04.2022
-
-Игра теней / Blacklight (2022) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он делал для ФБР разную работу. Он не задавал лишних вопросов и просто исполнял свой долг. Но когда лучший из агентов решил выйти из игры ради своей внучки, ведомство ответило ему отказом. Теперь он готов бросить вызов системе и пролить свет на все заговоры, которые ведут к самой верхушке правительства.Производство: Китай, Австралия, США / Zero Gravity Management, Footloose Productions, Solution Entertainment GroupЖанр: Боевик, триллерРежиссер: Марк УильямсАктеры: Лиам Нисон, Айдан Куинн, Тейлор Джон Смит, Эмми Рэвер-Лэмпман, Клер ван дер Бом, Яэль Стоун, Эндрю Шоу, Зак Лемонс, Габриэлла Сенгос, Тим ДракслПеревод: Дублированный (KION)Субтитры: Русские, английские (full, SDH)Продолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EED7A45577596163F2A80FB3F51A0FBD73B156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546105   (609163) от 22.04.2022
 
 Нечистая кровь: Грех предков / Necista krv: Greh predaka (Bad Blood, Impure Blood: The Sins of Ancestors) (2021) WEB-DLRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609163.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609162.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609158.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609156.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609154.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609143.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608982.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608976.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608971.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608957.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608950.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_608949.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608848.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608689.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) Blu-ray 3D [H.264/1080p] [
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608551.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRemux [H.264/1080p] [2D/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608549.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608546.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608544.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608538.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608537.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608437.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608430.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608419.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608417.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C376C3D29DD16B56A6368F4CBA653AD7C4680AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230945   (608415) от 16.06.2018
+
+Тихоокеанский рубеж 2 / Pacific Rim: Uprising (2018) BDRemux [H.264/1080p] [2D/3D] [ISO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда пилотируемых роботов-защитников остановила вторжение гигантских инопланетных монстров. Великая битва за Тихоокеанский рубеж ознаменовала новую главу в истории человечества. Однако война только начинается…Производство: США, Китай, Великобритания, Double Dare You (DDY), Double Negative, Legendary Pictures, Perfect World (Beijing) Pictures Co., Twisted Media, Universal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Стивен С. ДеНайтАктеры: Джон Бойега, Скотт Иствуд, Кэйли Спэни, Берн Горман, Чарли Дэй, Цзин Тянь, Макс Чжан, Адриа Архона, Ринко Кикути, Каран БрэрПеревод: Дублированный (iTunes); закадровый многоголосый, профессиональный (HDRezka)Субтитры: Русские (Forced, Full), украинские (Forced), английские (Full, SDH)Продолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E611F0B351898EE681971384AC0AB17DA2268AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038093   (608360) от 27.07.2016
+
+Сарбджит / Sarbjit (2016) DVDRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о Сарбджите Сингхе, который 23 года отсидел в пакистанской тюрьме и был приговорен к смерти за шпионаж и причастность к серии взрывов в пакистанской провинции Пенджаб в 1990 году. Его семья настаивала на том, что он — всего лишь фермер, который случайно пересек границу с Пакистаном и был принят за другого человека...Производство: ИндияЖанр: Драма,история,биографияРежиссер: Омунг КумарАктеры: Рандип Худа, Айшвария Рай, Рича Чадда, Даршан Кумар, Анкита Шривастава, Анкур Бхатия, Арбаз Али Кхан, Чаранприт СингхПеревод: Профессиональный двухголосый (Давид Петросян и Маргарита Сахно)Субтитры: Русские (вшитые,неотключаемые на песни)Продолжительность: 02:12:06Реклама: рекламы нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DEB81C14D48ACF880B7D1E311D7CABE44E2514
 ```
 
 https://mybot314.ru/tekegram_catalog/

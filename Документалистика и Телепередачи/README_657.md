@@ -1,29 +1,3 @@
-###  Публикация: 1615367   (202269) от 25.02.2023
-
-Мариуполь. Хроники ада / Маріуполь. Хроніки пекла (2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Мариуполь — разрушен, но непокорен. Город на востоке Украины с населением почти полмиллиона человек пережил оккупацию, полное разрушение и гуманитарную катастрофу. Оккупанты уничтожали гражданских, не позволяя бежать. В этом фильме рассказ выживших о жизни в аду и в конце концов о спасении.Производство: УкраинаЖанр: документальныйРежиссер: Елизавета ТатариноваЯзык озвучки: русский, украинскийСубтитры: английские (hardsub)Продолжительность: 01:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580245B9A09C6F7E02EC134479455C6CC0FB3563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615485   (202230) от 26.02.2023
 
 Юджин Леви: Путешественник поневоле / The Reluctant Traveler with Eugene Levy (2023) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-8 из 8) [EN / RU, UKR, EN Sub]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202230.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202158.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202155.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202152.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202126.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ GAC GS8: преимуществ и недостатки кроссовера и�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202123.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202047.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201966.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201936.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201769.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201718.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201702.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201680.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201676.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201631.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201511.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201461.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201401.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201302.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201272.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201241.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201149.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201009.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200862.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200822.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE32D8C419991FBE416269D58DD96E0FF25EB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620924   (200693) от 27.03.2023
+
+Вторая мировая война: Секреты с воздуха / World War II: Secrets from Above (2022) WEB-DL [H.264/720p] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мы летим над печально известными местами сражений Дня Д и Дюнкерка, парим над скрытыми нацистскими бункерами и скользим по затерянным линкорам и затонувшим кораблям — мы раскрываем секреты Второй мировой войны — совершенно по-новому.Производство: ВеликобританияЖанр: документальныйПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские, немецкие, испанские и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8376E4898A10845F3B8FC1DAF65C939673E23CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

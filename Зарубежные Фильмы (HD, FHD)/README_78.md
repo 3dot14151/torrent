@@ -1,55 +1,3 @@
-###  Публикация: 1460605   (1022355) от 06.04.2021
-
-Оборотень / The Wolf of Snow Hollow (2020) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ужас охватывает небольшой городок: жестоко растерзанные трупы появляются в каждую полную луну. Потрепанный жизнью офицер Маршал берется за расследование, даже не подозревая, что оно пошатнет его представление о добре и зле.Производство: США / Orion Classics, New Form, Vanishing AngleЖанр: Ужасы, комедия, детективРежиссер: Джим КаммингсАктеры: Джим Каммингс, Рики Линдхоум, Роберт Форстер, Хлоя Ист, Уилл Мэдден, Энни Хэмилтон, Джимми Татро, Ханна Элдер, Келси Эдвардс, Скайлер БайблПеревод: Дублированный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6421DBF6D2A3597E12196AE46406BACB353458B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460594   (1022350) от 06.04.2021
-
-Мавританец / The Mauritanian (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Не получив официальных обвинений и возможности защиты в суде, Мохаммед Ульд Слахи провел в тюрьме Гуантанамо более 6 лет. Только после этого он был удостоен права иметь адвокатов. Но и им в борьбе с правительственной машиной предстоит побороть личные сомнения.Производство: Великобритания, США / Wonder Street, 30WEST, BBC FilmsЖанр: Биография, драма, триллерРежиссер: Кевин МакдональдАктеры: Джоди Фостер, Тахар Рахим, Закари Ливай, Саамер Усмани, Бенедикт Камбербэтч, Nouhe Hamady Bari, Saadna Hamoud, Mohamed Yeslem Mousse, Mohamed Abderrahmane Arava, Aly DeydeПеревод: Дублированный, Многоголосый закадровый, АвторскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full)Продолжительность: 02:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2068CF0410DE852D6CC3477292E1292BCEEDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460768   (1022345) от 06.04.2021
 
 Мавританец / The Mauritanian (2021) WEB-DLRip [H.265/1080p-LQ] [HDR, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022345.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022344.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022336.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022325.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022228.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022227.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022225.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022215.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022214.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022212.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022199.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022190.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022186.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022185.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022182.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022178.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022177.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022156.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022150.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022139.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022061.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022043.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022040.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022034.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC136CE6D4395A0B71CC2A9E2642A59F41AA49B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461000   (1022023) от 08.04.2021
+
+Охотник на монстров / Monster Hunter (2020) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Параллельно нашему миру существует иной — мир, где правят крайне опасные и наделенные невероятной силой монстры. Именно сюда через пространственный портал попадают лейтенант Артемис и ее отряд элитных бойцов. И теперь им предстоит проверить себя на прочность перед лицом невиданной ранее угрозы. Пытаясь выжить и найти дорогу домой, Артемис объединяет силы с местным (   Читать дальше...   )Производство: США, Китай, Германия, Япония / Capcom Company, Constantin Film, Impact Pictures, Tencent Pictures, Toho CompanyЖанр: Фэнтези, боевик, приключенияРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Тони Джа, Рон Перлман, Ти-Ай, Диего Бонета, Миган Гуд, Джош Хелман, Джин О-Юн, Хирона Ямадзаки, Янник Шуманн и др.Перевод: Дублированный (Лицензия)Субтитры: Русские (Forced, 3 x full), английскиеПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059E3E1BE44F30EE1D4D3B7EDC8F270DFA491FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461050   (1022022) от 08.04.2021
+
+Дать дуба в округе Юба / Breaking News in Yuba County (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неприметная и тихая Сью Баттонс мечтает о крупице внимания и уважения, но не получает этого ни на работе, ни дома. Однажды ее муж таинственным образом исчезает. Словно услышанная Вселенной, женщина вмиг оказывается в лучах славы. Благо сестра работает на телевидении. Вот только «скелет в шкафу» Сью вдобавок к дотошным копам ставит на уши криминальную банду округа. (   Читать дальше...   )Производство: Великобритания, США / AGC Studios, Nine Stories Productions, Sarma Films, The Black List, Wyolah FilmsЖанр: Триллер, драма, комедия, криминалРежиссер: Тейт ТейлорАктеры: Эллисон Дженни, Мила Кунис, Реджина Холл, Аквафина, Ванда Сайкс, Эллен Баркин, Мэттью Модайн, Джимми Симпсон, Кеонг Сим, Джульетт ЛьюисПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D172DB367B93887FAC18D8F765717745508C42CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

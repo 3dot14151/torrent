@@ -1,85 +1,3 @@
-###  Публикация: 1711515   (61288) от 30.03.2024
-
-Юрий Винокуров, Cyberdawn | Железные рыцари (Книга 1) (2024) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что делать молодому человеку, оставшемуся сиротой и воспитанному киборгом?Правильно! Идти в Имперскую Академию и учиться на пилота боевого робота! Очевидно же – в любой непонятной ситуации, залазь в боевого меха и показывай всем кузькину мать!!!«Чтобы что?" – спросите вы. На этот вопрос ответа у нас нет. Но, в процессе написания книги, мы попытаемся с этим разобраться… (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаИздательство: ЛитРес: чтец, АвторПродолжительность: 11:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF94BA13CFC62E437234C2EDCDB5554E6548F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711517   (61275) от 30.03.2024
-
-Дмитрий Мазуров | Ядовитый туман (Книга 1). Демон тумана (2024) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда-то я был обычным мальчишкой, что наслаждался своей беззаботной жизнью.
-Но в одну ужасную ночь всё изменилось. Деревню разорили. Моих родителей – убили. Меня самого продали как раба и заперли где-то под землёй.
-И всё ради того, чтобы воспитать убийцу, что будет абсолютно верен этим уродам.
-Что же, пусть будет так. Я воспользуюсь ими, чтобы стать сильнее и отомстить.(   Читать дальше...   )Жанр: Боевое фэнтези Бояръ-анимеИздательство: ЛитРес, АвторПродолжительность: 08:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830AAED4D7E8CAF0B965CAFC74B514A86DD9A295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 424713   (61227) от 31.03.2024
-
-Чарльз Диккенс | Чёрное покрывало (2011) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Чарльз Диккенс (1812–1870) – один из самых знаменитых английских романистов, прославленный создатель ярких комических характеров, искусный рассказчик и публицист.
-Если вы знакомы с творчеством Чарльза Диккенса, то старая добрая Англия вам хорошо известна и дорога. Этот сборник рассказов, как и любые другие произведения великого англичанина, никого не оставит равнодушным.Жанр: Зарубежная литература, классика, рассказИздательство: МедиаКнигаПродолжительность: 08:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B310D0697F922C5D5DE153C843C468BBBDD3629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 374896   (61219) от 31.03.2024
 
 Чарльз Диккенс | Тайна золотого мусорщика (Радиоспектакль) (2005) [MP3, Наталья Данилова и др.]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61219.jpg" />
 </div>
 
 
@@ -117,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61206.jpg" />
 </div>
 
 
@@ -143,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61185.jpg" />
 </div>
 
 
@@ -169,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61114.jpg" />
 </div>
 
 
@@ -197,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61112.jpg" />
 </div>
 
 
@@ -223,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61090.jpg" />
 </div>
 
 
@@ -249,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61089.jpg" />
 </div>
 
 
@@ -275,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61084.jpg" />
 </div>
 
 
@@ -301,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60986.jpg" />
 </div>
 
 
@@ -327,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60975.jpg" />
 </div>
 
 
@@ -353,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60964.jpg" />
 </div>
 
 
@@ -379,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60959.jpg" />
 </div>
 
 
@@ -405,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60948.jpg" />
 </div>
 
 
@@ -433,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60946.jpg" />
 </div>
 
 
@@ -460,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60923.jpg" />
 </div>
 
 
@@ -488,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60920.jpg" />
 </div>
 
 
@@ -515,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60908.jpg" />
 </div>
 
 
@@ -543,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60895.jpg" />
 </div>
 
 
@@ -570,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60885.jpg" />
 </div>
 
 
@@ -596,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60882.jpg" />
 </div>
 
 
@@ -622,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60868.jpg" />
 </div>
 
 
@@ -648,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60867.jpg" />
 </div>
 
 
@@ -676,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60865.jpg" />
 </div>
 
 
@@ -687,6 +605,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3809FC445C3EAE2C781736400B96E4B4A75159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712873   (60775) от 04.04.2024
+
+Матвей Курилкин | Мастер проклятий (Книга 1). Мастер проклятий (2024) [MP3, Sibiryak]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я попал в магический мир, где старые боги мертвы. Новый бог жесток. Я не смог спасти свою семью, но спас и заполучил в услужение богиню беды и слепого безумия. Если смертный ввязывается в дела богов, жизнь у него получается очень сложная. Но чтобы отомстить за родных я готов убить даже бога. И мне плевать, что одержимость местью до добра не доведёт. У меня есть редкий, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 11:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3565C1962746F0C58C9A7E5AD8ADD3CDD222E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713068   (60756) от 04.04.2024
+
+Вай Нот, Аристарх Риддер, Крис Форд | Председатель (Книга 4) (2024) [MP3, Александр Воробьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правила техники безопасности пишутся не просто так. За сорок лет трудового стажа я это хорошо усвоил. А вот один молодой олух забыл простое правило, что нельзя включать рубильник, который выключил не ты. И вместо обычного рабочего дня мне достался разряд тока, после которого я очутился не в больнице, а в купе советского поезда пятьдесят два года назад. И, похоже, (   Читать дальше...   )Жанр: Альтернативная история, Социальная фантастикаИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12AEF73818A7A17C4CAADDCCFC8299D833EC3728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351082   (60682) от 05.04.2024
+
+Александр Грин | Джесси и Моргиана (2006) [MP3, Светлана Рыжова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Степанович Грин (1880–1932) – русский писатель, прозаик и поэт, представитель неоромантизма, автор философско-психологических произведений с элементами символической фантастики. Создатель вымышленной страны, которая благодаря критику К.Л. Зелинскому получила название «Гринландия». Один из самых талантливых, загадочных русских писателей первой половины XX (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: КнигафонПродолжительность: 06:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608091ADCAB422281526D55CE190EEDAE08DFBCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

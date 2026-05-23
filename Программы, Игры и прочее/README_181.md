@@ -1,55 +1,3 @@
-###  Публикация: 1820361   (352) от 28.09.2025
-
-FBReader Premium v3.8.18 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 26.09.2025Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684F0C67C8B85C5BEE8C5807035726B3571A0251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820575   (344) от 28.09.2025
-
-Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.1.2 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ваш Android не распознаёт подключенный к нему USB-носитель? Вероятно, файловая система внешнего накопителя не поддерживается устройством. Установите приложение Microsoft exFAT/NTFS for USB by Paragon Software, чтобы монтировать систему внешнего USB-накопителя и управлять файлами прямо с вашего Android-устройства.Тип издания: Pro / Extra ModРелиз состоялся: 28.09.2025Разработчик: Paragon Technologie GmbHПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C915FA054CECA8B08FEB5E2F52A464E08C61A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820720   (335) от 28.09.2025
 
 AI Photo Editor - AIFoto v1.15.3 Mod by Mixroot [Ru/Multi]
@@ -58,7 +6,7 @@ AI Photo Editor - AIFoto v1.15.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_335.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_334.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ FacePic - AI Face App v2.9.4 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_330.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ Vanced Tube v5.4.80.375 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_324.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ Moon+ Reader Pro v10.2 (b1002000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_320.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_317.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ Folder Player Pro v5.36 b353 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_315.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_314.jpg" />
 </div>
 
 

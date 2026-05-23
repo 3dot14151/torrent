@@ -1,55 +1,3 @@
-###  Публикация: 1101940   (892164) от 08.02.2017
-
-Призм / Prism (2015) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В будущем открыта новая технология по добыче энергии из цвета. В центре сюжета — деколоратор Дэн Ворнин. Он связан с корпорацией «Люмокорп», которой подвластно добывать энергию из цвета. В городе Призм живет один человек и работает на обычной должности. Неожиданно странная страсть к рисованию становится причиной пристального внимания к нему со стороны руководства…Производство: СШАЖанр: Фантастика, триллер, драма, короткометражныйРежиссер: Джексон МиллерАктеры: Джей Бразерс, Чейс Карджилл, Джон Эддингс, Джереми Ли Эванс, Оливия Джеймс, Герин Пирси, Гари ШтурмПеревод: Любительский двухголосый (DeeAFilm Studio)Субтитры: ОтсутствуютПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEA4578A31F844DA9300213254206B19BE253E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102065   (892161) от 08.02.2017
-
-Монстр / Секс террорист / Il mostro (1994) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Лорис - безобидный мелкий мошенник, погрязший в долгах и вынужденный скрываться от кредиторов.Лорис все время от кого-то прячется, пытается заигрывать с женщинами, вечно перебегает дорогу в неположенных местах, и вообще, ведет очень подозрительный образ жизни...Производство: Италия, Canal Plus,IRIS Films, La Sept CinmaЖанр: КомедияРежиссер: Роберто БениньиАктеры: Роберто Бениньи , Мишель Блан , Жан-Клод Бриали , Франко МесколиниПеревод: Многоголосый закадровый, Одноголосый  закадровыйПродолжительность: 01:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8991F60BCFB13262BF73D48F718F98B1A47C0F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493978   (892153) от 05.09.2021
 
 Годзилла против Конга / Godzilla vs. Kong (2021) DVD9 [Custom]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892153.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892129.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892090.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892069.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892043.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892011.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892005.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891996.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891992.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ SuperПерцы / Superbad (2007) BDRip [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891990.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891960.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891929.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891921.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891912.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891906.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891893.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891874.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891862.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891859.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891856.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891852.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891847.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891846.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891844.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C5247C801C6BEA742CFFCF716C6A93680BEDBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493622   (891818) от 05.09.2021
+
+Дикий округ / Feral State (2020) WED-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харизматичный аферист и самопровозглашенный «отец забытого» по имени Мак Монро живет в кишащих аллигаторами болотах и ​​полуразрушенных трейлерных парках. Он принимает сирот и беглецов как своих собственных и дает им единственное подобие дома, который у них когда-либо было - но какой ценой? Мак обучает свою разнообразную банду искусству воровства и преступности, (   Читать дальше...   )Производство: США / Sunchaser FilmsЖанр: ТриллерРежиссер: Джон КарлоАктеры: АннаЛинн МакКорд, Ронни Джин Блевинс, Октавио Писано, Вероника Бёрджесс, Джейден Пайнер, Sif Saga, Jasmine Tamposi, Шарлотта Катрин Барлоу, Anthony Tamposi, Рональд Джеймс Хофф мл.Перевод: Профессиональный многоголосый (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full)Продолжительность: 01:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F232A9A374B550796DF2053B1C7738F892309252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493859   (891816) от 05.09.2021
+
+Не дыши 2 / Don't Breathe 2 (2021) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не дыши 2 - американский фильм в жанре триллера и ужасов режиссёра Родо Сайягеса, сиквел фильма Не дыши 2016 года. Главную роль в фильме исполнил Стивен Лэнг. Фильм вышел 13 августа 2021 года. После событий первого фильма слепой Норман Нордстром скрывался несколько лет в отдалённой хижине, где воспитывал девочку, осиротевшую после пожара. Их спокойная жизнь закончилась, (   Читать дальше...   )Производство: США, Сербия, Screen Gems, Stage 6 Films, Ghost House PicturesЖанр: Ужасы, триллерРежиссер: Родольфо СаягесАктеры: Стивен Лэнг, Брендан Секстон III, Мэдлин Грэйс, Стефани Арсила, Диана Бабницова, Стеффан Родри, Бобби Шофилд, Рокки Уильямс, Адам Янг, Кристиан СахиаПеревод: Любительский двухголосый (Pazl Voice) Tnx.KinoPubЯзык озвучки: Русский, АнглийскийСубтитры: Русские (full), Английские (full, SDH)Продолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041548409A15BEF0EED14AAF33F2B8069AA2140A
 ```
 
 https://mybot314.ru/tekegram_catalog/

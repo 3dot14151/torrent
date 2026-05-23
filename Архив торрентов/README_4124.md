@@ -6,7 +6,7 @@ Topaz DeNoise AI 2.3.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170413.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Psygressive Vol. 6 (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170410.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Sumatra PDF 3.2.11582 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170406.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Mate Translate 8.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170404.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ O&O DiskImage Professional 18.2 Build 196 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170402.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Capture One 21 Pro 14.0.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170397.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ocenaudio 3.11.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170395.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VueScan Pro 9.7.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170380.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ DiskTrix UltimateDefrag 6.0.46.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170378.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Psygressive Vol. 5 (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170373.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ GoodNotes 5 v5.7.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170372.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Topaz Sharpen AI 2.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170364.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Live Home 3D Pro Edition 4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170356.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Adobe Flash Player 32.0.0.303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170349.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Topaz Photo AI for Mac 2.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170344.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ SanDisk SSD Dashboard 3.2.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170343.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ CPU-Z 1.91.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170340.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Avast Free Antivirus 20.10.2442 (build 20.10.5824.618) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170336.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Photo Supreme 2023.2.0.5078 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170326.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Art Text 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170323.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Macrorit Partition Expert 7.1.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170320.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Radiant Photo 1.1.2.324 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170307.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Wireshark 4.0.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170302.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Emsisoft Emergency Kit 2022.12.0.11730 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170300.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Auslogics Windows Slimmer 2.2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170296.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ LibreOffice 7.4.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170286.jpg" />
 </div>
 
 

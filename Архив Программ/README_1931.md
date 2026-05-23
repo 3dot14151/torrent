@@ -6,7 +6,7 @@ WinContig 3.0.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153263.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Freemake Mega Pack 3.2 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153255.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SUMo Pro 4.2.4.297 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153254.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CPUID HWMonitor PRO 1.49 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153249.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics BoostSpeed 10.0.1.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153220.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PDF-XChange PRO 8.0.335.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153209.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ uTorrent Pro 3.5.5 Build 44954 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153201.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MiniTool Partition Wizard Technician 11.6 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153197.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mozilla Thunderbird 115.4.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153194.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ditto 3.21.223.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153178.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Free Video Call Recorder for Skype 1.2.40 build 1223 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153170.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153167.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Bat! Professional 9.3.2.0 Christmas Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153157.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Clipdiary 5.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153153.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ mp3DirectCut 2.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153143.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ TweakNow WinSecret Plus! 4.9.15 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153134.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Opera TOR Web Browser 57.0.3098.106 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153113.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153108.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ CoolUtils Total Mail Converter 4.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153096.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Telegram Desktop 2.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153076.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ CCleaner Browser 77.1.1836.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153075.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153060.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Mozilla Firefox 43.0.2 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153054.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Sandboxie 5.55.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153043.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Wondershare PDFelement 10.1.7.2541 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153033.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Techsmith Snagit 2018.0.2 Build 662 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153032.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft Edge 106.0.1370.52 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221508.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Photoshop CC 2015.1.1 (20151209.r.327) Portable by PortableWares [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221484.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop CC 2015.1.1 (20151209.r.327) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221471.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SRWare Iron 105.0.5350.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221468.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Total Commander 8.52a Extended Full | Lite 15.12 RePack (&Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221454.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AOMEI Partition Assistant Technician Edition 9.0.0 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221453.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ GoldWave 6.67 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221392.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ HWiNFO 7.31 Build 4890 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221384.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ R-Wipe & Clean 20.0 Build 2219 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221361.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WinSCP 5.17.9 Build 10905 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221359.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mozilla Firefox Quantum ESR 60.4.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221293.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Display Driver Uninstaller 18.0.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221208.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VSO Downloader Ultimate 2.9.14.4 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221193.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PDF24 Creator 8.7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221189.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ LibreWolf 106.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221182.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Rufus 3.13 (Build 1730) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221124.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Chromium 115.0.5790.171 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221097.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Opera 65.0.3467.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221083.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Glary Disk Cleaner 5.0.1.294 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221051.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Find Same Images OK 5.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221045.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Wallpaper Engine 2.2.18 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221039.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ K-Lite Codec Pack Update 12.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221022.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Adobe Acrobat Pro 2022.003.20263 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221018.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220989.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Run-Command 3.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220978.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Paint.NET 4.1.5 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220954.jpg" />
 </div>
 
 

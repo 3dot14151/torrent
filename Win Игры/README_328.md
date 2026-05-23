@@ -1,29 +1,3 @@
-###  Публикация: 1575622   (208405) от 10.09.2022
-
-The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Коллекция пасьянсов Zachtronics уже здесь! Внутри вы найдете семь совершенно уникальных пасьянсов, изначально разработанных как мини-игры для выпусков 2016–2022 гг., дополненных новой графикой 4K, а также один совершенно новый вариант пасьянса, который можно найти только в этой коллекции.Тип издания: LicenseРазработчик: ZachtronicsЖанр: Инди, Головоломка, Казуальная, Карточная играЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40C620296DFB860D44C4CF9F28BE2EB6B5B625F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648443   (208245) от 23.07.2023
 
 Showgunners (2023) [Ru/Multi] (1.1.0_53480/dlc) Scene Rune
@@ -32,7 +6,7 @@ Showgunners (2023) [Ru/Multi] (1.1.0_53480/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208245.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Immortal Love 10: Polar Lights / Бессмертная любовь 10: Сев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208174.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ STORY OF SEASONS: A Wonderful Life (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208133.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Rhythm Sprout: Sick Beats & Bad Sweets (2023) [Ru/Multi] (1.005b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208130.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208126.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Legend of Grimrock (2012) [En] (1.3.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208105.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Whispered Secrets 14: Purrfect Horror / Нашептанные секреты 14
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208096.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystical Riddles 3: Ship From Beyond (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208045.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.5) License GOG [Legendary Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208034.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207920.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ King of Retail (2022) [Ru/Multi] (1.0.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207886.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Viking Heroes 3 / Герои викинги 3 (2022) [Ru] (1.0) Unofficial [Coll
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207880.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9500/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207857.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ It Happened Here 2: Beacon of Truth (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207825.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Foretales (2022) [Multi] (1.1.4127) License GOG [Deluxe Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207732.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Split (2022) [Ru/Multi] (0.9.20) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207643.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sylphy and the Sleepless Island (2021) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207629.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Cursed Fables 3: A Voice to Die For / Проклятые предания 3: Г�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207564.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.1.8b3/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207520.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Cursed House 11 / Проклятый дом 11 (2022) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207443.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ One Dreamer (2022) [En] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207342.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207143.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207139.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207132.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.725) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207113.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Tennis Manager 2023 - это проработанный спортивный с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1006BB2571DB68FC81F38AE61973675C30654D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650949   (207101) от 04.08.2023
+
+Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективно-интригующей серии игр Dark City. Расследование предполагаемого спиритического мошенничества оказалось неудачным. Однако при этом раскрывается гораздо более темная и сложная изнанка мистического города Киева. Вы будете играть за известного детектива в городе тайн и паранормальных явлений, пытаясь понять, кому можно доверять среди ваших друзей (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711A375948E07BD8CAF8D21F0B536D8F88E9B85C
 ```
 
 https://mybot314.ru/tekegram_catalog/

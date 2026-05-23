@@ -1,55 +1,3 @@
-###  Публикация: 912997   (606583) от 28.06.2015
-
-Седьмой сын / Seventh Son (2014) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рассказ в фильме пойдет про парня, который, так уж вышло, стал седьмым сыном седьмого сына. А только такой человек может стать ведьмаком. Но этого недостаточно, чтобы именовать себя так — необходимо пройти массу тренировок, а также усердно учиться. Ведь главное оружие ведьмака — это его ум. Хоть в народе их не любят, но кто-то же обязан убивать нечисть, хранить землю (   Читать дальше...   )Производство: США, Великобритания, Канада, Китай / Universal Pictures, Legendary Pictures, Pendle Mountain ProductionsЖанр: Фэнтези, приключенияРежиссер: Сергей БодровАктеры: Бен Барнс, Джефф Бриджес, Джулианна Мур, Алисия Викандер, Антье Трауэ, Оливия Уильямс, Джон ДеСантис, Кит Харингтон, Джимон Хонсу, Джерард ПланкетПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, чешский, венгерский, польский, русский, болгарский, хорватский, эстонский, греческий, иврит, латышский, литовский, румынский, словенский, украинскийПродолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DD57DE74A132454A7B3B15A0826CB6A019893D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913039   (606582) от 28.06.2015
-
-Снайпер / American Sniper (2014) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация мемуаров «морского котика» из Техаса Криса Кайла, который служил снайпером в Ираке и стал рекордсменом по числу убитых солдат противника, за что иракцы прозвали его дьяволом. Кроме самой войны, фильм рассказывает о воспоминаниях жены Криса, которая была свидетелем растущей привязанности мужа к его сослуживцам.Производство: США / Warner Bros. Pictures, Village Roadshow Pictures, RatPac-Dune Entertainment, Mad Chance Productions, 22 & Indiana Pictures, Malpaso ProductionsЖанр: Боевик, триллер, военный, биографияРежиссер: Клинт ИствудАктеры: Брэдли Купер, Сиенна Миллер, Кайл Галлнер, Коул Конис, Бен Рид, Элиз Робертсон, Люк Саншайн, Трой Винсент, Брэндон Сальгадо, Кейр О`ДоннеллПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, болгарский, хорватский, эстонский, латышский, литовский, польский, русский, словенский, турецкий, украинскийПродолжительность: 02:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59093314586D4C8F7616CB961E8540A393D9492D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912971   (606579) от 28.06.2015
 
 Восхождение Юпитер / Jupiter Ascending (2015) DVD9
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606579.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606575.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606572.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606569.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606565.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606538.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606519.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_606494.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606473.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606469.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606443.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606437.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606434.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606424.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606421.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606418.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606368.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606363.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606319.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606318.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606315.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606311.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606308.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606307.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D92C84B96EBEA03B75232CF369A4A7E8007D4262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913066   (606305) от 28.06.2015
+
+Большая игра / Big Game (2014) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606305.jpg" />
+</div>
+
+
+###  Подробнее
+
+История робкого подростка по имени Оскари. Как и его прадеды, согласно традициям, мальчик должен провести один день и одну ночь в непроходимой глуши. Вооружённый только луком и стрелами, он должен вернуться с добычей, которая ознаменует его становление как мужчины. Кто бы мог подумать, что такой добычей станет президент США! Вот так судьба одного из самых влиятельных (   Читать дальше...   )Производство: Финляндия, Великобритания, Германия, Subzero Film Entertainment, Altitude Film Entertainment, Egoli Tossell FilmЖанр: Боевик, ПриключенияРежиссер: Ялмари ХеландерАктеры: Сэмюэл Л. Джексон, Онни Томмила, Рэй Стивенсон, Виктор Гарбер, Мехмет Куртулус, Тед Левайн, Йорма Томмила, Ристо Сэлми, Фелисити Хаффман, Джим БродбентПеревод: ДублированныйПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECAB743385BF57FA03EDEF6DCC2AC452D354236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913159   (606293) от 28.06.2015
+
+Дом у озера / The Lake House (2006) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима 2006 года. Ощутив необходимость изменить свою жизнь, доктор Кейт Форестер покидает свой необычный дом у озера в пригороде Иллинойса и устраивается на работу в чикагскую больницу. Единственное, о чем жалеет Кейт, так это о своем красивом доме с огромными окнами, который дарил ей душевное спокойствие. По дороге в город Кейт оставляет в почтовом ящике письмо, которое (   Читать дальше...   )Производство: США, Австралия / Sound for Film Inc., Vertigo Entertainment, Village Roadshow Pictures, Warner Bros. PicturesЖанр: Фэнтези, Драма, МелодрамаРежиссер: Александро АгрестиАктеры: Киану Ривз, Сандра Баллок, Кристофер Пламмер, Эбон Мосс-Бакрак, Виллеке ван Аммельрой, Дилан Уолш, Шоре Агдашлу, Линн Коллинс, Майк Бакарелла, Кевин БреннанПеревод: Дублированный, двуголосый закадровый, авторскийЯзык субтитров: РусскийПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1247242522EDC88D3060DF06C44F459701FC9B08
 ```
 
 https://mybot314.ru/tekegram_catalog/

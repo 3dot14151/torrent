@@ -6,7 +6,7 @@ Movie Collector Pro 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180223.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OfficeSuite Pro + PDF 13.4.44775 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180222.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180219.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Perfectly Clear WorkBench 4.6.0.2603 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180218.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Rottenwood 1.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180216.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Zoner Photo Studio X 19.2309.2.497 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180213.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dark Reader for Safari 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180202.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180192.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180190.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ NetLimiter 5.3.4.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180189.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Draw.io 22.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180184.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ PCDJ DEX 3.15.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180166.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ IceCream Ebook Reader Pro 6.37 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180158.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ JPEG SILKYPIX Photography 10 v10.2.9.2 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180147.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Serial 2 v2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180143.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Numi 3.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180139.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ OCCT 12.1.8 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180134.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Topaz Video AI 3.5.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180130.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ NetLimiter 5.3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180126.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MX Player Pro 1.51.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180125.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Network Kit X 8.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180122.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Glary Utilities Pro 5.211.0.240 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180090.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wondershare UniConverter Ultimate 15.0.2.12 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180081.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Zoc Terminal 8.01.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180056.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Bartender 4 v4.0.28b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180054.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ WinTools.net Premium 23.10.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180024.jpg" />
 </div>
 
 

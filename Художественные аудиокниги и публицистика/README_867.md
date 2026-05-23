@@ -1,84 +1,3 @@
-###  Публикация: 293029   (144896) от 21.11.2023
-
-Жозеф Бедье | Тристан и Изольда (2006) [MP3, Степан Старчиков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Это одна из самых знаменитых историй о любви. Всемирно известный рыцарский «Роман о Тристане и Изольде» завоевал популярность в стилизованном пересказе французского писателя Жозефа Бедье (1864–1938). Роман о Тристане и Изольде восходит к старинной кельтской легенде из знаменитого Цикла о короле Артуре. Легенда рассказывает о любви рыцаря Тристана и жены корнуэльского (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: СиДиКом, ЭлитайлПродолжительность: 05:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80732C3A99CE5EC8B77E3C8D6718006377221EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280982   (144887) от 21.11.2023
-
-Стендаль | Пармская обитель (Радиоспектакль) [2007] [MP3, Юрий Яковлев, Анна Бари]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива Гостелерадиофонда.
-Радиоспектакль по роману Стендаля «Пармский монастырь».
-В романе Стендаля есть все: битвы и подвиги Наполеоновской эпохи, любовь и измены, поединки чести, тайны и разоблачения. Написанный всего за 52 дня, этот роман раз и навсегда завоевал небывалую популярность и любовь читателей. Судьба молодого маркиза Фабрицио полна драматических (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Элитайл, СиДиКомПродолжительность: 02:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7DC8EB570AFD628781E4F44773E12740DF62D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969326   (144879) от 28.12.2015
-
-Генри Лайон Олди | Клинки Ойкумены (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Первая часть романа-эпопеи «Побег на рывок».
-Диего Пераль – скромный учитель фехтования. Сын знаменитого драматурга, в прошлом – солдат, дон Диего равнодушен к космическим соблазнам Ойкумены. Казалось бы, его судьба – рапира да кинжал, выпады и защиты. Но жизнь маэстро делает крутой поворот, уподобившись пьесам Пераля-старшего: любовь, страсть, юная дочь гранда Эскалоны, (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастикаПродолжительность: 12:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F611C9F3F46E359E9EF84C31F87742BCD9A5466E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 335187   (144839) от 21.11.2023
 
 Джордж Гордон Байрон | Манфред (Аудиоспектакль) (2009) [MP3, Михаил Поздняков и др.]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144839.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144837.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144757.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144753.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144717.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144656.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144623.jpg" />
 </div>
 
 
@@ -276,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144591.jpg" />
 </div>
 
 
@@ -304,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144551.jpg" />
 </div>
 
 
@@ -333,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144537.jpg" />
 </div>
 
 
@@ -359,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144482.jpg" />
 </div>
 
 
@@ -386,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144288.jpg" />
 </div>
 
 
@@ -412,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144271.jpg" />
 </div>
 
 
@@ -438,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144261.jpg" />
 </div>
 
 
@@ -464,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144238.jpg" />
 </div>
 
 
@@ -491,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144145.jpg" />
 </div>
 
 
@@ -517,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144118.jpg" />
 </div>
 
 
@@ -545,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144104.jpg" />
 </div>
 
 
@@ -571,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144099.jpg" />
 </div>
 
 
@@ -597,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144060.jpg" />
 </div>
 
 
@@ -623,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143925.jpg" />
 </div>
 
 
@@ -651,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143883.jpg" />
 </div>
 
 
@@ -679,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143864.jpg" />
 </div>
 
 
@@ -690,6 +609,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A1D5F985643823812527C859B7D6B817EA5010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678662   (143844) от 22.11.2023
+
+Питер Акройд | Король Артур и рыцари Круглого Стола (2016) [MP3, Надежда Винокурова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга классика современной британской литературы Питера Акройда — увлекательный рыцарский роман, написанный на основе произведения Томаса Мэлори (XIV в.). Это виртуозный пересказ легенд о короле Артуре и первом рыцаре Ланселоте, о любви Тристрама и Изольды, о пророке Мерлине и злой Фее Моргане, об отважных рыцарях Круглого стола, о духовных и земных испытаниях (   Читать дальше...   )Жанр: Зарубежная литература, исторические приключенияИздательство: Нигде не купишьПродолжительность: 13:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F5470EC8C451DD027C0F6D3FC9E834B2BE9CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678725   (143832) от 22.11.2023
+
+Евгений Петров | Даровитая девушка (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143832.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Героиня этого рассказа послужила прототипом для появившейся позднее в известном романе Эллочки-Людоедочки Щукиной." (с)Жанр: Юмор, РассказИздательство: Аудиокнига своими рукамиПродолжительность: 00:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D059B3BBAB0754C6E83A75BE00BFA6B8060DF9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520183   (143814) от 27.12.2021
+
+Эмма Хоутон | Тьма (2021) [MP3, Юлия Бочанова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один труп. Двенадцать подозреваемых. и абсолютная темнота.
+Личная трагедия окончательно выбила Кейт Норт из колеи, поэтому, когда ей выпадает шанс заменить врача на исследовательской станции в Антарктике, она с радостью соглашается, надеясь, что это поможет ей прийти в себя. Смена обстановки кажется Кейт идеальным решением. Даже несмотря на то, что ее предшественник, (   Читать дальше...   )Жанр: Современные детективыПродолжительность: 11:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D2F73CDFBC9650049C8DC04BF19B724991B588
 ```
 
 https://mybot314.ru/tekegram_catalog/

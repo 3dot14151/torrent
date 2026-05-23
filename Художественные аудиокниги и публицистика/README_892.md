@@ -1,85 +1,3 @@
-###  Публикация: 374024   (126693) от 22.12.2023
-
-Джером Д. Сэлинджер | Над пропастью во ржи (Радиоспектакль) (2006) [MP3, Андрей Ташков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Коллекция радиоспектаклей, Из архива «Гостелерадиофонда».
-«Над пропастью во ржи» (1951) – самый знаменитый роман Джерома Д. Сэлинджера (1919–2010), принесший автору грандиозный успех и необычайную популярность как в США, так и во всем мире. Современники приняли эту книгу как откровение. Молодые люди видели в главном герое романа, шестнадцатилетнем Холдене (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 02:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8968653DEAD3F65CB44DF727FE6185A9080B6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374023   (126684) от 22.12.2023
-
-Джером Д. Сэлинджер | Повести о Глассах (2004) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: XX век. Зарубежная проза.
-Джером Дэвид Сэлинджер – (1919–2010) известный американский писатель. Мировую известность Сэлинджеру принес роман под названием «Над пропастью во ржи».
-Повести о семье Глассов, как и знаменитый роман «Над пропастью во ржи» обращены в первую очередь к молодому читателю. Одна из героинь повестей – Фрэнни – восклицает в порыве откровения: (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 14:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000517C04D44C3FB22008DA8FECC1F1484E77DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374020   (126679) от 22.12.2023
-
-Джером Д. Сэлинджер | Девять рассказов + 1 (2004) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Зарубежная проза.
-Джером Дэвид Сэлинджер – (1919–2010) известный американский писатель. Мировую известность Сэлинджеру принес роман под названием «Над пропастью во ржи». Писатель-классик, писатель-загадка, на пике своей карьеры объявивший об уходе из литературы и поселившийся вдали от мирских соблазнов в глухой американской провинции. Книги Сэлинджера, (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 06:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D3FB33EBF89063E5095E33650BEC0A5EF44E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686202   (126658) от 22.12.2023
 
 Андрей Панченко | Китобой. Книга 1 (2023) [MP3, Fan12]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126658.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126655.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126645.jpg" />
 </div>
 
 
@@ -168,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126626.jpg" />
 </div>
 
 
@@ -195,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126616.jpg" />
 </div>
 
 
@@ -221,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126615.jpg" />
 </div>
 
 
@@ -249,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126597.jpg" />
 </div>
 
 
@@ -277,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126594.jpg" />
 </div>
 
 
@@ -305,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126591.jpg" />
 </div>
 
 
@@ -331,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126585.jpg" />
 </div>
 
 
@@ -357,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126575.jpg" />
 </div>
 
 
@@ -383,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126551.jpg" />
 </div>
 
 
@@ -409,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126542.jpg" />
 </div>
 
 
@@ -436,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126511.jpg" />
 </div>
 
 
@@ -462,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126509.jpg" />
 </div>
 
 
@@ -488,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126498.jpg" />
 </div>
 
 
@@ -514,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126486.jpg" />
 </div>
 
 
@@ -541,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126481.jpg" />
 </div>
 
 
@@ -567,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126475.jpg" />
 </div>
 
 
@@ -593,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126473.jpg" />
 </div>
 
 
@@ -620,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126469.jpg" />
 </div>
 
 
@@ -648,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126451.jpg" />
 </div>
 
 
@@ -675,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126447.jpg" />
 </div>
 
 
@@ -686,6 +604,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:988C7EDB8512EF502459CE39EDD37AA86567AFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686648   (126431) от 23.12.2023
+
+Джером К. Джером | Энтони Джон. Рассказы (2009) [MP3, Денис Недолугий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Terra-Super.
+Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
+Роман «Энтони Джон» является одним из редчайших «серьёзных» произведений знаменитого английского писателя-юмориста Джерома Клапки Джерома, автора бессмертной повести «Трое в лодке, не считая собаки». Поклонникам творчества Джерома будет интересно познакомиться с этой (   Читать дальше...   )Жанр: Зарубежная литература, классика, роман, рассказИздательство: Terra-SuperПродолжительность: 06:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C8E9EDC13E1C7C1967E7ED33AA3167221177CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686653   (126419) от 23.12.2023
+
+Джером К. Джером | Энтони Джон (2014) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиокнига.
+Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
+Роман «Энтони Джон» является одним из редчайших «серьёзных» произведений знаменитого английского писателя-юмориста Джерома Клапки Джерома, автора бессмертной повести «Трое в лодке, не считая собаки». Поклонникам творчества Джерома будет интересно познакомиться с этой (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: МедиаКнигаПродолжительность: 06:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5929AD019DCDDEF4DAF3EAB800CDBC6FEFC920CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686621   (126417) от 23.12.2023
+
+Чингиз Абдуллаев | Дронго (Книга 81). Второе рождение Венеры (2023) [MP3, Татьяна Некрасова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщины коварны и непредсказуемы. В этом лишний раз убедился эксперт-аналитик Дронго, случайно, пролетом, оказавшийся на одном из островов Мадейры. Так уж совпало, что он остановился в отеле, большая часть номеров в котором заселена представительницами прекрасного пола. И какими представительницами! Все они съехались на конференцию феминисток… В ночь перед закрытием (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 05:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BBC192A0A4305AD5BC5DA1C12AE659E8A41DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

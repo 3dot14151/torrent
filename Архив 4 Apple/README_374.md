@@ -6,7 +6,7 @@ Swift Publisher 5 v5.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Claquette - Animated Screenshots 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449296.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ FontExplorer X Pro 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449286.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Fidelia 1.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449284.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MWeb: Markdown writing,note taking,static blog Gen 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449156.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Jotun v.1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449117.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Typinator 6.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449009.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Paperless 2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449002.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ CleanMyMac 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448826.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Cities: Skylines. After Dark v. 1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448816.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ JPEG Jackal 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448704.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ BetterTouchTool 2.636 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448677.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ PDF Squeezer 3.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448556.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Screenflick 2.7.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448505.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ CleanMyMac 3.1.1 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448440.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ PrefEdit 3.91 Rel.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448425.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bartender 3 Beta v.3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448394.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ PopClip 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448342.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Amadeus Pro 2.4.2 (1965) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448288.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Movist 2.0.0 b20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448074.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ iStat Menus 3.24 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447824.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MediaHuman Youtube Downloader 3.9.9.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447585.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ DSLR Assistant 3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447584.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ A Better Finder Rename 11 v11.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447581.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ A Better Finder Attributes 7 v7.00b05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447580.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Cisdem PDFMaster 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447487.jpg" />
 </div>
 
 

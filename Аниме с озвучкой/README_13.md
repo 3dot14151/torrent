@@ -6,7 +6,7 @@ Made in Abyss | Созданный в Бездне [ТВ-1] [2017, TV, 13 ep] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879597.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878424.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878414.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assista
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876898.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Hacka Doll The Animation / Цифровые куклы [2015, TV, 13] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876771.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876217.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876200.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Initial D Final Stage / Инициал Ди Финальная стадия [201
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875186.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874017.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Shin Gekijouban Initial D / New Initial D / Новый Инициал Ди [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873473.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Fairy Tail / Сказка о Хвосте феи [2011, OVA, 6] DVDrip 480p raw 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872246.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Asura / Асура (2012) BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871292.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870225.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869261.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869215.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фрукт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867755.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865974.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Code Geass Hangyaku no Lelouch R2 / Code Geass: Lelouch of the Rebellion R2 / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865969.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Kono Subarashii Sekai ni Shukufuku wo! / Этот замечательный м�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865513.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865072.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Majutsushi Orphen / Sorcerous Stabber Orphen / Волшебник-воин Ор�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863662.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863274.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Akira | Акира [1988, MV] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863221.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859730.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859225.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859224.jpg" />
 </div>
 
 

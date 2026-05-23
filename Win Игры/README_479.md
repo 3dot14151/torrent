@@ -1,29 +1,3 @@
-###  Публикация: 1759199   (37969) от 07.11.2024
-
-SOS OPS! (2023) [Ru/Multi] (05.11.2024/dlc) Repack Pioneer
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-SOS OPS! – отправьтесь навстречу забавной кооперативной игре, сюжет которой будет вращаться вокруг оригинальной станции спасения. При этом объедините усилия вместе с друзьями, эффективно задействуйте логику и решайте физические головоломки. Справитесь? Над вашим любимым городом нависла новая опасность! Поэтому постарайтесь быть всегда на связи и держите под контролем (   Читать дальше...   )Тип издания: RepackРазработчик: ArtDockЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CA4C5E6D6C386866FF12A7E16FF49E9728DB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759210   (37962) от 07.11.2024
 
 My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
@@ -32,7 +6,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37962.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37958.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37928.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Techtonica (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37918.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Repack Other s [Deluxe Edition] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37845.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37833.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37832.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9.2/dlc) Repack Other s [Home Edition] [
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37822.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (1.37.15252.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37811.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37806.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Pine Harbor (2024) [Ru/Multi] (0.17) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37802.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37798.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37783.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Speedollama (2024) [Ru/Multi] (1.4.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37781.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (build 16167669/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37753.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37729.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.4.4b/dlc) Repack Let'sРlay [All Fronts]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37727.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37726.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.0.5/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37717.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37714.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37710.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Bus Simulator 21 Next Stop (2021) [Ru/Multi] (2.34) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37707.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dystopika (2024) [Ru/Multi] (1.1.3+504) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37697.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37696.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ MasterQuest Fantasy (2024) [En] (1.0.5b) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37692.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ MasterQuest Fantasy - это увлекательная ролевая игра,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF220DCDE6BC33D3E9328CD02E2DD973BD4E0E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759681   (37690) от 10.11.2024
+
+CATO: Buttered Cat (2024) [Ru/Multi] (1.1.528) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37690.jpg" />
+</div>
+
+
+###  Подробнее
+
+CATO: Buttered Cat — очаровательный платформер-головоломка, вдохновлённый мемным парадоксом про кота и тост с маслом: кошки всегда приземляются на лапы, а тост всегда падает маслом вниз. Соединив их вместе, вы получите парадокс — создаётся вращающийся летающий вечный двигатель в виде кото-тоста. В центре игры два главных персонажа: «Кот» и «Тост с маслом». Вам нужно (   Читать дальше...   )Тип издания: RepackРазработчик: Team WollЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1BFE01052D51F4205F0385AE9ED4B1B4CBC90B
 ```
 
 https://mybot314.ru/tekegram_catalog/

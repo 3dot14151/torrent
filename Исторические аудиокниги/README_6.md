@@ -1,55 +1,3 @@
-###  Публикация: 1094518   (929295) от 18.01.2017
-
-Жюльетта Бенцони | Король нищих (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-У прелестной юной Сильви де Вален — фрейлины королевы Анны Австрийской — много могущественных врагов, в числе которых сам кардинал Ришелье. Ведь она хранит важную государственную тайну — отец будущего короля Франции вовсе не Людовик XIII, а молодой неотразимый и беспутный герцог де Бофор. Эта тайна особенно мучительна для Сильви, ее сердце давно отдано смелому, но (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 16:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD65188A08C78B43E7523D89348FFB0CD1FC0A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986797   (929268) от 15.02.2016
-
-Анатолий Виноградов | Три цвета времени (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Роман посвящен жизни и творчеству Стендаля (1783-1842), одного из крупнейших французских писателей.Жанр: Исторический романПродолжительность: 29:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD47597E4A3D9A7E4A34B1C8AF3FC4470DCD15D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986906   (929170) от 15.02.2016
 
 Ричард  Блэкмор  | Лорна Дун (2015) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929170.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929159.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929053.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927653.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926902.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925902.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924590.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924500.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924498.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924482.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921013.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921008.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921002.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920959.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920697.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920448.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919269.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919210.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919191.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917232.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917140.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917087.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916891.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915775.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA08354363CBED3B38995E0670E131968D3153AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096439   (915722) от 26.01.2017
+
+Юлия Крён | Дочь викинга (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915722.jpg" />
+</div>
+
+
+###  Подробнее
+
+936 год. Женский монастырь в Нормандии. Молодая настоятельница находит на пороге раненого воина. Перевязывая раны рыцаря, она с ужасом видит на его груди хорошо знакомый талисман, который напоминает о прошлом... Когда-то ее звали Гизела. По воле отца она должна была стать женой викинга Роллона. Мать девушки, напуганная будущим родством с язычником, придумывает хитроумный (   Читать дальше...   )Жанр: Исторический роман. ПриключенияПродолжительность: 15:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA502500A6B35D7B47D2AD16B7ECC4512AE8827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989439   (915552) от 23.02.2016
+
+Даниил Мордовцев | Ирод (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторической канвой романа "Тень Ирода" ("Идеалисты и реалисты") стало следственное дело Левина, из архива Тайной канцелярии. Достаточно достоверно обеспечены и другие линии романа, касающиеся царевича Алексея и его сторонников, распространение в народе учений Григория Талицкого о Петре -- антихристе, об истории раскола и др. Многие из затрагиваемых (   Читать дальше...   )Жанр: Исторический романПродолжительность: 08:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A218BEF353CF3E3AD5B8F25E16F44C934DCB807D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Ээхх, Разгуляй Часть 6 (2011) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384325.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Гуляночка блатного радио (2016) [MP3|256 Kbps] <Ша�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383104.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Блатная осень. Сборник 9 (2016) [MP3|256 Kbps] <Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383098.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Шоферской хит. Спецвыпуск №3 (2016) [MP3|256 Kbps] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382963.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Шансон Шоферской (Топ 2) (2016) [MP3|256 Kbps] <Pop>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382810.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - 20 Лучших блатных песен (2002-2003) [MP3|320 kbps] 14 CD 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382256.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Звездный Хит-Парад Шансона (2016) [MP3|256 Kbps] <Ш
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376237.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - 100 влюбленных баллад шансона (2015) [MP3|192-320 к
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374951.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Шансон в Дальнюю Дорогу (2014) [MP3|256 кб/с]<Шан
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374853.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374086.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Шансон Осень (2020) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371330.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369443.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Блатная осень на радио Шансон. Часть 10 (2016
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369137.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Гуляночка на радио Шансон. Выпуск 2 (2016) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369024.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Ээхх, Разгуляй! Часть 5 (2012) [MP3|128 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368668.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368322.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368232.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Попутчица: Сборник Русского Шансона (2016) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361870.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Шансон Для Любимых (2012) [MP3|128 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361681.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Шансон Для Души Со Стасом Михайловым (2011) 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361542.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Дорожный шансон (2012) [MP3|128 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361348.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Ээхх, Разгуляй! Часть 12 (2012) [MP3|256 кб/с]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361344.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - Союз шансон #5 (2011) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361321.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ VA - Высшая лига хитов шансона. Часть 4 (2016) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359362.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ VA - Шансон 2020 Музыкальный хит-парад [часть.03] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359244.jpg" />
 </div>
 
 
@@ -779,7 +779,7 @@ VA - За рулем по дороге домой время Шансона (201
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355723.jpg" />
 </div>
 
 

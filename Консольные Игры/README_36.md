@@ -1,107 +1,3 @@
-###  Публикация: 934977   (500058) от 07.09.2015
-
-Lollipop Chainsaw (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Lollipop Chainsaw – зомби-экшен от Suda 51, главную роль в котором играет чирлидерша Джульетта Старлинг. На свое 18-тилетие она отправляется в San Romero High School, чтобы встретиться со своим парнем. Вместо этого она находит место, кишащее зомби. Так как Джульетта входит в группу поддержки, в бою она использует не только бензопилу, ее основное оружие, но и свои (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Grasshopper Manufacture, KadokawaЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE84F94FEAB31272A091B1A906B68404AB4B9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933846   (500056) от 07.09.2015
-
-LEGO Jurassic World / LEGO Мир Юрского периода (2015) [Xbox360] [RegionFree] [Freeboot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новая игра из знаменитой серии LEGO охватывает события как культовых фильмов «Парк Юрского периода», «Парк Юрского периода 2: Затерянный мир» и «Парк Юрского периода 3», так и блокбастера «Мир Юрского периода», который появился на киноэкранах в июне.Тип издания: ЛицензияРазработчик: TT GamesЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: -/-Язык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EA01D9DAC54DA767E3AB620E8E6FCBB1AD4554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935326   (499024) от 08.09.2015
-
-Madden NFL 16 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Madden NFL 16 продолжает серию симуляторов американского футбола Madden NFL. В этой части представлено совершенно новое управление, которое позволит доминировать в битве за владение мячом, новая механика квотербека, включающая передачи с касанием и броски от туловища, новая система защиты и приема пасов, а также другие нововведения.Тип издания: ЛицензияРазработчик: EA SportsЖанр: Sports / SimulationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B3AB8647E6819822D5EF8B1260BB9822D95B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935134   (499011) от 08.09.2015
-
-Brave: The Video Game / Храбрая сердцем (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брось вызов судьбе и испытай свое сердце, отправившись в путешествие с принцессой Меридой и ее друзьями, чтобы снять проклятье и спасти королевство! Главная героиня игры и мультфильма Disney/Pixar «Храбрая сердцем» - дочь короля Шотландии Фергюса и королевы Элинор, искусная лучница Мерида. Девушка выбирает свой путь в жизни самостоятельно, и однажды, отказавшись (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Behaviour InteractiveЖанр: Arcade / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CDB1B1EC4A325A2A1524928ED4ECEF90343C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935344   (498965) от 08.09.2015
 
 Spider-Man: Edge of Time (2011) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
@@ -110,7 +6,7 @@ Spider-Man: Edge of Time (2011) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498965.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ NASCAR Unleashed (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498425.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Days of Thunder: NASCAR Edition (2011) [PS3] [USA] 3.60 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498423.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Inversion (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498260.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Monsters vs. Aliens (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Licens
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498190.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ EA Sports MMA (2010) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498185.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Tomb Raider (2013) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498184.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ G.I. JOE The Rise of Cobra (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498183.jpg" />
 </div>
 
 
@@ -319,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497980.jpg" />
 </div>
 
 
@@ -345,7 +241,7 @@ Battle Chasers Nightwar (2018) [Switch] [EUR] 8.1.0 [NSP] [eShop / 1.0.2] [Ru/En
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497462.jpg" />
 </div>
 
 
@@ -374,7 +270,7 @@ L.A. Noire (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497420.jpg" />
 </div>
 
 
@@ -400,7 +296,7 @@ Super Mario Odyssey (2017) [Switch] [EUR] 8.1.0 [NSP] [eShop / 1.3.0] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497353.jpg" />
 </div>
 
 
@@ -427,7 +323,7 @@ Robot Rescue Revolution (2013) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496004.jpg" />
 </div>
 
 
@@ -454,7 +350,7 @@ Fuel (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495741.jpg" />
 </div>
 
 
@@ -480,7 +376,7 @@ Bionic Commando Rearmed (2008) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495637.jpg" />
 </div>
 
 
@@ -506,7 +402,7 @@ RIDE (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495501.jpg" />
 </div>
 
 
@@ -532,7 +428,7 @@ The LEGO Movie Videogame (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495500.jpg" />
 </div>
 
 
@@ -558,7 +454,7 @@ Kingdoms of Amalur: Reckoning + DLC (2012) [Xbox360] [RegionFree] [FreeBoot] [Un
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495499.jpg" />
 </div>
 
 
@@ -584,7 +480,7 @@ Supremacy MMA (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495496.jpg" />
 </div>
 
 
@@ -610,7 +506,7 @@ The Bluecoats: North vs South (2016) [PS3] [EUR] 4.21 [PSN] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493620.jpg" />
 </div>
 
 
@@ -639,7 +535,7 @@ Divinity: Original Sin 2 - Definitive Edition (2019) [Switch] [USA] 10.1.0 [NSP]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492771.jpg" />
 </div>
 
 
@@ -665,7 +561,7 @@ Dead or Alive 5 Plus (2013) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.01 ] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491789.jpg" />
 </div>
 
 
@@ -676,6 +572,111 @@ Dead or Alive 5 Plus (2013) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.01 ] [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C74047E8479B963CAD613C8A590EC3172AE9A6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054204   (491785) от 20.09.2016
+
+Injustice: Gods Among Us - Ultimate Edition (2013) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Injustice: Gods Among Us — новое слово в мире файтингов. Игра, за разработку которой отвечает компания NetherRealm Studios — создатели легендарной серии Mortal Kombat, — стирает границы между добром и злом. В роли культовых персонажей вселенных DC Comics — Бэтмена, Флэша, Харли Куинн, Соломона Гранди, Супермена и Чудо-женщины — вам предстоит вступить в битву невиданного (   Читать дальше...   )Тип издания: LicenseРазработчик: Armature StudioЖанр: Action, Fighting, 2DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652FFD5DEEC6300C5395E6B0B458B31929ECEC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054000   (491632) от 20.09.2016
+
+Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491632.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 августа 1951 года. Химеры только что начали атаку на Северную Америку. Остановите жестокого врага, играя за Тома Райли – храброго нью-йоркского пожарного, который пытается спасти жену и ребенка. Ему предстоит сражаться против инопланетного вторжения при помощи нового оружия под названием Chimera, а также топора пожарного. В Resistance: Burning Skies представлена (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihilistic SoftwareЖанр: Action, Shooter, First-Person, ArcadeЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D831406D8E8A5BE1799C8A61495D2C00406EE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053349   (491613) от 20.09.2016
+
+The Legend of Zelda: Ocarina of Time [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ocarina of Time — пятая по счёту игра серии, однако по хронологии описываемых событий она является приквелом к четырём играм, вышедшим ранее.
+Действие игры разворачивается в королевстве Хайрул. Главный герой игры Линк отправляется в путешествие, чтобы остановить Гэнондорфа (Ganondorf) (главного врага принцессы и основного антогониста игр серии, в первых играх он (   Читать дальше...   )Тип издания: eShopРазработчик: NintendoЖанр: ActionЯзык озвучки: СказочныйЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930FC2415A9FEB64AF277CE8B6A69999863399F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936872   (491355) от 13.09.2015
+
+JASF: Jane's Advanced Strike Fighters (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Jane's Advanced Strike Fighters (J.A.S.F.) – это превосходный авиационный симулятор в стиле flight combat от компании Trickstar Games. Сюжет переносит игрока на Ближний Восток, в вымышленную страну Азбаристан. Здесь уже более десяти лет идёт кровопролитная гражданская война. Большая часть страны занята Северной Народной Республикой. Лишь одну из провинций по-прежнему (   Читать дальше...   )Тип издания: LicenseРазработчик: Trickstar GamesЖанр: Simulator (Flight Combat) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E986A52CE79BF478E58D65A7E6770749A7FDA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

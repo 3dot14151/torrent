@@ -6,7 +6,7 @@ Speedtest от Ookla 5.3.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Speedtest от Ookla 5.3.3 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113422.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PowerDirector – Video Editor v13.3.1 b1227130 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113317.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TuneIn Radio 33.6.1 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113309.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Photo Studio PRO 2.7.3.2413 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113297.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIDA64 2.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113280.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Picsart AI Photo Editor, Video v24.5.4 Final Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113211.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Photo Studio PRO v2.7.3.2413 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113174.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BikeComputer Pro v8.11.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112892.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by youarefinished [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112872.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Polarr v6.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112601.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Photo Studio Premium v2.7.3.2445 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112592.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112584.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Photo Studio PRO v2.7.3.2445 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112570.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PhotoDirector v19.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112551.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ OfficeSuite Pro + PDF 14.3.51316 Extra Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112431.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Photo Lab PRO v3.13.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112395.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TikTok 34.1.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.31 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112244.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PowerDirector – Video Editor v13.4.0 b2404021 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112191.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ PhotoRoom v4.9.1 b1347 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112083.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Strava: бег, велоезда, хайкинг v354.7 Mod by ReVanced Team [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111873.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ GPS АнтиРадар v42.0 Mod by 0x7d [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111847.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ OfficeSuite Pro + PDF 14.4.51651 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111765.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Soul Browser 1.4.14 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111700.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Busuu - изучение языков 31.19.1(984656) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111697.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Speedtest от Ookla 5.3.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111696.jpg" />
 </div>
 
 

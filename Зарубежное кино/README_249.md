@@ -1,55 +1,3 @@
-###  Публикация: 1355570   (982216) от 27.01.2020
-
-Межсезонье / Hwanjeolgi (2016) HDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ми-Кюн живёт одна с сыном-подростком Су-Хёном. Он с ней не очень церемонится, но сердце у парнишки доброе. Однажды Су-Хён приводит домой своего друга Ён-Чжуна, когда тот попадает в неприятности. Ён Чжун - полная противоположность её сына: он молчалив, спокоен и рассудителен. Эти двое становятся друзьями не разлей вода. Когда парни поехали в путешествие, с ними происходит (   Читать дальше...   )Производство: Южная Корея / LiTTLE BiG PiCTURES, Myung FilmsЖанр: ДрамаРежиссер: Ли Дон-ынАктеры: Пэ Джон-ок, Ли Вон-гын, Чи Юн-хо, Пак Вон-сан, Со Джон-ён, У Джи-хён, Ким Е-ын, Пак Хе-джин, Ким Джа-ён, Пэ Ён-гынПеревод: Двуголосый любительский (Храм Дорам)Субтитры: РусскиеПродолжительность: 01:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8A57F6C78A4BE1B62FE83940A98BA6BF64103C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613784   (982144) от 04.02.2013
-
-Контрудар / Counterpunch (2013) [H.264/720p-LQ] WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальной истории. Молодой боксер из Майами Эмилио, мечтающий о победе на чемпионате мира по боксу, оказывается после поражения на распутье. Но он отчаянно борется и с помощью своего тренера снова попадает в число претендентов на чемпионский титул. И лицом к лицу встречается на ринге со своим конкурентом, и он будет наносить удар за ударом до тех пор, пока его противник не рухнет на пол ринга…Жанр: боевик, драма, биография, спортРежиссер: Кеннет КастиллоАктеры: Альваро Орландо, Стивен Бауэр, Дэнни Трехо, Оскар Торрес, Камила Банус, Бэйли Гарсиа, Айвон Колл, Жилон Гай, Йениффер БеренсПеревод: Одноголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6927707BFEF6BAEE8591E4D7F48690F5BEF9BF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355662   (982116) от 27.01.2020
 
 Бутылочная ракета / Bottle Rocket (1995) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982116.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982107.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982062.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982024.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982019.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981953.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981950.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981949.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981948.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981946.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981944.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981942.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981896.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981892.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981888.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981886.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981885.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981883.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981878.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981855.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981815.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981795.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981794.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981737.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45DFE88EE26DAAD88081A1482997D317FED6276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970026   (981727) от 06.01.2016
+
+Мать и дитя / Mother and Child (2009) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981727.jpg" />
+</div>
+
+
+###  Подробнее
+
+50-летняя Карен живет как будто по привычке. Много лет назад, будучи девочкой-подростком, она вынуждена была отдать свою только что родившуюся дочь в другую семью.
+Ее выросшая дочь Элизабет, холодный и расчетливый адвокат, скользит по жизни по касательной — без эмоций и привязанностей. Ей нравится играть во властные мужские игры. Она боится любви. Она никогда не (   Читать дальше...   )Производство: США, Испания / Everest Entertainment, Cha Cha Cha, Mockingbird PicturesЖанр: Драма, МелодрамаРежиссер: Родриго ГарсияАктеры: Александрия М. Саллинг, Коннор Крамм, Аннетт Бенинг, Айлин Райан, Сэмюэл Л. Джексон, Наоми Уоттс, Черри Джонс, Керри Вашингтон, Дэвид Рэмси, Кэй Д`АрсиПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF72F57DB3636A73B60881EAD914FC5C2547CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972615   (981725) от 06.01.2016
+
+Дневники принцессы 2: Как стать королевой / The Princess Diaries 2: Royal Engagement (2004) HDTV [H.264/1080i]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мие Термополис (Энн Хэтэуэй), принцессе Женовии, только что закончившей колледж в Америке, скоро должен исполнится 21 год. Ее бабушка, королева Кларисс (Джули Эндрюс), готовится уступить ей трон и передать бразды правления маленькой европейской страной. Но есть небольшая проблема: по Женовским законам королевой может стать только замужняя наследница. На поиски жениха (   Читать дальше...   )Производство: США, Walt Disney Pictures, BrownHouse ProductionsЖанр: Мелодрама, Семейный, КомедияРежиссер: Гэрри МаршаллАктеры: Энн Хэтэуэй, Джули Эндрюс, Гектор Элизондо, Джон Рис-Дэвис, Хизер Матараццо, Крис Пайн, Каллум Блу, Кэтлин Маршалл, Том Постон, Джоэль МакКрэриПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304D9058C446113531F828ED9C00C7B532D9185B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1132166   (702284) от 08.05.2017
-
-Золото / Gold (2016) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В начале 80-х годов прошлого столетия полулегальный бизнес Кенни Уэллса по скупке и перепродаже золота приносил его владельцу огромные доходы. Однако внезапная смерть отца, а затем разразившийся в Соединенных Штатах финансовый кризис поставил некогда процветающую компанию на грань банкротства. И тогда Уэллс закладывает в ломбарде последний золотой браслет жены и (   Читать дальше...   )Производство: США, Black Bear Pictures, Hwy61, Living FilmsЖанр: Триллер, Драма, ПриключенияРежиссер: Стивен ГейганАктеры: Мэттью МакКонахи, Эдгар Рамирес, Брайс Даллас Ховард, Кори Столл, Тоби Кеббелл, Билл Кэмп, Джошуа Харто, Тимоти С. Саймонс, Крэйг Т. Нельсон, Мэйкон БлэрПеревод: Дублированный (iTunes), Профессиональный многоголосый (Студия "Paradox" & Omskbird records), Авторский одноголосый (М.Чадов)Субтитры: Русские (форс), Английские (полные, SDH)Продолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E94464ACBCB58892A24CE3C1DCF6FE8BCC3A460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220540   (702198) от 20.04.2018
-
-Белые люди не умеют прыгать / White Men Can't Jump (1992) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма переносит нас на раскаленный асфальт баскетбольных площадок Лос-Анджелеса. Идет игра — игра на деньги. А там где деньги всегда найдется место парочке жуликов, готовых обмануть доверчивого лоха. Билли, шулер от баскетбола, беззастенчиво пользуется общепринятым мнением, что белый не может играть в баскетбол, не может прыгать. Все складывается отлично, (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, КомедияРежиссер: Рон ШелтонАктеры: Уэсли Снайпс, Вуди Харрельсон, Рози Перес, Тайра Феррелл, Силк Козарт, Кадим Хардисон, Эрнест Харден мл., Джон Маршалл Джонс, Маркус Джонсон, Дэвид Роберсон, Кевин БентонПеревод: Профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый), авторский (одноголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB3143AA31307D280E239D134A8FD7758B8866E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220420   (702115) от 20.04.2018
 
 Последнее лицо / The Last Face (2016) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702115.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702017.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702014.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701714.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701703.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701660.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701605.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701597.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701593.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701513.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701502.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701446.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701444.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701438.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701437.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701432.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701427.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701368.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701247.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701243.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701176.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701174.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701105.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701078.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C16720313900A884BA957198501F612919EA29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401853   (701037) от 14.08.2020
+
+Дитя робота / I Am Mother (2019) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир уничтожила эпидемия. Укрывшийся в бункере робот находит возможность вырастить в безопасности человеческого ребенка. Однажды снаружи к ним прорывается женщина, которая расскажет подросшей девочке, что среди людей есть выжившие, а роботам доверять нельзя. Но мама-робот не согласна отпустить дочь в мир людей.Производство: Австралия / The Penguin Empire, Southern Light Films, Rhea Films (II)Жанр: ужасы, фантастика, триллер, драмаРежиссер: Грант СпьюторАктеры: Клара Ругор, Роуз Бирн, Хилари Суэнк, Мэдди Лентон, Люк Хокер, Саммер Лентон, Хэйзел Сэндери, Тейлия Стурзэйкер, Джейкоб Нолан, Джонни КарсонПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полн.), английские (полн.)Продолжительность: 01:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10273EC4A339DA11416C3E87E2EBED651BDBF246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398946   (701035) от 14.08.2020
+
+Картина красоты ( Изображение красоты) / Picture of Beauty (2017) BDRemux [H.264/1080i] [VO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две красивые девушки модельной внешности достигли совершеннолетия, и тем временем у живописца возник необычный заказ. В условиях нравственных репрессий и сексуальных пресечений, девушки высвобождаются из оков.Производство: ВеликобританияЖанр: Драма, мелодрамаРежиссер: Максим ФордАктеры: Тэйлор Сандс, Даниэль Роуз, Павель Хайнос, Магдалена Бохан-Яхимек, Иоанна Мазевска, Иоанна Собачинска, Эрнестина Винницкая, Amer Riad El Muafy, Элен Мур, Frantisek SmejkalПеревод: Одноголосый любительский (datynet)Субтитры: Русские, английскиеПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C760C1E5D90A44B5AD4EF9BEF9D0DE92B3E45E
 ```
 
 https://mybot314.ru/tekegram_catalog/

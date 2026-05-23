@@ -1,55 +1,3 @@
-###  Публикация: 1481947   (1007802) от 06.07.2021
-
-Ангел мести / Vanquish (2021) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После выхода на пенсию бывший комиссар полиции понял, что прикрывать продажных детективов было ошибкой. Но чтобы подчистить за собой город, он выбирает не самый гуманный способ — похитив невинного ребенка, он шантажирует его мать. Пытаясь спасти дочь, женщина становится орудием в войне против разбушевавшегося криминала. Впрочем, теперь ее гнева хватит не только на (   Читать дальше...   )Производство: США / Capstone Group, March On ProductionsЖанр: Боевик, триллер, криминалРежиссер: Джордж ГаллоАктеры: Морган Фриман, Руби Роуз, Патрик Малдун, Ник Валлелонга, Джули Лотт, Hannah Stocking, Джоэль Майкли, Майлз Долеак, Пол Сэмпсон, Ричард СальватореПеревод: Дублированный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FEC52926229AB19BBCD8F7450DF0586211F1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482140   (1007762) от 07.07.2021
-
-Тот день на берегу / Hai tan de yi tian / That Day on the Beach (1983) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Спустя 13 лет две успешные женщины Цзяли и Вэйцин встречаются в ресторане отеля, где остановилась Вэйцин — известная пианистка, ради этой встречи отказавшаяся от запланированной пресс-конференции. Она хочет узнать, как сложилась жизнь брата Цзяли, оставившего её ради устроенного отцом перспективного брака. Рассказывая о брате, Цзяли постепенно переключается на свою (   Читать дальше...   )Производство: Тайвань, Central Motion PicturesЖанр: ДрамаРежиссер: Эдвард ЯнАктеры: Сильвия Чан, Терри Ху, Мин Сюй, Ли Ле, Дэвид Мао, Кун Хао Чен, Хоу Сяосянь, Сяо Худоу, Сяо Йе, Шу-Чен ХсюПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские, китайскиеПродолжительность: 02:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C809C3AE6DE39F51A723AF483EB6767D6CB3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481675   (1007748) от 07.07.2021
 
 Магазинные воришки всего мира / Shoplifters of the World (2021) WEB-DL [H.264/1080p-LQ] [EN]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007748.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007743.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007735.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007721.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007720.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007712.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007709.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007696.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007688.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007685.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007675.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007673.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007672.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007665.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007646.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007586.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007559.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007555.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007542.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007531.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007517.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007516.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007515.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007511.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BECBF6EF445AC3E22C62045299D2E4C800F0080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482698   (1007410) от 09.07.2021
+
+В бреду / Delirious (1991) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачно ударившись головой и потеряв сознание, Джек очнулся в городке Эшфорд Фоллз, где происходит действие его популярной мыльной оперы. Его жизнь пошла по кошмарному сценарию, однако вскоре Джек обнаруживает, что может управлять действительностью, просто написав соответствующий вариант развития событий. Вооружившись пишущей машинкой, Джек пытается завоевать сердце (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM), Star Partners III Ltd.Жанр: фэнтези, комедияРежиссер: Том МанкевичАктеры: Джон Кэнди, Мэриэл Хемингуэй, Эмма Сэммс, Рэймонд Бёрр, Дилан Бейкер, Чарльз Роккет, Дэвид Раш, Андреа Томпсон, Зэк Гренье, Джерри ОрбакПеревод: двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: английскиеПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0BC870255E4A697C4163EE6F4590E0A1221F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482508   (1007408) от 09.07.2021
+
+Сводные братья / Half Brothers (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед главным героем стоит непростая задача – выполнить просьбу своего отца, находящегося на смертном одре. При этом у него на носу свадьба, а в помощники ему достался непоседливый сводный брат, от которого больше неприятностей, чем пользы.Производство: Мексика, США / Focus FeaturesЖанр: Драма, комедияРежиссер: Люк ГринфилдАктеры: Луис Херардо Мендес, Коннор Дель Рио, Хосе Суньига, Винсент Спано, Альма Сиснерос, Шира Скотт Астроф, Хэйес Харгров, Тайлер Кук, Ховард Фергюсон мл., Джондэйс КэндесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), английские (full, SDH)Продолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE09421B07B8C94EE132B9B3B227D71C3918056
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,60 +1,3 @@
-###  Публикация: 1849204   (1053429) от 21.01.2026
-
-OTUS, Кирилл Федченко, Павел Ершов, Сергей Потамошнев |  Rust разработчик. Professional (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для разработчиков, которые хотят использовать язык Rust для создания надёжного, безопасного и высокопроизводительного программного обеспечения.
-
-OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRecПроизводство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 75:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DB4AA68D3D291E4E7ECB26864B0B6DE1142E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848165   (1052824) от 16.01.2026
-
-Udemy, Stephen Grider | Redis: полное руководство разработчика (2025) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Этот курс научит вас всему, что вам нужно знать, чтобы интегрировать Redis в новый или существующий проект.
-
-Получите практический опыт работы с командами, используемыми для добавления, обновления и запроса данных
-Применяйте передовой опыт и многочисленные шаблоны проектирования, добавляя Redis в приложение для электронной коммерции.(   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 15:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F90538071B9D0F9611585C941F708D4CD5AC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846926   (1052014) от 10.01.2026
 
 Богдан Кухар | Администратор 1С v 4.1 [все модули] (2025) PCRec [RU]
@@ -63,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052014.jpg" />
 </div>
 
 
@@ -92,7 +35,7 @@ ProFinansy, Наталья Котовская | Искусственный ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052013.jpg" />
 </div>
 
 
@@ -118,7 +61,7 @@ Skillbox, Ренат Шагабутдинов, Евгений Намоконов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052010.jpg" />
 </div>
 
 
@@ -136,32 +79,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847122   (1051951) от 10.01.2026
-
-Cпециалист | Kaspersky Security Center. Управление системами [KL 009.12] (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Курс направлен на изучение новых возможностей управления системами в Kaspersky Security Center. Теоретический материал и лабораторные работы дают слушателям необходимые знания и навыки по эффективному планированию и внедрению систем управления компонентов информационной системы, не связанных с антивирусной защитой.Жанр: Администрирование, сетевая безопасностьПродолжительность: 04:19:08Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDEB95D19DBC1A47488FE459EC42533E38F55439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846346   (1051705) от 08.01.2026
 
 Специалист, Татьяна Тимина | XML и JSON при проектировании API (2025) PCRec [RU]
@@ -170,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051705.jpg" />
 </div>
 
 
@@ -197,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051479.jpg" />
 </div>
 
 
@@ -223,7 +140,7 @@ Udemy | Full Kaspersky Training [Endpoint SEC, Hybrid Cloud, EDR] (2022) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051470.jpg" />
 </div>
 
 
@@ -249,7 +166,7 @@ Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051023.jpg" />
 </div>
 
 
@@ -278,7 +195,7 @@ Self Made Engineer, Tiago Taquelim | Complete Microservices with Go (2025) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050639.jpg" />
 </div>
 
 
@@ -306,7 +223,7 @@ OTUS, Сергей Потамошнев, Артем Павлов |  Rust Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050407.jpg" />
 </div>
 
 
@@ -334,7 +251,7 @@ OTUS, Владимир Елфимов | LLM Driven Development. Разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050406.jpg" />
 </div>
 
 
@@ -360,7 +277,7 @@ OTUS, Андрей Вилков | GitOps (2025) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050260.jpg" />
 </div>
 
 
@@ -386,7 +303,7 @@ OTUS, Вячеслав Федосеев | CICD на основе GitLab (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050256.jpg" />
 </div>
 
 
@@ -412,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050244.jpg" />
 </div>
 
 
@@ -438,7 +355,7 @@ Patreon, Timur Shemsedinov | Асинхронное программирован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050241.jpg" />
 </div>
 
 
@@ -456,32 +373,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844511   (1050091) от 26.12.2025
-
-OTUS, Олег Каратаев | Архитектор 1С (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Курс "Архитектор 1С" предлагает полный набор знаний и практических навыков для проектирования и разработки программных продуктов на платформе 1С.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 47:43:30Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9CE0A5A37F9EC13BB6D4DC258A89547CE64013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843494   (1049294) от 21.12.2025
 
 Дмитрий Зверев | Нейросетевой звук (2025) PCRec [AD] [RU]
@@ -490,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049294.jpg" />
 </div>
 
 
@@ -516,7 +407,7 @@ Stepik, Михаил Трунов | Командная строка для ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049293.jpg" />
 </div>
 
 
@@ -542,7 +433,7 @@ Onskills, Семен Глушков | Онлайн-курс по нейросе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049292.jpg" />
 </div>
 
 
@@ -568,7 +459,7 @@ TCM Security Academy, Andrew Prince | Security Operations 101 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048688.jpg" />
 </div>
 
 
@@ -594,7 +485,7 @@ TCM Security Academy, Andrew Prince | Security Operations 201 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048687.jpg" />
 </div>
 
 
@@ -620,7 +511,7 @@ EC-Council, Keith Rayle | EC-Council Certified DevSecOps Engineer (2024) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048611.jpg" />
 </div>
 
 
@@ -646,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048370.jpg" />
 </div>
 
 
@@ -672,7 +563,7 @@ Stepik, Pragmatic Programmer | SQL практикум. Полный курс (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048243.jpg" />
 </div>
 
 
@@ -683,6 +574,110 @@ Stepik, Pragmatic Programmer | SQL практикум. Полный курс (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AD7994F57C326CAC2F8754AD6AFC14C2E7D9AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841312   (1047947) от 10.12.2025
+
+Julia Marketing, Алёна Волкова | Веб-дизайнер сайтов на Tilda 2.0 (2023) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический онлайн-курс, который научит создавать и оформлять эффективные и стильные сайты без программирования!Производство: Julia MarketingЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 11:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8069FB85255D84D612A03A83EF654B38D26AEC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841024   (1047729) от 08.12.2025
+
+Специалист, Вячеслав Лохтуров | Linux. Уровень 5. Zabbix. Мониторинг IT инфраструктуры предприятия (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс даст вам не просто знания по Zabbix, а готовые решения для бизнеса: вы научитесь предсказывать сбои до того, как они повлияют на клиентов, быстро реагировать на инциденты и автоматизировать рутинные процессы. Освоите построение отказоустойчивых систем и интеграцию мониторинга с DevOps-процессами. Это позволит сократить простои, оптимизировать ресурсы, обеспечить (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E05E70B461D071C05F303D7F8B026D8155B3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841030   (1047728) от 08.12.2025
+
+Специалист, Вячеслав Лохтуров | Linux. Уровень 6. Создание отказоустойчивых кластерных решений (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047728.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе Вы научитесь создавать высоконадежные решения, на основе свободных программных продуктов в операционной системой Linux. Вы сможете плавно мигрировать подключение Вашей сети к Интернет в отказоустойчивую конфигурацию с несколькими шлюзами и распределять нагрузку между несколькими провайдерами. Познакомитесь с решениями Pacemaker/Corosync, позволяющими (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9F7BF9BF7F987BE657112C64D0F7C3EDD820E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841054   (1047727) от 08.12.2025
+
+Специалист, Вячеслав Лохтуров | Linux. Уровень 7. Управление сетью на основе методологии NetDevOps (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое передовое, дорогостоящее и популярное оборудование уровня connectivity отлично взаимодействует со стабильными, бесплатными и демократичными операционными системам, предоставляющими ему уровень service. Слушатели на практике настроят самые разнообразные варианты такого обоюдовыгодного взаимодействия.Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52385233A3923293D1DC9215DACA6F105B3EB05
 ```
 
 https://mybot314.ru/tekegram_catalog/

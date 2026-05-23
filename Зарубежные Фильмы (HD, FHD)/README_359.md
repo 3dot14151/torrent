@@ -1,55 +1,3 @@
-###  Публикация: 446641   (740296) от 20.07.2020
-
-Охотники за головами / Hodejegerne (2011) BDRip [H.264/1080p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роджер Браун - блестящий «охотник за головами», незаменимый специалист по подбору топ-менеджеров для крупнейших фирм. Он может найти нужного человека на любую должность и его рекомендация - залог получения работы. Чтобы удержать красавицу жену, открывшую на деньги мужа картинную галерею в модном районе, Роджер давно уже живет не по средствам, и, пользуясь своим служебным (   Читать дальше...   )Производство: Норвегия, Швеция, Дания, Германия / Yellow Bird, Friland, Nordisk FilmЖанр: триллер, драма, криминалРежиссер: Мортен ТильдумАктеры: Аксель Хенни, Николай Костер-Валдау, Синневе Макоди Лунд, Юлье Ольгорд, Карре Хаген Сиднесс, Рейдар Серенсен, Нильс Йорген Каалстад, Йоахим Рафаелсен, Бор Ове, Нилс Гуннар Ли, Эйвинд СэндерПеревод: Дублированный (R5)Субтитры: английскиеПродолжительность: 01:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2ACB12AA075828B7061B0072400E2BABEAADE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784330   (740218) от 08.05.2014
-
-Колыбельная для Пи / Lullaby for Pi (2010) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Колыбельная для Пи» рассказывает зрителю историю парня по имени Сэм, у которого умирает его любимая жена Жозефина. Сэму все становится безразлично. Он бросает бар, где выступал с концертами, и проводит ночи напролет в комнате отеля, где он впервые встретил свою жену. Консьерж гостиницы Джордж, его лучший друг и бессменный ангел-хранитель, решает хорошенько (   Читать дальше...   )Производство: Франция, КанадаЖанр: ДрамаРежиссер: Бенуа ФилиппонАктеры: Руперт Френд, Клеманс Поэзи, Мэтт Уорд, Форест Уитакер, Сара Уэйн Кэллис, Колин Лоуренс, Андре Ричардс, Джулиан Кристофер, Мартин Роуч, Бенджамин Эйрс, Лиза Хорнер, Эми Матисио, Йен Бродленд, Вивиан ЭнДжи, Каван Каннингэм, Дэвид Корникан, Шэйн Бельгард, Трой Ског, Уильям Гардинер, Марк Клэкстон, Сэнди КеллерманПеревод: Многоголосный закадровый, любительский (Victory Films)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (full, forced)Продолжительность: 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B145D88AB734281A075A859D1DF943B901244CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282830   (740139) от 16.02.2019
 
 Дрянная девчонка / My Sassy Girl (2008) WEB-DL [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740139.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740134.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740133.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740105.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740070.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740017.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740013.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740012.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740010.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739951.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739921.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739918.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739758.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739519.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739517.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739477.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739446.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739409.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739396.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738851.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738731.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738706.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738701.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738696.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48F031C320683224C428CB4239CED54B5B2BD2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521033   (738663) от 23.01.2022
+
+Терминатор: Да придёт спаситель / Terminator Salvation (2009) BDRip [H.264/1080p] [Director's Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738663.jpg" />
+</div>
+
+
+###  Подробнее
+
+2018 год. В мире наступила война с машинами. Джон Коннор — человек, чья судьба — возглавить Сопротивление электронному мозгу Скайнет и армии Терминаторов. Но в будущее, с верой в которое он возвращен, вклинивается таинственный Маркус Райт: незнакомец, чьи последние воспоминания рисуют камеру смертников.
+Коннор должен понять, кто такой этот Маркус и с какой целью (   Читать дальше...   )Производство: США, Германия, Великобритания, Италия / Columbia Pictures, The Halcyon CompanyЖанр: фантастика, боевикРежиссер: МакДжиАктеры: Кристиан Бэйл, Сэм Уортингтон, Антон Ельчин, Мун Бладгуд, Брайс Даллас Ховард, Коммон, Джейн Александр, Майкл Айронсайд, Иван Г’Вера, Крис БраунингПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB36477F034A7D916DC0C3F06075D9BD412BB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526133   (738658) от 23.01.2022
+
+Бесконечность / Infinite (2021) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эван Майклс страдает от необычного недуга: он в деталях помнит всё, что с ним происходило в двух прошлых жизнях. В поисках ответов Эван натыкается на древнее тайное общество «Когномина», члены которого, так же как и он, помнят о своих прошлых жизнях. Не понаслышке знакомые с историей, они на протяжении веков контролируют развитие человечества, направляя его в нужную (   Читать дальше...   )Производство: США / Closest to the Hole Productions, Di Bonaventura Pictures, New Republic PicturesЖанр: фантастика, боевикРежиссер: Антуан ФукуаАктеры: Марк Уолберг, Чиветель Эджиофор, Софи Куксон, Дилан О’Брайен, Джейсон Манцукас, Руперт Френд, Тоби Джонс, Йоуханнес Хёйкюр Йоуханнессон, Лиз Карр, Каэ АлександрПеревод: Дублированный, профессиональный многоголосый, любительский двухголосый, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87807E9495933267865149EF08296BBD7AF8CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

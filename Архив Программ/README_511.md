@@ -6,7 +6,7 @@ FinePrint 11.05 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787073.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Emurasoft EmEditor Professional 21.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787071.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Care 365 Pro 6.1.3.600 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787065.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Futuremark PCMark 10 Professional Edition 2.1.2532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787047.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ZW3D 2022 SP [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787046.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SoftPerfect RAM Disk 4.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787044.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WinToHDD 5.4 Release 1 Free / Pro / Enterprise / Technician RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787037.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Detwinner 2.03.010 (& Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786971.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786923.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Alien Skin Exposure X4 Bundle v4.0.1.26 49029 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786922.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v17.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786914.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Visual Studio 2019 Professional 16.5.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786869.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft Visual Studio 2019 Community 16.5.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786866.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786864.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Calibre 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786846.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WinUtilities Pro 15.74 (comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786816.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adguard 7.4.3247.0 (офиц 7.4.2) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786783.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Avast Premium Security 20.4.2410 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786782.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ K-Lite Codec Pack Update 15.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786747.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Microsoft Edge 84.0.522.11 Beta (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786725.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MediBang Paint Pro 25.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786712.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Unity Pro 2018.4.23f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786711.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Unity Pro 2019.3.15f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786704.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ UnHackMe 11.70.0.970 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786682.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ABViewer Enterprise 14.1.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786681.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.4 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786679.jpg" />
 </div>
 
 

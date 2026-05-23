@@ -6,7 +6,7 @@ Activation Program 1.03 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27237.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Foobar2000 2.24.2 include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27219.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Total Commander 11.51 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27180.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Topaz Video AI 6.1.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27160.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ qBittorrent 5.0.4 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27153.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows 11 PRO 23H2 22631.4890 Update 16 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27149.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Adobe Acrobat Pro 2024.005.20414 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27145.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ WinRAR 7.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27144.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BiglyBT 3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27136.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.60.7300 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27134.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ qBittorrent 5.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27131.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ HiBit Uninstaller 3.2.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27110.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ StartAllBack 3.9.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27104.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ KiCad 8.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27100.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ StartAllBack 3.9.4 build 5250 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27096.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Google Chrome 133.0.6943.127 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27086.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Ant Download Manager Pro 2.15.0 Build 89132 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27085.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27084.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ TechSmith Camtasia  25.0.0 Build 7062 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27081.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lossless Scaling 2.13.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27074.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Microsoft® Windows® 11 x64 24H2 4in1 Upd 02.2025 by OVGorskiy [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27059.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2049.0 RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27057.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Topaz Gigapixel AI 8.2.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27050.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ CCleaner 6.33.11465 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27038.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Wise Care 365 Pro 7.2.2.695 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27029.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ FreeFileSync 14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27013.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1505185   (806427) от 26.10.2021
-
-Василий Аксенов | Вольтерьянцы и вольтерьянки (2013) [MP3, Вячеслав Задворных]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На заре века восемнадцатого, "галантного века", очень заинтересовались друг другом две значительные личности - Вольтер и Екатерина Великая. Поводом к написанию нового романа послужила переписка Вольтера и Екатериной Второй.
-"Несколько лет назад я читал книгу о переписке Вольтера и Екатерины Второй. Там было много цитат, которые звучали своеобразным (   Читать дальше...   )Жанр: Современная проза, КлассикаПродолжительность: 19:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C10671CA8BAA7CA6C94F9F9217181A688EDABE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778605   (806422) от 18.04.2014
-
-Джек Лондон | Смок Беллью (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига Джека Лондона "Смок Беллю"  — это роман классика зарубежной литературы, который наиболее ярко показывает все грани его таланта.
-В повествовании автор расскажет историю жизни Смока Беллью, который за короткий отрезок времени превратился из художника в золотоискателя. Юноша был выходцем из интеллигентной семьи зажиточных буржуа, но его жажда приключений (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 13:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ED9412676F6E2E9B508D61D845AAD5459FF05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505315   (806399) от 26.10.2021
-
-Роберт Янг | Волшебное окно (2021) [MP3, KADMI]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если в суете повседневных дел вам вдруг выпадет шанс прикоснуться к чуду, не упустите его, ведь другого раза может и не быть...Жанр: ФантастикаПродолжительность: 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586ACD77B3A1D4977DC0374B27540C9995E033CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505217   (806309) от 26.10.2021
 
 Влад Савин | Морской волк (Книга 18). Зеркало грядущего (2019) [MP3, Сергей Ларионов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806309.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806292.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806287.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806270.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806254.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806250.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806249.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806241.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806180.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806139.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ Romuald | Грозовой пегас (2016) [MP3]
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806104.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806100.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806098.jpg" />
 </div>
 
 
@@ -431,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806070.jpg" />
 </div>
 
 
@@ -458,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806056.jpg" />
 </div>
 
 
@@ -484,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805918.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805910.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805756.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805748.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805673.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805619.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805609.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805608.jpg" />
 </div>
 
 
@@ -678,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C80DBDB02FDC05FCB30C58305D132F29926643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117977   (805607) от 29.03.2017
+
+Александр Шкляревский | Русский Тичборн (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805607.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве на Пречистенке задушена в своем доме ростовщица. А где-то в южной губернии империи помещик, отставной полковник пытается доказать, что встреченный им такой же отставной, но вахмистр, не вахмистр, а беглый его крепостной слуга. Повесть написана и опубликована в 1875 годуЖанр: PетродетективПродолжительность: 03:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2E403167BBB2B529A2BFDCD35718335444F592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117877   (805604) от 29.03.2017
+
+Отто Коцебу | Новое путешествие вокруг света в 1823-1826 гг. (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой собрание очерков о посещенных автором - известным русским мореплавателем первой половины XIX в. - архипелагах Океании, русских поселений в Америке и других землях. Читателя заинтересуют любопытные исторические сведения, описания природных условий, этнографические зарисовки, большой материал о деятельности колонизаторов в странах Латинской (   Читать дальше...   )Жанр: ПутешествияПродолжительность: 16:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3471BCD495DFC99FF2D56D2F62D8469D2155EEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117740   (805493) от 29.03.2017
+
+Юрий Рытхэу | Иней на пороге (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть романа «Сон в начале тумана», повествующего о судьбе американца Джона Макленнана, нашедшего свою вторую родину на Чукотке, о жизни чукотского народа в предреволюционное время, о первых годах Советской власти на далёкой северной окраине..."4 сентября 1910 года взрыв потряс яранги маленького чукотского селения Энмын, расположенного на берегу Ледовитого (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 14:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D9AD39B2663A832DC172CB88463DDE82FD4226
 ```
 
 https://mybot314.ru/tekegram_catalog/

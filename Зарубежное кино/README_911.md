@@ -1,55 +1,3 @@
-###  Публикация: 1543712   (625171) от 13.04.2022
-
-Последние выжившие / Last Survivors (2021) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джейк и Трой двадцать лет живут оторванными от всего мира и не общаются ни с кем кроме отца и друг друга. Отец вселил в них страх ко всем прочим людям. Но когда Трой получил ранение, Джейк был вынужден отправиться к другим людям за лекарством. По дороге он познакомился с пожилой Генриеттой, которая живёт одна в глуши. Джейку она понравилась, и он начал подозревать, (   Читать дальше...   )Производство: США / Yadav Productions, El Ride Productions, Fry Cook ProductionsЖанр: фантастика, триллерРежиссер: Дрю МилреаАктеры: Дрю Ван Акер, Алисия Сильверстоун, Стивен Мойер, Марк Фамильетти, Бенджамин Артур, Акааш Ядав, Саймон ЛизПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E6409649376CBD52BCE5E2D20415844700F2F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543799   (625170) от 13.04.2022
-
-Последние выжившие / Last Survivors (2021) WEB-DL [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джейк и Трой двадцать лет живут оторванными от всего мира и не общаются ни с кем кроме отца и друг друга. Отец вселил в них страх ко всем прочим людям. Но когда Трой получил ранение, Джейк был вынужден отправиться к другим людям за лекарством. По дороге он познакомился с пожилой Генриеттой, которая живёт одна в глуши. Джейку она понравилась, и он начал подозревать, (   Читать дальше...   )Производство: США / El Ride Productions, Fry Cook Productions, SSS EntertainmentЖанр: Фантастика, триллерРежиссер: Дрю МилреаАктеры: Дрю Ван Акер, Алисия Сильверстоун, Стивен Мойер, Марк Фамильетти, Бенджамин Артур, Акааш Ядав, Саймон ЛизПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DA9D76676C648DBBCA3A00BA2BDB38A3630344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144769   (625123) от 23.06.2017
 
 Зеркала / Mirrors (2008) BDRip [H.265/1080p-LQ] [Unrated]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625123.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625119.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625114.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625113.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625104.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625103.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625021.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625002.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624992.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624991.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624990.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624938.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624929.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624924.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624911.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624824.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624812.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624696.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624682.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624585.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624578.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624526.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624522.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624519.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BBACFDFD99A786B68C852D644FECED244D2ED33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521997   (624517) от 12.07.2012
+
+Убийца внутри меня / The Killer Inside Me (2010) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помощник шерифа Лу Форд — настоящий техасец из маленького городка. Неторопливый, дружелюбный и даже обаятельный, он скрывает внутри себя совсем другую личность — неумолимого душегуба, который убивает так же легко, как раскуривает сигару. И всю свою историю он словно сам себе и рассказывает, с интересом наблюдая, сумеют ли его коллеги найти истинного преступника. И будет ли, наконец, остановлен Лу на дороге Зла? Дороге, которую он не выбирал…Жанр: Триллер, драма, криминалРежиссер: Майкл УинтерботтомАктеры: Кейси Аффлек, Джессика Альба, Кейт Хадсон, Нед Битти, Элиас Котеас, Том Бауэр, Саймон Бэйкер, Билл Пуллман, Брент Бриско, Мэттью Мехер, Лиам Эйкен, Джей Р. Фергюсон, Али Назари, Блейк Линдсли, Зэк Йоссе, Ной Кроуфорд, Блейк Бригхэм, Кэйтлин Тернер, Майкл Гиббонс, Роза Паскарелла, Арлетта Найт Финк, Джед Фокс, Донна Е. Джонс, Расселл Стюарт, Джон Бьелич, Филипп Борге, Бретт Бауэр, Хезер Кэйтс, Лори Линн Кросс, Джеффри Фейнголд, Шон Джонстон, Марк Адам Гофф, Мила МакКой, Патрик МакГи, Дрю Никсон, Дэбби ТаккерПеревод: ДублированныйПродолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A409867D9A8BDFD2E5164B142D25F3BCCD62AE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521630   (624401) от 12.07.2012
+
+Жутко громко и запредельно близко / Extremely Loud & Incredibly Close (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятилетний Оскар теряет отца в день атаки на башни-близнецы в Нью-Йорке. По всему городу Оскар ищет информацию, которая должна привести его к разрешению загадки отца. На пути мальчику встретятся разные люди, но их всех объединяет страшная катастрофа, поэтому каждый пытается справиться с собственным горем.Жанр: Драма, Детектив, ПриключенияРежиссер: Стивен ДолдриПродюсер: Скотт Рудин, Эли Буш, Селия Д. КостасАктеры: Том Хэнкс, Сандра Буллок, Томас Хорн, Макс фон Сюдов, Виола Дэвис, Джон Гудмен, Джеффри Райт, Зои Колдуэлл, Дэннис Хирн, Пол КлементовицПеревод: Профессиональный (многоголосый)Продолжительность: 02:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D8E81B1D59C1E90AFF332A05F9B95979547CC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

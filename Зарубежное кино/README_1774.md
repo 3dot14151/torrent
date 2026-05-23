@@ -1,55 +1,3 @@
-###  Публикация: 1654913   (193968) от 23.08.2023
-
-Говорящие с ветром / Windtalkers (2002) HDRip [H.264] [Open Matte] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Вторая мировая война. Америка ведет ожесточенные бои с японцами в Тихом океане. В течении этой войны японцы искусно расшифровывают секретные американские радиограммы. Это обстоятельство заставило американское правительство завербовать несколько сотен индейцев Навахо, чтобы использовать их родной язык в качестве кода для секретных сообщений. Морскому пехотинцу Джо (   Читать дальше...   )Производство: США / Lion Rock Productions, Metro-Goldwyn-Mayer (MGM)Жанр: Военный, боевик, драма, историяРежиссер: Джон ВуАктеры: Николас Кейдж, Адам Бич, Петер Стормаре, Ноа Эммерих, Марк Руффало, Брайан Ван Холт, Мартин Хендерсон, Роджер Уилли, Фрэнсис О’Коннор, Кристиан СлэйтерПеревод: Дублированный (R5)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89F5BAD07DA5A2E6F903CBEE9672E67B5CFF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654479   (193953) от 21.08.2023
-
-Кто убил BlackBerry / BlackBerry (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Ватерлоо, Канада, 1996 год. Основатели маленькой компании Research in Motion пытаются найти финансирование революционной разработки — пейджер, телефон и компьютер в одном устройстве — но стабильно проваливают все питчинги. Когда к ним присоединяется уволенный из большой компании, где они накануне делали презентацию, менеджер и устраивает эффективное управление, вынудив (   Читать дальше...   )Производство: Канада, Rhombus Media, Zapruder Films, Telefilm CanadaЖанр: Биография, драма, комедияРежиссер: Мэтт ДжонсонАктеры: Джей Барушель, Гленн Хауэртон, Мэтт Джонсон, Рич Соммер, Майкл Айронсайд, Конор Кэйси, Мишель Жиру, Марк Критч, Сол Рубинек, Кэри ЭлвесПеревод: Дублированный, Профессиональный (многоголосый закадровый)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (2x Forced, 2x Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7B97C57061424E549B25A4C6CCE9ED1D1DB4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648260   (193936) от 22.08.2023
 
 Флэш / The Flash (2023) BDRip [H.264/1080p] [UKR, EN / UKR, EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193936.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193893.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193877.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193861.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193853.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193851.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193850.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193847.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193836.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193835.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193831.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193827.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193797.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193796.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193785.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193765.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193763.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193757.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193740.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193733.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193732.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193731.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193729.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193725.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA945BB1983618D913DE3147F60AAA86234667E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655188   (193711) от 26.08.2023
+
+Стражи Галактики. Часть 3 / Guardians of the Galaxy Vol. 3 (2023) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Квилл никак не может смириться с потерей Гаморы и теперь вместе со Стражами Галактики вынужден отправиться на очередную миссию по защите Вселенной.Производство: США / Marvel StudiosFilm, New Zealand, Marvel EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Джеймс ГаннАктеры: Крис Пратт, Карен Гиллан, Пом Клементьефф, Дэйв Батиста, Зои Салдана, Чукуди Ивуджи, Брэдли Купер, Уилл Поултер, Вин Дизель, Шон ГаннПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 02:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77B381D3C0AFBCA824EB0C738B0BE48B52495DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655639   (193685) от 27.08.2023
+
+(Не)идеальные роботы / Robots (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарльз — ловелас, Элейн — охотница за деньгами состоятельных мужчин. Чтобы эффективнее достигать своих целей, они незаконным путем покупают себе роботов-двойников, которые делают за них всю предварительную работу по соблазнению клиентов. Однажды их пути пересекаются. Когда каждый должен получить свое (Чарльз — ночь любви, а Элейн — деньги), отлаженная система дает (   Читать дальше...   )Производство: США / Company FilmsЖанр: Фантастика, мелодрама, комедияРежиссер: Каспер КристенсенАктеры: Шейлин Вудли, Джек Уайтхолл, Пол Руст, Николас Рутерфорд, Пол Юревич, Дэвид Грант Райт, Эмануэла Постаккини, Челси Эдмундсон, Кристофер Дж. Буззел, Саманта ЭшлиПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:33:010
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5389B1AD4140B72D944070DC53AD0257C8CB5ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1503860   (817878) от 20.10.2021
-
-Юрий Моисеев | Право на гиперболу (2021) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Не успел Фильдекосов в своей речи на чествовании академика Пташечкина произнести несколько фраз, как оказался в дежурной части Эмоциональной службы. А всё закон об эмоциональных выступлениях, ибо он гласит:
-
-«Запретить: возбуждение неуправляемых эмоций в больших массах людей; употребление в речах троп: эпитетов, гипербол, метафор и т.д.».Жанр: ФантастикаПродолжительность: 00:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20FADDAB8C1E67B8565ACA611E08ABD4BC03C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008023   (817851) от 17.04.2016
-
-Артур Конан Дойл | Рассказы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Крупнейший английский писатель, тонкий мыслитель, общественный деятель, публицист, доктор медицины и доктор права сэр Артур Конан-Дойл известен всему миру как непревзойденный мастер детективного и приключенческого жанров. Однако огромный пласт его литературного наследия состоит из рассказов, не вошедших ни в один из официальных циклов: исторические, детективные, (   Читать дальше...   )Жанр: ПрозаПродолжительность: 04:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237158B48B9A3DB52AEFEE019847452D4C37401F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007589   (817753) от 17.04.2016
-
-Сет Грэм-Смит, Джейн Остин | Гордость и предубеждение и зомби (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На протяжении десятилетий Англию терзает загадочный недуг: полчища оживших мертвецов постоянно вылезают из-под земли и норовят употребить в пищу мирное население. Дворянские семьи посылают своих отпрысков в Японию и Китай для обучения боевым искусствам, позволяющим отражать нападения зомби. После того как нечисть истребила всех обитателей поместья Незерфилд-парк, (   Читать дальше...   )Жанр: Классическая проза с элементами ужасовПродолжительность: 11:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29568BA45BCC8DF000B7742CEC6B1C8D445F43C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007895   (817751) от 17.04.2016
 
 Василий Ян | Александр Македонский. Огни на курганах (2016) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817751.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817750.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817740.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817643.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817604.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817591.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817579.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817507.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817503.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817501.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817467.jpg" />
 </div>
 
 
@@ -378,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817450.jpg" />
 </div>
 
 
@@ -404,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817443.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817442.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817438.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817372.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817356.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817258.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817150.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817147.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817130.jpg" />
 </div>
 
 
@@ -639,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817126.jpg" />
 </div>
 
 
@@ -665,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817092.jpg" />
 </div>
 
 
@@ -676,6 +596,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A23F06E8DF1563C2D06387D80C70D17C4F441441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197172   (817007) от 06.01.2018
+
+Игорь Марченко | На краю Вселенной (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря Ингвару Грину могучей Галактической Империи нанесен смертельный удар. Но это не значит, что для бывшего спецназовца наступили спокойные времена. Грину так и не удается вернуться к жене и дочери. Снова и снова Грину приходится браться за оружие и убивать — ради спасения своей жизни и товарищей. То угораздит его ввязаться в кровавую драму на планете Небесный (   Читать дальше...   )Жанр: Фантастика, ПриключенияПродолжительность: 09:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9D12E04A1830876F30BECAECA4A4A9B97A8103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197088   (817002) от 06.01.2018
+
+Константин Калбазов | Сотник (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русь конца семнадцатого века. Именно Русь, потому что Россия делится на несколько независимых государств: Русское царство, Новгородская и Псковская республики, Гетманщина на левобережье Днепра да земли донских казаков. Нашему современнику довелось попасть в тело молодого стрельца. И вроде выпячиваться не хочет, да оно само как-то так происходит - в интриги то и дело (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 11:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790108C83EB64506BECBB76C60BADDB25AF4BC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007615   (816981) от 17.04.2016
+
+Сергей Лукьяненко | Цена вопроса (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды к королю явился Дьявол и предложил тому помощь в защите государства от досаждающей Империи.
+Цена вопроса — три миллиона детей разного пола в возрасте от пяти до двенадцати лет... .
+Начавшись на этой планете, история достигает вселенских масштабов.Жанр: ФэнтезиПродолжительность: 00:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3838182B743DAE2630391D430EC9FCD20832A7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1180510   (337194) от 05.11.2017
-
-Свет надежды / Tubelight (2017) WEB-DLRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В маленьком живописном городе Северной Индии живет Лакшман с младшим братом Бхаратом. Лакшман — чудаковатый простак с уникальным взглядом на мир, что часто служит причиной насмешек недалеких жители городка. Бхарат отчаянно защищает и оберегает брата, и их связь становится все глубже. Мир чудака Лакшмана рушится, когда напряженность на индийско-китайской границе достигает (   Читать дальше...   )Производство: ИндияЖанр: Драма, мелодрама, военныйРежиссер: Кабир КханАктеры: Салман Кхан, Сохаил Кхан, Ом Пури, Мохаммед Зишан Айюб, Яшпал Шарма, Чжу Чжу, Matin Rey Tangu, Бриджендра Кала, Иша Талвар, Jason D'SouzaПеревод: Профессиональный многоголосыйОзвучка: Маргарита Сахно, Маргарита Корш, Кирилл Патрино, Станислав Черсков и Денис СтроевСубтитры: Русские,неотключаемые (на песни)Продолжительность: 02:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F734683C61103C00954790F238C0C208DC10E62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954509   (337178) от 09.11.2015
-
-Прислушайтесь к голосам моря / Kike wadatsumi no koe: Nippon senbotsu gakusei shuki (1950) DVDRip [JP / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Антивоенная драма режиссёра Хидэо Сэкигавы, снятая на основе романа Ясутаро Яги опубликованного в 1949 году, в свою очередь написанного на основе дневников и записок японских солдат-студентов погибших в Бирме во время Второй Мировой войны. Бывший студент Маки встречает на передовой своего университетского учителя, преподававшего французскую литературу. Особое отношение (   Читать дальше...   )Производство: Япония, Toei Co. Ltd.Жанр: Военный, драмаРежиссер: Хидэо СэкигаваАктеры: Хайиме Идзу, Ясуми Хара, Акитаке Коно, Kинзо Шин, Харуко СугимураПеревод: ОтсутствуетЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 01:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759F1257C0EF9552B6B230E1348BFA4A732D621E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 726060   (337140) от 25.11.2013
 
 Тайна рода / Bloodline (2013) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337140.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337127.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337049.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337045.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337043.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337041.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337024.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337016.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337012.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337008.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337003.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336979.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336940.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336938.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336936.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336935.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336934.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336932.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336899.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336890.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336885.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336882.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336790.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336778.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:129FE3517379F4B57207B6E0E1A25D71BB553DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180818   (336773) от 05.11.2017
+
+Джек Ричер 2: Никогда не возвращайся / Jack Reacher: Never Go Back (2016) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экс-военный Джек Ричер приезжает в Вашингтон, чтобы впервые встретиться с майором Сьюзен Тернер, которая возглавила его бывшее подразделение и не раз выручала его в непростых ситуациях. По странному стечению обстоятельств буквально накануне его визита майора арестовывают по обвинению в измене… Ричеру, уверенному в невиновности Сьюзен, предстоит освободить ее и раскрыть (   Читать дальше...   )Производство: Китай, США / Huahua Film & Media Culture, Paramount Pictures, Shanghai Film GroupЖанр: боевик, триллер, криминал, детектив, приключенияРежиссер: Эдвард ЦвикАктеры: Том Круз, Коби Смолдерс, Элдис Ходж, Даника Ярош, Патрик Хьюсингер, Холт МакКэллани, Джудд Лорманд, Кристофер Берри, Хантер Бурк, Джейсон ДугласПеревод: Дублированный (Лицензия BD CEE), Авторский (одноголосый, закадровый) (А. Дасевич, В. Горчаков, М. Яроцкий, Ю. Живов, Л. Володарский)Субтитры: Английские, Русские (Full-length, Forced), Украинские (Forced)Продолжительность: 01:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA0B932C5A2F0C71974A72928EF43C8B5F8AB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838665   (336713) от 11.11.2014
+
+Ришелье. Мантия и кровь / Richelieu, la pourpre et le sang (2014) DVBRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый влиятельный человек Франции кардинал Ришелье оказывает протекцию маркизу де Сен-Мару. Молодой маркиз, наделенный живым умом и приятной внешностью, быстро становится любимцем Людовика XIII. Но вместо того, чтобы шпионить для Ришелье, Сен-Мар становится в ряды заговорщиков...Жанр: Драма, ИсторическийРежиссер: Анри ЭльманАктеры: Жак Перрен, Пьер Буланже, Стефан Герен-Тиллье, Элен Сезаре, Сесиль Буа, Ингрид Доннадье, Паскаль Эльзо, Жан Делль, Жан-Марк Кудер, Матюрен Вольц, Гаэлль Бона, Эрик БуньонПеревод: Профессиональный  (двухголосый закадровый) – студия "СВ Дубль"Продолжительность: 01:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B795EC10C022086345D6EE33EC162E6BCFCDA81F
 ```
 
 https://mybot314.ru/tekegram_catalog/

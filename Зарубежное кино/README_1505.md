@@ -1,55 +1,3 @@
-###  Публикация: 1338569   (263552) от 24.11.2019
-
-Гринго / El Gringo (2012) BDRemux [H.264/1080p] [GER Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Cюжет фильма строится вокруг одного человека, американца, которому представилась возможность забрать сумку с нарко деньгами. Он пересекает мексиканскую границу с пулевым ранением руки и 2,3 млн. наличных с целью отправиться в туристический городок - Акапулько и отдохнуть на пляже. Но не всё так просто, ближайший населённый пункт - Фронтерас, кишит ворами и бандитами (   Читать дальше...   )Производство: США / After Dark Films, Autonomous Films, Bomar OODЖанр: Боевик, ДрамаРежиссер: Эдуардо РодригезАктеры: Скотт Эдкинс, Кристиан Слэйтер, Петар Бачваров, Захари Бахаров, Мимоза Базова, Михаил Еленов, Валентин Ганев, Эрандо Гонсалес, Израэль Ислас, Джордж КарлуковскийПеревод: Двухголосый профессиональный, Одноголосый любительскийСубтитры: Немецкие (forced + full)Продолжительность: 01:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB9785225FA5861ABA8DB8C24A2EB89C6604FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339342   (263549) от 24.11.2019
-
-Код «Синий» / Kodo Buru: dokuta heri kinkyu kyumei / Code Blue the Movie (2018) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Произошли крупные аварии в аэропорте Нарита и на парковке Умихотару. Группе экстренной медицинской помощи "Доктор Хели" приходится столкнуться с чрезвычайной ситуацией, чтобы помочь раненым.Производство: Япония, Fuji Television NetworkЖанр: ДрамаРежиссер: Масаки НисиураАктеры: Ямасита Томохиса, Юи Арагаки, Эрика Тода, Манами Хига, Ёсукэ Асари, Масанобу Андо, Юко Араки, Дайки Ариока, Фумика Баба, Чак ДжонсонПеревод: Одноголосый любительский (Asian Miracle Group)Субтитры: английские (by SkewedS), русские (форсированные на начало фильма) - отдельными файламиПродолжительность: 02:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56433956E1CD415207CCF2FCF594777F014E59A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340586   (263509) от 24.11.2019
 
 Песнь дьявола (Песнь тьмы) / A Dark Song (2016) WEBRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263509.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263474.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263467.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263423.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263381.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263375.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263371.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263362.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263355.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263344.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263341.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263338.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263337.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263329.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263317.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263229.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263223.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263221.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263196.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263193.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263191.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263174.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263173.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263169.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF95E8B42ADA9B88997AA21A5CECCD1631E34CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339343   (263135) от 25.11.2019
+
+12 ребят, которые хотят умереть / Juni-nin no shinitai kodomo-tachi / 12 Suicidal Teens (2019) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263135.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 парней и девушек, которые решили покончить с собой, собираются в заброшенном доме. Когда они находят тело и пытаются выяснить, кто убийца, всплывают причины каждого отважившегося на такой отчаянный шаг.Производство: Япония, Chukyo TV Broadcasting Company, Fukuoka Broadcasting System, Hiroshima TelecastingЖанр: Триллер, детективРежиссер: Юкихико ЦуцумиАктеры: Хана Сугисаки, Макэню Арата, Такуми Китамура, Махиро Такасуги, Юина Куросима, Канна Хасимото, Аи Ёсикава, Рику Хагивара, Юто Футино, Рёта БандоПеревод: Двуголосый (XDUB DORAMA)Субтитры: Русские, английскиеПродолжительность: 01:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA1A23524759FF09AECAB6C92DBCC6E04E779CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339340   (263132) от 25.11.2019
+
+Божественная ярость / Saja / The Divine Fury (2019) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Ён-ху был ребёнком, его отец, полицейский и очень религиозный человек, погиб при исполнении. С тех пор парень живёт, затаив на Бога обиду, не любит сближаться с людьми и предпочёл реализоваться в MMA. Однажды на ладони ударной правой руки Ён-ху проступает стигмат, и с тех пор по ночам его приходят мучить злые потусторонние сущности. Пытаясь разобраться в происходящем, (   Читать дальше...   )Производство: Южная Корея, KeyEast, Lotte EntertainmentЖанр: Триллер, ужасы, боевикРежиссер: Ким Джу-хванАктеры: Пак Со-джун, Ан Сон-ги, У До-хван, Пак Чи-хён, Чон Джи-хун, Ли Сын-хи, Щим Хи-соп, Ким Щи-ын, Чхве У-щик, Ли Чхан-юПеревод: ДвуголосыйСубтитры: английские (отдельно), корейский (хардсаб)Продолжительность: 02:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF111AA7EC4088EA296AAB3BE7DBA1D73FCFE26
 ```
 
 https://mybot314.ru/tekegram_catalog/

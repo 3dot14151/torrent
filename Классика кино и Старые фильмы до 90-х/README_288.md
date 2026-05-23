@@ -1,31 +1,3 @@
-###  Публикация: 555265   (693609) от 18.08.2020
-
-Красная жара / Red Heat (1988) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В доперестроечные времена торговля наркотиками была из ряда вон выходящим преступлением. На борьбу с грузинским мафиози, который используя все связи США, пытается пристрастить к кокаину советских граждан, выходит гроза преступного мира милиционер Иван Данко.
-
-Этот парень не любит шутить, и доказательством серьезности его намерений служат большие мускулы и пистолет. (   Читать дальше...   )Производство: США, Венгрия / Carolco Pictures Inc., Lone Wolf, Oak PicturesЖанр: боевик, триллер, комедия, криминалРежиссер: Уолтер ХиллАктеры: Арнольд Шварценеггер, Джеймс Белуши, Питер Бойл, Эд О’Росс, Лоренс Фишбёрн, Джина Гершон, Ричард Брайт, Дж.В. Смит, Брент Дженнингс, Гретхен ПалмерПеревод: Многоголосый профессиональный, авторскийСубтитры: русские (R5, "Гоблин"), английскиеПродолжительность: 01:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E2E697D8705E33C851D0EB740BF4C21121046C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 895843   (693558) от 09.05.2015
 
 Энн из зеленых крыш / Ann of green Gables (1985) DVDRip [AVO]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693558.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693514.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693507.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693351.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693302.jpg" />
 </div>
 
 
@@ -165,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693294.jpg" />
 </div>
 
 
@@ -192,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693232.jpg" />
 </div>
 
 
@@ -218,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693025.jpg" />
 </div>
 
 
@@ -244,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692992.jpg" />
 </div>
 
 
@@ -270,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692897.jpg" />
 </div>
 
 
@@ -297,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692802.jpg" />
 </div>
 
 
@@ -323,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692742.jpg" />
 </div>
 
 
@@ -350,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692687.jpg" />
 </div>
 
 
@@ -376,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692682.jpg" />
 </div>
 
 
@@ -402,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692617.jpg" />
 </div>
 
 
@@ -428,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692578.jpg" />
 </div>
 
 
@@ -455,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692532.jpg" />
 </div>
 
 
@@ -481,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692527.jpg" />
 </div>
 
 
@@ -507,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692504.jpg" />
 </div>
 
 
@@ -533,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692464.jpg" />
 </div>
 
 
@@ -559,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692211.jpg" />
 </div>
 
 
@@ -585,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691803.jpg" />
 </div>
 
 
@@ -611,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691785.jpg" />
 </div>
 
 
@@ -639,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691776.jpg" />
 </div>
 
 
@@ -665,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691724.jpg" />
 </div>
 
 
@@ -677,6 +649,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B21E1C48A6B788BDD70D3DF7581C7EA4AC050D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288296   (691722) от 13.03.2019
+
+Мой дядя Бенжамин / Mon oncle Benjamin (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бенжамин был душой местного общества, личностью поистине незаурядной и демократичной. Неудивительно, что в него была по уши влюблена юная Монетта…
+Экранизация романа Клода Тиллье.Производство: Франция, Италия / Euro International Film (EIA), Gaumont InternationalЖанр: КомедияРежиссер: Эдуар МолинароАктеры: Жак Брель, Клод Жад, Бернар Алан, Рози Варт, Поль Франкёр, Альфред Адам, Бернар Блие, Карло Алигьеро, Лин Шардонне, Робер ДальбанПеревод: Профессиональный (двухголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB3D8CD83E99145C533CB1EB90BD6EB5178C960
 ```
 
 https://mybot314.ru/tekegram_catalog/

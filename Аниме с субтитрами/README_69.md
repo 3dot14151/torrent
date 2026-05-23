@@ -6,7 +6,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498523.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gyokou no Nikuko-chan | Fortune Favors Lady Nikuko | Никуко из Рыба�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498514.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498233.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tatsu no Ko Tarou / Taro the Dragon Boy / Таро - сын дракона [1979
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497065.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Karakuri no Kimi / Puppet Princess / Принцесса марионеток [20
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495368.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mazinkaizer SKL / Череп Мазинкайзера [2010, OVA, 3] BDrip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495308.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vatican Kiseki Chousakan | Vatican Miracle Examiner | Инспекторы чу�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495176.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493817.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493539.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Amatsuki / Амацуки [2008, 13эп] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492868.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Pinky:st | Улица Пинки [2006, OVA, 2 из 2] DVDRip 480p HEVC 10-bit r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492447.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Warau Salesman New / The Laughing Salesman New / Весёлый коммивоя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491813.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491342.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Kuruneko | Кошачьи истории [ТВ] [2009, TV, 100 эп.] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490012.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Hitsugi no Chaika: Avenging Battle Chaika: The Coffin Princess - Avenging Battle
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489730.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Wake Up, Girls! / Подъем, девчата! [2014, TV, 12] BDrip 1080p Hi10p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489398.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dantalian no Shoka / The Mystic Archives of Dantalian / Таинственная
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488827.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487176.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Nihon Animator Mihonichi | Japan Animator Expo | Японская выставк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487120.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Lucky ☆ Star / Счастливая звезда [2007, 24 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486738.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Wakaba Girl | Модница Вакаба [2015, TV, 13 + 1] BDrip 1080p Hi10p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485995.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Ozmafia!! / Академия Оз [2016, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485667.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | Отвер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483245.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Yami Shibai / Театр тьмы [ТВ-6] [2018, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482825.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482584.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482568.jpg" />
 </div>
 
 

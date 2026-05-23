@@ -6,7 +6,7 @@ BimmerCode for BMW and Mini v3.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033524.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033523.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wondershare UniConverter 12.5.4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033515.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pale Moon 29.0.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033496.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Microsoft Edge 88.0.705.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033490.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Comedy Баттл (05.02.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033489.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vivaldi 3.6.2165.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033486.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ darktable 3.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033481.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ WonderFox DVD Video Converter 22.0 (акция Comss) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033478.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cockos REAPER 6.23 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033465.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rainlendar Lite 2.16 Build 167 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033464.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ OCCT 7.3.2 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033452.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ubuntu 20.04.2 Focal Fossa LTS [amd64] 2xDVD2
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033438.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Wondershare Filmora 10.1.20.15 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033437.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ iStat Menus 6 v6.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033435.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033398.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ NIUBI Partition Editor 9.3.9 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033391.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Telegram for Android 9.5.3 (3213) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033390.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ O&O DiskImage Professional 18.3 Build 276 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033389.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VueScan Pro 9.7.99 (14.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033387.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Zoner Photo Studio X 19.2209.2.434 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033385.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ XYLIO Future DJ Pro 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033311.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Templates for Pages – DesiGN 7.1  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033306.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ OmmWriter 1.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033294.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ JRiver Media Center 27.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033289.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Balabolka 2.15.0.770 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033263.jpg" />
 </div>
 
 

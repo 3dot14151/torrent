@@ -1,29 +1,3 @@
-###  Публикация: 1751273   (42548) от 24.09.2024
-
-The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вы оказываетесь в доме, не похожем ни на один из тех, что вы видели раньше. Вы быстро понимаете, что это не обычный дом, а таинственное сооружение, построенное из ваших собственных сомнений и страхов. И вы оказались в ловушке. Вы блуждаете и ищете выход, но на вашем пути стоит нечто ужасное. Вы стремитесь к свету, но тьма не отпускает вас. Вам нужно пройти ряд испытаний, (   Читать дальше...   )Тип издания: SceneРазработчик: Hooligans EntertainmentЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97783DADF64062C99C8707B36C19041AE7CEAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751266   (42543) от 24.09.2024
 
 Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и песок (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42543.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42541.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Disney Epic Mickey: Rebrushed (2024) [Ru/Multi] (15745129/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42497.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.349/dlc) 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42476.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ City Bus Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42465.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42463.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42460.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Decepticon
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42388.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack FitGirl [Deluxe Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42357.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tiny Glade (2024) [Ru/Multi] (1.8.0a) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42354.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42313.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42213.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42176.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ NARUTO X BORUTO Ultimate Ninja STORM CONNECTIONS (2023) [Ru/Multi] (1.50/dlc) Sc
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42173.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Hadean Tactics (2023) [Multi] (1.1.13) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42172.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42171.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42170.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Mechabellum (2023) [Ru/Multi] (1.0.0.4.1366) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42159.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Last Epoch (2024) [Ru/Multi] (1.1.7.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42158.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42152.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42147.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Iron Meat (2024) [Ru/Multi] (1.0.2) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42142.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ravenswatch (2023) [Ru/Multi] (1.00.01.01.25883) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42134.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.41.0/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42130.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (15745129/dlc) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42125.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EBE0B5688C56786B472789C3FFAA4BD423C20E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751989   (42119) от 28.09.2024
+
+7 Days to Die (2013) [Ru/Multi] (1.0) Repack Wanterlude
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры разворачивается в суровом постапокалиптическом мире, захваченном нежитью. 7 Days - это единственная в своем роде игра с открытым миром, сочетающая в себе элементы шутера от первого лица, хоррора на выживание, защиты замка и ролевой игры. В ней можно сражаться, создавать предметы, собирать трофеи, добывать ресурсы, исследовать мир и развивать персонажа: (   Читать дальше...   )Тип издания: RepackРазработчик: The Fun PimpsЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B89797C94DAF42A0206093B1523572EE5AF606
 ```
 
 https://mybot314.ru/tekegram_catalog/

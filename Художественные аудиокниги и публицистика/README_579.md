@@ -1,81 +1,3 @@
-###  Публикация: 1171448   (396732) от 04.10.2017
-
-Мэри Стюарт | Заколдованный конь (2014) [MP3, Валерия Лебедева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Англичанка Ванесса Марч прилетает в Австрию, надеясь встретиться там со своим мужем и уладить возникшие между ними недоразумения, но неожиданно оказывается вовлеченной в мир, где есть убийства, опасные встречи с наркоторговцами, погони при лунном свете... Действие происходит на фоне прекрасной альпийской природы. "Кармел Лейси - самая глупая из всех известных (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 06:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA05B9969BAEE1B31B0241DDB4C6724E3DF74FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171447   (396621) от 04.10.2017
-
-Алексей Лосев, Аза Тахо-Годи | Аристотель. Жизнь и смысл (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Аристотель (384 до н. э., Стагир — 322 до н. э., Халкида, о. Эвбея) — древнегреческий философ и учёный. Ученик Платона. С 343 до н. э. — воспитатель Александра Македонского. В 335/4 г. до н. э. основал Ликей (Лицей, или перипатетическую школу). Основоположник формальной логики. Создал понятийный аппарат, который до сих пор пронизывает философский лексикон и сам стиль (   Читать дальше...   )Жанр: БиографияПродолжительность: 08:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AFD628642857D2CA0724D2C9BD7C7490BE9E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567882   (395935) от 30.10.2012
-
-Александр Тихонов | Крепость [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рассказ по вселенной "Кремль 2222". Во время Последней Войны на территории Красногорского гидроузла, неподалеку от Омска, был построен укреплённый военный объект. Именно там укрылись выжившие после кровопролитных боёв жители сибирского мегаполиса. За стенами Красногорской крепости - гарнизон из бывших сотрудников полиции и военных, вдоволь продовольствия и боеприпасов, имеется связь с кремлём. Лишь на горизонте маячит силуэт сломанного боевого робота как напоминание, что война ещё не окончена...Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882B6166BCB6EA192F990B76F9A1CC68EF4B1116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567188   (395902) от 30.10.2012
 
 Сальвадор Дали | Дневник одного гения [2007] [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395902.jpg" />
 </div>
 
 
@@ -114,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395809.jpg" />
 </div>
 
 
@@ -140,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395723.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395523.jpg" />
 </div>
 
 
@@ -193,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395518.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395511.jpg" />
 </div>
 
 
@@ -248,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395147.jpg" />
 </div>
 
 
@@ -275,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395027.jpg" />
 </div>
 
 
@@ -301,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394915.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394843.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394435.jpg" />
 </div>
 
 
@@ -380,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394034.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393968.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393951.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393882.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393681.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393226.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393212.jpg" />
 </div>
 
 
@@ -564,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392751.jpg" />
 </div>
 
 
@@ -593,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392737.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392248.jpg" />
 </div>
 
 
@@ -646,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392035.jpg" />
 </div>
 
 
@@ -672,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392021.jpg" />
 </div>
 
 
@@ -684,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E509AC4B19DD1A6B1F944E72F70F928976042AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172871   (391962) от 09.10.2017
+
+Елена Звёздная | Любовница снежного лорда (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если страшный снежный лорд объявил тебя своей любовницей? Идеальный вариант – в ответ объявить себя его личным секретарем, поставив перед фактом, что порядочные девушки с начальством не спят, и старательно начать приводить в порядок его жизнь! А как иначе, если, вступив в должность, обнаруживаешь, что в жизни шефа бардак, бывшая возлюбленная с супругом (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D49047806DEA722B7CFD84D42850285702B9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172703   (391958) от 09.10.2017
+
+Елена Звёздная | Академия Проклятий. Урок первый: Не проклинай своего директора (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Особенно – если вы простая адептка Академии проклятий, а он самый могущественный лорд Темной империи! Ведь совершив подобную глупость, вы можете запустить целую цепь странных событий… К примеру, проклятый вами лорд Риан Тьер внезапно начнет вас преследовать, оказывая недвусмысленные знаки внимания, смертельные проклятия одно за другим как из рога изобилия посыплются (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A63AA1E4A2EF30F226D38505A2636731F8E260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716911   (391900) от 31.10.2013
+
+Милорад Павич | Страшные любовные истории (2010) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник новых произведений выдающегося сербского прозаика М.Павича, где каждая вещь делает нас соучастниками некоей магической игры, затеянной писателем. Излюбленные темы Павича - любовь, смерть, загадочные сны, прошлое - вновь звучат в его прозе.Жанр: зарубежная прозаИздательство: Нигде Не Купишь
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33A5F4E294B393D31167292305E6CE4C27D7CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

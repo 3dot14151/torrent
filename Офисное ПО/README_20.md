@@ -6,7 +6,7 @@ PDF-XChange Viewer Pro 2.5.322.10 Full / Lite RePack (& Portable) by KpoJIuK [Mu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220170.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GreenCloud Printer Pro 7.8.6 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214217.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wondershare PDFelement 12.0.8.3784 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212197.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Office Timeline Pro 6.07.06.00 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211942.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ fx-Calc 4.9.4.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208672.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Document Express Editor 6.5.0 build 22420 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207055.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Kate 23.08.0 Build 2141 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203201.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ RedCrab Calculator 8.3.1 Portable [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202035.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201828.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ QTranslate 6.10.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201700.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Icecream PDF Converter Pro 2.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201601.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Orpalis PDF Reducer Professional 4.0.8 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201337.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Aiseesoft PDF Converter Ultimate 3.3.58 RePack (& Portable) by TryRooM [Multi/Ru
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200139.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PDF Eraser Pro 1.9.8.2 Portable by Spirit Summer [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200135.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Nitro Pro 13.70.5.55 x64 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199973.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Aiseesoft PDF Converter Ultimate 3.3.58 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198977.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ priPrinter Professional 6.9.0.2541 RePack by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198929.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PDF Annotator 9.0.0.914 (x64) [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198683.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198645.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Solo on Dvorak Keyboard 8.2.1.6 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198618.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ ORPALIS PaperScan Professional 4.0.9 RePack (& Portable) by elchupacabra [Multi/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197677.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mini Speech2Go 1.116 + Voices [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197133.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ novaPDF Lite 11.8 сборка 411 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196848.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Epubor Ultimate 3.0.15.425 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196752.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Keyman 16.0.141 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194326.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Calcpad 6.1.3 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192194.jpg" />
 </div>
 
 

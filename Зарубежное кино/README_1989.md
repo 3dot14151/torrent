@@ -1,56 +1,3 @@
-###  Публикация: 1690248   (124140) от 06.01.2024
-
-Последний стрелок / The Last Rifleman (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-92-летний ветеран Второй мировой войны Арти Кроуфорд сбегает из дома престарелых в Северной Ирландии и отправляется во Францию, чтобы почтить память павших боевых товарищей в 75-летнюю годовщину высадки в Нормандии.Производство: Великобритания / Ingenious Film Partners, Ripple World PicturesЖанр: драма, биография, военный, историяРежиссер: Терри ЛоанАктеры: Пирс Броснан, Клеманс Поэзи, Джон Эймос, Юрген Прохнов, Иэн Макэлхинни, Тара Линн О’Нил, Сэмюэл Боттомли, Десмонд Иствуд, Стелла МакКаскер, Клер РаффертиПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B30E53A63FE74E7C89C7B88EEC9F7FD026C3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690053   (124139) от 06.01.2024
-
-Айлин / Eileen (2023) WEB-DLRip [H.265/1080p] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноимённого романа Отессы Мошфиг.
-Девушка по имени Айлин уже некоторое время работает в колонии для несовершеннолетних. Она занимает должность секретарши и старается со всей ответственностью подходить к выполнению своих обязанностей. Совсем недавно у них в коллективе появилась новенькая сотрудница по имени Ребекка. Спустя какое-то время девушки начали (   Читать дальше...   )Производство: США, Великобритания / Fifth Season, Film4, Likely StoryЖанр: драма, триллерРежиссер: Уильям ОлдройдАктеры: Томасин Маккензи, Энн Хэтэуэй, Шей Уигэм, Сэм Нивола, Шиван Фэллон Хоган, Тони Патано, Уильям Хилл, Оуэн Тиг, Питер МакРобби, Питер фон БергПеревод: Многоголосый профессиональный (NewStudio | 18+)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D261BB1D2D38B07A11D7A43EEBD0FF906814E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435871   (124136) от 06.01.2024
 
 Любовь и монстры / Love and Monsters / Monster Problems (2020) BDRemux [H.264/1080p] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124136.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124122.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124121.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124117.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124112.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124111.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124100.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124079.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124075.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124072.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124071.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124026.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124024.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124009.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123982.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123976.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123967.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123950.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123895.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123890.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123886.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123884.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123882.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123880.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7393531E88D066C0F20063D2807481B56B6AD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690670   (123879) от 08.01.2024
+
+Миссия «Серенити» / Serenity (2005) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический «морской волк» и ветеран Гражданской Галактической войны Малькольм «Мэл» Рейнольдс — теперь всего лишь капитан транспортного корабля. Когда они взяли на борт пассажиров — молодого доктора и его странную сестру с телепатическими способностями, ни он, ни его товарищи не предполагали, в какую историю ввяжутся. Спасаясь сразу от нескольких могущественных (   Читать дальше...   )Производство: США / Barry Mendel Productions, Universal PicturesЖанр: фантастика, боевик, триллер, приключенияРежиссер: Джосс УидонАктеры: Нэйтан Филлион, Джина Торрес, Алан Тьюдик, Морена Баккарин, Адам Болдуин, Джуэл Стэйт, Шон Маэр, Саммер Глау, Рон Гласс, Чиветель ЭджиофорПеревод: дублированный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33FA058316934573A2AAA935CE35D7C3E329A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690663   (123878) от 08.01.2024
+
+Большая гонка. Ауди против Лянчи / Race for Glory: Audi vs. Lancia (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123878.jpg" />
+</div>
+
+
+###  Подробнее
+
+История знаменитого противостояния итальянской «Лянчи» и немецкой «Ауди». Битва двух концернов, двух философий и двух легендарных машин, за рулём которых сидели лучшие в мире пилоты. 20 трасс в 12 странах: дождь, снег, горные серпантины и узкие улочки средневековых городов. В ход идут все уловки — ни одна из команд не думает отступать. Победитель (   Читать дальше...   )Производство: Италия, Великобритания, Ирландия / HanWay Films, Lebowski, Metropolitan FilmsЖанр: спорт, драма, биографияРежиссер: Стефано МординиАктеры: Даниэль Брюль, Риккардо Скамарчо, Кэти Кларксон-Хилл, Фолькер Брух, Эстер Гаррель, Брюно Гуэри, Карлотта Верни, Якопо Рампини, Кай Портман, Джулио БрицциПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced), английские (forced, full, SDH)Продолжительность: 01:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D3F25114ABC12BA3A55E4327982408EB3B4C28
 ```
 
 https://mybot314.ru/tekegram_catalog/

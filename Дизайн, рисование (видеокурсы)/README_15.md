@@ -6,7 +6,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Arms (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007241.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Proko | Anatomy of the Human Body: Skeleton (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007240.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CG-Cookie, Sander Mos | Landscapes Course (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007146.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gumroad, Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007133.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CGMA, James Paick | Environment Design 2 James Paick (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007121.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Udemy, Jaysen Batchelor, Austin Batchelor | The Ultimate Digital Painting Course
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006824.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Profileschool, Никита Чесноков | Основы VFX в After Effects
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006685.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SVS, Will Terry | Illustrating Children's Books Part 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006479.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ SVS, Will Terry, Jake Parker | Posing Characters: Children's Book Edition (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006477.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ SVS, Jake Parker | Mastering Perspective (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006471.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Schoolism, Kris Pearn | Storyboarding (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006461.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Enterclass, Сергей Курбатов | Сложная вода. Прост�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006455.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gumroad, Lu Dongjun | Gold Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006152.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Gumroad, Lu Dongjun | Bug Study (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006141.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Gumroad, Lu Dongjun | Lava Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006137.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Gumroad, Lu Dongjun | Freezing study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006130.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Gumroad, Lu Dongjun | Jurassic Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006126.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ SVS, Will Terry | Choosing colors for storytelling (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006123.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Gumroad, Lu Dongjun | Desert Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006121.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ SVS, Jake Parker | Creative Environment Design (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006108.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Gumroad, Lu Dongjun | Metal Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006107.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Gumroad, Lu Dongjun | Jungle Study (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006101.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ SVS, Jake Parker | Drawing Animals: Mammal Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006098.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005245.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Udemy, Mrawan Hussain | Создание робота из Звёздных во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004941.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ CG Fast Track | Быстрый путь в Blender 2.90 части 1-2 / Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004940.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1401853   (701037) от 14.08.2020
-
-Дитя робота / I Am Mother (2019) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мир уничтожила эпидемия. Укрывшийся в бункере робот находит возможность вырастить в безопасности человеческого ребенка. Однажды снаружи к ним прорывается женщина, которая расскажет подросшей девочке, что среди людей есть выжившие, а роботам доверять нельзя. Но мама-робот не согласна отпустить дочь в мир людей.Производство: Австралия / The Penguin Empire, Southern Light Films, Rhea Films (II)Жанр: ужасы, фантастика, триллер, драмаРежиссер: Грант СпьюторАктеры: Клара Ругор, Роуз Бирн, Хилари Суэнк, Мэдди Лентон, Люк Хокер, Саммер Лентон, Хэйзел Сэндери, Тейлия Стурзэйкер, Джейкоб Нолан, Джонни КарсонПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полн.), английские (полн.)Продолжительность: 01:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10273EC4A339DA11416C3E87E2EBED651BDBF246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398946   (701035) от 14.08.2020
-
-Картина красоты ( Изображение красоты) / Picture of Beauty (2017) BDRemux [H.264/1080i] [VO]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Две красивые девушки модельной внешности достигли совершеннолетия, и тем временем у живописца возник необычный заказ. В условиях нравственных репрессий и сексуальных пресечений, девушки высвобождаются из оков.Производство: ВеликобританияЖанр: Драма, мелодрамаРежиссер: Максим ФордАктеры: Тэйлор Сандс, Даниэль Роуз, Павель Хайнос, Магдалена Бохан-Яхимек, Иоанна Мазевска, Иоанна Собачинска, Эрнестина Винницкая, Amer Riad El Muafy, Элен Мур, Frantisek SmejkalПеревод: Одноголосый любительский (datynet)Субтитры: Русские, английскиеПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C760C1E5D90A44B5AD4EF9BEF9D0DE92B3E45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396625   (701025) от 14.08.2020
 
 Зависнуть в Палм-Спрингс / Palm Springs (2020) WEB-DLRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701025.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701021.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700979.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700935.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) BDRip [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700933.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700928.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700924.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700923.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700922.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700893.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700882.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700865.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700864.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700838.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700807.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700791.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700790.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700785.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700752.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700724.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700703.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700624.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700557.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700453.jpg" />
 </div>
 
 
@@ -673,6 +621,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3FFB1A8C159105D03AEB380477F1F28C028A839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132512   (700451) от 09.05.2017
+
+Три икса 2: Новый уровень / xXx: State of the Union (2005) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка снова в опасности, и на сей раз беда пришла откуда не ждали: удар по демократии был нанесен изнутри! Группа высокопоставленных заговорщиков в белом доме поднимает мятеж с целью захвата власти. Спецслужбы бессильны — бунтовщики разгромили Агентство Национальной Безопасности (АНБ).
+Страна на грани хаоса и террора, но у чудом выжившего офицера АНБ Огастеса Гиббонса (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Original Film, Revolution StudiosЖанр: Боевик, ПриключенияРежиссер: Ли ТамахориАктеры: Уиллем Дефо, Сэмюэл Л. Джексон, Айс Кьюб, Скотт Спидман, Иксзибит, Питер Штраусс, Майкл Руф, Санни Мабри, Нона Гэй, Джон Дж. КонноллиПеревод: Дублированный, любительский (одноголосый, закадровый) Daniel JacksonСубтитры: Русские, английскиеПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C902CEB1A0E4FC11590890D18447F6F614A59B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220351   (700437) от 21.04.2018
+
+Безумные похороны / Eulogy (2004) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три поколения семьи Коллинз никогда не ладили друг с другом, и теперь у них появился отличный повод еще раз погрызть друг другу глотки.
+Смерть Эдмунда, грандиозного главы семейства, собрала под одной крышей Дэниела, тайного порноактера; Люси, собравшуюся объявить о своей свадьбе с любимой подругой; агрессивную невротичку Элис, превратившую свою семью в послушных (   Читать дальше...   )Производство: Eulogy Productions LLC, Ovation Entertainment LLC, S.R.O. Entertainment AGЖанр: Комедия, ДрамаРежиссер: Майкл КлэнсиАктеры: Хэнк Азария, Джесси Брэдфорд, Зои Дешанель, Гленн Хедли, Фамке Янссен, Пайпер Лори, Келли Престон, Рэй Романо, Рип Торн, Дебра УингерПеревод: Многоголосый закадровыйСубтитры: английские (полные); английские (полные), SDHПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F1152D9CFA0E905BD88ABA788AF96B41177AED
 ```
 
 https://mybot314.ru/tekegram_catalog/

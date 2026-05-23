@@ -1,109 +1,3 @@
-###  Публикация: 1870644   (1068992) от 
-
-Кузя. Путь к успеху (2026) WEBRip [H.264] (сезон 1, серии 1-15 из 15)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эдуард Кузьмин после громкого ухода из университета возвращается в родную Агаповку и неожиданно для себя становится главой местного колхоза. Благодаря своей непосредственности и нестандартному подходу он не только сохраняет хозяйство, но и выводит его на новый уровень. Однако в тени развивается интрига — антагонист пытается использовать Кузю в своих целях и разрушить (   Читать дальше...   )Производство: Россия | «Comedy Club Production»Жанр: КомедияРежиссер: Александр НазаровАктеры: Виталий Гогунский, Анатолий Кот, Ника Вигель, Денис Бузин, Евгения Капралова, Артём Гайдуков, Екатерина Шмакова, Владислав Дунаев, Максим Батенёв, Глеб Шевченко и др.Субтитры: ОтсутствуютПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E3F437752F96381C4B854D53FA87260F0A59B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870645   (1068991) от 
-
-Microsoft .NET 9.0.16 Runtime [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C294434FCC8EA55DD97E8B1BF59E7064AAE44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870648   (1068990) от 
-
-Microsoft .NET 8.0.27 Runtime [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A14ADDD678BB4B03BB491373EFF5CF42D25C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870649   (1068989) от 
-
-Visual Studio Code 1.119.1 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CD33904160539DC1354AE0878DB5FA4B975EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870626   (1068988) от 
 
 Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Scene Rune [Gold Edition]
@@ -112,7 +6,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Scene Rune [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068988.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Repack Let'sРlay [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068987.jpg" />
 </div>
 
 
@@ -164,7 +58,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068986.jpg" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068985.jpg" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068984.jpg" />
 </div>
 
 
@@ -242,7 +136,7 @@ Geekbench 6.7.1 Pro RePack (& Portable) by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068982.jpg" />
 </div>
 
 
@@ -268,7 +162,7 @@ Topaz Photo 1.5.1 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068981.jpg" />
 </div>
 
 
@@ -294,7 +188,7 @@ Topaz Video 1.5.0 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068980.jpg" />
 </div>
 
 
@@ -320,7 +214,7 @@ Topaz Gigapixel 1.2.0 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068979.jpg" />
 </div>
 
 
@@ -346,7 +240,7 @@ Tor Browser 15.0.13 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068978.jpg" />
 </div>
 
 
@@ -372,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068977.jpg" />
 </div>
 
 
@@ -398,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068976.jpg" />
 </div>
 
 
@@ -424,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068975.jpg" />
 </div>
 
 
@@ -450,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068974.jpg" />
 </div>
 
 
@@ -476,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068973.jpg" />
 </div>
 
 
@@ -502,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068972.jpg" />
 </div>
 
 
@@ -528,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068971.jpg" />
 </div>
 
 
@@ -554,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068970.jpg" />
 </div>
 
 
@@ -580,7 +474,7 @@ Minimal Image Viewer 1.9.1 Portable [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068969.jpg" />
 </div>
 
 
@@ -606,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068968.jpg" />
 </div>
 
 
@@ -632,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068967.jpg" />
 </div>
 
 
@@ -658,7 +552,7 @@ Google Chrome 148.0.7778.168 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068966.jpg" />
 </div>
 
 
@@ -669,6 +563,110 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF928E4B40775D9175C4A8C0675FBCE1334743D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870680   (1068965) от 
+
+Google Chrome 148.0.7778.168 Portable by Cento8 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C7A7F61B38F9054D5C5A1698C27E638C7AB6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870682   (1068964) от 
+
+Active@ Disk Editor 26.1.3 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Active@ Disk Editor - это бесплатный расширенный инструмент для просмотра и редактирования необработанных данных (секторов) на физических дисках, включая тома, разделы и файлы. Active@ Disk Editor использует простую программу просмотра дисков низкого уровня, которая отображает информацию в двоичном и текстовом режимах одновременно. Вы можете использовать это представление (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D58E00A54F275160DE36DCD8B2CA3E65E120972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870684   (1068963) от 
+
+Кристоферы / The Christophers (2025) WEB-DL [4K, HDR10+, 10-bit] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барнаби и его сестра Салли — дети некогда знаменитого пожилого художника Джулиана Склара. В тайне от отца они решают нанять молодую художницу Лори Батлер, чтобы та дописала незаконченные картины Джулиана, которые после его смерти перейдут детям по наследству и позволят им заработать.Производство: Великобритания, США / Department MЖанр: драма, комедияРежиссер: Стивен СодербергАктеры: Иэн Маккеллен, Микейла Коул, Дмитрий Прокопьев, Джессика Ганнинг, Джеймс Корден, Тилли Ботсфорд, Дэниэл Фирн, Люси Маккормик, Ле Филь, Даллас КэмпбеллПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB3A57F39E7B65C9EB8125D30E5165E5F6250993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870685   (1068962) от 
+
+Взлом на миллион / Wardriver (2026) WEB-DL [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь хакера-кочевника Коула подчинена строгому коду: никаких привязанностей и никаких следов. Но крупный заказ на миллион долларов сталкивает его с Сарой − девушкой, ставшей пешкой в чужой опасной схеме. Когда ограбление выходит из-под контроля, а за самим Коулом начинается охота, он вынужден выйти из тени: вернуть деньги и вытащить Сару из смертельной ловушки, (   Читать дальше...   )Производство: США / Star Thrower Entertainment, Travelling Picture Show Company, TheЖанр: триллерРежиссер: Ребекка ТомасАктеры: Дэйн ДеХаан, Саша Калле, Мамуду Ати, Джеффри Донован, Уильям Белло, Карина Сегура, Кэмерон Ли Прайс, Гэри Хаус, Луз Озуна, Брук БёртонПеревод: Дублированный (Pride Production)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDBEEB9F80AADB3E2F7CB42C136F0424059E8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

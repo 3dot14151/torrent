@@ -1,55 +1,3 @@
-###  Публикация: 466274   (81700) от 12.03.2012
-
-Жена астронавта / The Astronaut's Wife (1999) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Находясь в открытом космосе, астронавт Спенсер Армакост (Джонни Депп) на несколько минут потерял связь с Землей. Но все обошлось, и экипажу удалось вернуться назад. Спенсер и его жена опять были вместе. Но вскоре Джиллиан (Шарлиз Терон) начинает подозревать, что ее муж стал другим. И если прежде она тревожилась за его жизнь, то теперь стала бояться за свою. Она оказалась один на один с пугающей неизвестностью…Жанр: Фантастика, Триллер, УжасыРежиссер: Рэнд РэвичАктеры: Джонни Депп, Шарлиз Терон, Джо Мортон, Ник Кассаветис, Клеа ДюВалл, Саманта Эггар, Донна МерфиПеревод: ДублированныйПродолжительность: 01:49:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466684   (81606) от 12.03.2012
-
-Человек, который хотел оставаться собой / The Big Picture / L'homme qui voulait vivre sa vie (2010) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Поль — сотрудник одной из адвокатских контор Парижа с большой зарплатой и большим домом, красивой женой и двумя сыновьями. Однако вскоре Поль узнает, что его жена изменяет ему с местным фотографом. Слепая ярость толкает Поля на безрассудный поступок. Стоя над трупом любовника, он понимает, что его красивая благополучная жизнь в прошлом…Жанр: ДрамаРежиссер: Эрик ЛартигоАктеры: Ромен Дюри, Марина Фоис, Нильс Ареструп, Бранка Катич, Катрин Денёв, Эрик РуфПеревод: Двухголосый закадровыйПродолжительность: 01:55:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465446   (81353) от 10.03.2012
 
 Код Да Винчи + Ангелы и Демоны / The Da Vinci Code + Angels & Demons (2006-2009) BDRip [H.264/720p] [Extended Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81353.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81319.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81286.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81285.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81110.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81090.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81060.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80885.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80857.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80853.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80486.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80470.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80462.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80299.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80290.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80247.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80245.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80119.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79909.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79885.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79858.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79842.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79581.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79489.jpg" />
 </div>
 
 
@@ -672,6 +620,60 @@ https://mybot314.ru/tekegram_catalog/
 
 В основу этой приключенческой ленты положен роман Дэниела Уоллеса «Большая рыба: роман мифических пропорций». Умирает отец, о жизни которого сын хочет узнать как можно больше, собирая истории о нем.
 Сын пытается воссоздать ускользающую жизнь отца в серии легенд и мифов, которые тот придумывает на основе разрозненных фактов. Взлеты и падения в жизни человека в итоге (   Читать дальше...   )Жанр: Фэнтези, Драма, ПриключенияРежиссер: Тим БёртонАктеры: Юэн МакГрегор, Альберт Финни, Билли Крудап, Джессика Лэнг, Хелена Бонем Картер, Элисон Ломан, Роберт Гийом, Марион Котийяр, Мэттью МакГрори, Дэвид ДенманПеревод: Дублированный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460278   (79488) от 01.03.2012
+
+Однажды в Ирландии / The Guard (2011) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщины, выпивка и веселые шутки - вот радости добродушного ирландского полицейского, сержанта Джерри Бойла. Он никогда не помышлял о геройстве, пока однажды в Дублине не появился агент ФБР, который призвал незадачливого служителя порядка помочь ему накрыть международную банду наркоторговцев. Смогут ли сработаться веселый рыжий ирландец и решительный афроамериканец? (   Читать дальше...   )Жанр: триллер, комедия, криминалРежиссер: Джон Майкл МакДонаАктеры: Брендан Глисон, Дон Чидл, Марк Стронг, Лиам Каннингэм, Дэвид Уилмот, Рори Кинэн, Фионнула Флэнаган, Доминик МакЭллигот, Сара Грин, Катарина КэсПеревод: Одноголосый закадровый (Ю.Сербин)
+Одноголосый закадровый (Дмитрий «Гоблин» Пучков)Субтитры: Русские
+Английские (2 вида)Формат: MKVПродолжительность: 01:35:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460155   (79408) от 01.03.2012
+
+Переростки / The Inbetweeners Movie (2011) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устав от своих проблем, четверо восемнадцатилетних приятелей подростков с юга Англии отправляются на двухнедельный отдых-мальчишник в Грецию.Жанр: комедияРежиссер: Бен ПалмерАктеры: Саймон Бёрд, Джеймс Баккли, Блейк Харрисон, Джо Томас, Эмили Хэд, Лидия Роуз Бьюли, Лаура Хэддок, Тамла Кэри, Джессика Нэппет, Тео Барклем-БиггзПеревод: ДублированноеСубтитры: ОтсутствуютФормат: MKVПродолжительность: 01:36:57
 
 ## Скачать торент
 ```bash

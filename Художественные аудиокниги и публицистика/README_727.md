@@ -1,81 +1,3 @@
-###  Публикация: 1269393   (215896) от 17.12.2018
-
-Оливье Норек | Капитан Кост (Книга 1). Код 93 (2018) [MP3, Сергей Краснов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Оливье Норека сравнивают с лучшими мастерами криминального жанра, Ю Несбё и Жаном-Кристофом Гранже. Он блестяще совмещает сочный натурализм с тончайшим психологизмом. А эта задача по силам лишь настоящим мастерам… Работая долгое время в убойном отделе полиции, капитан Виктор Кост повидал всякое. Но последние события буквально выбили землю у него из-под ног. Сначала (   Читать дальше...   )Жанр: ДетективИздательство: АудиокнигаПродолжительность: 08:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407E420E397F6178687B572097E37920E21FB32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269788   (215869) от 17.12.2018
-
-Елизавета Дворецкая | Венец Прямиславы (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Выданная замуж по политическим соображениям, Прямислава семь лет жила вдали от мужа. Он был для нее совершенно чужим человеком, и девушка уже свыклась с мыслью, что подчинит свою жизнь чувству долга, однако случайная встреча перевернула все с ног на голову. Одна незадача – в момент знакомства с молодым сыном перемышльского князя на княжне было холопское платье, надетое (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 16:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74487417D3988ABAD0DED4E72E8865A5DB131C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343718   (215863) от 07.12.2019
-
-Андрей Красников | Проклятый храм (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Разобравшийся с заданием мэра Фантом оказывается на перепутье. Впереди маячат новые приключения и квесты, но игровой мир не собирается прогибаться под желания упертого одиночки, подбрасывая ему все новые и новые испытания. Для преодоления возникающих трудностей герою приходится искать новые возможности и обзаводиться новыми друзьями.Жанр: Боевое фэнтези, LitRPGПродолжительность: 10:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671773EAC2EDF7F64DA0562C9485609704EF2ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269741   (215853) от 17.12.2018
 
 Эдгар Уоллес | Мститель (2018) [MP3, Игорь Мурашко]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215853.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215833.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215811.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215810.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215808.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215805.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215788.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215781.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215739.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215736.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215730.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215726.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215721.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215714.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215705.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215639.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215582.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215570.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215529.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215480.jpg" />
 </div>
 
 
@@ -611,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215462.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215454.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215445.jpg" />
 </div>
 
 
@@ -677,6 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D07CFB83F2AC5A33B00A5DAA1EA4E0B95F882FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426222   (215437) от 23.11.2020
+
+Кирилл Клеванский | Пепел (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215437.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пепел» – фантастический роман Кирилла Клеванского, первая книга цикла «Легенды Безымянного Мира», приквел к "Сердце Дракона», жанр боевое фэнтези, героическое фэнтези.
+
+Еще до того, как погасла Миристаль. До битвы Небес и Земли. Когда еще не был заточен на Горе Черепов Черный Генерал, странствовал волшебник, ищущий на бесконечных тропах Безымянного Мира себя, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 17:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33F7420461545D12D859DB84882CBBFA479BD7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586594   (215425) от 27.10.2022
+
+Алексей Карелин | S.T.A.L.K.E.R.: Еретик  (2022). [MP3, Олег Шубин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто есть Бог и есть ли? И может ли Он помочь в Зоне, которая не терпит соперничества? Кто страшнее: монстр или человек? Прошедший чеченскую войну Островский оставлен отрядом в Припяти. Раненный и обессиленный, он оказывается во власти былого врага из боевого прошлого. А дома ждут жена и дочь, умирающие от рака...Жанр: Боевая фантастика, ПостапокалипсисПродолжительность: 10:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141B475D6AFC207CABEB2B36FED780260C267D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270031   (215419) от 17.12.2018
+
+Максим Керн | Корона эльфийской империи (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо быть королём. Все тебя любят, все тебя уважают… Так думал наш соотечественник Алексей Воронцов, когда после автомобильной аварии попал в другой мир. Причём в тело эльфа. Непростого эльфа, к слову, а целого короля. Казалось бы, живи и радуйся, тем более, что возвращаться обратно Алексей желанием не горит. Но быть королём оказалось не так просто. Сначала вампир-оборотень (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, Юмористическое фэнтезиПродолжительность: 12:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0109579C7AAC18EF60159BFA5353E31806BEC026
 ```
 
 https://mybot314.ru/tekegram_catalog/

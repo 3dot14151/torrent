@@ -1,30 +1,3 @@
-###  Публикация: 1140079   (658144) от 04.06.2017
-
-Орел и решка. Рай и ад (2017.06.04) WEB-DLRip (сезон 13: Адский Лагос)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
-В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9A4A56D9D9B47E688F9B9C75AF7D8E1E9C58EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139949   (658143) от 04.06.2017
 
 Холостяк (2017.06.03) HDTVRip (сезон 5, выпуск 13 - финал)
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658143.jpg" />
 </div>
 
 
@@ -61,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658135.jpg" />
 </div>
 
 
@@ -88,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658131.jpg" />
 </div>
 
 
@@ -115,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658128.jpg" />
 </div>
 
 
@@ -141,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658114.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658109.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658107.jpg" />
 </div>
 
 
@@ -220,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658068.jpg" />
 </div>
 
 
@@ -246,7 +219,7 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/108
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658051.jpg" />
 </div>
 
 
@@ -272,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658036.jpg" />
 </div>
 
 
@@ -300,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658033.jpg" />
 </div>
 
 
@@ -326,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658023.jpg" />
 </div>
 
 
@@ -353,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657997.jpg" />
 </div>
 
 
@@ -379,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657991.jpg" />
 </div>
 
 
@@ -405,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657989.jpg" />
 </div>
 
 
@@ -431,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657987.jpg" />
 </div>
 
 
@@ -457,7 +430,7 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/720
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657971.jpg" />
 </div>
 
 
@@ -483,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657938.jpg" />
 </div>
 
 
@@ -509,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657933.jpg" />
 </div>
 
 
@@ -536,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657930.jpg" />
 </div>
 
 
@@ -563,7 +536,7 @@ NGW: Дикие Гавайи. Тайны морских глубин / Wildes Ha
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657929.jpg" />
 </div>
 
 
@@ -589,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657928.jpg" />
 </div>
 
 
@@ -615,7 +588,7 @@ BBC. Секретные войны (Тайные войны) / The Secret War (1
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657924.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657910.jpg" />
 </div>
 
 
@@ -669,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657874.jpg" />
 </div>
 
 
@@ -680,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A26BB2A25706B9F6835BBC39EB0E0A53A9A93B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139757   (657818) от 04.06.2017
+
+США против Джона Леннона / The U.S. vs. John Lennon (2006) WEBRip  [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда кто-то из шоу-бизнеса решает участвовать в политике, он или она приносит большую жертву и многим рискует. Этот фильм пытается приоткрыть завесу тайны над жизнью и смертью одного из самых легендарных музыкантов — Джона Леннона. Власти боялись того, что символизировал Джон. Любой, кто поет о любви и жизни, опасен для тех, кто «поет» о смерти и насилии. Джон дружил (   Читать дальше...   )Производство: СШАЖанр: Документальный, биография, музыкаРежиссер: Дэвид Лиф, Джон ШейнфелдПеревод: Профессиональный Многоголосый закадровый, Любительский Двухголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B17A5310A425C32124E1149F8711AA9837B273
 ```
 
 https://mybot314.ru/tekegram_catalog/

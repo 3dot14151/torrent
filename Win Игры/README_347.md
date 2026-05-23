@@ -1,29 +1,3 @@
-###  Публикация: 1658923   (190434) от 10.09.2023
-
-Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Diary of Lucie - это сюжетно-ориентированный экшен-рогалик созданный на базе RPG Maker, где вас ожидает не только полноценная история, но и динамичными сражениями. Главная героиня оказалась в странном месте, которое словно граничит между реальностью и выдумкой. Сопроводите ее в этом насыщенном приключении, чтобы узнать где она оказалась и удастся ли ей выбраться (   Читать дальше...   )Тип издания: SceneРазработчик: Parange ProjectЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, КорейскийЯзык интерфейса: Английский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC60188FD7FF5CC3CE11983295E07DCFB218DA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659013   (190344) от 10.09.2023
 
 The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanced Edition]
@@ -32,7 +6,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190344.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Demonologist (2023) [Ru/Multi] (0.5.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190318.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Little Witch Nobeta (2022) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189958.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Samudra (2021) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189865.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189864.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Reflections of Life 11: Spindle of Fate (2022) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189692.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ New York Mysteries 5: Power of Art / Загадки Нью-Йорка 5: Сил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189638.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189604.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Kerbal Space Program (2015) [Ru/En] (1.12.4.03187/dlc) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189589.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189550.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lempo (2023) [Multi] (0.111) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189514.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Immortal Love 9: True Treasure / Бессмертная любовь 9: Наст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189294.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189141.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189139.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ No Son of Mine (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189113.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (Build 11395309) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189098.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Daimon Blades (2025) [Ru/Multi] (114924/dlc) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188776.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188720.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Prison City (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188716.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188697.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Raiden III x MIKADO MANIAX (2023) [Multi] (1.0/dlc) Scene Tenoke [Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188690.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188688.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188683.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Zniw Adventure (2020) [Multi] (1.3.4W) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188678.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188660.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Murder House – сюжетный сурвайвл-хоррор, в которо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72050145D856B6AF481866EAF9E1689F776A1736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661112   (188640) от 14.09.2023
+
+God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то этот мир был ярким и прекрасным, полным света и чудес. Но однажды, силы зла вторглись в эти земли и похитили свет мира, погрузив его во тьму. Это привело к хаосу и разрушениям по всему миру, и многие боялись, что тьма никогда не уйдет. В этом экшен-рогалике вы будете противостоять ордам монстров на каждом уровне при помощи автоматических атак оружия. Уворачивайтесь (   Читать дальше...   )Тип издания: SceneРазработчик: Archmage LabsЖанр: Экшены, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86254BB8BC696670D02F96D92245D334DB1D8BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

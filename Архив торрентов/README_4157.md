@@ -6,7 +6,7 @@ Macrorit Disk Scanner 6.0.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165858.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Patti Austin - Body Language (2003) [FLAC|Lossless|image + .cue] <Soul, Rhythm &
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165857.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Bootstrap Studio 5.5.0 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165855.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Topaz Mask AI 1.3.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165854.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Opera 94.0.4606.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165844.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ OBS Studio 26.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165843.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ CleanMyMac X 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165839.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ K-Lite Codec Pack Update 17.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165836.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165835.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Textify 1.8.10 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165826.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Macrorit Partition Extender 2.1.0 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165821.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ FontLab 7 7.0.1 (build 7276) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165812.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Softorino YouTube Converter 2 2.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165809.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ iWork Converter 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165806.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Scarlean - Soulmates (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165803.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ RazorSQL 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165801.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ One Switch 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165797.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Privacy Eraser Free 4.57.2 Build 3324 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165791.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ EditRocket 4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165785.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Macsome iTunes Converter 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165765.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165761.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Antivirus Removal Tool 2022.12 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165742.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ COMSOL Multiphysics 5.6.0.280 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165741.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ PotPlayer 221215 (1.7.21859) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165739.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Topaz Video AI 3.0.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165731.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 29) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165725.jpg" />
 </div>
 
 

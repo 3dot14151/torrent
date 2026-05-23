@@ -6,7 +6,7 @@ Ashampoo Burning Studio 19.0.0.25 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271054.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blue Cat's All Plug-Ins Pack (v.2018.11.2) VST, VST3, RTAS, AAX RePack by VR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271044.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rainmeter 4.1 Build 2989 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271030.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Format Factory 4.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271016.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Loopmasters - Bass Master 1.1.1.388 VSTi (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271011.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wise Reminder 1.2.9.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271010.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FileZilla 3.39.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270999.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mp3tag 2.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270995.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ashampoo Burning Studio 19.0.0.25 RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270990.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Skype 8.12.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270984.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ESET Internet Security 11.0.154.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270979.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Image Uploader 1.3.2 Build 4649 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270966.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CyberLink PowerDVD Ultra 17.0.2316.62 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270940.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Animate CC 2018 (v18.0) RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270938.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PDF Shaper Professional 8.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270905.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ O&O BlueCon Admin + Tech Edition 15.5 Build 5040 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270887.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ashampoo UnInstaller 8.00.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270860.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MAGIX SOUND FORGE Audio Studio 12.6.0.356 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270848.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ SoftMaker Office Professional 2018 rev 942.1129 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270825.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ FabFilter - Total Bundle v2018.11.30 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270815.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Auslogics BoostSpeed 10.0.20.0 DC 29.11.2018 RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270811.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BELOFF [dp] 2018.11.4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270807.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Kaspersky Anti-Ransomware Tool for Business 3.0.0.738 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270778.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ IObit Malware Fighter PRO (акция comss) 6.3.0.4841 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270768.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ CCleaner Professional Plus 5.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270738.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Tor Browser Bundle 8.0.3 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270736.jpg" />
 </div>
 
 

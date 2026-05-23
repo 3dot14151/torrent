@@ -6,7 +6,7 @@ Acebyte Utilities Pro v3.0.5 + Portable by p2000s [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405894.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Far Manager 3.0 build 2890 Nightly [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405885.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ YoWindow Unlimited Edition 3.0 Build 109 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405883.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Asset Manager 2012 Enterprise Edition 1.0.1141.0 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405870.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Aiseesoft iPad Software Pack 6.2.58 [Multi/Eng] RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405854.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NetSetMan 3.5.0 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405849.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Benvista PhotoZoom Pro 5.0.2 [Multi/Rus] Portable by speedzodiac & PortableAppZ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405848.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AIDA64 Extreme Edition 2.60.2153 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405844.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tor Browser Bundle 2.2.39-3 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405843.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ YoWindow Unlimited Edition 3.0 Build 109 Final [Multi/Rus] Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405838.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Benvista PhotoZoom Pro 5.0.2 RePack (& portable) by KpoJIuK [MULTi / Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405815.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VueScan Pro 9.1.17 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405803.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ SuperRam 6.10.15.2012 Portable by p2000s  [Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405799.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Benvista PhotoZoom Pro 5.0.2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405786.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Infix PDF Editor 5.23 Professional [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405775.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Advanced SystemCare PRO 6.0.7.160 Final DC.15.10.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405770.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ WinZip Pro 17.0 Build 10283 (x86 x64) [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405768.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VirtualBox 4.2.2.81494 Final + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405765.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ AntiSMS 2.6 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405756.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ NANO Антивирус 0.20.2.47621 Beta [Английский / Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405691.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Acronis Backup & Recovery Workstation / Server 11.5 build 32256 + Universal Rest
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405668.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ WPI 10 DVD StartSoft v 10 [Русский - Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405665.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Windows 7 Rose SG™ 2012.10 (х32\х64) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405656.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ HyperSnap 7.20.00 [Rus] Portable by Invictus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405597.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ LeaderTask 7.5.0.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405589.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Mac Blu-ray Player 2.6.1.1022 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405570.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596087.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596085.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ NASCAR-2019. 8-й Этап. Бристоль. Гонка / Monster Energy NASCAR
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596078.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ NASCAR-2019. 10-й Этап. Талладега. Гонка / Monster Energy NAS
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596077.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Best of Trance 2016 Vol.03 (2016) [MP3|320 Kbps] <Trance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596074.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wise Registry Cleaner Pro 10.7.3.700 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596052.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ foobar2000 1.6.11 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596040.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Ubuntu BusinessPack 16.04 (июль 2018) [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596022.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Disperse - Journey Through The Hidden Gardens (2010) [MP3|320 кб/с]<Melodic P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596007.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ AkelPad Portable 4.7.7 by PortableApps [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596006.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596005.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Xavier Quijas Yxayotl - Aztec Dances (2003) [MP3|192 кб/с]<Folk, Aztec Dances
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596004.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mishi Donovan - The Spirit Within (1997) [MP3|~190 кб/с (V2)]<Native American
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596002.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Sisulizer Enterprise Edition 4.0 Build 357 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596000.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595999.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Skype 7.6.0.105 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595997.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bigasoft Total Video Converter 5.0.6.5658 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595996.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mozilla Firefox 39.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595990.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ ImBatch 3.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595989.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ SRWare Iron 73.0.3800.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595970.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Pale Moon 28.5.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595966.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Verizon IndyCar Series. Этап 12. Honda Indy 200 At Mid-Ohio (2016) HDTVRip [
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595961.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Verizon IndyCar Series. Этап 12. Honda Indy 200 At Mid-Ohio (2016) HDTVRip [
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595960.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Serial Box 08-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595957.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595956.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ VA - Goa Year 2016 Vol.4 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595955.jpg" />
 </div>
 
 

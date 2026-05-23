@@ -1,356 +1,3 @@
-###  Публикация: 903788   (656440) от 01.06.2015
-
-Гнев / Tokarev (2014) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Еще несколько лет назад Пол Магуаер раскаялся в былых преступлениях. Теперь он — честный бизнесмен и заботливый семьянин. Но криминальное прошлое не отпускает его. Однажды неизвестные врываются в дом Магуаера и жестоко убивают его дочь. Месть отца будет беспощадной…Производство: США, ФранцияЖанр: Боевик, триллер, криминалРежиссер: Пако КабесасАктеры: Николас Кейдж, Рэйчел Николс, Макс Райан, Майкл МакГрэйди, Петер Стормаре, Павел Личникофф, Патрис Колс, Макс Фаулер, Обри Пиплз, Джек ФалахиПеревод: Дублированный (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C39A2A7978FAA64FCDF5F7A772925FDB04E92D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903981   (656374) от 01.06.2015
-
-Гнев / Tokarev (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Еще несколько лет назад Пол Магуаер раскаялся в былых преступлениях. Теперь он — честный бизнесмен и заботливый семьянин. Но криминальное прошлое не отпускает его. Однажды неизвестные врываются в дом Магуаера и жестоко убивают его дочь. Месть отца будет беспощадной…Производство: США, ФранцияЖанр: Боевик, триллер, криминалРежиссер: Пако КабесасАктеры: Николас Кейдж, Рэйчел Николс, Макс Райан, Майкл МакГрэйди, Петер Стормаре, Павел Личникофф, Патрис Колс, Макс Фаулер, Обри Пиплз, Джек ФалахиПеревод: Дублированный (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47826837392A8B6FD26D6C9C47994FB30AA68866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897812   (656184) от 01.06.2015
-
-Робот по имени Чаппи / Chappie (2015) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чаппи — вундеркинд. Как и любой другой ребенок, он попадает под влияние своего окружения, и только его сердце и душа помогут ему найти свой путь. Но есть одна вещь, которая делает Чаппи непохожим на всех остальных: он — первый робот, способный чувствовать и думать...Производство: США, Мексика, ЮАР / Columbia Pictures, Media Rights Capital, LStar CapitalЖанр: фантастика, боевик, триллерРежиссер: Нил БломкампАктеры: Шарлто Копли, Дев Патель, Ниндзя, Йоланди Фиссер, Хосе Пабло Кантилльо, Хью Джекман, Сигурни Уивер, Брэндон Оре, Джонни Селема, Андерсон КуперПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D558B991B32ECA8456C8B674F7D38C1B67923F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897772   (656177) от 01.06.2015
-
-Робот по имени Чаппи / Chappie (2015) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чаппи — вундеркинд. Как и любой другой ребенок, он попадает под влияние своего окружения, и только его сердце и душа помогут ему найти свой путь. Но есть одна вещь, которая делает Чаппи непохожим на всех остальных: он — первый робот, способный чувствовать и думать...Производство: США, Мексика, ЮАР / Columbia Pictures, Media Rights Capital, LStar CapitalЖанр: фантастика, боевик, триллерРежиссер: Нил БломкампАктеры: Шарлто Копли, Дев Патель, Ниндзя, Йоланди Фиссер, Хосе Пабло Кантилльо, Хью Джекман, Сигурни Уивер, Брэндон Оре, Джонни Селема, Андерсон КуперПеревод: Дублированный (iTunes), УкраинскийЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347B7DF6BA60A04705C5135C9544DF09EF891C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539758   (656140) от 27.03.2022
-
-Charli XCX - CRASH (Deluxe) (2022) [AAC|~313 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:10)
-02. Charli XCX, Christine and the Queens, Caroline Polachek - New Shapes (3:21)
-03. Good Ones (2:17)
-04. Constant Repeat (3:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B6B3885B9504AFCF69FB092DCF4B6094A1FC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140586   (655785) от 06.06.2017
-
-2+1 / Demain tout commence (2016) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь главного героя была легка и беззаботна ровно до тех пор, пока одна из его бывших не подкинула ему грудного ребёнка. Решив, что такая проблема ему не нужна, он поехал искать мать малышки Глории. Но все сложилось иначе…Производство: Франция, ВеликобританияЖанр: Комедия, драма, семейныйРежиссер: Хьюго ЖеленАктеры: Омар Си, Клеманс Поэзи, Антуан Бертран, Эшли Уолтерс, Глория Колстон, Клементин Селарье, Анна Коттис, Ральф фон Блюменталь, Бен Хоумвуд, Алис ДавидПеревод: Многоголосый закадровый (Лицензия)Субтитры: Французские (форсированные)Продолжительность: 01:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A865CAF6AE111F5BBA542593B50ACAF19A2E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140284   (655780) от 06.06.2017
-
-Логан / Logan (2017) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем уставший от жизни Логан заботится о больном профессоре Икс, который прячется неподалеку от мексиканской границы. Но Логан больше не сможет скрывать свое прошлое, когда встретится с юным мутантом, которого преследуют темные силы.Производство: СШАЖанр: Фантастика, боевик, триллер, драмаРежиссер: Джеймс МэнголдАктеры: Хью Джекман, Патрик Стюарт, Дафни Кин, Бойд Холбрук, Стивен Мерчант, Элизабет Родригес, Ричард Э. Грант, Эрик Ла Салль, Элиз Нил, Куинси ФаусПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, Английские, УкраинскиеПродолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F654CC5C52AA9E601984FD20C8ABFC295FD73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140348   (655730) от 06.06.2017
-
-Логан / Logan (2017) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем уставший от жизни Логан заботится о больном профессоре Икс, который прячется неподалеку от мексиканской границы. Но Логан больше не сможет скрывать свое прошлое, когда встретится с юным мутантом, которого преследуют темные силы.Производство: СШАЖанр: Фантастика, боевик, триллер, драмаРежиссер: Джеймс МэнголдАктеры: Хью Джекман, Патрик Стюарт, Дафни Кин, Бойд Холбрук, Стивен Мерчант, Элизабет Родригес, Ричард Э. Грант, Эрик Ла Салль, Элиз Нил, Куинси ФаусПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, Английские, УкраинскиеПродолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C881A1950D302667808395C2EEE5234E8D6AB5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226427   (655651) от 20.05.2018
-
-Тихоокеанский рубеж 2 / Pacific Rim: Uprising (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Команда пилотируемых роботов-защитников остановила вторжение гигантских инопланетных монстров. Великая битва за Тихоокеанский рубеж ознаменовала новую главу в истории человечества. Однако война только начинается…Производство: США, Китай, ВеликобританияЖанр: Фантастика, боевик, приключенияРежиссер: Стивен С. ДеНайтАктеры: Джон Бойега, Скотт Иствуд, Кэйли Спэни, Берн Горман, Чарли Дэй, Цзин Тянь, Макс Чжан, Адриа Архона, Ринко Кикути, Каран БрэрПеревод: Дублированный (iTunes)Субтитры: Русские (Форсированные, вшитые)Продолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4F21F12F5C9383A2B7AF770844B69A0483EB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539770   (655047) от 28.03.2022
-
-VA - Calm Down (Chill Out & Lounge Moods), Vol. 1 (2016) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Sattiva Project - Intro (3:20)
-02. DJ Quincy Ortiz - The Gates (6:22)
-03. Zofka - Mais Ca Ne Fait Rien (3:06)
-04. Jojo Rose - Summer (4:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A955F112CCF06140B1ADB2A2DE0E7498830857A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539987   (655046) от 28.03.2022
-
-The Electric Swing Circus - The Electric Swing Circus (2013) [AAC|~328 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. ESC (1:59)
-02. Bella Belle (3:38)
-03. Swingamajig (3:51)
-04. Big Ol' Bite (3:17)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8544395A974E909DA95A91825C96A1F6D456BC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539771   (655045) от 28.03.2022
-
-VA - Calm Down (Chill Out & Lounge Moods), Vol. 2 (2017) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Milton - Sunny Day (5:00)
-02. Dominik Pointvogl - Nova Bossa (5:09)
-03. Pharaon - Patented (Extended Mix) (2:51)
-04. Köbes - On The Sun (Extended Mix) (5:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51467EC91FC9856D8EEB300802320E14421CF941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539988   (655043) от 28.03.2022
-
-The Electric Swing Circus - It Flew By (2017) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Empires (3:11)
-02. Golden Hour (2:49)
-03. Big Surprise (3:14)
-04. Scuttlebutt (2:45)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9ABDD0EE6209E1ED551FF01F9FAAAB4B7A0D12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540031   (655039) от 28.03.2022
 
 VA - Lounge Music Essentials 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
@@ -359,7 +6,7 @@ VA - Lounge Music Essentials 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655039.jpg" />
 </div>
 
 
@@ -388,7 +35,7 @@ VA - Audioholic (Groovy Deep-House Tunes), Vol. 4 (2022) [AAC|~324 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655035.jpg" />
 </div>
 
 
@@ -417,7 +64,7 @@ Miss Kittin, The Hacker - Third Album (2022) [AAC|~317 Kbps] <Techno, Electro, E
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655033.jpg" />
 </div>
 
 
@@ -446,7 +93,7 @@ VA - Chill Out Lovers, Vol. 3 (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655031.jpg" />
 </div>
 
 
@@ -475,7 +122,7 @@ VA - The Lounge Bar Atmosphere - 100% Hits - 100% Instrumental (2016) [AAC|~311 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655006.jpg" />
 </div>
 
 
@@ -504,7 +151,7 @@ Boney M. - The Magic Of Boney M. (Special Remix Edition) (2022) [AAC|~371 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654905.jpg" />
 </div>
 
 
@@ -533,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654699.jpg" />
 </div>
 
 
@@ -559,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654675.jpg" />
 </div>
 
 
@@ -585,7 +232,7 @@ Rammstein - Paris (2017) Live [AAC|~256 кб/с]<Industrial Metal, NDH>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654664.jpg" />
 </div>
 
 
@@ -614,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654561.jpg" />
 </div>
 
 
@@ -640,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654193.jpg" />
 </div>
 
 
@@ -666,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654114.jpg" />
 </div>
 
 
@@ -692,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654110.jpg" />
 </div>
 
 
@@ -703,6 +350,374 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8491291AEBD3B7422B1E2BBB0B40541141961388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904193   (654106) от 03.06.2015
+
+Эффект Лазаря / The Lazarus Effect (2015) BDRip [576p] iPad (Line)
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда любознательных студентов узнает секрет воскрешения людей из мертвых. Однако их открытие приводит к страшным последствиям.Производство: США, Blumhouse Productions, Chapter One Films, LionsgateЖанр: триллер, ужасыРежиссер: Дэвид ГелбАктеры: Марк Дюпласс, Оливия Уайлд, Дональд Гловер, Эван Питерс, Сара Болгер, Рэй Уайз, Скотт Шелдон, Эмили Келавос, Джеймс Эрл, Эми Акино, Шон Т. Кришнан, Атор Тамрас, Като, Лииса Коэн, Дженнифер Флойд, Бруно Джойелло, Скотт Л. ТрегерПеревод: Дублированный (Line)Язык субтитров: АнглийскийПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBE01BD3F21D126D60FFDD5328B87F7309958D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904322   (654105) от 03.06.2015
+
+Убийцы фазана / Fasandræberne (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654105.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1994 году двое детей близнецов были найдены зверски убитыми в летнем загородном доме. Ряд фактов указывал на причастность к делу группы молодых студентов, но расследование было прекращено, после того как местный отшельник признал себя виновным в этом инциденте.Производство: Дания, Германия, ШвецияЖанр: Детектив, триллер, криминалРежиссер: Миккель НёргорАктеры: Николай Ли Каас, Фарес Фарес, Даника Куркик, Йохан Филип Асбек, Давид Денсик, Сара-Софи Бусснина, Сёрен Пильмарк, Николай Грот, Оле Дюпон, Камилла ГоттлибПеревод: Одноголосый закадровый (А. Алексеев)Язык субтитров: Русский, Английский, ДатскийПродолжительность: 01:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6751B94F0A6205E0F4C78C3FF7F3054FFA7AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904190   (654089) от 03.06.2015
+
+Эффект Лазаря / The Lazarus Effect (2015) BDRip [720p] ATV (Line)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда любознательных студентов узнает секрет воскрешения людей из мертвых. Однако их открытие приводит к страшным последствиям.Производство: США, Blumhouse Productions, Chapter One Films, LionsgateЖанр: триллер, ужасыРежиссер: Дэвид ГелбАктеры: Марк Дюпласс, Оливия Уайлд, Дональд Гловер, Эван Питерс, Сара Болгер, Рэй Уайз, Скотт Шелдон, Эмили Келавос, Джеймс Эрл, Эми Акино, Шон Т. Кришнан, Атор Тамрас, Като, Лииса Коэн, Дженнифер Флойд, Бруно Джойелло, Скотт Л. ТрегерПеревод: Дублированный (Line)Язык субтитров: АнглийскийПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A89BF5FFACFC71273CF4DEE7FF895EDBE6D250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540000   (654079) от 29.03.2022
+
+VA - 100% Hotel Deluxe Music, Vol. 4 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sylvering - Sunday Bloody Sunday (4:16)
+02. Smooth Deluxe - Boulevard Rouge (5:48)
+03. Jasmon - Magnolia (3:40)
+04. Simon Le Grec - I Need U (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5667562F0DACCC1938F4B220D449600B5E33C9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540009   (654077) от 29.03.2022
+
+VA - 100% Hotel Deluxe Music, Vol. 7 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun - Color del Amor (5:09)
+02. Simon Le Grec - I Need Somebody (5:07)
+03. Charlie North - Big Blue Sky (3:57)
+04. Mo'jardo - Say Hello (5:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62EAA86D7A985D9FA71C74D7339D358F3C37E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540005   (654076) от 29.03.2022
+
+VA - 100% Hotel Deluxe Music, Vol. 5 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Drowning (3:03)
+02. Sylvering - Cruel Summer (2:50)
+03. Man In A Room - Ghost of Zero-Point (4:15)
+04. Simon Le Grec - Midnight Lounge (Chillout Mix) (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64D0482CF2C9A8DD89A1C452D89798B1B6B69A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540025   (654071) от 29.03.2022
+
+VA - DJ Fede presents: Ibiza Sleepless Selection (2022) [AAC|~330 Kbps] <House, Deep House, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Tronics Ensemble - Calypso of House (Sicania Soul Reprise) (3:52)
+02. T.F.M. - Out Of Bounds (The Final Mix) (5:58)
+03. Don Carlos - Alone (Paradise) (6:46)
+04. Omniverse - Antares (Dj Fede Re-Edit) (7:44)(   Читать дальше...   )Жанр: House, Deep House, Soulful HouseПродолжительность: 02:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA10AA9B14820EEAE86184D39555CBB9579B03B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540008   (654070) от 29.03.2022
+
+VA - 100% Hotel Deluxe Music, Vol. 6 (2016) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie North - Lost and Found (5:20)
+02. Florzino, DJ Jondal - Music Is the Universal Language (5:21)
+03. Dub Mars - I Can't Believe (5:43)
+04. Kevin Paczesny - Fade of Dreams (5:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17E03EA75B4FE422FFF9E108046E644C62A30D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539999   (654040) от 29.03.2022
+
+VA - 100% Hotel Deluxe Music, Vol. 3 (2013) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Euphonic Traveller - Pacifica (8:38)
+02. Alexander Metzger - Tribute to Jacky Brown (Toolbox Mix) (5:39)
+03. Lebensart - I Feel for You (Chillout Beach Cut) (5:15)
+04. Cardinal Zen - Warmth (3:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04112EA6433A59C6F4C44AFFD2EFBC66693DB6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539997   (654037) от 29.03.2022
+
+VA - 100% Hotel Deluxe Music, Vol. 2 (2013) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - There's Something Out There (5:18)
+02. Cardinal Zen - Rain and Snow (4:19)
+03. Peter Pearson - Sugar and Spice (4:10)
+04. Johannes Huppertz, Twila.too - Parler aux étoiles (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6A271A7A94975AD920394C122D4A1353FFC00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539995   (654033) от 29.03.2022
+
+VA - 100% Hotel Deluxe Music, Vol. 1 (2012) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - A Better Place (Easy Lounge Vocal Mix) (4:51)
+02. Josephine Sinclar, Voice Patrol - My People (Cafe Island Edit) (5:27)
+03. Bernon - You Know It's True (Funky Lounge Mix) (5:14)
+04. Smooth Deluxe - Sunset Chillers (Balearic Edit) (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B04C7AFE08EEFBB5969568A9507F2DF8EB6682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539593   (654027) от 29.03.2022
+
+Андрей Макаревич - Хроника текущих событий (2013) [AAC|~310 Kbps] <Rock, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лишь только веки сомкну... (0:42)
+02. Посвящение Михаилу Генделеву (2:09)
+03. Переворот (2:38)
+04. Песенка про Интернет (1:03)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE062F37110AE180902FEA91F796C094676C946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540016   (654010) от 29.03.2022
+
+VA - Arab Hits (2022) [AAC|~321 Kbps] <House, Pop, Folk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khaled - Didi (5:02)
+02. Rachid Taha - Ya Rayah (6:15)
+03. Tawsen, Manal, ElGrandeToto - Safe Salina (Moroccan Remix) (3:03)
+04. Nancy Ajram - Oul Tani Eyh (4:08)(   Читать дальше...   )Жанр: House, Pop, FolkПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F5175A91A18359E0B996099A18611F5602E65B
 ```
 
 https://mybot314.ru/tekegram_catalog/

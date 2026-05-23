@@ -6,7 +6,7 @@ ExamDiff Pro Master Edition 12.0.1.10 RePack & Portable by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788346.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paint.NET 4.3.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788345.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NirLauncher Package 1.23.54 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788343.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinNTSetup 5.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788336.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Extreme Picture Finder 3.58.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788326.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wondershare UniConverter 13.2.1.89 (х64) Repack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788325.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ StartAllBack 3.1.0 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788315.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SanDisk SSD Dashboard 3.4.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788312.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VueScan Pro 9.7.68 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788307.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BELOFF [dp] 2021.11.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788303.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788298.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Evorim Free Firewall 2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788297.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Movavi Video Converter 22.1.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788276.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Philter - The Beautiful Lies / The Blossom Chronicles / The Legend of Iya / The 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788268.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Any Video Converter Ultimate 7.1.5 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788261.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ KCNcrew Pack 01-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788234.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Money Pro 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788230.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Serial Box 02.2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788213.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Troum & raison d'être - De Aeris In Sublunaria Influxu (2015) Essence Music [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788210.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Carbon Copy Cloner 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788208.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ iFinance 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788206.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ World Party - Bang! (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788205.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ PicturesToExe Deluxe 9.0.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788204.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - My Life In An Insulation Test (2008) electr-ohm [FLAC|Lossless|tracks+.cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788199.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ SRWare Iron 71.0.3700.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788193.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Trigg & Gusset - Adagio For The Blue (2015) [FLAC|Lossless|Web-DL|tracks] <Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788191.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 632094   (919441) от 20.03.2013
-
-Охота за Янтарной комнатой / Die Jagd nach dem Bernsteinzimmer (2012) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый кладоискатель Эйк Майерс, занимаясь поисками Янтарной комнаты, исчезнувшей в годы II Мировой войны, попадает в жестокий переплет: оказывается, не он один хочет ее найти. Ему противостоит могущественный концерн, у которого есть свои интересы: ведь комната хранит тайну, способную изменить мир...Жанр: Боевик, ПриключенияРежиссер: Флориан Баксмейер / Florian BaxmeyerАктеры: Кай Визингер, Соня Герхардт, Фабиан Буш, Беттина Циммерманн, Анника Блендл, Клеменс ШикПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Русский, английскийПродолжительность: 01:48:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756708   (919166) от 15.02.2014
-
-Малена / Malena (2000) BDRip [H.264/720p-LQ]  [Hi10P] [Полная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Это было в Италии, когда Муссолини объявил о вступлении в войну. Небольшой городок Сицилии купался в солнечных лучах и, казалось, пока был в стороне от всего этого. Двенадцатилетний Ренато получил от отца свой первый велосипед и был на седьмом небе от счастья. Но в этот же день Ренато ждала встреча, которая подарила ему новое, ни с чем не сравнимое чувство... По (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Джузеппе ТорнатореАктеры: Моника Беллуччи, Джузеппе Сульфаро, Лучиано Федерико, Пьетро Нотарианни, Анджело Пеллегрино, Габриэлла Ди Лузио, Доменико ДженнароПеревод: Профессиональный (полное дублирование), Авторский (одноголосый, закадровый)x3Язык субтитров: Русский, Английский, Русские (форсированные, для мест, без перевода на дубляже)Формат: MKVПродолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5817CE6558C7A5BCE08FA378272BE7E6C2A44A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096121   (919076) от 24.01.2017
 
 Призраки Миссисипи / Ghosts of Mississippi (1996) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919076.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919035.jpg" />
 </div>
 
 
@@ -114,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919018.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918924.jpg" />
 </div>
 
 
@@ -168,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918846.jpg" />
 </div>
 
 
@@ -194,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918772.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918759.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918711.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918703.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918656.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918647.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918530.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918511.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918508.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918505.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_918499.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918489.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918483.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918382.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918372.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918364.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918359.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918358.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ G. I. Joe. Бросок кобры: Снейк Айз / Snake Eyes: G.I. Joe Ori
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918319.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ G. I. Joe. Бросок кобры: Снейк Айз / Snake Eyes: G.I. Joe Ori
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F08F2E4E4ACA855466DE910D9BBA1D8C3CDCDA71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367185   (918207) от 14.03.2020
+
+1917 / 1917 (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918207.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 апреля 1917 года, разгар Первой мировой войны, Западный фронт на севере Франции. Британский генерал поручает капралу Блэйку и его сослуживцу смертельно опасную миссию. Они должны пересечь вражескую территорию, вроде бы оставленную германскими войсками, и доставить приказ об отмене наступления во 2-й батальон Девонширского полка, иначе 1600 солдат попадут в ловушку (   Читать дальше...   )Производство: США, Великобритания, Индия, Испания, Канада / DreamWorksЖанр: Военный, Боевик, Драма, ИсторияРежиссер: Сэм МендесАктеры: Джордж Маккэй, Дин-Чарльз Чепмен, Марк Стронг, Эндрю Скотт, Ричард Мэдден, Клэр Дюбюрк, Колин Фёрт, Бенедикт КамбербэтчПеревод: Многоголосый профессиональныйСубтитры: Русские (Full), АнглийскиеПродолжительность: 01:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F9107E58ADAA1624220D982582CE496A28D36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864168   (918153) от 30.01.2015
+
+Челленджер / The Challenger (2013) HDTV [1080i]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взрыв «Челленджера» - величайшая трагедия в истории американской космонавтики. Расследование катастрофы ведет Ричард Фейман - один из самых известных ученых своего времени. Фильм основан на реальных событиях, которые произошли в США в 1986 году. Космический корабль Челленджер взорвался на 73-й секунде полета, погибли все семеро членов экипажа. Что же стало причиной (   Читать дальше...   )Производство: США, BBC Films, Erste Weltweit Medien, Moonlighting FilmsЖанр: ДрамаРежиссер: Джеймс ХоузАктеры: Уильям Хёрт, Брюс Гринвуд, Джоэнн Уэлли, Брайан Деннехи, Кевин МакНэлли, Лэнгли Кирквуд, Ив Бест, Шон Майкл, Генри Гудман, Роберт ХоббсПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDAC953B2D3E429DF65B457CDBC08D0476A7EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

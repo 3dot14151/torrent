@@ -1,55 +1,3 @@
-###  Публикация: 1480643   (1008808) от 29.06.2021
-
-Без ума от неё / Loco por ella (2021) WEBRip [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После безумной совместной ночи Адри обнаруживает, что единственный способ снова увидеть Карлу — стать пациентом психиатрического центра, где она лечится.Производство: Испания / Loco Por Ti, Netflix, Sábado PelículasЖанр: Мелодрама, комедияРежиссер: Дани де ла ОрденАктеры: Альваро Сервантес, Луис Саера, Сусанна Гомес, Альберто Сан Хуан, Txell Aixendri, Клара Сегура, Паула Малия, Нил Кардонер, Эдуардо Антунья, Мария РибераПеревод: Любительский многоголосый (MUZOBOZ) NetflixЯзык озвучки: РусскийСубтитры: Русские (full), Английские (full, SDH), Немецкие, ФранцузскиеПродолжительность: 01:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CB64B91D0FE637BAACF9B27D6F6C6C6BC3753D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480577   (1008796) от 29.06.2021
-
-Амнезия / Awake (2019) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Джон Доу просыпается в больнице после травмы, не помня, кто он. Вскоре он узнает, что полиция разыскивает хитроумного маньяка за совершение серии убийств. Все улики указывают на Джона. Пытаясь понять, что происходит, и кто он на самом деле, Джон начинает свою собственную игру.Производство: США / Archer Film Productions, BondIt Media Capital, VMI WorldwideЖанр: Триллер, криминал, боевикРежиссер: Александр ЧерняевАктеры: Джонатан Рис-Майерс, Франческа Иствуд, Уильям Форсайт, Мэлик Йоба, Джеймс Остин Керр, Джинджер Гилмартин, Шайенн Мартин, Кай Браунли-Франс, Дэвид Си Там, Эрин ХеррингПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: ИтальянскиеПродолжительность: 01:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE097A269991A6B736D33D71A55877446096399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846562   (1008789) от 29.06.2021
 
 Ограбление на Бейкер-Стрит / The Bank Job (2008) BDRip [1080p] [Open Matte]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008789.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008787.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008786.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008785.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008784.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008783.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008781.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008776.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008767.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008686.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008682.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008678.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008655.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008654.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008639.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008555.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008545.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008534.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008532.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008527.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008526.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008525.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008518.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008517.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A52C308DC79AB13163EF40CB65DB2C9E743895AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462139   (1008515) от 01.07.2021
+
+Скайлайн 3 / Skylin3s / Skylines (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через 15 лет после вторжения неизвестный вирус угрожает хрупкому сосуществованию дружественных инопланетных гибридов и людей. Родившаяся на космическом корабле мутант Роуз Корли сама испытывает трудности с управлением огневой рукой, когда на неё выходят члены сопротивления. Они предлагают девушке в составе хорошо подготовленного отряда, куда входит и её брат-инопланетянин (   Читать дальше...   )Производство: Великобритания / Artbox, Fasten Films, Media Finance Capital, Mirabelle Pictures ProductionsЖанр: Фантастика, боевикРежиссер: Лиам О’ДоннеллАктеры: Линдси Морган, Джонатан Ховард, Дэниэл Бернхард, Рона Митра, Наоми Танкел, Чарли Юн, Джереми Фицджералд, Иева Андреевайте, Джеймс Космо, Александр СиддигПеревод: 2x Дублированный, АвторскийСубтитры: Русские (2x Forced, Full, SDH), Украинские (Full), Aнглийские (SDH)Продолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5E371062E6C4313B4DD20331EB73CF2B0FDA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480945   (1008514) от 01.07.2021
+
+Ледяной драйв / The Ice Road (2021) WEB-DLRip [H.265] [10-bit] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Север Канады. Ненадёжный апрельский лёд, вес грузовика — 33 тонны. Проехать по замерзшей поверхности озера возможно только на определенной скорости, а остановка или ускорение означают верную смерть. Но именно такая задача стоит перед колонной грузовиков — только они могут спасти людей, оказавшихся в обрушившейся алмазной шахте. Однако ни трескающийся под колёсами (   Читать дальше...   )Производство: США / Code Entertainment, ShivHans Pictures, Envision Media ArtsЖанр: Боевик, ТриллерРежиссер: Джонатан ХенслиАктеры: Лиам Нисон, Маркус Томас, Лоуренс Фишборн, Эмбер Мидфандер, Бенджамин Уокер, Холт Маккэллани, Мэтт МакКой, Мартин Сенсмейер, Мэтт Сэлинджер, Чад БрюсПеревод: Дублированный (Line), Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Английские (full, SDH)Продолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2178FA183F4B65C19BFF1E8D03702DAA86A5038
 ```
 
 https://mybot314.ru/tekegram_catalog/

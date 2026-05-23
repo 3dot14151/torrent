@@ -1,55 +1,3 @@
-###  Публикация: 1329581   (350000) от 06.10.2019
-
-Приятных снов / Fai bei sogni / Sweet Dreams (2016) BDRip [H.264/1080p] [VO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Турин, 1969 год. Беззаботное детство девятилетнего Массимо разрушает загадочная смерть его матери. Много лет спустя, в 90-х, уже взрослый Массимо становится известным журналистом. После работы над военными репортажами из Сараево он начинает страдать от приступов паники. Готовясь к продаже квартиры своих родителей, Массимо вынужден вновь пережить свое тяжелое прошлое. (   Читать дальше...   )Производство: Италия, Франция, IBC Movie, Kavac Film, Rai CinemaЖанр: Драма, мелодрамаРежиссер: Марко БеллоккьоАктеры: Беренис Бежо, Валерио Мастандреа, Фабрицио Джифуни, Гуидо Каприно, Барбара Рончи, Dario Dal Pero, Nicolò Cabras, Эммануэль Дево, Mario Acampa, Пьер Джорджо БеллоккьоПеревод: Одноголосый любительскийСубтитры: Русские, английскиеПродолжительность: 02:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C6426DD2E5D3C6DF5768D0BA59B09FE62C16AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578084   (349919) от 21.09.2022
-
-Предложение / The Proposition (1998) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Адвокат богатого бизнесмена Артура Баррета предлагает молодому человеку Роджеру Мартину переспать с его женой Элеонорой за крупную сумму, поскольку пара хочет иметь ребенка, но Артур бесплоден. С первой попытки Элеонора не забеременела, но последующие попытки увенчались успехом. Однако к тому времени Роджер уже одержим Элеонорой, полагая, что безумно влюблён, хотя (   Читать дальше...   )Производство: США, Interscope Communications, PolyGram Filmed EntertainmentЖанр: драма, мелодрамаРежиссер: Лесли Линка ГлаттерАктеры: Роберт Лоджа, Брония Вилер, Кеннет Брана, Мэделин Стоу, Уильям Хёрт, Кен Чизман, Джим Чирос, Ди Нельсон, Памела Харт, Венди ФейнПеревод: профессиональный многоголосый (DVD9), профессиональный двухголосый (iTunes Russia)Субтитры: английскиеПродолжительность: 01:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FE188258DDD6BD744B7372A9EA1DCAE1EE8A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724236   (349910) от 20.11.2013
 
 Орудия смерти: Город костей / The Mortal Instruments: City of Bones (2013) BDRip [1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349910.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349902.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349858.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349785.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349775.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349768.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349711.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349705.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349701.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349626.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349625.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349616.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349615.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349611.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349540.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349539.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349527.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349521.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349498.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349497.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349494.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349491.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349446.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349404.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E995EA95DC5E08814F00E0B4EF03CC95D60954D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257060   (349402) от 24.10.2018
+
+Гордая Мэри / Proud Mary (2018) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина-киллер Мэри, работающая на бостонскую мафию, убивает наркоторговца, оставляя сиротой его малолетнего сына. Неожиданные материнские чувства побуждают Мэри позаботиться о судьбе мальчика. Она пытается начать новую жизнь – для него и для себя.Производство: США / Screen GemsЖанр: Боевик, триллерРежиссер: Бабак НаджафиАктеры: Тараджи П. Хенсон, Билли Браун, Нил МакДонаф, Маргарет Эйвери, Ксандер Беркли, Раде Шербеджия, Эрик Ларей Харви, Дэнни ГловерПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665D1533EBEC299DB03ED06A05B4F4A2F8EDF6F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256862   (349401) от 24.10.2018
+
+Любовник моей жены / Amoureux de ma femme (2018) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даниэль очень любит свою жену и наслаждается семейным уютом, но все рушится в один прекрасный день, когда лучший друг Патрик настаивает на парном ужине, на который приводит свою новую девушку. Эмма оказывается молодой красавицей и сразу покоряет нашего героя. И вот он уже не видит перед собой: ни друга, ни обеденного стола, не слышит разговор и полностью окунается (   Читать дальше...   )Производство: Франция, Бельгия / Curiosa Films, France 3 Cinéma, Zack FilmsЖанр: Драма, Мелодрама, КомедияРежиссер: Даниель ОтойАктеры: Сандрин Киберлэн, Адриана Угарте, Жерар Депардье, Даниель Отой, Бриджитт Обри, Джон СехилПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54922F11D9BDAE7595F9D73460733E334F265A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

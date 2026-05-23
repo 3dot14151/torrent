@@ -6,7 +6,7 @@ Plexim Plecs 4.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ KMSoffline 2.4.5 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41147.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Adobe Acrobat Pro 2024.003.20180 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41138.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41137.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Antivirus Removal Tool 2024.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41104.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Qalculate! 5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41086.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ HomeBank 5.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41084.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ USB Device Tree Viewer 4.4.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41083.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ LosslessCut 3.63.0 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41076.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ XYplorer 26.50.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41070.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Light Image Resizer 7.0.9.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41067.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ GeoGebra 6.0.861.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41061.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ FanControl V206 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41053.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Telegram Desktop 5.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41052.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ ExtraDisks 24.8.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41046.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5011 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41031.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Microsoft Visual Studio 2022 Professional 17.11.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40914.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Google Chrome 129.0.6668.101 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40890.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40889.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Google Chrome 129.0.6668.101 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40887.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Opera One 114.0.5282.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40886.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ FastCopy Pro 5.8.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40880.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Tablacus Explorer 24.10.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40868.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.41 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40863.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ BalenaEtcher 1.19.24 + Portable (Pre-release) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40859.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ QOwnNotes 24.10.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40853.jpg" />
 </div>
 
 

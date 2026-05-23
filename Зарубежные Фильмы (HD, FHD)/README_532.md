@@ -1,55 +1,3 @@
-###  Публикация: 695817   (539923) от 03.09.2013
-
-За канделябрами / Behind the Candelabra (2013) BDRip [H.264/720p-LQ] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Байопик о скандально известном пианисте и конферансье Владзиу Валентино Либераче. В 50-х годах он часто появлялся в вызывающих и вычурных нарядах, украшенных искусственными бриллиантами, золотом, мехами и блестками. Популярность он обрел благодаря своим пластинкам, а также частому появлению на телевидении и в кино.Производство: США | HBO FilmsЖанр: Драма, Мелодрама, БиографияРежиссер: Стивен СодербергАктеры: Мэтт Дэймон, Майкл Дуглас, Роб Лоу, Дэн Эйкройд, Бойд Холбрук, Дебби Рейнолдс, Скотт Бакула, Пол Райзер, Ники Кэтт, Чейнне Джексон, Эдди Джемисон, Дебора Лэйси, Брюс Рэмсэй, Туре РифенштайнПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Василий Кошкин / Сергей БлиновСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (SDH)Продолжительность: 01:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE5EB16B21AFCD17DD67C9FFF9177CA500058CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695996   (539920) от 03.09.2013
-
-Богиня / Goddess (2013) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Элсбет Диккенс — домохозяйка и мама двух чудесных близнецов. Её муж Джеймс работает в Гринпис и постоянно отсутствует дома, спасая то китов, то осьминогов. Чтобы между ними была какая то связь, Джеймс установил дома веб-камеру. Однажды Элсбет решила спеть перед ней песню, не зная, что трансляция идёт в интернет, и на следующий день проснулась знаменитой. Ей предложило (   Читать дальше...   )Производство: Австралия | The Film Company, Wildheart FilmsЖанр: Мьюзикл, Мелодрама, КомедияРежиссер: Марк ЛампреллАктеры: Лора Мишель Келли,  Ронан Китинг,  Магда Шубански,  Дастин Клер,  Хьюго Джонстон-Барт,  Тэмсин Кэрролл,  Корин Грант,  Пиа Миранда,  Натали Трэн,  Камерон ЛионПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872713F6405734ECE698C25BFA5217EFADBA8630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696060   (539914) от 03.09.2013
 
 Перекресток / Intersections (2013) BDRip [720p] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539914.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539909.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539908.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539841.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539825.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539712.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539676.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539666.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539664.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539575.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539541.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539435.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539434.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539429.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539424.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539416.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539380.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539371.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539120.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539056.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538822.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538809.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538771.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538692.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8B7161C2A5B90BBA8667D64BABF022EB3F6377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925812   (538637) от 07.08.2015
+
+2 Часа / 2 Hours (2012) WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безымянного выжившего кусают и инфицируют вирусом, красивым подарком нашему миру. Есть только 2 часа, чтобы найти оставшихся выживших, он должен двигаться быстро, прежде чем вирус распространяется слишком далеко.Производство: СШАЖанр: Короткометражный, Ужасы, Боевик, ТриллерРежиссер: Michael Ballif / Майкл БаллифАктеры: Джош Мэррилл, Брук Хемсат, Джоэл Мэнвринг, Уильям Тайлер Данкли, Брайан НузманПеревод: Многоголосый закадровый (Black Street Records)Продолжительность: 00:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170F8E5D9596B593E22DB70DFCB204F5CB2EDF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925769   (538622) от 07.08.2015
+
+Герцог Бургундии / The Duke of Burgundy (2014) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538622.jpg" />
+</div>
+
+
+###  Подробнее
+
+День за днем зажиточная женщина Синтия награждает и наказывает свою служанку Эвелин. В то время как Синтия стремится к более традиционным отношениям, одержимость Эвелин эротикой быстро становится пагубным пристрастием, которое способно разрушить отношенияПроизводство: Великобритания | IFCFilmsЖанр: Психологическая драмаРежиссер: Питер СтриклэндАктеры: Сидсе Бабетт Кнудсен, Кьяра Д’Анна, Моника Свинн, Евгения Карузо, Фатма Мохамед, Ката БарчПеревод: Одноголосый закадровый, любительский | PashaUPСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7815BD2234C53C8231C1FE96D25AB295570E8E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

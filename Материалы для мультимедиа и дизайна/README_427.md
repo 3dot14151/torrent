@@ -1,31 +1,3 @@
-###  Публикация: 1819405   (1445) от 22.09.2025
-
-Шрифты - GGBotNet - Robtronika [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Robtronika содержит 2 стиля (обычный и курсивный) и 912 глифа. Поддержка 86 языков.
-Лицензируется по лицензии SIL Open Font License, версия 1.1.
-Материал раздаётся с официальной документацией.Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249574B3998C71837FA8252EF2AFD0AE7F361D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819409   (1444) от 22.09.2025
 
 Шрифты - GGBotNet - Arrose [TTF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1444.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1440.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1437.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1434.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1428.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1425.jpg" />
 </div>
 
 
@@ -194,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1424.jpg" />
 </div>
 
 
@@ -222,7 +194,7 @@ Ui Kits - UI8 - Oxtopus - Web3 Wallet Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1422.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1419.jpg" />
 </div>
 
 
@@ -278,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1417.jpg" />
 </div>
 
 
@@ -307,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1416.jpg" />
 </div>
 
 
@@ -335,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1415.jpg" />
 </div>
 
 
@@ -363,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1414.jpg" />
 </div>
 
 
@@ -391,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1329.jpg" />
 </div>
 
 
@@ -419,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1311.jpg" />
 </div>
 
 
@@ -445,7 +417,7 @@ Ui Kits - UI8 - Marz - Crypto Wallet App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1309.jpg" />
 </div>
 
 
@@ -472,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1308.jpg" />
 </div>
 
 
@@ -498,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1300.jpg" />
 </div>
 
 
@@ -524,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1292.jpg" />
 </div>
 
 
@@ -551,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1286.jpg" />
 </div>
 
 
@@ -579,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1281.jpg" />
 </div>
 
 
@@ -607,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1279.jpg" />
 </div>
 
 
@@ -633,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1278.jpg" />
 </div>
 
 
@@ -659,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1273.jpg" />
 </div>
 
 
@@ -685,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1271.jpg" />
 </div>
 
 
@@ -698,6 +670,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479F76679173C506A1C63D9926B9B30A07A573AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819760   (1192) от 24.09.2025
+
+Пресеты (LUTs) - Video Presets - 1000+ HOLLYWOOD LUTs COLLECTION [CUBE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши специалисты по видео тщательно изучили 36 великолепных блокбастеров, отмеченных наградами, таких как «Гладиатор», «Крёстный отец», «Джокер», «Волк с Уолл-стрит», «Во все тяжкие» и 31 других фильмов или сериалов. Результатом стало создание 1008 LUT-пресетов, основанных на этих потрясающих фильмах.
+
+Хотите добавить своим видео крутой кинематографический эффект? (   Читать дальше...   )Формат: CUBE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D774A20C585CE9C7F79F03136ECAFB6E3FDE46
 ```
 
 https://mybot314.ru/tekegram_catalog/

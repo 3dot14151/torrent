@@ -1,29 +1,3 @@
-###  Публикация: 1192908   (262439) от 19.12.2017
-
-NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Колумбия занимает третье место в мире по наличию проживающих видов животных и второе место по количеству видов птиц. Там проживает множество видом амфибий и пресмыкающихся. Но этому Раю угрожает опасность.Производство: Великобритания, Off the FenceЖанр: Документальный, научно-популрный, фауна, флораРежиссер: Эндрю МурвудПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D72787F8A24097F6D800B50C51B768EE8550C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193580   (262050) от 21.12.2017
 
 BBC: Я и гравитация. Сила, формирующая нашу жизнь / Gravity and Me. The Force That Shapes Our Lives (2017) HDTVRip [H.264/720p-LQ]
@@ -32,7 +6,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262050.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG. Настоящие Красные хвосты / The Real Red Tails (2024) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260921.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG: Секретные материалы древности: Расшифров
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260008.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258512.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257948.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257206.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Discovery: Знакомство с Лох-Несским чудовищем / Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257132.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NG: Суперсооружения: Мегакорабли. Крупнейший
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256171.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ NG: Титаник: Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255834.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255815.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Animal Planet & BBC: Дикая планета / Wild Planet (2003-2005) TVRip [
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254514.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254430.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Discovery: Апокалипсис 2012-Откровения / Maya 2012 Prophecy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253706.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253279.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ NG: Труднейший в мире ремонт / World's toughest fixes (2008
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252756.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ NG: Взгляд изнутри. Супертрава марихуанна / Ins
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252709.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Discovery: Путешествие в Долину Царей / Journey Through t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252393.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252043.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252018.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251547.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Discovery. Суперфабрики любимая еда / Super Factories Food
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249776.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Discovery. Экспедиция: Назад в будущее / Expedition: Back
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249466.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249415.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ NG. Настольная книга диктатора / The Dictator's Playbook
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249402.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248315.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60DA2A4E0258D4B70D089D4B701EA5A3B790F15C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833800   (247864) от 02.11.2025
+
+PBS. American Experience: Осуждение Роберта Оппенгеймера / The Trials of J. Robert Oppenheimer (2008) WEB-DL [H.264/1080p] (сезон 21, серия 1 из 10)
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биография Роберта Оппенгеймера - одной из ключевых и неоднозначных фигур в американской науке ХХ столетия. Номинант Оскара, актер Дэвид Стрэтэйрн («Доброй ночи и удачи», «Ультиматум Борна») исполняет роль Роберта Оппенгейма. В фильм также вошли интервью с бывшими коллегами ученого и его выдающимися учениками. Прослеживается жизненный путь Оппенгеймера: детство в (   Читать дальше...   )Производство: США, David Grubin Production Inc., WGBHЖанр: документальный, военный, биография, история, наукаРежиссер: Дэвид ГрубинУчастники: Дэвид СтрэтэйрнПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2ADC613831AA3DC213064484F404735EE5162BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

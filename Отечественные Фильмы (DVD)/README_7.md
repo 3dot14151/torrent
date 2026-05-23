@@ -1,81 +1,3 @@
-###  Публикация: 569211   (391681) от 03.11.2012
-
-Слон (2010) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На арене цирка идёт представление. А за кулисами волнение: любимец публики cлон Бодхи заболел. Руководство цирка решает слона усыпить. Наутро за Бодхи приезжает трейлер. Но вместо печальной поездки Бодхи, вместе с водителем трейлера Зарезиным и милой цирковой девочкой Бонни, отправляется в чудесное путешествие, полное приключений, погонь, неожиданных поворотов и (   Читать дальше...   )Производство: РоссияЖанр: Драма, приключенияРежиссер: Владимир КарабановАктеры: Евгений Ермаков, Сергей Шнуров, Ирина Шевчук, Анастасия Сметанина, Иван Жидков, Александр Адабашьян, Александр Пятков, Марина Иванова, Павел Дроздов, Анатолий Калмыков...Продолжительность: 01:26:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567464   (391537) от 03.11.2012
-
-Изгнание (2007) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-«Изгнание». Назвав так свой второй фильм, режиссер Андрей Звягинцев вновь выбрал объектом творческого изучения одно из самых интересных и сложных, хотя и самое очевидное и характерное из людских состояний — семью. Но если в «Возвращении» внимание режиссера и зрителя было сосредоточено на отце и сыновьях, то в «Изгнании» протагонистами являются муж и жена, мужчина (   Читать дальше...   )Жанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Константин Лавроненко, Александр Балуев, Максим Шибаев, Мария Бонневье, Екaтеринa Кулкинa, Елена Лядова, Дмитрий УльяновСубтитры: отсутствуютПродолжительность: 02:30:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717870   (390052) от 02.11.2013
-
-Околофутбола (2013) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм о самой закрытой части футбольных болельщиков — околофутбольных хулиганах. Они — самые агрессивные и жестокие представители мира футбольных фанатов. Они — элита околофутбола. Кем бы они ни были в обычной жизни — студентами или банкирами, музыкантами или автомеханиками, на самом деле все они — одна «фирма». Попасть в «фирму» очень сложно, но если ты в ней оказался (   Читать дальше...   )Производство: Россия / Кинокомпания CTBЖанр: драма, спорт, криминалРежиссер: Антон БорматовАктеры: Александр Ратников, Иван Фоминов, Григорий Иванец, Павел Ерлыков, Дарья Мингазетдинова, Юлия Маньковская, Евгений Березин, Никита Кукушкин, Сергей Шнырев, Максим ПавловПеревод: Не требуется (Русский язык)Продолжительность: 01:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9161672F41A96C6C7749B7A8F8EE1FA225B660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718627   (388074) от 04.11.2013
 
 Околофутбола (2013) DVD5
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388074.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387985.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360484.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356084.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352995.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_352589.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_349781.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_348090.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_347502.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347414.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344969.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340502.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340307.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339754.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324382.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321002.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279383.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276928.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276738.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276061.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276058.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267434.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266455.jpg" />
 </div>
 
 
@@ -673,6 +595,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2357DE8F5168679177E324510BC424678E035B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587864   (266449) от 06.12.2018
+
+Откройте, Дед Мороз! (2007) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая незамужняя женщина Женя и ее маленький сын Гриша готовятся к встрече Нового года. Гриша очень надеется, что в гости к ним придет Дед Мороз. И оставляет ему подарок под подушкой. У Жени тоже есть мечта. Что рано или поздно она встретит человека, которого полюбит и который будет ее сыну отцом.В новогоднюю ночь к Жене приходят старые друзья - чета Огурцовых (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Ольга СубботинаАктеры: Любовь Толкалина, Константин Лавроненко, Сергей Баталов, Марина Голуб, Артем Смола, Ирина Гринева, Илья ШелгуновСубтитры: украинскиеПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE5DB970EC39EE2A7C305B59F021ED69A424278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533735   (266439) от 06.12.2018
+
+Перекресток (1998) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то, 20 лет назад, рок-группа «Дядя Алик» гремела на всю страну, а ее лидер по имени Алик купался в лучах славы. Теперь о них никто не вспоминает, и бывшие знаменитости подрабатывают то на свадьбах, то в клубе «Старый трамвай», а то и просто — в подземном переходе. Но однажды Алик встречает своего старого знакомого Мишу, который предлагает устроить его концерты (   Читать дальше...   )Производство: Россия, Беларусь, СИВ, ОРТ ВидеоЖанр: Мелодрама, КомедияРежиссер: Дмитрий АстраханАктеры: Леонид Ярмольник, Анна Легчилова, Александр Ефремов, Ольга Самошина, Ольга Беляева, Виктория Ершова, Алексей Колокольцев, Геннадий Свирь, Олег Корчиков, Александр КоваленкоСубтитры: нетПродолжительность: 01:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF76E6FEF1473FDA471F50B3EB668A6B28A2803A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356787   (266431) от 06.12.2018
+
+Барак (1999) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266431.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам новеллы Виктора Петрова "Ольга Ледоход".
+Время и место действия - 1953 год, закрытый уральский городок Сатка, очередная стройка века. Герои фильма - жители рабочих бараков (заселялись на время, а получилось навсегда) - русский, татарин, немец, еврей... Среди них есть изгой - бывший прислужник в немецкой комендатуре, люто ненавидящий немца, у (   Читать дальше...   )Производство: ВГТРК / VIA Film-Produktion / Кинокомпания "ДАР" / "Пеликан"Жанр: ДрамаРежиссер: Валерий ОгородниковАктеры: Андреас Дильшнайдер, Дмитрий Бульба, Артем Гусев, Юлия Свежакова, Алексей Девотченко, Сергей Качанов, Ирина Сенотова, Наталья Егорова, Евгений Сидихин, Леонид Ярмольник, Нина УсатоваСубтитры: нетПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0400CD970AE7BFD018DD4441279FE6414413E04
 ```
 
 https://mybot314.ru/tekegram_catalog/

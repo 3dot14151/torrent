@@ -1,29 +1,3 @@
-###  Публикация: 1349692   (1004188) от 02.01.2020
-
-Freeman: Guerrilla Warfare (2018) [Ru/Multi] (1.32) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Партизанская Bойна происходит в мире, где между собой воюют несколько фракций: бандиты и милитаристы, желающие править миром. В этой игре вам предстоит стать лидером фракции. Начните с минимальными ресурсами, найдите источник доходов, создайте армию, объявите войну другим фракциям, уничтожьте всех противников, используя хитрые стратегии и навыки ведения боя, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: KK Game StudioЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D16E5848D6021EE295AAA73EB73F4D9DDE4F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349745   (1004176) от 02.01.2020
 
 Freeman: Guerrilla Warfare (2018) [Ru/En] (1.32) Repack xatab
@@ -32,7 +6,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.32) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004176.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Reflections of Life 10: Meridiem / Отражения жизни 10: Мерид�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004089.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Grime (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004039.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Submerged (2015) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003974.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ A Bird Story (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003752.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Iron Marines (2019) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003706.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003701.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Kingdom Rush Vengeance (2018) [Ru/Multi] (1.9.9.20) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003698.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ I am not a Monster: First Contact (2018) [Ru/Multi] (1.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003632.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Forgotten City (2021) [Ru/Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003466.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.4.50233) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003386.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Day of the Shell (2025) [Ru/Multi] (1.1.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003366.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Bittersweet Birthday (2025) [Multi] (1.0b) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003365.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18208471) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003361.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.4.20760/dlc) Repack Let'sР
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003320.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Last Case of John Morley (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003279.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.308.05.126703.1/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003276.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003275.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003270.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ A.I.L.A (2025) [Ru/Multi] (20884084) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003269.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ A.I.L.A (2025) [Ru/Multi] (1.0.0.6001) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003268.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Jupiter Hell (2021) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003216.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ The Great Ace Attorney Chronicles (2021) [En] (Build 6837188) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003210.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Spirit Legends 3: Time for Change / Легенды Духов 3: Время пе
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003204.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Kingdom Rush Origins (2018) [Ru/Multi] (4.2.15) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003178.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Kingdom Rush Origins (2018) [Ru/Multi] (4.2.15) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4321C27D762968EA7278FEC9E3EF4F1AF95850EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350255   (1003100) от 06.01.2020
+
+Outer Wilds (2019) [Ru/Multi] (1.0.4.240) Repack Mr_Weegley
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outer Wilds — приключения в открытом мире, попытка разгадать тайну неведомой солнечной системы в бесконечно повторяющейся петле времени. На небольшой планете со странным названием Камелёк живёт не менее странная раса четырёхглазых синекожих гуманоидов, которые очень любят изучать космос, а в свободное время — бренчать на музыкальных инструментах. Настоящей цивилизацией (   Читать дальше...   )Тип издания: RepackРазработчик: Mobius DigitalЖанр: Adventure, RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC90C2AF61BED688D5492C263CD68BF53BCE9ED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

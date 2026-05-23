@@ -6,7 +6,7 @@ Telegram Desktop 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108527.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Subtitle Edit 4.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108525.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ LibreWolf 126.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108522.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Chromium 125.0.6422.142 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108503.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ ApowerREC 1.6.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108455.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Rainlendar Lite 2.21.1 Build 178 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108449.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ OneCommander Pro 3.81.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108353.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ OneCommander Pro 3.83.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108246.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ R-Wipe & Clean 20.0.2459 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108245.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Telegram Desktop 5.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108237.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ StaxRip 2.40.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108235.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ PrivaZer Pro 4.0.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108227.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ FontViewOK 8.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108218.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Newfangled Audio - Generate 1.6.3 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108199.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ PrivaZer 4.0.86 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108197.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Google Chrome 126.0.6478.57 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108088.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Firefox Browser ESR 115.12.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108085.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ WinCatalog 2024.7.5.612 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108084.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Celemony - Melodyne Studio 5.4.0.036 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108082.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ USB Device Tree Viewer 4.2.7.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108081.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ File & Image Uploader 8.4.3 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108071.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Chasys Draw IES 5.31.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108070.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ O&O DiskImage Professional 19.1 Build 144 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108069.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ NetLimiter 5.3.14.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108065.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ XYplorer 26.10.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108064.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Draw.io 24.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108058.jpg" />
 </div>
 
 

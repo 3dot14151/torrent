@@ -6,7 +6,7 @@ Agnitum Outpost Security Suite Pro v 7.5.2 (3939.602.1809) Final ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78244.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Avast! Pro Antivirus 7.0.1407 Final [ML, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78240.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Windows 7 Ultimate SP1 x64 Point Blank By StartSoft v 14.2.12 [Русский +�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78232.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ DivX Plus 8.2.2 Build 1.8.5.36 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78192.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ cFosSpeed 7.01 Build 1926 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78184.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Total Commander 8.0 Beta 20 Portable - Sanches Edition [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77973.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Game Booster v3.3.0 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77814.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Drivers&Utility для матплаты Gigabyte (socket1155) с процесс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77799.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ ACDSee Photo Manager 14.1.137 RePack by Boomer[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77630.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows 7 Ultimate SP1 (x64) by Loginvovchyk с программами {Февр
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77458.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Reallusion iClone v5.0.PRO + ResourcePack 5.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77237.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ SkyMonk 1.63 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77209.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77093.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Google Chrome 17.0.963.56 Stable 17.0.963.56 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77091.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Christian Radio Player 3.4.8 + Portable [Русский, Английский, �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76749.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ AntiWinLocker 2.5 [Русский/Английский] / (RePack by blondin1997
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76431.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Sony Sound Forge Audio Studio 10.0 Build 177  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76399.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Sony Vegas Movie Studio HD 11.0.42 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76355.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CCEnhancer 2.5.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76314.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Vegas Movie Studio HD Platinum 11.0.295 + Portable by BALISTA  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76289.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ STDU Viewer 1.6.2 Rus - Тихая установка by moRaLIst [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76262.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ PcBoost 4.2.13.2012 + portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76251.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ BatWithParameters 1.0.0.17 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76247.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Freemake Video Converter 3.0.1.13 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76244.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Autodesk AutoCAD Civil 3D 2012 sp1 [RU EN DE] [x32 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76220.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Advanced SystemCare Pro 5.1.0.198 [RG Soft] 5.1.0.198 [Русский / Англ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76209.jpg" />
 </div>
 
 

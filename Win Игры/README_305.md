@@ -1,29 +1,3 @@
-###  Публикация: 1476306   (255912) от 14.11.2025
-
-Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в ностальгию с тактической ролевой игрой, вдохновением для которой послужили самые выдающиеся классические представители жанра. Отправляйтесь в увлекательное путешествие с уникальными персонажами и погрузитесь в захватывающую историю. Вы можете нанять до 14 персонажей с уникальными способностями и победить с их помощью свой самый ужасный кошмар в эпических (   Читать дальше...   )Тип издания: LicenseРазработчик: Makee, Forever Entertainment S. A.Жанр: jRPG, Tactical RPG, Adventure, StrategyЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89EECF218FFD1E37DAC123460409CAB0659B4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837004   (255905) от 14.11.2025
 
 Angry Video Game Nerd 8-bit (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Angry Video Game Nerd 8-bit (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255905.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Venba (2023) [En] (2025.10.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255904.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255901.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Port Royale 3: Pirates & Merchants (Patch/1.1.2) 2012 | SKiDROW
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255783.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255686.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255662.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ The Last Caretaker (2025) [Ru/Multi] (0.5.0.581804) Repack Other s [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255638.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Sacred 2 Remaster (2025) [Multi] (1.0c) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255637.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Salt 2: Shores of Gold (2025) [Ru/Multi] (1.0) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255588.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (Build 10917954) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255496.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ PARANOIA PLACE (2023) [Multi] (0.48) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255431.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Everspace 2 (2021) [Ru/Multi] (1.0.33479) Repack DjDI
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255361.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Beyond Contact (2023) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255359.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255250.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Counter-Strike Source v92 (2004) [Ru] (b6630498/pv24/v92) Repack twileck
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255217.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Counter-Strike 1.6 Na’Vi (1999-2015) [Ru/En] (1.1.2.6/pv48/b4554) Repack twile
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255173.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242/dlc) Repack DjDI [Premium 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255151.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.4.5a-rc-1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255117.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Gripper (2023) [Ru/Multi] (1.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255037.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Souldiers (2022) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255031.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ New Tales from the Borderlands (2022) [Multi] (10415597/dlc) Repack DjDI [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254972.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Resident Evil Village (2021) [Ru/Multi] (10415597/dlc) Repack dixen18 [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254971.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254962.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ The Unbeatable Path (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254942.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Karagon (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254932.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Karagon (2023) [Ru/Multi] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7047E350F7263AB7C9F1F0B88EF8679D1270E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628494   (254869) от 23.04.2023
+
+Star Ocean: The Divine Force (2022) [Multi] (01.01/dlc) Repack DjDI
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Square Enix и Tri-Ace представляют последнюю часть серии RPG Star Ocean. Вы можете перемещаться в трех измерениях, летая по самому большому миру. Летаете ли вы и исследуете скалы и крыши зданий в городе или прыгаете со скал, чтобы беспрепятственно вступить в бой, у вас будет больше свободы как в приключениях, так и в сражениях. В то время как игра даст вам возможность (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix, tri-AceЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Французский, Корейский и другиеЯзык интерфейса: Английский, Японский, Французский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC7C6E4172B79E04A25BF657E75365AC9367F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

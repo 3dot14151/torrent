@@ -6,7 +6,7 @@ Hitman: Sniper Challenge [Ru] (Steam-Rip/Promo) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562410.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Prototype 2: RedNet Edition [Ru/En] (RePack/1.0) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562313.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Singularity [Ru/En] (Rip/1.1) 2010 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562299.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru] (RePack/1.3/1 DLC) 2012 l R.G.Pack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562211.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Minecraft [Ru/Multi56] (RePack/1.3.1) 2012 | YaKrevetko
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562198.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Hitman: Sniper Challenge [Ru] (Steam-Rip/Promo) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562194.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.0.3/dlc) Repack R.G. Catalyst [Deluxe Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561715.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Commandos Anthology (1998-2006) [Ru/En] Repack/Rip R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560785.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ inVersion [En/Multi5] (P) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560531.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi23]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560311.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Open Transport Tycoon Deluxe (2004) [Ru/Multi] (1.5.1) License [OpenTTD]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560299.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Brink [Ru] (RePack/1.0.23653/DLC) 2011 l R.G. BoxPack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560125.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Game of Thrones / Игра престолов [Ru/En] (RePack/1.3.0.0) 2012 l VA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560122.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559018.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ No Man's Sky (2016) [Ru/Multi] (1.0/upd3/dlc) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558970.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558912.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Angry Birds [En] (L/2.2.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558494.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Binary Domain [Ru/En] (RePack/1.0.0.1) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558492.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558484.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Death Rally [En] (P/1.00.20.023) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558399.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Splinter Cell: Blacklist (2013) [Multi] (Update 1.01) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557908.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Thief Simulator (2018) [Ru/Multi] (1.08b) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557754.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Battle Brothers (2017) [Ru] (1.3.0.18/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557746.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ House Flipper (2018) [Ru/Multi] (1.17/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557745.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Long Dark (2017) [Ru/Multi] (1.52.48486) Repack xatab [Episode 1-2]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557740.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ No Man's Sky (2016) [Ru/Multi] (1.0/upd3/dlc) Repack YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557424.jpg" />
 </div>
 
 

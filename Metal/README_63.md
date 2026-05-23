@@ -6,7 +6,7 @@ Tarja Turunen - Ave Maria - En Plein Air (2015) [MP3|320 кб/с]<Neo-Classical,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495934.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Unleash The Archers - Abyss (2020) 2CD [MP3|320 Kbps] <Melodic Death, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495278.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mosara - Only the Dead Know Our Secrets (2022) [MP3|320 Kbps] <Atavistic Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495005.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bells and Ravens - What Death Cannot End (2022) [MP3|320 Kbps] <Progressive Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495003.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Moonshade - As We Set The Skies Ablaze (2022) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494994.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blizzard Hunter - The Path Of Triumph (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494915.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Imperial Triumphant - Spirit Of Ecstasy (2022) [MP3|320 Kbps] <Avantgarde Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494900.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Slipknot - We Are Not Your Kind (2019) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494397.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Wolf Counsel - 5 Albums (2015-2022) [MP3|320 Kbps] <Doom Metal, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492677.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sedimentum - Suppuration Morphogénésiaque (2022) [MP3|284-296 kbps VBR] <Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492674.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Gamma Ray - Heading For Tomorrow (1990) 25 Anniversary Edition 2CD /2015, earMUS
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492365.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pantera - History Of Hostility (2015) LP [MP3|320 Kbps] <Thrash Metal, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492248.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tantara - Based On Evil (Limited Edition) (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491978.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ My Dying Bride - Feel the Misery (2015) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489904.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ John Petrucci - Terminal Velocity (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489377.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Katatonia - Dead End Kings (2012) Limited Edition [MP3|320 кб/с]<Doom, Depres
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489137.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Finsterforst - Zerfall (2019) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488869.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Deep Sun - Race Against Time (2016) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488366.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Inner Sense - Life Sentence (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488322.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Insomnium - Winter's Gate (2016) [MP3|320 кб/с] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488268.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Cannon - Burning Love (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487719.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Motorjesus - 4 Альбома + 1 EP (2004-2014) [MP3|320 кб/с]<Hard Rock, He
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486259.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Elferya - Eden's Fall (2015) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486052.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Beyond the Black - Heart of the Hurricane (2018) [MP3|320 Kbps] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485954.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Cavern - Powdered (2020) [MP3|320 Kbps] <Progressive Sludge, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485837.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Babirusa - Humanoid (2020) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485831.jpg" />
 </div>
 
 

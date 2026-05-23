@@ -1,30 +1,3 @@
-###  Публикация: 1639415   (237105) от 13.06.2023
-
-Жизнь замечательных людей (2012-2014) DVB (часть 4, 18 выпусков)
-
->>Документалистика и Телепередачи
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Проект ЗАО "Первый канал. Всемирная сеть", ведущим которого стал писатель, актер, режиссер и сценарист Павел Санаев, обещает внести новые главы в историю изучения "жизни замечательных людей".
-В студии программы встретятся два оппонента — автор официальной биографии и сторонник альтернативного мнения. Самые яркие и спорные эпизоды жизни известных (   Читать дальше...   )Производство: Россия, ЗАО "Первый канал. Всемирная сеть"Жанр: документальный, история, биографияРежиссер: Станислав МарунчакЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ECFA50773C97937E0D0055A868B0A8B26D99AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452004   (237069) от 05.03.2021
 
 Тракистан / Truckistan (2019) WEBRip [H.264/2160p]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237069.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237049.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237036.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237014.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237011.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237010.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237002.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236994.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236963.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236959.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236950.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236937.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236883.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236882.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ RTG. Малые музеи Петербурга. Игровые автоматы
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236875.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ RTG. Рыбалка на Ейской косе (2011) HDTV [H.264/1080p]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236865.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236839.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236829.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236812.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236796.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236793.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236789.jpg" />
 </div>
 
 
@@ -607,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236783.jpg" />
 </div>
 
 
@@ -633,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236742.jpg" />
 </div>
 
 
@@ -659,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236739.jpg" />
 </div>
 
 
@@ -671,6 +644,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CCBDA9EE9B8201086D539427E047A09C72E93F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628267   (236732) от 22.04.2023
+
+Живая еда с Сергеем Малозёмовым (22.04.2023) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть ли безопасные дозы алкоголя и какие напитки сильнее всего бьют по здоровью? В чем секрет долгожителей Средиземноморья, где красное вино — традиционный элемент стола?
+Китайские ученые придумали, как сделать карасей менее костлявыми.
+ Как легендарную смесь специй — карри — делают на Шри-Ланке, можно ли найти настоящую приправу в России и какие блюда она украшает? (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257162B8CB10B3BB78925EAA4686E4932E685EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

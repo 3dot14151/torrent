@@ -6,7 +6,7 @@ Whale Browser 3.17.145.17 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181691.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PIDKey Lite 1.64.4 b26 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181687.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WSCC (Windows System Control Center) 7.0.5.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181652.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ XYplorer 23.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181642.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Calibre 6.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181638.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ KORG Collection 4 4.0.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181624.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Artweaver Plus 7.0.14.15552 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181622.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Google Chrome 107.0.5304.122 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181601.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ TreeSize Professional 8.5.2.1715 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181568.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ iZotope - Neutron 4 4.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181551.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ungoogled Chromium 107.0.5304.107-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181543.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Psiphon 3 build 176 (DC 24.11.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181525.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Text Editor Pro 27.7.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181474.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ QOwnNotes 23.10.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181470.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Q-Dir 9.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181461.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Text Editor Pro 11.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181458.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Sante DICOM Editor 8.2.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181418.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Sante DICOM Viewer Pro 12.2.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181405.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181402.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Windows 11 Pro VL x64 22Н2 (build 22621.898) by ivandubskoj 24.11.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181396.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Total Commander 10.52 (22.11.2022) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181380.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Wondershare Filmora 10.0.4.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181363.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ RJ TextEd 15.96.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181360.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ WinBin2Iso 4.33 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181355.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ WinMerge 2.16.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181345.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ ScreenHunter Pro 7.0.1141 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181343.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Benny Goodman - The Best of Benny Goodman And His Orchestra 1956 - 1957 (1990) C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979191.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brian Culbertson - Winter Stories (2019) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979126.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Spyro Gyra - Vinyl Tap (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979023.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Spyro Gyra - Fast Forward (1993) GRP Records [FLAC|image+.cue]<Smooth, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978897.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Billy Taylor - Cross-Section (1953-1954) Remaster, 2014, Universal[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978220.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lionel Hampton & His Giants of Jazz - Hamp in Haarlem (1979) 2000, Timeless Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978219.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Peggy Lee - Let's Love (1974) 2003, Warner Strategic[FLAC|tracks+.cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978212.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Howard Alden , Cal Collins , Lloyd Ellis - Famous Door: Ace Guitarists (2015) 3-
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978209.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Terence Blanchard - Romantic Defiance (1995) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978007.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stan Getz - The Essential Recordings 1950 - 1954 (2017) 2CD, Primo [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978005.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bernard Allison - Songs From The Road (Live) (2020) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977943.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bill Evans - Smile With Your Heart 1950-e - 1960-e (2019) Resonance Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977852.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tinsley Ellis - Ice Cream In Hell (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977849.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Oscar Peterson - Debut: The Clef/Mercury Duo Recordings 1949-1951 (3CD) (2009) [
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977704.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Buddy Guy - Live at Legends (2012) [MP3|320 кб/с]<Blues, Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977698.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Various Artists - The Sound Of Acid Jazz (2010) [MP3|320 кб/с]<Acid Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977693.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Gary Moore - Live From London (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977652.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Robin Trower - Roots And Branches (2013) [MP3|320 кб/с]<Hard Rock, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977622.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Various Artists - Dreamboats and Petticoats - Dream Lovers (2013) [MP3|320 кб/
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977616.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - The Golden Age Of Swing "Big Band Legends" (1995-1997) 3CD[FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977598.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ The Art Van Damme Quintet - The Van Damme Sound & Martini Time (1953) 1998, Coll
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976973.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Gary Burton, Jan Garbarek, Pat Metheny - Hommage A Eberhard Weber (2015) ECM[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976933.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ The Stan Getz Quartet - Getz At The Gate: Live at The Village Gate, Nov. 26, 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976870.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Enrico Rava & Joe Lovano - Roma (2019) ECM Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976869.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Brenda Boykin - 2 альбома (2008, 2013) [MP3|320 кб/с]<Jazz, Soul, Loun
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976634.jpg" />
 </div>
 
 
@@ -769,7 +769,7 @@ VA - Jazz Chill & Cafe (2013) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976631.jpg" />
 </div>
 
 

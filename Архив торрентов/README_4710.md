@@ -6,7 +6,7 @@ Duolingo: изучай языки 5.147.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58959.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bandicam 7.1.1.2158 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58951.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Malwarebytes Windows Firewall Control 6.11.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58931.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58928.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DxO PhotoLab Elite 7.6.0 build 189 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58917.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Aiseesoft FoneLab for Android 5.0.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58912.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ uTorrent Pro 3.6.0 Build 47062 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58911.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Glarysoft Malware Hunter PRO 1.183.0.804 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58898.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Absolute Uninstaller 6.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58892.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NirLauncher Package 1.30.11 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58887.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58883.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ XYplorer 25.90.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58878.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Glary Utilities Pro 6.9.0.13 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58876.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ YT Downloader 9.7.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58875.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Firefox Browser 125.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58867.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58859.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Double Commander 1.1.13 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58858.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ TikTok 34.4.3 Mod by Dmitry Nechiporenko + Plugin 1.34 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58857.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Soft Organizer Pro 9.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58856.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BananaVisualLibraries 1.0.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58855.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adguard 7.17.1 (7.17.4709.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58830.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Duplicate Cleaner Pro 5.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58813.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Internet Download Manager 6.42 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58810.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rosetta Stone: Изучение языков v8.24.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58808.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.1 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58804.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.8 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58802.jpg" />
 </div>
 
 

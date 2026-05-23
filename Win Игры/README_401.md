@@ -1,29 +1,3 @@
-###  Публикация: 477739   (86102) от 03.04.2012
-
-School house Shuffle (P) [En] 2008
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После получения "Младшего магистра", Виктория Брайт, начала воплощать давнюю мечту построить школу для талантливых и одаренных. Теперь её задача развивать и просвещать одаренных гениев. Помогите ей в этом.(   Читать дальше...   )Тип издания: ПираткаЖанр: Бизнес-симулятор, АркадаЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C365F4C6A5EE4DD73DB0B5745369273ACB6613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477302   (86042) от 02.04.2012
 
 Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
@@ -32,7 +6,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86042.jpg" />
 </div>
 
 
@@ -66,7 +40,7 @@ Criminal Minds / Мыслить как преступник (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85594.jpg" />
 </div>
 
 
@@ -92,7 +66,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [En] (P) 2011
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85568.jpg" />
 </div>
 
 
@@ -118,7 +92,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85433.jpg" />
 </div>
 
 
@@ -146,7 +120,7 @@ Tropico 4: Modern Times [Ru/En] (RePack/1.5) 2012 l z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85425.jpg" />
 </div>
 
 
@@ -173,7 +147,7 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85272.jpg" />
 </div>
 
 
@@ -199,7 +173,7 @@ Flux Family Secrets: The Ripple Effect / Секреты семьи Флакс. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85119.jpg" />
 </div>
 
 
@@ -225,7 +199,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85104.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ Shiver 2: Poltergeist Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85086.jpg" />
 </div>
 
 
@@ -277,7 +251,7 @@ Das Geheimnis des Korsaren (L) [Ge] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85062.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ Solitaire Mystery: Stolen Power / Магия пасьянса (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84973.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ Bloodline Champions / Братство Чемпионов (L) {ver. 2.3.0.0} [En
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84815.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ Princess Isabella: Return of the Curse. Collector's Edition / Принцесса
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84762.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ Monument Builders: Titanic (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84694.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ Coloropus (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84609.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84596.jpg" />
 </div>
 
 
@@ -460,7 +434,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84562.jpg" />
 </div>
 
 
@@ -486,7 +460,7 @@ Ghost Encounters: Deadwood (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84227.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ Wing Commander Saga: The Darkest Dawn [En] (P/1.0.2.7795) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84211.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84193.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84190.jpg" />
 </div>
 
 
@@ -593,7 +567,7 @@ Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84146.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ The Chronicles of Shakespeare: Romeo & Juliet / Хроники Шекспира.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84128.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84086.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ Phenomenon: City of Cyan (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84055.jpg" />
 </div>
 
 
@@ -682,6 +656,32 @@ Phenomenon: City of Cyan (P) [En] 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472118   (84006) от 23.03.2012
+
+Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сохраняя все лучшие традиции серии, Battlefield: Bad Company 2 предлагает вниманию поклонников игры массу новых интересных возможностей.Сражаться предстоит в самых разных условиях: в заснеженных лесах и непроходимых джунглях, в жарких пустынях и неприступных горах, что предполагает использование соответствующей тактики. Также игроки смогут реализовывать уникальные тактические приемы, применяя в бою новые виды техники, включая вездеход (ATV) и транспортный вертолет UH-60. Кроме того, в проекте представлены широкие возможности для модификации техники и различных устройств, что существенно расширит число доступных комплектов снаряжения, оружия и боевых машин.Благодаря усовершенствованиям, внесенным разработчиками в уникальный графический движок Frostbite, в игре использованы современные визуальные эффекты, реалистичная система повреждений.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

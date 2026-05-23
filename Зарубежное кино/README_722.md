@@ -1,55 +1,3 @@
-###  Публикация: 787940   (735466) от 19.05.2014
-
-Замороженные солдаты / Ice Soldiers (2013) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ученый в снегах Канады обнаруживает три тела русских военных, с генетическими изменениями. Он приводит их в чувство и зря — он разморозил смертельную опасность для общества.Производство: Канада | Bunk 11 Pictures, TAJJ Media, Hideaway PicturesЖанр: Фантастика, БоевикРежиссер: Стурла ГуннарссонАктеры: Доминик Пёрселл, Адам Бич, Майкл Айронсайд, Гэбриел Хоган, Бенц Антуан, Даина Барбо, Рауль Банеджа, Нику Бранзеа, Грег Стивен Браун, Майкл Клилэнд ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский x2, Английский (Full, SDH, SDH-Colored)Продолжительность: 01:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBDFE2453A6D80D39791C24099C79D145FED69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528088   (735369) от 31.01.2022
-
-Красный ангел / Akai tenshi (1966) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе Йоричика Аримы (1966). 1939 год. Сакура Ниси – молодая военная медсестра, которую направили в полевой госпиталь в Китае в ходе японо-китайской войны. Она должна ассистировать хирургу доктору Окабэ. Находясь каждый день в переполненных ранеными палатах, она сочувствует некоторым из них; доходит до того, что она сексуально удовлетворяет (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: драма, мелодрама, военныйРежиссер: Ясудзо МасумураАктеры: Аяко Вакао, Синсукэ Асида, Юсукэ Кавадзу, Ранко Акаги, Хотаро Сенба, Даячи Кита, Дзюн Осанаи, Дайго Иноэ, Такаси Накамура, Кэнити ТаниПеревод: любительский одноголосый (Олег Воротилин)Субтитры: русские (ЮГТ © 2016), английскиеПродолжительность: 01:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DC38F768D1CBA6EDCEE11028E69B949028055D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528117   (735361) от 31.01.2022
 
 Красный ангел / Akai tenshi (1966) BDRip [H.264/720p] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735361.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735348.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735339.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735335.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735330.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735306.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735294.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735292.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735287.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735175.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735165.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735149.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735113.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735112.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735046.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735043.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734965.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734963.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734952.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734951.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734931.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734924.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734923.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734915.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3520144622C34B92E73C4FCDF850C6EFC88F11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524114   (734911) от 01.02.2022
+
+Клад / The Grave (1996) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое заключенных, Кинг и Тин, случайно узнают, что неподалеку на заброшенном кладбище в одной из могил зарыты драгоценности. Приятели совершают рискованный побег из тюрьмы ради будущего благополучия. Но расчёт кладоискателей поживиться на халяву не оправдывается: когда они прибывают на место, там уже собралась небольшая, но агрессивная очередь...Производство: США, Kushner-Locke CompanyЖанр: комедия, триллерРежиссер: Джонас ПейтАктеры: Крэйг Шеффер, Габриэлль Анвар, Джош Чарльз, Донал Лог, Кит Дэвид, Джон Дил, Джованни Рибизи, Энтони Майкл Холл, Макс Перлих, Эрик РобертсПеревод: авторские (Сергей Визгунов; Пётр Карцев)Субтитры: английскиеПродолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFDDC3F13088846190A8FB33ECF287824FB5C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 70932   (734910) от 01.02.2022
+
+Свечи на Бей стрит / Candles on Bay Street (2006) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда энергичная молодая мать Ди Ди возвращается в родной городок вместе с сыном после 13-летнего отсутствия, её появление вызывает бурю эмоций у бывшего друга детства Сэма и его жены Лидии. Ди Ди рассказывает Сэму, что она вернулась, чтобы показать сыну жизнь маленького городка и его семейные традиции после того как её бросил муж. На самом деле у Ди Ди более веская (   Читать дальше...   )Производство: Канада, США / Bay Street Films, Hallmark Hall of Fame ProductionsЖанр: драмаРежиссер: Джон ЭрманАктеры: Алисия Сильверстоун, Эйон Бэйли, Аннабет Гиш, Мэттью Найт, Полли Берген, Джеймс Ребхорн, Джонатан Поттс, Марта Ирвинг, Эйслинн Пол, Тед АтертонПеревод: Одноголосый любительскийЯзык озвучки: РусскийПродолжительность: 01:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D45666ECFEA17040E953C5ED4E0A7C6B28A4FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

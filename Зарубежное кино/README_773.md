@@ -1,55 +1,3 @@
-###  Публикация: 1286809   (706778) от 05.03.2019
-
-Железный человек / Iron Man (2008) WEBRip [H.264] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер изобретатель Тони Старк попадает в плен к Афганским террористам, которые пытаются заставить его создать оружие массового поражения. В тайне от своих захватчиков Старк конструирует высокотехнологичную киберброню, которая помогает ему сбежать. Однако по возвращению в США он узнаёт, что в совете директоров его фирмы плетётся заговор, чреватый страшными последствиями. (   Читать дальше...   )Производство: США / Paramount Pictures, Marvel Enterprises, Marvel StudiosЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон ФавроАктеры: Роберт Дауни мл., Джефф Бриджес, Гвинет Пэлтроу, Терренс Ховард, Лесли Бибб, Шон Тоуб, Фаран Таир, Кларк Грегг, Джон Фавро, Саид БадрияПеревод: Дублированный (R5)Субтитры: Русские (full), Английские (full)Продолжительность: 02:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D505DBF4BAFCAAE382094B5263F37BF3300CD0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286975   (706776) от 05.03.2019
-
-Вернуть Бена / Ben Is Back (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества Бен Барнс сбегает из реабилитационного центра и возвращается домой. В свое время хлебнувшая с ним горя мать тепло принимает сына, но скоро убеждается, что ничего не изменилось — от парня по-прежнему нужно ждать беды. У нее есть 24 часа, чтобы уберечь сына от опасности. Но как далеко можно зайти, спасая тех, кого мы любим?Производство: США, Black Bear Pictures, 30West, Color ForceЖанр: ДрамаРежиссер: Питер ХеджесАктеры: Джулия Робертс, Лукас Хеджес, Кортни Б. Вэнс, Кэтрин Ньютон, Рэйчел Бэй Джонс, Дэвид Залдивар, Александра Парк, Майкл Эспер, Тим Гини, Мира Лукреция ТейлорПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21856955B8CAFCA2A0D66C1107C9E3D6F4AC15E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 671787   (706749) от 23.06.2013
 
 Лучшие друзья и ребенок / L!fe Happens (2011) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706749.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706707.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706689.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706688.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706687.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706675.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706674.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706670.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706609.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706581.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706568.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706510.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706438.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706349.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706301.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_706276.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706242.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706237.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706231.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705934.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705931.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705923.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705890.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705886.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F940291FB34B77FB5E1E279D242E506AC10BD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219960   (705881) от 18.04.2018
+
+Пятое измерение / Push (2009) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ник, американский эмигрант, обладает способностью к телекинезу. Он скрывается в Гонконге от могущественной организации, которая хочет эксплуатировать его дар в своих целях. Вскоре молодой человек встречает свою бывшую возлюбленную и знакомится с девочкой Кэсси, способной предсказывать будущее. Она видит, что только вместе они смогут выжить и нарушить планы зловещей (   Читать дальше...   )Производство: США, Канада / Icon ProductionsЖанр: фантастика, боевик, триллерРежиссер: Пол МакГиганАктеры: Колин Форд, Джоэл Гретш, Джимон Хонсу, Дакота Фэннинг, Роберт Тсонос, Брэндон Перлман, Камилла Белль, Нил Джексон, Крис Эванс, Кай Чунг ЛюнПеревод: Дублированный (Лицензия)Субтитры: Русские (Forced, Full), Украинские (Full), АнглийскиеПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C7BAD69F398668F4468BA2BFDCA1C5CAE6ADAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025854   (705861) от 14.06.2016
+
+Машина времени в джакузи 2 / Hot Tub Time Machine 2 (2015) BDRip [H.265/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Лу попадает в беду, Ник и Джейкоб решают воспользоваться машиной времени в джакузи, чтобы вернуться в прошлое, но неожиданно оказываются в будущем с Адамом младшим. Теперь им придется изменить будущее, чтобы исправить события в прошлом.Производство: США / Paramount Pictures, Metro-Goldwyn-Mayer (MGM)Жанр: Фантастика, КомедияРежиссер: Стив ПинкАктеры: Роб Кордри, Крэйг Робинсон, Кларк Дьюк, Адам Скотт, Гиллиан Джейкобс, Чеви Чейз, Коллетт Вульф, Бьянка Хаазе, Джейсон Джонс, Кумэйл Нанджиани, Келли Стюарт, Джош ХилдПеревод: Дублированный (лицензия)Продолжительность: 01:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEAFFCEBFA745527AF909B5DC58D1225639E105
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Shadow Defender 1.4.0.680 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666923.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XMedia Recode 3.2.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666858.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BurnAware Professional 8.1 DC 22.05.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666856.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BurnAware Professional 8.1 DC 22.05.2015 Final RePack (& Portable) by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666731.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ashampoo Music Studio 6.0.2.27 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666676.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Notepad++ 6.7.8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666673.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Vivaldi 5.1.2567.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666644.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PrivaZer 2.32.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666617.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Internet Download Manager 6.28 Build 11 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666596.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Extreme Picture Finder 3.35.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666587.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Opera 84.0.4316.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666567.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.20 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666559.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ EximiousSoft Logo Designer 3.7.6 RePack (& portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666528.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Ashampoo WinOptimizer 12.00.10 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666525.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666497.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows and Office Genuine ISO Verifier 11.10.26.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666480.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ CCleaner 5.91.9537 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666476.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinNTSetup 5.2.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666475.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Universal Media Creation Tool 16.03.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666474.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NVIDIA GeForce Hotfix driver 353.00 For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666438.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ EximiousSoft GIF Creator 7.30 RePack (& portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666434.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Intel Solid-State Drive Toolbox 3.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666433.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Kinza Browser 3.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666397.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Re-Loader 1.3 RC 8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666358.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ashampoo Music Studio 6.0.2.27 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666355.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666348.jpg" />
 </div>
 
 

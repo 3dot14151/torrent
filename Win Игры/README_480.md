@@ -1,29 +1,3 @@
-###  Публикация: 1759681   (37690) от 10.11.2024
-
-CATO: Buttered Cat (2024) [Ru/Multi] (1.1.528) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-CATO: Buttered Cat — очаровательный платформер-головоломка, вдохновлённый мемным парадоксом про кота и тост с маслом: кошки всегда приземляются на лапы, а тост всегда падает маслом вниз. Соединив их вместе, вы получите парадокс — создаётся вращающийся летающий вечный двигатель в виде кото-тоста. В центре игры два главных персонажа: «Кот» и «Тост с маслом». Вам нужно (   Читать дальше...   )Тип издания: RepackРазработчик: Team WollЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1BFE01052D51F4205F0385AE9ED4B1B4CBC90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759751   (37672) от 10.11.2024
 
 Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
@@ -32,7 +6,7 @@ Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37672.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dustland Delivery (2024) [Multi] (1.20.757) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37643.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Strategic Command WWII: War in Europe (2016) [Multi] (1.30.00.01) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37630.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Demonologist (2023) [Ru/Multi] (1.5.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37625.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37621.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37542.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/Multi] (1.0.6/1.1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37538.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37532.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Deathbound (2024) [Ru/Multi] (1.2.0gf) License GOG [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37531.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37525.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37511.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.512/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37496.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37490.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37489.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37488.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Valley Peaks (2024) [Multi] (1.0.8.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37467.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37461.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Craftomation 101: Programming & Craft (2024) [Ru/Multi] (0.84.4) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37457.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37453.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37452.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37450.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37441.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37433.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dawn of the Ashen Queen (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37430.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.2.1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37428.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.2.1.0/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3E77B0D6FCE31334C6CE3DB2886F243B3B2FB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760348   (37416) от 13.11.2024
+
+Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэйдзи снова «связан судьбой», на этот раз с волшебной девушкой на год старше его! Во второй части этой шумной романтической комедии VN-сериала странное столкновение приводит к тому, что Сэйдзи становится фамильяром Майи - и связан зачарованной связью, чтобы выжить. Приведет ли близость к любви, или он обречен служить до конца (своих) дней?Тип издания: LicenseРазработчик: miraiЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEC986FCD4B13DE5EFA7F0AD34D06B6F2CC8416
 ```
 
 https://mybot314.ru/tekegram_catalog/

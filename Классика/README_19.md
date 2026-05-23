@@ -6,7 +6,7 @@ Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|trac
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769798.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Amb
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767752.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767671.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, P
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767601.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_767395.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767335.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Celtic Swoon (2017) [MP3|320 Kbps] <Classical>
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765273.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Royal Philharmonic Orchestra & James Morgan - Sleep Baby Sleep (2019) [FLAC|Loss
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760319.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Camille Saint-Saens - Samson et Dalila (1990) [APE|Lossless|image + .cue] <Opera
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757367.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757086.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chopin, Beatrice Rana - Etudes Op.25 - 4 Scherzi (2021) [FLAC|Lossless|image + .
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755158.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Haydn - Symphonies 68, 93-104 (Harnoncourt - Royal Concertgebouw Orchestra) (200
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753639.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751069.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ilyin - EP001. Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748131.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Karl Jenkins - Karl Jenkins: The Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748122.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Keaton Henson feat. Ren Ford - Romantic Works (2014) [MP3|320 Kbps] <Neoclassica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747562.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Roman Grau - Silent Pain (2015) [MP3|320 Kbps] <Neoclassical, Orchestral>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745994.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745674.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Bach, Bach C.P.E., Bach J.C., Bach W.F. - Double Concertos: Leonhardt, Harnoncou
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745673.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745642.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Fabrizio Paterlini - Winter Stories (2018) [MP3|320 Kbps] <Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744516.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Best Of The Millennium: Top 40 Classical Hits (2000) Box Set, 2 CD [FLAC|Lo
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743901.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Rick Wakeman - Piano Odyssey (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743507.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Sergey Cheremisinov - The Signals (2017) [MP3|320 Kbps] <Neoclassical, Ambient>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743230.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Webern - Complete Webern: Boulez (2000) [FLAC|Lossless]<Classical, Modern, Avant
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742822.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742224.jpg" />
 </div>
 
 

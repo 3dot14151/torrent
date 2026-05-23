@@ -1,81 +1,3 @@
-###  Публикация: 1771891   (71813) от 08.01.2025
-
-Федор Достоевский | Идиот (2013) [MP3, Петр Таганов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: МедиаКнигаПродолжительность: 29:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A341C6AFE7297E24B3CF0F13A040E609BD29857B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771882   (71810) от 08.01.2025
-
-Федор Достоевский | Идиот (2021) [MP3, Вячеслав Манылов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Князь Мышкин, главный герой знаменитого романа Ф. М. Достоевского «Идиот», несет людям проповедь сострадания, прощения, милосердия и братства. Однако надежды его рушатся: становится убийцей «крестный брат» Рогожин, гибнет «красота» Настасья Филипповна… И все-таки без таких людей, как князь, мир не существует. «Он только прикоснулся к их жизни, – пишет Достоевский. (   Читать дальше...   )Жанр: Русская классика, романИздательство: Мультимедийное Издательство СтрельбицкогоПродолжительность: 40:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0D3D86C63E96202B0B8070E8891F8873829587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771894   (71807) от 08.01.2025
-
-Федор Достоевский | Идиот (2009) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: Вира-МПродолжительность: 25:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF4BDFC2A386A211226C192A48BDCA3548DB206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771895   (71803) от 08.01.2025
 
 Федор Достоевский | Идиот (2013) [MP3, Александр Андриенко]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71803.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71797.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71784.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71783.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71737.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71719.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71718.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71687.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71686.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71679.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71678.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71662.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71659.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71658.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71654.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71653.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71652.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71633.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71631.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71630.jpg" />
 </div>
 
 
@@ -615,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71629.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71625.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71622.jpg" />
 </div>
 
 
@@ -678,6 +600,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B2EFE2B3D6A7911EADC67948A6222F3607F44D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773987   (71621) от 18.01.2025
+
+Жюль Верн | Замок в Карпатах (2024) [MP3, Валерий Толков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиостудия Ардис предлагает вашему вниманию готический роман Жюля Верна, опубликованный в 1892 году, за 5 лет до «Дракулы» Брэма Стокера, действие которого также происходит в Трансильвании. Как всегда у Жюля Верна, наука и технологии играют в книге немаловажную роль.
+В деревне Верст пастух замечает, что из разрушенного замка Рудольфа Горца поднимается дым. Эта новость (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: АРДИСПродолжительность: 04:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196F1595C4359BA6E950C4352E53831CC1D5C1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773952   (71620) от 18.01.2025
+
+Вальтер Скотт | Аббат (2024) [MP3, Юлия Тархова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию исторический роман знаменитого английского писателя Вальтера Скотта «Аббат» (1820), вместе с романом «Монастырь» составляющий цикл «Рассказы из бенедиктинских источников». Эти произведения связаны несколькими действующими лицами и общей темой: в них описывается развитие и торжество протестантизма в Шотландии. Действие «Аббата» вращается (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: АРДИСПродолжительность: 18:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EE7C3D8720EAE1801A3E0F26272A94EBDF8625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773935   (71616) от 18.01.2025
+
+Вальтер Скотт | Талисман, или Ричард Львиное Сердце в Палестине (2024) [MP3, Дмитрий Филимонов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71616.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Талисман» – исторический роман Вальтера Скотта, опубликованный в 1825 году, действие которого происходит во время Третьего крестового похода и сосредоточено на отношениях между Ричардом Львиное Сердце и Саладином. Книга входит в так называемую серию «романов Уоверли»: так как Скотт открыл своё авторство только в 1827 году, автором множества исторических романов (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: АрдисПродолжительность: 18:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960C127AE1807E32B57F0EDDB749BE8DBAF52EFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ qBittorrent 4.3.1 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175672.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIMP 5.11 Build 2436 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175630.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VLC Media Player 3.0.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175611.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ashampoo Burning Studio 22.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175598.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FastStone Image Viewer 7.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175566.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Skype 8.92.0.204 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175499.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Screen Wonders 2.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175493.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Marked 2 - Markdown Preview 2.6.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175491.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Revo Uninstaller Pro 5.0.8 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175489.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Texifier 1.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175486.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BusyContacts 2023.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175483.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NIUBI Partition Editor 9.0.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175482.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MWeb Pro 4.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175478.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Araxis Merge Pro Edition 2023.5953 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175470.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Dash 7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175458.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ iNet Network Scanner 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175452.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Valentina Studio Pro 13.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175443.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ GPU-Z 2.51.0 Portable by PortableApps [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175437.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ n-Track Studio Suite 10.0..0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175435.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ MediaInfo for Mac 23.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175431.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ FanControl V139 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175423.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Wondershare PDFelement 9.3.0.2023  Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175422.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Telegram for Android 9.1.6 (2929) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175405.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Ant Download Manager Pro 2.9.0 Build 83337 (sharewareonsale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175403.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ OmniReader Pro for Mac 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175402.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ BusyCal 2023.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175395.jpg" />
 </div>
 
 

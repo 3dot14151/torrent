@@ -6,7 +6,7 @@ Ani ni Tsukeru Kusuri wa Nai! / Нет лекарства для моего бр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604201.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bakumatsu Kikansetsu Irohanihoheto | Intrigue in the Bakumatsu: Irohanihoheto | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603958.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Junod | Жюно [2010, Movie] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603428.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью: Су�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602440.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602432.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tsuki ga Kirei / Прекрасна, как луна [2017, TV, 12 эп. + 1 OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602351.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tsugumomo / Цугумомо [2017, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602322.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Yowamushi Pedal: New Generation / Трусливый Велосипедист: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602317.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601731.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601693.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Youkoso Japari Park | Welcome to Japari Park | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601624.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatte Iru | Beautiful Bones: Sakurako`
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601028.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Natsuyuki Rendezvous / Рандеву под летним снегом (2012, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600528.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Alice to Zouroku | Алиса и Дзоуроку [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599719.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599467.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Saredo Tsumibito wa Ryuu to Odoru: Dances with the Dragons | И всё же, г�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599465.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Tsurune: Kazemai Koukou Kyuudou Bu | Звук тетивы [2018, TV, 13+SP] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599196.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Etotama | Etotama: Eto Tamashii | Этотама [2015, TV, 12 + 6sp] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599177.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ore no Nounai Sentakushi ga, Gakuen Love Comedy wo Zenryoku de Jama Shiteiru / N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598831.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Hoozuki no Reitetsu 3 / Хладнокровный Ходзуки [ТВ-3] [2018
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597854.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Hoozuki no Reitetsu OAD / Хладнокровный Ходзуки OVA [2014, O
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597850.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cutie Honey Universe | Вселенная Милашки Хани [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597772.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Gyakuten Sekai no Denchi Shoujo | Rumble Garanndoll | Батарейка из о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597767.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Gun x Sword / Огнём и мечом [2005, TV, 26 эп.] BDRip 1080p Raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597675.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Caligula | Калигула [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597615.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597611.jpg" />
 </div>
 
 

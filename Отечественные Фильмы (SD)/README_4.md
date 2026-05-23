@@ -1,56 +1,3 @@
-###  Публикация: 356744   (1026992) от 10.03.2021
-
-Человек у окна (2009) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Артист Александр Дронов, которого все зовут Шурой, в свои пятьдесят с хвостиком, казалось бы, не добился ничего, что приносило бы ему счастье. Он не состоялся как актер — уходит из театра еще до поклонов; не состоялся как муж и отец — сын далеко, а жена сосуществует с ним только по привычке; не состоялся и как друг — единственный близкий ему человек, тот, с кем он (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, КомедияРежиссер: Дмитрий МесхиевАктеры: Юрий Стоянов, Кристина Кузьмина, Сергей Гармаш, Владимир Вдовиченков, Мария Звонарева, Маргарита Бычкова, Виталий Коваленко, Игорь Шибанов, Наталья Высочанская, Сергей НиколаевПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77263801590EA15F3990757A17481B6D11C12CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453320   (1026883) от 11.03.2021
-
-Мужская компания (1992) TVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Убегая от преследователей, Наташа останавливает попутную машину и с ужасом слышит разговор водителя и его пассажира: -Сразу убивать не станем… -Взорвать машину будет трудно.
-Оказалось, новые попутчики ведут разговор о предстоящих съемках. Хорошо разгадывать чужие тайны, если эта тайна — кино. Но у Наташи есть своя тайна, о которой «мужская компания» и не подозревает. (   Читать дальше...   )Производство: РоссияЖанр: Боевик, комедия, приключенияРежиссер: Андрей РостоцкийАктеры: Андрей Ростоцкий, Юлия Силаева, Андрей Хворов, Павел Абдалов, Александр Гизгизов, Всеволод Хабаров, Алексей Михайлов, Георгий Пицхелаури, Владимир Епископосян, Александр ЖдановПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647A451065E4670B73424D802E143496DCFB55F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436329   (1026816) от 11.03.2021
 
 Самый Новый год! (2020) WEB-DLRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026816.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026680.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026632.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026477.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026464.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026309.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026275.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026089.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026031.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025696.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025175.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025050.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024872.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024869.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024852.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024794.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024720.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024555.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024498.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024286.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024281.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ Love (2020) WEBRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024280.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024089.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023900.jpg" />
 </div>
 
 
@@ -672,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0750C6BD34EAC13F4A87DCC3560CC471A305F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457743   (1023758) от 29.03.2021
+
+Ехай! (1995) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сельский житель - экскаваторщик Петр Гаврилин - однажды понял, что из его жизни исчезла любовь, и жизнь для него потеряла всякий смысл. Презрев суету, Петр ушел из семьи и лег на рельсы…
+Простая история - трагикомичная и сентиментальная. История про то, как в зимней стуже маленькие люди шаг за шагом обретают надежду и веру в возвращение любви - незаметной, необходимой (   Читать дальше...   )Производство: Россия, Олдмор ИмиджЖанр: КомедияРежиссер: Георгий ШенгелияАктеры: Владимир Ильин, Татьяна Кравченко, Евгений Серов, Сергей Арцибашев, Сергей Баталов, Лариса Шахворостова, Инна Ульянова, Вадим ЗахарченкоПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE91AC9D423B59AB358151C06295FDEE1B8B073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457883   (1023749) от 29.03.2021
+
+Три дня до весны (2017) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ленинград, февраль 1942 года. У офицера госбезопасности Андреева и молодого врача Марицкой есть всего 72 часа, чтобы предотвратить катастрофу. Жизнь и смерть, любовь и предательство переплетаются в стремительно развивающихся событиях…Производство: Россия, ЛенфильмЖанр: военный, детективРежиссер: Александр Касаткин (I)Актеры: Кирилл Плетнёв, Елена Лотова, Владислав Абашин, Игорь Грабузов, Юрий Ицков, Евгений Сидихин, Кирилл Назаров, Алексей Злобин, Михаил Касапов, Алексей ТруфановСубтитры: отсутствуютПродолжительность: 01:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155CE31E3D7280DE1811B778A6DA557D9803B163
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,188 +1,3 @@
-###  Публикация: 922646   (567805) от 29.07.2015
-
-Abbyy FineReader 7.0 Professional 7.0.0.509 Repack The Hacker [x86-x64] (cxarchive)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В стремительном современном мире успеха добивается тот, кто умеет эффективно использовать свое время. Времени так часто не хватает, жаль тратить его впустую!
-Тысячи людей разных профессий – менеджеров, юристов, ученых, преподавателей, студентов используют ABBYY FineReader Professional Edition для перевода бумажных документов в электронный вид.
-
-ABBYY FineReader - (   Читать дальше...   )Язык интерфейса: Dutch, English, French, German, Italian, Polish, Portuguise, Russian, Spanish.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB607E8CB0B9FA604FD3310BEA31E66C38F3CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304017   (566854) от 24.05.2019
-
-OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После года разработки состоялся релиз дистрибутива openSUSE Leap 15.1. Выпуск сформирован с использованием базового набора пакетов из находящегося в разработке дистрибутива SUSE Linux Enterprise 15 SP1, поверх которого поставляются более новые выпуски пользовательских приложений из репозитория openSUSE Tumbleweed. Для загрузки доступна универсальная DVD-сборка, размером (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4FB08D0F4062C52DF73C9582536F521CF48157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152057   (566665) от 22.07.2017
-
-Wing IDE Professional 6 6.0.6-1 [x64] (tar.bz2,deb,rpm)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Wing IDE PRO- интегрированная среда разработки, предназначенная для создания приложений на языке Python. IDE предоставляет профессиональный редактор кода, в котором можно использовать клавиатурные комбинации vi и emacs, работает автодополнение кода, рефакторинг, отслеживание вызовов, контекстные подсказки. Доступен графический отладчик кода для локальной и удаленной (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E4FD1C0C10A689176AA83E2C7A8D69641D9A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152595   (565166) от 23.07.2017
-
-Debian GNU/Linux 9.1.0 + nonfree Stretch [i386] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Доступно первое корректирующее обновление дистрибутива Debian 9, в которое включены все выпущенные за месяц с момента релиза обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 54 обновления с устранением проблем со стабильностью и 26 обновлений с устранением уязвимостей. Одновременно опубликовано обновление Debian 8.9 в котором представлено (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9698C6B61AA027ABA42E4158B91486CE28F4B7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152134   (564881) от 23.07.2017
-
-Tixati 2.53 [amd64] (deb, rpm)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Tixati — это полноценный и бесплатный клиент сети BitTorrent, простой и легкий в использовании. Предоставляет пользователю расширенные возможности по управлению раздачами, как в отношении локальных файлов, так и сетевых соединений. Программа не требовательна к системным ресурсам, потребляет меньше оперативной памяти по сравнению с последними версиями µTorrent. Приятным (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94DB02C3F98800D3B19AE5082F12238B12552CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152203   (564875) от 23.07.2017
-
-Xubuntu 17.04 [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Xubuntu — дистрибутив Linux, основанный на проекте Ubuntu. Использует «лёгкую» графическую среду Xfce и приложения на GTK. Цель проекта — возможность использования легковесной альтернативы рабочим средам GNOME и KDE. Xubuntu имеет минималистичный интерфейс пользователя, экономно использующий память и другие аппаратные ресурсы компьютера, что позволяет комфортно работать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B505ADA54D6AEFE1CDA6949E9333E455A22A6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152586   (564742) от 23.07.2017
-
-Debian GNU/Linux 9.1.0 + nonfree Stretch [x86-64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Доступно первое корректирующее обновление дистрибутива Debian 9, в которое включены все выпущенные за месяц с момента релиза обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 54 обновления с устранением проблем со стабильностью и 26 обновлений с устранением уязвимостей. Одновременно опубликовано обновление Debian 8.9 в котором представлено (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB3BC58D64B842AE09F45CFD3BE780F410192C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 689373   (564030) от 18.08.2013
 
 PCLinuxOS 2013.08 KDE FullMonty [x32, x64] (2xDVD)
@@ -191,7 +6,7 @@ PCLinuxOS 2013.08 KDE FullMonty [x32, x64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564030.jpg" />
 </div>
 
 
@@ -221,7 +36,7 @@ Ctlos Linux Openbox/i3 v2.2 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563139.jpg" />
 </div>
 
 
@@ -249,7 +64,7 @@ OS4 OpenLinux 13.7 KDE  [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559735.jpg" />
 </div>
 
 
@@ -277,7 +92,7 @@ openSUSE-Tumbleweed 20170725 [x86-64] 3xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557701.jpg" />
 </div>
 
 
@@ -305,7 +120,7 @@ BlackArch Linux 2016.08.19 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557578.jpg" />
 </div>
 
 
@@ -331,7 +146,7 @@ Gentoo Linux 20160704 LiveDVD [x86, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557577.jpg" />
 </div>
 
 
@@ -357,7 +172,7 @@ Oracle Linux 6.7 Server [i386, x86-64] 2xDVD,2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557309.jpg" />
 </div>
 
 
@@ -383,7 +198,7 @@ Sabayon 17.08 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556732.jpg" />
 </div>
 
 
@@ -409,7 +224,7 @@ Parted Magic 2019.05.30 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555731.jpg" />
 </div>
 
 
@@ -435,7 +250,7 @@ MorphOS 3.11 [PowerPC] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554183.jpg" />
 </div>
 
 
@@ -461,7 +276,7 @@ Debian Live GNU/Linux 9.5.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553802.jpg" />
 </div>
 
 
@@ -489,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552036.jpg" />
 </div>
 
 
@@ -515,7 +330,7 @@ Wing IDE Pro 7.0.3.0 [x64] (deb,rpm,tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549268.jpg" />
 </div>
 
 
@@ -541,7 +356,7 @@ Manjaro Linux 0.8.7 (Arch + XFCE, openbox, net: легкий дистрибут�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549072.jpg" />
 </div>
 
 
@@ -569,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548001.jpg" />
 </div>
 
 
@@ -595,7 +410,7 @@ BlackArch Linux 2016.08.31 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547153.jpg" />
 </div>
 
 
@@ -621,7 +436,7 @@ Lubuntu 14.10 Beta I (легкий дистрибутив) [i386, amd64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546690.jpg" />
 </div>
 
 
@@ -649,7 +464,7 @@ Kubuntu 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546621.jpg" />
 </div>
 
 
@@ -675,7 +490,7 @@ Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xC
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545952.jpg" />
 </div>
 
 
@@ -688,6 +503,200 @@ Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7267693054C66CD3F6F1B810B72F9D0ADE350D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817169   (545823) от 30.08.2014
+
+Ubuntu Gnome 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел первый Beta релиз Ubuntu GNOME 14.10 (Utopic Unicorn), отличающийся от основного релиза DE, в котором вместо Unity используется традиционный Gnome. Комитет по техническому развитию Ubuntu (Ubuntu Tech Board) утвердил придание сборке Ubuntu с десктоп-окружением GNOME статуса официального ответвления от Ubuntu.
+
+Ubuntu — это разрабатываемая Canonical, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960C0DF3EC4931DA251087B129CC1A66BB25835E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817199   (545813) от 30.08.2014
+
+Mageia 5 Alpha II [i586, x86-64] 7xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертый по популярности дистрибутив на сегодня по версии DistroWatch.
+
+Вчера вышел второй тестовый релиз следующего поколения Mageia - Mageia 5 Alpha II.
+
+Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE.
+
+Также продолжена работа над дистрибутивом Live DVD, который впервые вошел в релиз Mageia 3 и будет поддерживаться (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AFBE08C8CF66E70E4FB0B219B7B4145EB28F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238508   (544353) от 01.08.2018
+
+ArchLabs Linux 2018.07.28 [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544353.jpg" />
+</div>
+
+
+###  Подробнее
+
+ArchLabs - это дистрибутив, основанный на Arch Linux и использующий менеджер окон Openbox в качестве основного интерфейса рабочего стола. ArchLabs - это 64-битный дистрибутив, который поддерживает rolling release, обеспечивает live DVD. Дистрибутив может быть установлен с помощью установщика системы AL-Installer.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5857E0F6143F891D3B69936B5E127FAE607D2645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925097   (543000) от 05.08.2015
+
+Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [amd64] 2xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики представили третью версию дистрибутива Tanglu под кодовым именем «Chromodoris willani». Обновление включает последние версии KDE и GNOME и множество обновлений прикладного ПО.
+
+Дистрибутив Tanglu основан на Debian: наиболее важные пакеты из Testing-ветки, но большая часть ПО из Unstable. Однако дистрибутив развивает собственные репозитории. Задача проекта (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF7CB5B8BDA89FC38876B2997591F3E6E1CC720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925101   (542998) от 05.08.2015
+
+Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [i686] 2xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики представили третью версию дистрибутива Tanglu под кодовым именем «Chromodoris willani». Обновление включает последние версии KDE и GNOME и множество обновлений прикладного ПО.
+
+Дистрибутив Tanglu основан на Debian: наиболее важные пакеты из Testing-ветки, но большая часть ПО из Unstable. Однако дистрибутив развивает собственные репозитории. Задача проекта (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D257459372DAAC68A0CF705A48BDC1ED75EA0E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925512   (540258) от 06.08.2015
+
+Abbyy FineReader 8.0 Professional 8.0.0.706 Repack The Hacker [x86-x64] (cxarchive)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540258.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBYY FineReader 8.0 Professional Edition - профессиональная версия от мирового лидера в области систем распознавания. С её помощью можно быстро и точно переводить бумажные документы, PDF-файлы и цифровые фотографии документов в редактируемые форматы с возможностью поиска по тексту. Программа сохраняет внешний вид даже сложно оформленных документов, даёт возможность (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3715E3E1A803AAD76CEE6CA43A0AAD5FAF906849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925661   (538635) от 07.08.2015
+
+Kubuntu 14.04.3 LTS [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Canonical объявили сегодня о выпуске Ubuntu 14.04.3,  и разместили на серверах первое из  обновлений в течение всего жизненного цикла продукта Ubuntu LTS. Одновременно с Ubuntu до версии 14.04.3 обновлены все продукты семейства LTS, включая Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D469CD2785B4DE20E67D0AC50FFDB6E3A49A8CFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

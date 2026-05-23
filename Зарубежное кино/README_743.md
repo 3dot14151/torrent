@@ -1,56 +1,3 @@
-###  Публикация: 1284872   (724060) от 24.02.2019
-
-Последнее желание / The Final Wish (2018) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Отец Аарона умер, и парень едет домой утешать скорбящую мать. Разбирая
-отцовские вещи, он находит некий предмет, который является не тем, чем кажется на первый взгляд, и после этого в доме начинают происходить жуткие события...Производство: США / BondIt, Global Renaissance Entertainment GroupЖанр: УжасыРежиссер: Тимоти Вудворд мл.Актеры: Лин Шэй, Майкл Уэлш, Мелисса Болона, Спенсер Лок, Тони Тодд, Каиви Лайман,  Джонатан Даниэль Браун, Жан Эли, Кристофер Мюррэй, Дуглас ТейтПеревод: Многоголосый закадровый, любительский (HiWayGrope)Субтитры: OтсутствуютПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BDBBA2905B961DE78C1D583CF876CBCB817324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284900   (724049) от 24.02.2019
-
-Робин Гуд: Начало / Robin Hood (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ветеран Крестового похода лорд Робин Локсли возвращается в родной город Ноттингем и видит, что он погряз в коррупции. Робин присоединяется к группе Весёлых Шервудских Разбойников и становится знаменитым благородным вором, продолжая при этом вести светскую жизнь для слежки за ноттингемским шерифом.Производство: США / Appian WayЖанр: боевик, триллер, приключенияРежиссер: Отто БатхёрстАктеры: Тэрон Эджертон, Джейми Фокс, Бен Мендельсон, Ив Хьюсон, Джейми Дорнан, Тим Минчин, Пол Андерсон, Ф. Мюррэй Абрахам, Йен Пек, Корнелиус БутПеревод: Дублированный (iTunes), профессиональный многоголосый (HDRezka Studio)Субтитры: АнглийскиеПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E41F22E8C14A51EF039BEF7CDAEF3E3667C70CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531176   (723988) от 14.02.2022
 
 King’s Man: Начало / The King's Man (2021) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
@@ -59,7 +6,7 @@ King’s Man: Начало / The King's Man (2021) WEB-DL [H.265/2160p] [4K, HDR
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723988.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723983.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723982.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723976.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723973.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723943.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723934.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723933.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723866.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723859.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723835.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723830.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723792.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723789.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723727.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723700.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723684.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723683.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_723636.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723631.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723626.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723616.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723612.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723511.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0CB2C6CE985BA4BF81D4F24C6ACFA08925EA1C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668382   (723472) от 15.06.2013
+
+Шутки в сторону / De l'autre cote du periph (2012) Blu-Ray [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_723472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Усман, дерзкий коп из парижского пригорода, и Франсуа, амбициозный столичный полицейский, объединяют усилия в расследовании убийства жены большого чиновника. Усман и Франсуа — разные. Усман живет по законам комедий с Эдди Мерфи, Франсуа обожает Бельмондо в «Профессионале» и «Смертельное оружие». Но расхождение в киновкусах — ничто, когда на кону громкое разоблачение (   Читать дальше...   )Производство: Франция / Canal+Жанр: Комедия, Криминал, ДетективРежиссер: Давид ШаронАктеры: Омар Си, Лоран Лафитт, Сабрина Уазани, Лионель Абелански, Юсеф Хаджди, Максим Мотт, Лео Леотье, Андре Маркон, Забу Брайтман, Патрик БоннельПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:34:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023259   (723440) от 05.06.2016
+
+Схватка / The Grey (2011) BDRip [H.264/720p] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723440.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Аляске потерпел крушение самолет, и оставшиеся в живых пассажиры оказались в плену безлюдной снежной пустыни, где только стая волков скрашивает пейзаж. Люди хотят выжить любой ценой, и теперь им предстоит смертельная схватка...Производство: СШАЖанр: боевик, триллер, драма, приключенияРежиссер: Джо КарнаханАктеры: Лиам Нисон, Фрэнк Грилло, Дермот Малруни, Даллас Робертс, Джо Андерсон, Нонсо Анози, Джеймс Бэдж Дэйл, Бен Брэй, Энн Опеншоу, Питер ГиргесПеревод: Дублированный, авторскийЯзык субтитров: русский, английский, английский (SDH)Продолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EA3643429F01F7FEDC2179EA2AF74DA8DF2530
 ```
 
 https://mybot314.ru/tekegram_catalog/

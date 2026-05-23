@@ -7,7 +7,7 @@ After The Burial - Studio Albums (6 releases) (2006-2019) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070225.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ James Last - East Meets West (1977) UK Tour '78, Limited Edition 2LP Set [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070117.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Thyrfing - Studio Albums (8 releases) (1998-2021) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070000.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Vera Lynn - Spotlight On Vera Lynn (1979, 198) 24 Track Double Album [FLAC 2.0|1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069825.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Karl Richter - Bach, Organ Recital (1955) Organ of the Victoria Hall, Geneva [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069768.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Vera Lynn - Remembers (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069334.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Vera Lynn - Unforgettable Songs By Vera Lynn (1972) With Alyn Ainsworth & His Or
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069289.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Disbelief - Studio Albums (12 releases) (1997-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069055.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - The Vintage Years Of Musical Comedy (year unknown) [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069054.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Guy Mitchell - 20 Golden Greats (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068955.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Extol - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068824.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cruel Force - Studio Albums (4 releases) (2010-2026) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068809.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Vera Lynn - The World Of Vera Lynn Vol. 2 (1970) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068238.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Vera Lynn - The Vera Lynn Collection (1961) 2 Records Set [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068237.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Vera Lynn - Haar 26 mooiste songs / Wereldsuccessen (1975) [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068232.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Gordon And Sheila Macrae - Our Love Story (1960) [FLAC|Lossless|image + .cue] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067802.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ All That Remains - Studio Albums (10 releases) (2002-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067801.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Udo Dirkschneider (U.D.O.; Dirkschneider & The Old Gang) - Studio Albums (23 rel
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067291.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Parkway Drive - Studio Albums (8 releases) (2004-2022) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066583.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ MyGrain - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066463.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Kalisia - Cybion (2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066351.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Monuments - Studio Albums (4 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066137.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nat King Cole - Sings The Blues (1963) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065682.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Autumn Leaves - Studio Albums (2 releases) (1997-1999) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065681.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Decadence (a.k.a. Decadence Sweden) - Studio Albums (6 releases) (2005-2019) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065680.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Nat 'King' Cole - Unforgettable (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065423.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adobe Audition CC 2019 12.1.5.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UltraISO Premium Edition 9.7.2.3561 DC 30.09.2019 RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358136.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 62.0.3202.75 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358129.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358125.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 62.0.3202.75 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358120.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Opera 71.0.3770.284 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358067.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Viber 14.0.0.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358063.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Q-Dir 8.97 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358060.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mojosoft BusinessCards MX v.4.74 Update [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_358032.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Room Arranger 8.2.0.532 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357937.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Brave Browser 1.15.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357931.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Firefox Browser 82.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357929.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Athentech Perfectly Clear Complete 3.11.0.1871 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357926.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AVS Video Software 12.9.6.23 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357924.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BluffTitler Ultimate 15.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357923.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Firefox Browser ESR 78.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357921.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Icecream Video Editor Pro 2.33 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357919.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Viber 14.0.0.51 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357916.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AVS Audio Software 10.0.2.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357915.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WinAVI All-In-One Converter 1.7.0.4702 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357903.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ J. River Media Center 18.0.74 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357895.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Adobe components: Flash Player 27.0.0.183 + AIR 27.0.0.124 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357866.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Tenorshare Any Data Recovery Pro 6.3.0.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357855.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Chasys Draw IES 5.02.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357823.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ qBittorrent 4.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357801.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ SupRemo 4.2.0.2423 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357794.jpg" />
 </div>
 
 

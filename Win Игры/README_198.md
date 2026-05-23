@@ -1,29 +1,3 @@
-###  Публикация: 1284031   (608044) от 19.04.2019
-
-The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Проложите путь по улицам Гонконга в динамичном боевике с видом сверху. The Hong Kong Massacre, вдохновленная классическими боевиками, позволит вам оказаться в центре лихой истории о мести, наполненной жестокими кинематографическими перестрелками и яркими образами преступного мира.Тип издания: RepackРазработчик: VRESKIЖанр: 3D, Action, ShooterЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F33A9051BAF79DCD4652A429DB3B5296B4A82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038230   (607944) от 27.07.2016
 
 Haunted Legends 8: The Iron Mask / Легенды о призраках 8: Железная маска (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Haunted Legends 8: The Iron Mask / Легенды о призраках 8: Же�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607944.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Weedcraft (2019) [Ru/Multi] (1.01) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607906.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Helium Rain (2018) [Ru/Multi] (1.3.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607900.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The LEGO Movie 2 Videogame (2019) [Ru/Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607896.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Terraria (2011) [Ru/Multi] (1.3.2.1) Repack NIK220V
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607792.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) License RELOADED [Episodes 1-7
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607786.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Faircroft's Antiques 5: The Mountaineer's Legacy (2022) [Multi] (0.20) Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607444.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607352.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Saga of the Nine Worlds: The Gathering / Сага о Девяти Мирах: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607341.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ ITORAH (2022) [Ru/Multi] (1.1.0.0) License GOG [Save the World Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607307.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Sniper Elite V2 (2012) [Ru/Multi] (1.13/dlc) License PLAZA [Complete Pack]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607279.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.301136/dlc) SteamRip Let'sPlay [Gold 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607270.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Bastion [Ru/En/Multi6] (RePack/1.0r21) 2011 l R.G.Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607073.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Forgotten Kingdoms 2: The Ruby Ring (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607018.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Queen's Tales 2: Sins of the Past / Сказки Королевы 2: Грехи 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606817.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Spirits of Mystery 11: The Lost Queen / Тайны духов 11: Заблудш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606776.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Surface 7: Alone in the Mist / Внешние Пределы 7: Одиночес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606719.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ House of 1000 Doors: Evil Inside / Дом 1000 дверей. Зло внутри
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606717.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ The Mystery of a Lost Planet (2015) [En] License DEFA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606576.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Dead in Vinland (2018) [En/Ge/Fr] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606523.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606459.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Witches' Legacy 4: The Ties That Bind / Наследие ведьм 4: Связ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606453.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606195.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606173.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606158.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ BANNERMEN (2019) [Ru/Multi] (1.1) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D9AFD030EB5AE210D3BBCC6D612D04198BCF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297129   (606156) от 20.04.2019
+
+Supraland (2019) [Ru/Multi] (1.2b) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Supraland — игра-головоломка от первого лица в жанре Метроидвания. Основными источниками вдохновения являются Zelda, Metroid и Portal. Supraland предполагает, что вы умный и позволяет играть самостоятельно. История минимальна, она ставит перед вами всеобъемлющую цель, а затем выпускает вас в огромный мир. Время прохождения: ~ 15-30ч.Тип издания: RepackРазработчик: Supra GamesЖанр: Adventure, Puzzle, RPG, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBF46AD814A12C3A68D507A412F1A5C5CB7AE3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

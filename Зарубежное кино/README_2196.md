@@ -1,55 +1,3 @@
-###  Публикация: 1755543   (40234) от 16.10.2024
-
-Свинья, змея и голубь / Zhou chu chu san hai / The Pig, the Snake, and the Pigeon (2023) WEB-DLRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После смерти единственного родственника - любимой бабули - уже четыре года скрывающийся от закона киллер Чэнь Гуйлинь внезапно получает смертельный диагноз. Придя в полицию сдаваться с повинной, он узнаёт, что является № 3 в списке самых разыскиваемых преступников Тайваня, и решает напоследок прославиться и очистить мир от зла - найти остальных двух и убить.Производство: Тайвань / An Attitude ProductionЖанр: Криминал, драма, боевикРежиссер: Вон Чин-ПоАктеры: Этан Жуань, Бен Юэнь, Чэнь Ивэнь, Джингл Ван, Черри Се, Ли Лижэнь, Лю Цзычжуань, Пегги Цзэн, Цянь Шэн, Чжэн ЮйчэПеревод: Одноголосый любительский (Наталия Ник)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 02:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FF34D57E1B00136D80370E8C7CEDD5F73DD794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658034   (40222) от 16.10.2024
-
-Миллион лет до нашей эры / RRRrrrr!!! (2004) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-События фильма уносят на 35 тысяч лет назад, в доисторическую эпоху. Два соседствующих племени живут мирно, но между ними есть существенное различие. Племя Чистых Волос благоденствует и никому не выдает формулу шампуня, в то время как племя Грязных волос стенает и чешется. Однажды ночью в племени Чистых Волос случается страшное: впервые в истории человечества совершено (   Читать дальше...   )Производство: Франция / Chez Wam, StudioCanal, Les Robins des Bois AirlinesЖанр: фантастика, комедия, криминал, детективРежиссер: Ален ШабаАктеры: Марина Фоис, Жерар Депардье, Дамьен Жуйро, Самир Гесми, Сирил Касмезе, Жан Рошфор, Жиль Консейль, Патрик Медиони, Мишель Буи, Кристиан БергнерПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C503CF4DC77D3BDE31058420AC51E275257C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755456   (40220) от 16.10.2024
 
 Смерч 2 / Twisters (2024) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40220.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40218.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40208.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40201.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40190.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40187.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40154.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40152.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40144.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40127.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40125.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40124.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40120.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40096.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40082.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40078.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40053.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40051.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40048.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40046.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40042.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40029.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40024.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40016.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E5495D1EC8B988E6AD39873978DC8EFC429B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 355065   (40012) от 18.10.2024
+
+Убить Зои / Killing Zoe (1993)  BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этого мощного криминально-психологического боевика об ограблении банка - не самые добропорядочные граждане. Они наркоманы, хулиганы и настоящие подонки. Американец Зэд (Штольц), спец по сейфам приезжает в Париж по приглашению своего друга Эрика (Англад), которого он знал еще по Штатам. Сразу после прилета, по наводке таксиста, Зэд снимает проститутку по имени (   Читать дальше...   )Производство: США, ФранцияЖанр: триллер, драма, криминалРежиссер: Роджер ЭвэриАктеры: Жюли Дельпи,Эрик Штольц, Жан-Юг Англад, Тай Тхай, Брюс Рэмсей, Карио Салем, Сальватор Ксереб, Гари Кемп, Мартин Рэймонд, Эрик Паскаль, ЧолтиелПеревод: Профессиональный (многоголосый, закадровый)Субтитры: русские, английскиеПродолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3763B90C946F3464739E4EA08A13EC4F3D072A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755842   (40011) от 18.10.2024
+
+Чужой: Ромул / Alien: Romulus (2024) WEB-DLRip [AV1/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается между событиями «Чужого» Ридли Скотта и «Чужими» Джеймса Кэмерона. Группа молодых колонизаторов - Рэйн Каррадайн, Кей, Энди, Тайлер, Наварро и Бьорн - оказываются на заброшенной космической станции. Осматривая территорию, они сталкиваются с самой смертоносной формой жизни во Вселенной.Производство: Великобритания, США, Венгрия, Австралия, Новая Зеландия, Канада / 20th Century StudiosЖанр: ужасы, фантастика, боевикРежиссер: Феде АльваресАктеры: Кейли Спейни, Дэвид Джонссон Фрэй, Арчи Рено, Изабела Мерсед, Спайк Ферн, Айлин У, Рози Эде, Сома Саймон, Бенсе Океке, Виктор ОризуПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 01:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46BC636B23BEBE040F730CD42844383757AAD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

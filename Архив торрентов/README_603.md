@@ -6,7 +6,7 @@ Recoil - Discography 27 Releases (1986-2012) Mute [FLAC|Lossless|tracks+.cue, tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920664.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Punto Switcher 4.3.4 Build 1753 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920647.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920639.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TreeSize Professional 6.3.6.1211 RePack by Kopejkin [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920629.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mozilla Firefox ESR 45.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920628.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Один океан. Прибрежные угрозы [4 серия] / One 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920623.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920607.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mindscape & Jade - Razor Sharp / Violator (2010) [MP3|320 kbps]<Drum & Bass, Neu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920605.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Janis Joplin - 18 Essential Songs (1995) [APE|Lossless]<Blues Rock, Electric Blu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920599.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920598.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920594.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Various Artists - Prague ‘11 (mixed by Markus Schulz) (2011) [MP3|320 kbps]<Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920593.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Orbit Downloader Portable by paskits 4.0.0.6 [multi/rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920592.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920591.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ eM Client Pro 7.2.38711.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920585.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ XYplorer 20.80.0400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920579.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ GoodSync Enterprise 10.11.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920573.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Mozilla Firefox Quantum ESR 68.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920571.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Drum Pad Machine - Beat Maker v2.2.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920568.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ AirServer 6.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920567.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ ByClick Downloader Premium 2.3.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920555.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Cakewalk SONAR Platinum 23.1.0 Build 22 (2017.01) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920552.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ WinExt Pro 20.1 b.082 (ключ COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920551.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ FinePrint 8.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920547.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Windows 10 Manager 3.5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920543.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ naps2 5.3.3.20851 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920542.jpg" />
 </div>
 
 

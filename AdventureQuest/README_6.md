@@ -6,7 +6,7 @@ The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030340.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Shore (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029839.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ A Space for the Unbound (2023) [Multi] (1.0.30.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029764.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Find Yourself (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029425.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Breathedge (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028957.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ColdSide (2020) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028760.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.3.27878/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028759.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DISTRAINT (2015) [Ru/Multi] (1.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027661.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/En] (1.30/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027267.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mundaun (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025870.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.8.0.1Fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025866.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Medium (2021) [Ru/Multi] (1.2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025363.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lust from Beyond (2021) [Ru/Multi] (1.0) License CODEX [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024967.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) Repack SpaceX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024689.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Arkham Horror: Mother's Embrace (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024662.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Visage (2020) [Ru/Multi] (3.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024655.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.19351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024330.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Genesis Noir (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024118.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Clea 2 (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024116.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Presence (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024112.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Paradise Lost (2021) [Ru/Multi] (12490.1383cl.shipping) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023712.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ From The Darkness (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023355.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022685.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Uncertain: Light At The End (2020) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022658.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022353.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022169.jpg" />
 </div>
 
 

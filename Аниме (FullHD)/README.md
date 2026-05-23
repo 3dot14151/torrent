@@ -7,7 +7,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069906.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kowloon Generic Romance | Обычный роман в Цзюлуне [2025, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068640.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Babylon | Вавилон [2019, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068481.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Nemure Omoigo, Sora no Shitone ni | Сладко спи, моё дитя, в н�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068426.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hateshi Naki Scarlet | Scarlet | Скарлет [2025, Movie] WebRip 1080p raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068366.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Class no Daikirai na Joshi to Kekkon suru Koto ni Natta | Я женился на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068233.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi | Арве Реззл: Механиче
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067395.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (※Muri ja Nakatta!?) | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065677.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Mahou Shoujo Magical Destroyers | Девочки-волшебницы: Волш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065425.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mikadono San Shimai wa Angai, Choroi. | Три сестры Микадоно о�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064733.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Bungou Stray Dogs 5 | Великий из бродячих псов 5 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062669.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?): Next
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062508.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [ТВ-1] [2024, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062417.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Bungou Stray Dogs 4 | Великий из бродячих псов 4 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062313.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sekirei | Wagtail | Сэкирэй [2008, TV, 12 эп. + 1 OVA] BDRip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062312.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062058.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061755.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Steins;Gate | Врата Штейна [ТВ] [2011, TV, 24 эп.] BDRip 1080p 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061381.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060519.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты жив
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060518.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060093.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ChaO | Чао [2025, Movie] WEBRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059343.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Chou Kaguya-hime! / Cosmic Princess Kaguya! / Суперпринцесса Ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058580.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058154.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Haikara-san ga Tooru | Smart-san | Современная девушка | Го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058005.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057998.jpg" />
 </div>
 
 

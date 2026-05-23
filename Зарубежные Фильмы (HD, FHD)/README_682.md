@@ -1,57 +1,3 @@
-###  Публикация: 156165   (340583) от 03.12.2009
-
-Тринадцать привидений / Thir13en Ghosts (2001) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После смерти своего странного дядюшки Сайруса, Артур Критикос унаследовал его не менее странный дом. В этом причудливом здании все стены и пол из стекла, украшенного латинскими заклинаниями. В этом доме автоматические двери живут своей жизнью, открываясь и закрываясь в ритме, недоступном человеческому пониманию.
-
-Не сразу Артур поймет, что, переступив порог этого (   Читать дальше...   )Жанр: Ужасы, Триллер, ДетективРежиссер: Стив Бек.Актеры: Тони Шэлуб, Эмбет Дэвидц, Мэттью Лиллард, Шеннон Элизабет, Алек Робертс, ДжейАр Борн, Ф. Мюррэй Абрахам, Мэттью Харрисон, Джейкоб Рапп и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:30:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257935   (340509) от 28.10.2018
-
-Небоскреб / Skyscraper (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: США / Legendary Entertainment, Flynn Picture CompanyЖанр: Боевик, ТриллерРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Пабло Шрайбер, Ноа Тейлор, Кевин Ранкин, Роланд Мёллер, Байрон Манн, Мэтт О`Лири, Адриан ХолмсПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358A4864397F22DD05E52C5B137699276C1FD0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251823   (340325) от 28.10.2018
 
 Небоскрёб / Skyscraper (2018) BDRip [H.265/1080p-LQ] [10-bit]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340325.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340314.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340260.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340259.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340253.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340246.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340194.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340190.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340186.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340179.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340010.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339941.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339753.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339638.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339499.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339463.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339443.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339421.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339343.jpg" />
 </div>
 
 
@@ -558,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339340.jpg" />
 </div>
 
 
@@ -584,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339327.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339275.jpg" />
 </div>
 
 
@@ -636,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339261.jpg" />
 </div>
 
 
@@ -662,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339243.jpg" />
 </div>
 
 
@@ -673,6 +619,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8923F14393A089D2EE135412E5ECBFCFB14C0904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954211   (339237) от 08.11.2015
+
+Мажестик / The Majestic (2001) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339237.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о человеке, ищущем самого себя. Питер, голливудский сценарист, случайно попадает в маленький городок Лоусон в Калифорнии: после автомобильной аварии он полностью теряет память.
+
+Его принимают за пропавшего без вести героя Второй мировой. Питер, который сам поверил в это, берется за восстановление заброшенного городского кинотеатра. Невеста героя, которая (   Читать дальше...   )Производство: США, АвстралияЖанр: ДрамаРежиссер: Фрэнк ДарабонтАктеры: Джим Керри, Лори Холден, Мартин Ландау, Хэл Холбрук, Джеффри ДеМанн, Боб Бэлабан, Брент Бриско, Рон Рифкин, Джерри Блэк, Дэвид Огден СтайерзПеревод: Профессиональный (полное дублирование) ЛицензияЯзык субтитров: Русский, украинский, английскийПродолжительность: 02:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC2BA785C36778A26AD0BF5A114F83C0FFE2590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415427   (339234) от 28.10.2020
+
+Путь: Во все тяжкие / El Camino: A Breaking Bad Movie (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джесси Пинкман сбежал от неонацистов. Не зная, куда ему податься, он скрывается от полиции, похитителей и прошлого. Теперь он должен понять, как ему жить дальше.Производство: США / Gran Via, High Bridge Productions, NetFlix, Sony Pictures TelevisionЖанр: Драма, криминалРежиссер: Винс ГиллиганАктеры: Аарон Пол, Мэтт Джонс, Чарльз Бэйкер, Джесси Племонс, Роберт Форстер, Скотт Макартур, Скотт Шеперд, Джонатан Бэнкс, Брайан Крэнстон, Кристен РиттерПеревод: Многоголосый профессиональный, Двуголосый профессиональный, АвторскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90285F3CF876826FC82A941ECE830B1664BF8C32
 ```
 
 https://mybot314.ru/tekegram_catalog/

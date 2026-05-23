@@ -1,135 +1,3 @@
-###  Публикация: 1816568   (4128) от 06.09.2025
-
-Игорь Зимин | Врачи двора Его Императорского Величества или как лечили царскую семью (2016) [RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Доктор исторических наук, профессор Игорь Викторович Зимин представляет очередную книгу из серии «Повседневная жизнь Российского императорского двора». Стремясь к всесторонности в своем исследовании, автор пытается осмыслить не только чисто врачебные аспекты, но и связь состояния здоровья монархов с историческим процессом. В части медицины Игорь Зимин привлек в качестве (   Читать дальше...   )Жанр: Документальная литература, биографии и мемуары, царские династииИздательство: ЦентрполиграфФормат: RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B7267EEDB62C100B548E0383DAFF5E0365EDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816563   (4126) от 06.09.2025
-
-Вячеслав Бондаренко | 100 великих подвигов России (2011) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Доблестный, героический поступок, важное по своему значению действие, совершенное в трудных условиях, - так гласит словарь о подвиге. В книге рассказывается о 100 великих ратных подвигах, совершенных во славу Родины - России. Генералы и простые солдаты, сестры милосердия и военные священники, летчики, моряки и военные шоферы - все они в разных обстоятельствах, под (   Читать дальше...   )Жанр: История России, познавательная литератураИздательство: ВечеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50D132C7CAE83AEE651F50EF9EF01E1D0BC07C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816643   (4123) от 06.09.2025
-
-Вернер Хусс | История карфагенян (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена социально-политической истории карфагенской цивилизации, с опорой на сообщения античных авторов, эпиграфические и археологические данные. Подробное освещение военных и колонизаторских походов карфагенян дополняется обзором внутриполитических проблем, связанных с административным устройством, экономическими отношениями, религиозной жизнью карфагенского (   Читать дальше...   )Жанр: историяИздательство: НесторФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF6E7667EA5D2F19D021CB32894C679A93B1027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816566   (4121) от 06.09.2025
-
-Игорь Зимин | Екатерина II. Как пополнялись и тратились личные средства. Кошелек императрицы (2025) [FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Доктор исторических наук, профессор Игорь Викторович Зимин представляет очередную книгу, в которой в увлекательной форме рассказывает, как пополнялись и тратились личные средства императрицы Екатерины II. Издание содержит огромное количество иллюстраций и подлинной информации.
-Императрица тратила огромные средства на свое образование и строительство, приобретала (   Читать дальше...   )Жанр: Биографии и мемуары, популярно об историиИздательство: ЦентрполиграфФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D3BDD2B482CECC5A02F89199186F291393817F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816510   (4115) от 06.09.2025
-
-Али Бейги Рогайех | Персидский язык. Тематический словарь (2012) [PDF, DJVU] [RU, FA]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В словаре содержится 5000 русских слов и 5000 русских предложений, 5000 персидских слов и 5000 персидских предложений, сгруппированных по 100 различным темам, включающим около 400 разделов: автомобиль, армия, архитектура, аэропорт, банк, больница, время, географические названия, город, деньги и т.д. Издание под редакцией М.К. Бежана.
-В словаре даётся фонетическая (   Читать дальше...   )Жанр: СловарьЯзык: Русский, персидскийИздательство: Живой языкФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADF93015403FB00DEF32516D4B6390E16A054DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816962   (3867) от 07.09.2025
 
 А.В. Зарубин | Обстоятельства, отягчающие наказание в уголовном праве России (2025) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3867.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3757.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3746.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3733.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3231.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2961.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2875.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2796.jpg" />
 </div>
 
 
@@ -349,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2491.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2366.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2046.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2014.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1906.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1859.jpg" />
 </div>
 
 
@@ -509,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1732.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1290.jpg" />
 </div>
 
 
@@ -562,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1150.jpg" />
 </div>
 
 
@@ -588,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_960.jpg" />
 </div>
 
 
@@ -614,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_836.jpg" />
 </div>
 
 
@@ -640,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_653.jpg" />
 </div>
 
 
@@ -669,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_611.jpg" />
 </div>
 
 
@@ -680,6 +548,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC633BF37FC19F153E0FEF45B8D99FCC05E5D5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820659   (313) от 28.09.2025
+
+Книжная серия | Физика полупроводников и полупроводниковых приборов [20 книг (из 24)] (1960 - 1991) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг от издательств "Наука" и "Физматлит", посвящённых физическим процессам в полупроводниках.Жанр: ФизикаИздательство: Наука, ФизматлитФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA35D43ACA91E292A75C97796CF2E1FF45C7C429
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ uTorrent Pro 3.5.0 Build 43916 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624906.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Daum PotPlayer 1.5.33573 Stable [x86-x64] [Full & Lite] [Rus] [сборка 7sh3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624766.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boilsoft Video Joiner 6.57.11 / Video Splitter 6.34.9 [Eng+Rus] + Portable by Ba
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624677.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Panda Free Antivirus 16.1.3 DC 17.07.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624646.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Chromium 69.0.3451.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624441.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 67.0.3396.79 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624438.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cyberfox 52.8.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624434.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ K-Lite Codec Pack 9.0.2 (x86, Basic, Standart, Full, Mega) / 9.0.2 (x64) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624400.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Stereoscopic Player v1.8.1 Final + Portable [Мульти|Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624396.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Auslogics Driver Updater 1.9.0.0 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624377.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mozilla Firefox ESR 52.8.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624360.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ JetBrains Rider 2018.1.2 Build #RD-181.4952.297
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624356.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PicturesToExe Deluxe 8.0.15 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624319.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SolveigMM Video Splitter 6.0.1607.15 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624315.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AusLogics BoostSpeed 9.0.0 DC 18.07.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624312.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ cFosSpeed 8.03 Build 1982 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624293.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ ACDSee Pro 5.3.168 Final Lite by MKN [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624289.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Incomedia WebSite X5 Evolution 9.1.2.1923 [мульти+русский]+комм
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624283.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Reg Organizer 5.46 Final RePack (& portable) by KpoJIuK [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624282.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624280.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Novicorp WinToFlash 0.7.0053 beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624279.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Foxit Reader 9.1.0.5096 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624206.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adobe Flash Player 30.0.0.113 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624204.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Flash Player 30.0.0.113 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624198.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Duplicate File Detective 6.1.79 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624195.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ ACDSee Photo Manager 14.3 Build 168 [Русский by loginvovchyk]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624187.jpg" />
 </div>
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 922383   (569852) от 28.07.2015
-
-Фолклендские герои: «Браво Новембер» / Falklands Hero: Bravo November (2012) IPTVRip (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Авиация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Британский автодилер и телеведущий Майк Брюэр (Mike Brewer) хорошо известен зрителям во всем мире по телепроектам «Махинаторы» и «Великий махинатор».
-В этом документальном фильме он расскажет об увлекательном знакомстве с вертолетом «Чинук» (Chinook) «Браво Новембер» (Bravo November), одного из самых почитаемых вертолетов в Королевских ВВС. Майк исследует историю (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, авиация, история, войнаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 x ~ 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58BE16A53082E627595EF749FD8C41089C28F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922461   (569788) от 28.07.2015
 
 «СМЕРШ» против Абвера. Операция «Следопыт» (2009) IPTVRip
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569788.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Viasat History: Расцвет и упадок Версаля / Rise and Fall of
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569773.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569633.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569519.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569460.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568796.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568749.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568701.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568657.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568598.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568594.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568216.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568125.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568056.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568029.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568023.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567861.jpg" />
 </div>
 
 
@@ -477,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567836.jpg" />
 </div>
 
 
@@ -506,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567741.jpg" />
 </div>
 
 
@@ -532,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567731.jpg" />
 </div>
 
 
@@ -558,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567477.jpg" />
 </div>
 
 
@@ -587,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567459.jpg" />
 </div>
 
 
@@ -613,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567340.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567158.jpg" />
 </div>
 
 
@@ -665,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567154.jpg" />
 </div>
 
 
@@ -676,6 +649,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7AC7A3A80BB724D921CA428421504C44BD6DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555693   (567022) от 05.06.2022
+
+Леонид Кравчук. Повесть о щиром коммунисте  (2022) WEBRip [MPEG-2/720p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украина. Некогда дружественная нам страна. Но в последние годы ситуация кардинально изменилась. В нашем фильме мы попытаемся разобраться, когда произошел перелом в сознании людей и в чем его причины. И, главное, кто стоял за этим перерождением. В Российском Государственном архиве новейшей истории собраны секретные досье на крупнейших политиков советской эпохи. Для (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, Биография, ИсторияРежиссер: Максим ЖуковскийСубтитры: отсутствуютПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B233EBBFD3DFE9C3CFED3641D2C8155912D7E11
 ```
 
 https://mybot314.ru/tekegram_catalog/

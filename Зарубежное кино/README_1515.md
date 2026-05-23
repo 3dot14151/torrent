@@ -1,55 +1,3 @@
-###  Публикация: 501825   (258942) от 27.05.2012
-
-Джон Картер / John Carter (2012) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Ветеран Гражданской войны в США Джон Картер против своей воли оказывается на Марсе, где попадает в плен к воинственным четырехметровым туземцам. Картеру предстоит не только спастись самому, но и спасти принцессу Дею Торис с Гелиума.Жанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Эндрю СтэнтонАктеры: Брайан Крэнстон, Марк Стронг, Киаран Хайндс, Тейлор Китч, Доминик Уэст, Уиллем Дефо, Дэрил Сабара, Джеймс Пьюрфой, Томас Хейден Черч, Линн Коллинз, Саманта Мортон и др.Перевод: ДублированныйПродолжительность: 02:12:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502325   (258923) от 27.05.2012
-
-Это очень забавная история / It's Kind of a Funny Story (2010) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-16-летний Крэйг переживает кризис подросткового возраста и пытается найти помощь в клинике для душевнобольных. Там он случайно попадает в отделение для взрослых, а один из пациентов Бобби вскоре становится наставником Крэйга и одновременно — его протеже. Юноша также проникается симпатией к одной из пациенток — своей ровеснице Ноэлль. Всего за пять дней Крэйгу предстоит (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Анна Боден, Райан ФлекАктеры: Кейр Гилкрист, Зак Галифианакис, Дана ДеВестерн, Лорен Грэм, Джим Гэффиган, Карен Чилтон, Аасиф Мандви, Джаред Голдштейн, Алан Айсинберг, Зои КравицПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BF5BE4917495C5EEC4A614DA63B1745FB44D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501732   (258917) от 27.05.2012
 
 28 недель спустя / 28 Weeks Later (2007) [720p] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258917.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258908.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258905.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258902.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258879.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258868.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258811.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258753.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258665.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258659.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258651.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258630.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258623.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258621.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258611.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258584.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258447.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258446.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258443.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258442.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258422.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258420.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258401.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258374.jpg" />
 </div>
 
 
@@ -679,6 +627,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B57E4E9DE6C84FF2123957C8B5B10F472D79D10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501096   (258352) от 25.05.2012
+
+Встречный ветер / Des vents contraires (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь писателя Поля полностью меняется, когда его жена Сара исчезает. После года безуспешных поисков он оказывается совершенно разбитым человеком, измученным сомнениями и чувством вины. Его последний шанс это начать жизнь с чистого листа. Вместе с детьми Поль возвращается в город своего детства Сен-Мало. Однако неожиданная встреча там придаст его планам совершенно непредвиденный поворот.Жанр: Драма, ДетективРежиссер: Жалиль ЛеспереПродюсер: Вассим БеджиАктеры: Бенуа Мажимель, Изабелль Карре, Антуан Дюлери, Рамзи Бедиа, Боли Ланнерс, Мари-Эйнж Каста, Одри Тоту, Даниэль Дюваль, Лубна Азабаль, Аврора Клеман ...Перевод: Многоголосый закадровыйПродолжительность: 01:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37374C7622B11265CBA3A4EF4881714123007D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501109   (258321) от 25.05.2012
+
+Нация мечтателей / Daydream Nation (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городская девушка приезжает в маленький городок и впутывается в опасный любовный треугольник, разрываясь между своим школьным учителем и симпатичным одноклассником.Жанр: Драма, МелодрамаРежиссер: Майкл ГолдбахПродюсер: Симона Урдл, Дженнифер Уайсс, Триш ДолмэнАктеры: Кэт Деннингс, Рис Томпсон, Джош Лукас, Энди МакДауэлл, Рейчел Бланчард, Наташа Калис, Куинн Лорд, Калум Уорти, Кэти Боланд, Женевьев БешнерПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B2A0DBE2EBD70DDAD2887051F47251C3E79F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

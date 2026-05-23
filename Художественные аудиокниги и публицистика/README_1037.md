@@ -1,87 +1,3 @@
-###  Публикация: 1755101   (40355) от 14.10.2024
-
-Ромен Роллан | Жизнь Микеланджело (2009) [MP3, Вадим Яковлев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Тайны истории в романах, повестях и документах.
-Ромен Роллан (1866–1944) – французский романист и драматург, автор таких великих произведений, как «Жан Кристооф» и «Очарованная душа», Ромен Роллан был удостоен в 1916 году Нобелевской премии «За возвышенный идеализм его произведений, и также за подлинную симпатию и любовь, с которой писатель создает различные (   Читать дальше...   )Жанр: Зарубежная литература, классика, биография, мемуарыПеревод: Валентина КуреллаИздательство: Вира-М (аудио)Продолжительность: 05:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F449BC1FA62F640B383F7D4A4733DF6ABC09487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755247   (40353) от 14.10.2024
-
-Владимир Набоков | Пнин (2023) [MP3, Иван Букчин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Набоковский корпус.
-Владимир Владимирович Набоков (1899–1977) – русский и американский писатель, поэт, переводчик, литературовед.
-Роман-антитеза к бытующему представлению о «безнравственности» и «бездушии» Набокова, которое преследовало писателя после выхода «Лолиты».
-«Пнин» (1957), четвертый англоязычный роман Владимира Набокова, посвящен жизненным перипетиям (   Читать дальше...   )Жанр: Русская литература, классика, романПеревод: Вера Набокова, Геннадий БарабтарлоИздательство: ООО «Издательство АСТ», CorpusПродолжительность: 07:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B8492260BCF279CD5F757FE1AD9F244A0163B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755239   (40349) от 14.10.2024
-
-Владимир Набоков | Дар (2022) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Набоковский корпус.
-Владимир Владимирович Набоков (1899–1977) – русский и американский писатель, поэт, переводчик, литературовед.
-Один из самых значительных романов ХХ века. «Дар» (1938) – последний завершенный русский роман Владимира Набокова и один из самых значительных и многоплановых романов XX века. Создававшийся дольше и труднее всех прочих его (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ООО «Издательство АСТ», CorpusПродолжительность: 17:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315E7157F75BDD171EDC9BAB393223CCDCD04D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727413   (40308) от 15.10.2024
 
 Александр Афанасьев | Бремя империи (Книга 2). Адепты стужи. Под прикрытием (2023) [MP3, Сергей Ларионов]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40308.jpg" />
 </div>
 
 
@@ -116,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40304.jpg" />
 </div>
 
 
@@ -142,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40301.jpg" />
 </div>
 
 
@@ -168,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40297.jpg" />
 </div>
 
 
@@ -194,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40281.jpg" />
 </div>
 
 
@@ -222,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40264.jpg" />
 </div>
 
 
@@ -250,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40263.jpg" />
 </div>
 
 
@@ -279,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40262.jpg" />
 </div>
 
 
@@ -306,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40260.jpg" />
 </div>
 
 
@@ -335,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40235.jpg" />
 </div>
 
 
@@ -361,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40157.jpg" />
 </div>
 
 
@@ -387,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40115.jpg" />
 </div>
 
 
@@ -414,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40114.jpg" />
 </div>
 
 
@@ -441,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40113.jpg" />
 </div>
 
 
@@ -467,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40104.jpg" />
 </div>
 
 
@@ -494,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40079.jpg" />
 </div>
 
 
@@ -522,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40030.jpg" />
 </div>
 
 
@@ -548,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40001.jpg" />
 </div>
 
 
@@ -574,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39988.jpg" />
 </div>
 
 
@@ -600,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39980.jpg" />
 </div>
 
 
@@ -626,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39974.jpg" />
 </div>
 
 
@@ -652,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39947.jpg" />
 </div>
 
 
@@ -678,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39946.jpg" />
 </div>
 
 
@@ -690,6 +606,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4027B11AFFB74D08D5657B6B3534E7CEE628DA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756159   (39922) от 19.10.2024
+
+Джеймс Хоган | Гиганты (Книга 1). Звёзды в наследство (2024) [MP3, Амир Рашидов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек, которого нашли на Луне, был мертв. Его окрестили Чарли. Мужчина отличался крупными глазами, обильной растительностью на теле и сравнительно длинными ноздрями. На момент обнаружения его скелетированные останки, облаченные в ярко-красный скафандр, были скрыты внутри каменной гробницы. Кем он был, как туда попал и от чего погиб, оставалось тайной. Известно (   Читать дальше...   )Жанр: Научная фантастикаИздательство: Эксплорер БуксПродолжительность: 09:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83AE3E2E75CCD101C031D219A830AD0503734329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350419   (39914) от 19.10.2024
+
+Юрий Никулин | Почти серьёзно… (2012) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Владимирович Никулин (1921–1997) – советский киноактёр, артист цирка, режиссёр, телеведущий, Народный Артист СССР.
+Книга «Почти серьёзно...», в которой Юрий Никулин рассказывает о своей жизни, работе в цирке и кино, встречах с выдающимися деятелями отечественного и зарубежного искусства. «В действительности все выглядит иначе, чем на самом деле». С этой фразы (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 20:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CA3AC5903965943978820ECA9AF3A4D9A965AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368496   (39903) от 19.10.2024
+
+Гайто Газданов | Призрак Александра Вольфа (2004) [MP3, Владимир Сушков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Гайто (Георгий) Иванович Газданов (1903–1971) – писатель, литературный критик, один из самых ярких и значительных прозаиков русского зарубежья.
+Роман «Призрак Александра Вольфа» пронзителен и парадоксален, как сама жизнь. «Призрак Александра Вольфа» – роман, сочетающий неповторимый «газдановский» психологизм и философичность с традицией (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 06:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB17DEE27E2192C9F7CC053A67AD296D144C62D
 ```
 
 https://mybot314.ru/tekegram_catalog/

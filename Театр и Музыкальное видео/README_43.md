@@ -1,114 +1,3 @@
-###  Публикация: 1274326   (794091) от 06.01.2019
-
-Квартирник НТВ у Маргулиса. Незваные гости (31.12.2018) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В эту новогоднюю ночь телеканал НТВ пригласил всех зрителей на новогодний «Квартирник НТВ у Маргулиса», где выступили очень необычные гости. Музыканты, которых не пригласили на гламурные голубые огоньки, устроили крутую вечеринку, где не нашлось места попсе.
-На рок-квартирнике с живым звуком собрались старые друзья Евгения Маргулиса: Гарик Сукачёв, Юрий Шевчук, Сергей (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72000B7D49D0783EEA32E5980400A0F85A39C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274228   (793940) от 06.01.2019
-
-Квартирник НТВ у Маргулиса - Новогодний выпуск - Незваные гости (2018) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новогодний «Квартирник НТВ у Маргулиса», на котором выступили «незваные», но очень желанные гости. "Неформатные" музыканты, которых, как правило, не встретить на «голубых огоньках» ТВ-каналов, устроили вечеринку, где не было места попсе и гламуру. На рок-квартирнике с живым звуком собрались старые друзья Евгения Маргулиса: Гарик Сукачёв, Юрий Шевчук, Сергей (   Читать дальше...   )01.Вступление
-02.Крематорий и Артур Смольнинов - 2001
-03.Гарик Сукачев и Шпионы забытых хитов - Уносит
-04.Jukebox Trio и Оркестр волынщиков Сity Pipes - Стаканы(   Читать дальше...   )Производство: АО Телекомпания НТВЖанр: русский рокРежиссер: Кирилл ПапакульАктеры: Евгений Маргулис, Гарик Сукачёв, Юрий Шевчук, Сергей Галанин, Сергей Чиграков, «Чайф», «Крематорий», «Мельница» и др.Перевод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 02:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEF7D530793BC8FE01C14619F081BECCDAD78B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201166   (793886) от 23.01.2018
-
-Ken Hensley with Live Fire in Concert & The Making of «Blood On The Highway» (2007) DVD9+DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Имя Кена Хенсли навсегда войдет в историю рок-музыки как первого настоящего хитмейкера классической британской хард-роковой сцены 70-х. В этом концерте главной движущей силы, музыкального лидера, харизматичного клавишника и гитариста «Uriah Heep» периода 70-х годов с группой «The Viking All-stars Band», (позже переименованной им в «Live Fire») сделан упор на композиции (   Читать дальше...   )Disc 1
-Live Fire:
-01. Intro
-02. Out Of My Control(   Читать дальше...   )Производство: Германия, Membran Music LtdЖанр: Классический рок, хард-рокПеревод: Одноголосый закадровыйСубтитры: Английские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683FB092D1D23A2188991A02AF0382B2F8A3E78A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509770   (793852) от 13.11.2021
-
-Marilyn Manson: Guns, God and Government (2002) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Запись последнего концерта в Калифорнии, в Лос-Анджелесе в 2001 году в рамках мирового тура Guns, God and Government World Tour, прошедшего 2000-2001 гг в США, России, Японии, Польше.Производство: США / Marilyn Manson Records Inc.Жанр: Industrial metal, Industrial rock, Alternative metal, Hard rock, Glam rock, Shock rockАктеры: Мэрилин Мэнсон, Джон 5, Джорди Уайт, Мадонна Уэйн Гейси, Джинджер Фиш, Тэмми Фэй Баккер, Duncan BlackПеревод: ОтсутствуетПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A51AD4280237A78FA9BC4503A3D04433C3D5A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490854   (793489) от 23.01.2018
 
 Пикник: 30 Световых лет (2012) BDRip [720p]
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793489.jpg" />
 </div>
 
 
@@ -143,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793406.jpg" />
 </div>
 
 
@@ -169,7 +58,7 @@ Grand Funk Railroad - Live Los Angeles, California (1974) LDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793281.jpg" />
 </div>
 
 
@@ -199,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792781.jpg" />
 </div>
 
 
@@ -225,7 +114,7 @@ The Beatles 1962-1970 (2015) BDRip [H.264/720p] [handmade AI colored]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792681.jpg" />
 </div>
 
 
@@ -252,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792661.jpg" />
 </div>
 
 
@@ -281,7 +170,7 @@ Rick Wakeman - The Six Wives Of Henry VIII, Live At Hampton Court Palace (2009) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792657.jpg" />
 </div>
 
 
@@ -311,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792542.jpg" />
 </div>
 
 
@@ -338,7 +227,7 @@ Hymn - Sarah Brightman in Concert (2018) HDTV [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792118.jpg" />
 </div>
 
 
@@ -368,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792036.jpg" />
 </div>
 
 
@@ -397,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791949.jpg" />
 </div>
 
 
@@ -426,7 +315,7 @@ Rick Wakeman - Made in Cuba (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791512.jpg" />
 </div>
 
 
@@ -455,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790354.jpg" />
 </div>
 
 
@@ -484,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790298.jpg" />
 </div>
 
 
@@ -510,7 +399,7 @@ Bobby McFerrin - Try This At Home (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790280.jpg" />
 </div>
 
 
@@ -539,7 +428,7 @@ Bobby McFerrin - Spontaneous Inventions (1986) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790273.jpg" />
 </div>
 
 
@@ -566,7 +455,7 @@ Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790215.jpg" />
 </div>
 
 
@@ -592,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790210.jpg" />
 </div>
 
 
@@ -618,7 +507,7 @@ Bobby McFerrin - Live In Montreal (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789649.jpg" />
 </div>
 
 
@@ -644,7 +533,7 @@ Bruno Mars: 24K Magic Live at the Apollo (2017) WEB-DL [H.264/1080p-LQ] [EN / EN
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789466.jpg" />
 </div>
 
 
@@ -670,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789379.jpg" />
 </div>
 
 
@@ -696,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789378.jpg" />
 </div>
 
 
@@ -707,6 +596,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD2F178E9843CB029A1E2606BD2C60542B063309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511254   (789178) от 20.11.2021
+
+Майкл Джексон: Лунная походка / Michael Jackson: Moonwalker (1988) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смесь видеозаписей живых концертов Майкла Джексона и ряда художественных сцен с ним, как главным героем. Сюда вошли некоторые из лучших видеоклипов Майкла, отснятых во время мирового турне с альбомом «Bad», а также видео «Smooth Criminal» с сюжетной линией в стиле «фэнтэзи». Вся история рассказана посредством музыки\танца и полна спецэффектов.Производство: США / MJJ Productions, Ultimate Productions, Will Vinton StudiosЖанр: фэнтези, боевик, триллер, криминал, музыкаРежиссер: Джерри Крамер, Колин ЧилверсАктеры: Майкл Джексон, Джо Пеши, Шон Леннон, Келли Паркер, Брэндон Квинтин Адамс, Джефф Эдкинс, Патрик Алан, Brenda Barrett, Scott Benson, Бонни БётлерПеревод: многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08E47036E728D294F7EAB979BB821F34412815A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511476   (788838) от 21.11.2021
+
+Квартирник НТВ у Маргулиса. 60 лет с Детским сердцем — юбилей Сергея Галанина (20.11.2021) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергею Галанину – 60! Ветераны сцены – «СерьГа»! Пионеры сцены — «ВИА Борщевик»! Легендарный рокер, творчество которого без сомнений можно назвать символом эпохи, не только продолжает радовать поклонников новыми хитами, но и не боится экспериментировать с музыкой, собирая новую группу. Дуэты с друзьями, неожиданные сюрпризы и главные хиты в день рождения — все это (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907D87A18AFC5E364D287BCED357DDDB22F81070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105918   (787918) от 02.02.2018
+
+The Witcher 3: Wild Hunt concert (Film Music Festival 2016) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись музыкального концерта “Ведьмак 3: Дикая Охота”, который прошел в рамках фестиваля FMF (Film Music Festival 2016) в Кракове.
+Организован CD PROJEKT RED совместно с Краковским офисом фестиваля.
+
+Закрытие девятого фестиваля FMF (Film Music Festival) прошло в зале стадиона TAURON Arena в Кракове.(   Читать дальше...   )Производство: CD Projekt RED, ПольшаЖанр: Живой концерт, саундтрекПродолжительность: 01:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6722C31268972F56D25E720D4526478918A2BB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203481   (787647) от 03.02.2018
+
+Billy Idol - VH1 Storytellers (2002) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билли Айдол (Billy Idol), (настоящее имя - Уильям Майкл Альберт Брод) родился 30 ноября 1955 года в Миддлсексе (Великобритания). Живая легенда и икона новой волны, один из самых популярных артистов 80-х. Его песни до сих пор считаются классикой жанра и входят в ротации телеканалов и радиостанций. В раздаче представлен его камерный, акустический концерт, состоявшийся (   Читать дальше...   )01. Cradle Of Love
+02. Don't Need A Gun
+03. Flesh For Fantasy
+04. White Wedding(   Читать дальше...   )Производство: США, Warner Music Vision, Image Entertainment Inc.Жанр: Рок, поп, панкПеревод: ОтсутствуетСубтитры: Английские, испанские, немецкие, итальянские, французскиеПродолжительность: 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9E9D0D2148186242464F4B0E68BE19541737BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

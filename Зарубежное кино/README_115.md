@@ -1,55 +1,3 @@
-###  Публикация: 1621865   (1030735) от 26.03.2023
-
-Сестричка, действуй 2 / Sister Act 2: Back in the Habit (1993) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Прогульщики и лоботрясы ни в какую не хотят учиться, и бедные учителя не находят себе места от их шуток и приколов. Их молитвы услышаны - неугомонная Долорес соглашается внедриться к ним под маской обычного учителя музыки. Бывшая подруга мафиози вспомнила о своих былых похождениях, и под рясой монахини в класс входит крутая «сестричка». Религиозные догмы снова дрогнули... (   Читать дальше...   )Производство: США / Touchstone PicturesЖанр: комедия, семейный, музыкаРежиссер: Билл ДьюкАктеры: Вупи Голдберг, Кэти Нэджими, Барнард Хьюз, Мэри Уикс, Джеймс Коберн, Майкл Джитер, Уэнди Маккена, Шерил Ли Ральф, Роберт Пасторелли, Томас ГоттшалькПеревод: многоголосый профессиональный, двуголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7CC8D0E8543248838214A2277755645AD92E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621819   (1030733) от 26.03.2023
-
-Моя милая Аудрина / My Sweet Audrina (2016) HDTVRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня психологического триллера Аудрина живет в большом родительском особняке и ни с кем не общается. Девочку постоянно преследуют кошмары, с которыми она самостоятельно не может справиться. Она уверена, что у нее когда-то была старшая сестра, которая в результате нападения в лесу погибла. Родители знают тайну первой Аудрины, но рассказывать правду больной (   Читать дальше...   )Производство: США, A+E Studios, Audrina Road ProductionsЖанр: триллер, драма, детективРежиссер: Майк РолАктеры: Индиа Айсли, Уильям Моусли, Джеймс Таппер, Тесс Аткинс, Кирстен Робек, Дженнифер Коппинг, Кейси Рол, Фаррин ВанХамбек, Мэтт Андерсон, Сет Исаак ДжонсонПеревод: Двуголосый любительский (datynet & Galina Vasyukova)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B389A695744A52F88E09D77ED8ED6786C19250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448498   (1030649) от 18.02.2021
 
 Хан Соло: Звёздные Войны. Истории / Solo: A Star Wars Story (2018) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030649.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030646.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030633.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030612.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030585.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030574.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030570.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030567.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030564.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030520.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030513.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030507.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030502.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030429.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030428.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030426.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030415.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030412.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030398.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030397.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030393.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030391.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030376.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030375.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA9B54E34B586C5B205089DB1AEEA766E0AE781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448836   (1030359) от 19.02.2021
+
+Девушка, подающая надежды / Promising Young Woman (2020) WEB-DL [H.265/2160p-LQ] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то Кассандра училась в университете и подавала большие надежды, но теперь живёт с родителями и работает в кофейне. Девушка скрывает от близких, что по вечерам посещает бары и другие увеселительные заведения, где, притворяясь сильно пьяной, ведёт охоту на падких до беззащитных женщин мужчин. Вымещая злость на противоположном поле, таким образом Кассандра мстит (   Читать дальше...   )Производство: Великобритания, США / FilmNation Entertainment, Focus Features, LuckyChap EntertainmentЖанр: Триллер, драма, криминалРежиссер: Эмиральд ФеннелАктеры: Кэри Маллиган, Бо Бёрнэм, Элисон Бри, Клэнси Браун, Дженнифер Кулидж, Лаверн Кокс, Крис Лоуэлл, Конни Бриттон, Адам Броди, Кристофер Минц-Плассе, Макс ГринфилдПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B6901FEBB7194A90286B3F68104D31569EB9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448841   (1030348) от 19.02.2021
+
+Девушка, подающая надежды / Promising Young Woman (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то Кассандра училась в университете и подавала большие надежды, но теперь живёт с родителями и работает в кофейне. Девушка скрывает от близких, что по вечерам посещает бары и другие увеселительные заведения, где, притворяясь сильно пьяной, ведёт охоту на падких до беззащитных женщин мужчин. Вымещая злость на противоположном поле, таким образом Кассандра мстит (   Читать дальше...   )Производство: Великобритания, США / FilmNation Entertainment, Focus Features, LuckyChap EntertainmentЖанр: Триллер, драма, криминалРежиссер: Эмиральд ФеннелАктеры: Кэри Маллиган, Бо Бёрнэм, Элисон Бри, Клэнси Браун, Дженнифер Кулидж, Лаверн Кокс, Крис Лоуэлл, Конни Бриттон, Адам Броди, Кристофер Минц-Плассе, Макс ГринфилдПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BBD2D0CFDDAF8A7626E13FE6C9CC3451327975
 ```
 
 https://mybot314.ru/tekegram_catalog/

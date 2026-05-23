@@ -6,7 +6,7 @@ Copy 3.2.02.0496 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962403.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962374.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sleipnir 6.1.10.4000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962302.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Citrio 47.0.2526.268 (5648.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962301.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Qiyu Swordfish Browser 1.0.3.0 [En/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962300.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MediaFire 1.9.3.11047 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962153.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MEGA Sync Client 2.6.1 (459bd) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962102.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CrystalDiskInfo 6.7.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962101.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Leibo 5.9.110.11137 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962098.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ LINE 4.3.2.730 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961948.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MemTest86 6.2.0/4.3.7 Pro Retail [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961940.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Runtime GetDataBack Simple 2.00 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961900.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Opera 66.0.3515.95 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961899.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Vivaldi 2.11.1811.33 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961893.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ XYplorer 20.80.0100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961892.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961882.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Construct 2 Business Edition r221 Stable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961875.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Extreme Picture Finder 3.47.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961858.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Tipard Video Converter Ultimate 9.2.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961854.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961847.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961827.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Google Chrome 80.0.3987.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961812.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Google Chrome 80.0.3987.106 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961811.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ashampoo Burning Studio 21.5.0.57 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961808.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Waterfox 2020.02 Current / Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961789.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Paint.NET 4.2.10 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961784.jpg" />
 </div>
 
 

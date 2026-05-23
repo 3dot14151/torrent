@@ -1,83 +1,3 @@
-###  Публикация: 1807319   (11068) от 18.07.2025
-
-Артемий Скабер | Двойник Короля (Книга 18) (2025) [MP3, Константин Романенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я был двойником короля. Участвовал в войнах, сражался с целыми странами, захватил почти весь мир и пережил 665 покушений. Но последнее… Не ожидал, что нападёт демон. Битва вышла жаркой, и мы оба погибли. Но это не конец! Каким-то образом моя душа и магический источник оказались в теле безземельного барона. Еще один шанс, где жизнь принадлежит только мне? Согласен! (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 10:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E97ED282D06E5F90404EB4C27105BBD6E467681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807672   (10891) от 20.07.2025
-
-Анджей Ясинский | Исследователь планет. Том 2 (2025) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет аудиокнигу популярного российского писателя фантаста Анджея Ясинского «Исследователь планет. Том 2» – вторую в одноименной серии.
-Книга прочитана артистом театра и кино, популярным актером дубляжа Егором Партиным.
-Контакт с инопланетянкой установлен. По крайней мере понимать друг друга он и она научились. Но понимать язык и суть – (   Читать дальше...   )Жанр: Космическая фантастикаИздательство: МедиаКнигаПродолжительность: 13:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F27A7013C5E47BDDC90DE0700AECDF57099BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807815   (10884) от 20.07.2025
-
-Айзек Азимов | С-Шлюз (2025) [MP3, Glass Mic]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Конфликт вспыхнул между землянами и клоро, существами с насекомоподобным происхождением, которые значительно отличаются от людей. Эта война, как и многие другие, не имеет смысла и будущего. Среди пострадавших оказался торговый корабль, захваченный клоро, с находившимися на его борту гражданскими, попавшими в плен.. Момент истины настал: кто и как хочет "въехать (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952F226E2F7C0FF1C6D88498C573A09B9E6FE7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807669   (10881) от 20.07.2025
 
 Анджей Ясинский | Исследователь планет. Том 1 (2025) [MP3, Егор Партин]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10881.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10866.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10811.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10810.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10790.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10776.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10752.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10682.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10668.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10655.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10654.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10650.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10647.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10619.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10599.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10594.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10580.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10574.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10501.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10482.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10481.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10478.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10475.jpg" />
 </div>
 
 
@@ -678,6 +598,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED82806C0447BF6F6097428AE6DBE4772371272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808373   (10459) от 24.07.2025
+
+Алексей Широков | СССР 2010 (Книга 9). Здравствуй, юность в сапогах! (2025) [MP3, Дмитрий Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Государственная машина неповоротлива. И если попал в её колёса, то как та собака, пищи, да беги. Потом может быть и разберутся, кто прав, кто виноват, наградят непричастных и накажут невиновных, а пока у тебя и выбора то особого нет. Вот и Семён «Чобот» Калинин не подозревал, что и его может затянуть в шестерёнки осеннего призыва. И ведь ничего не предвещало беды, (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091D2C356FA02E99B8903E49EF3E9AC856B3E82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 157041   (10440) от 25.07.2025
+
+Платон | Апология Сократа и другие диалоги (2005-2007) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Платон – один из великих творческих умов античности. Его литературное наследие принадлежит не только истории античной философии, но и истории античной художественной литературы, философ-ученый неотделим в Платоне от философа-поэта и прозаика.
+Как мастер художественного слова Платон создал и довел до совершенства жанр диалога. Его Диалоги – это поистине шедевр древнегреческой (   Читать дальше...   )Жанр: ФилософияИздательство: АРДИСПродолжительность: 08:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6CB3D66954EC9F622AC5CEC0543D9173CFC95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808572   (10371) от 25.07.2025
+
+Николай Степанов | Собиратель теней (Книга 5). Становление рода (2025) [MP3, Сергей Шишмарин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Платон Громов, получив необычный титул графа магии и прикоснувшись к тайнам замка своих неожиданно свалившихся на голову предков, понимает, что теперь ему придется защищать от врагов не только себя и близких, но и приобретенное наследство, у которого в этом мире своя миссия. Остается только понять две вещи: что это за миссия и, как ее выполнить? Одно понятно сразу: (   Читать дальше...   )Жанр: фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 13:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AEEF9A663E3B4DEECB6259032A3DFDB58893BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

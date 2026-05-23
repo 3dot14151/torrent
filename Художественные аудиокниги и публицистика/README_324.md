@@ -1,82 +1,3 @@
-###  Публикация: 1016924   (769636) от 15.05.2016
-
-Генри Райдер Хаггард | Мечта мира (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман «Мечта Мира» посвящен легендарному герою древнегреческих мифов Одиссею, драматическим перипетиям его последнего путешествия в поисках прекрасной Елены, его приключениям на море, в древней стране фараонов и других землях.Жанр: История, приключенияПродолжительность: 07:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D81AB5D2D6C4A03CF9A22348348F5939B90F5E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016828   (769635) от 15.05.2016
-
-Дафна Дюморье | Не позже полуночи (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дафна Дю Морье - удивительный писатель. В ее рассказах детективная история гармонично переплетается с мистикой, бытовые сцены с красочными описаниями природы, остросюжетная мелодрама с иронической, наполненной язвительного пафоса сатирой. Ее герои всегда находятся в напряженных, критических, требующих действия, поступка ситуациях.
-В настоящее издание вошли рассказы (   Читать дальше...   )Жанр: Сборник рассказовПродолжительность: 28:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9513FA7E8FE897E07D5D76D416691917FBD11EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016635   (769553) от 15.05.2016
-
-Паола Волкова | Мост через бездну. Мистики и гуманисты (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ни одна культура, ни один культурный этап не имеет такого прямого отношения к современности, как эпоха Возрождения. Ренессанс – наиболее прогрессивный и революционный период в истории человечества. Об этом рассказывает Паола Дмитриевна Волкова в следующей аудиокниге цикла «Мост через бездну», принимая эстафету у первого искусствоведа, Джоржо Вазари, настоящего человека (   Читать дальше...   )Жанр: История, культурологияПродолжительность: 07:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BE0E0B283322CAC0E7A26D09C3D7FAA11BBC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016681   (769550) от 15.05.2016
 
 Лев Толстой | В чем моя вера (2016) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769550.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769528.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769520.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769515.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769458.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769335.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769325.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769249.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769239.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769144.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769070.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769031.jpg" />
 </div>
 
 
@@ -404,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768940.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768806.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768730.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768693.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768680.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768653.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768602.jpg" />
 </div>
 
 
@@ -587,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768514.jpg" />
 </div>
 
 
@@ -613,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768513.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768505.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768427.jpg" />
 </div>
 
 
@@ -677,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E974C1CFBE5AC8D5B12BA172E1B4456D46678A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393161   (768289) от 29.06.2020
+
+Ричард Брэнсон | К черту «бизнес как всегда» (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предприниматель и бунтарь Ричард Брэнсон переворачивает с ног на голову стандартные представления о предпринимательстве, посылая к черту «бизнес как всегда». С его точки зрения прибыль – уже не единственная движущая сила бизнеса. Пора стереть границу между понятиями «польза для предпринимателей» и «польза для планеты». В своей книге-манифесте Брэнсон делится секретом (   Читать дальше...   )Жанр: Зарубежная деловая литератураПродолжительность: 12:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420F17B693EEC9B49724C165EB99247973C6A19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 94545   (768244) от 29.06.2020
+
+Михаил Успенский | Три холма, охраняющие край света [2008] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый роман Михаила Успенского "Три холма, охраняющие край света" несколько необычен - он заставляет думать. Но при этом язык, стиль и фирменный искрометный юмор автора вновь порадуют поклонников его таланта. Действие романа разворачивается вовсе не в легендарном прошлом, а в ближайшем будущем, на нашей родной планете, переживающей вспышку антиглобалистской (   Читать дальше...   )Жанр: юмористическая фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075F03D435775431DB8CEC004F7CA2F3D2A010BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213553   (768125) от 17.03.2018
+
+Виктор Артёмов, Юрий Лубченков | Рождение Новороссии. От Екатерины II до Александра I (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новороссия возникла и развивалась как составная часть Русского Мира, где национальная и религиозная толерантность, широта души, уважение традиций и духовность всегда были и есть его основой того мира, что вырос из Древнерусского государства, Московской Руси, Российской империи, а потом - и СССР. Как образовалась Новороссия? Кто создавал и что способствовало развитию (   Читать дальше...   )Жанр: Отечественная историяПродолжительность: 17:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D153E340059C0070BBB45C1B6D436BAB18702C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

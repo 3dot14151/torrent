@@ -1,55 +1,3 @@
-###  Публикация: 1417172   (360218) от 19.10.2020
-
-Леонид Млечин | Россия против России. Гражданская война не закончилась (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война самая страшная – наряду с Великой Отечественной – катастрофа, постигшая нашу страну в XX веке. Незримо она присутствует и в нашей сегодняшней жизни. Семена многих конфликтов были посеяны именно тогда. Многие проблемы, с которыми сталкивается сейчас Россия, – территориальные, политические, экономические, моральные – порождены пролитой тогда кровью. (   Читать дальше...   )Жанр: История, РоссииПродолжительность: 14:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6F14B979B43021232846DF3D909D5AC43888CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071080   (357135) от 11.11.2016
-
-Марк Алданов | Самоубийство (2004) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Марк Александрович Алданов (настоящая фамилия Ландау, 1886-1957) - писатель первой волны русской эмиграции. Роман "Самоубийство" написан незадолго до смерти. Несмотря на название, "Самоубийство" полно живого дыхания. Для автора все в мире случайно: не воля и даже не прихоть судьбы, а слепая, безумная игра случайных событий привела Россию к октябрю (   Читать дальше...   )Жанр: Исторический романПродолжительность: 19:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6634C390450B0A867343F3AC07ECF9555F53437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071276   (356380) от 11.11.2016
 
 Борис Акунин | История Российского государства (Том 1, художественное дополнение). Огненный перст (2016) [MP3, Сергей Кирсанов]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356380.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354585.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352257.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349938.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349860.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349553.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349098.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348058.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347921.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347608.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347607.jpg" />
 </div>
 
 
@@ -354,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347515.jpg" />
 </div>
 
 
@@ -380,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346448.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345691.jpg" />
 </div>
 
 
@@ -434,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341295.jpg" />
 </div>
 
 
@@ -460,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340561.jpg" />
 </div>
 
 
@@ -487,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339578.jpg" />
 </div>
 
 
@@ -513,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339257.jpg" />
 </div>
 
 
@@ -539,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337480.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335491.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335406.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335221.jpg" />
 </div>
 
 
@@ -645,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334413.jpg" />
 </div>
 
 
@@ -671,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333846.jpg" />
 </div>
 
 
@@ -683,6 +631,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:115026A0D50E7E966A3A8916D54BDB10BDA48D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420191   (333766) от 31.10.2020
+
+Дина Рубина | Одинокий пишущий человек (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Рубина «Одинокий пишущий человек» – шокирующая исповедь человека, дело жизни которого – «сочинение разных историй». У этой книги нет аналогов в современной русской литературе. Да и зарубежная в этом жанре предлагает обычно руководства по изготовлению литературных текстов или автобиографии знаменитых авторов бестселлеров. Книга Дины Рубиной «Одинокий пишущий (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 19:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E181938BCAAD9A541B6E7ED26A63788D255486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420358   (333239) от 31.10.2020
+
+Матвей Гречко | Тайные общества. Полная история (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая энциклопедия тайных обществ всего мира!
+Вся правда о масонах, иллюминатах и розенкрейцерах.
+
+Аудионига рассказывает, как через века и тысячелетия передавался древний «гнозис» – сокровенное знание, поведанное богами первым людям. О том, кто такие катары, розенкрейцеры, мартинисты и иллюминаты; чем отличаются карбонарии от кальдерариев; какими делами занимались (   Читать дальше...   )Жанр: Общая история, Популярно об истории, ПублицистикаПродолжительность: 15:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368D2CB87AC03325DDDCFAFBA0E0A489EDAC9D2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

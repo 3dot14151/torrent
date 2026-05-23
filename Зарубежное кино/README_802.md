@@ -1,55 +1,3 @@
-###  Публикация: 674802   (690426) от 01.07.2013
-
-Гостья / The Host (2013) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Земля — в опасности! Наше место скоро займут Души — лишенные плотской оболочки пришельцы, вытесняющие из человеческих тел разум и замещающие его разумом собственным. Большая часть человечества уже погибла. Немногие выжившие скрываются в жалкой попытке отсрочить неизбежное… Теперь Душа пытается захватить тело юной Мелани. Однако происходит неожиданное: Мелани и ее (   Читать дальше...   )Производство: США / Chockstone PicturesЖанр: Фантастика, Драма, МелодрамаРежиссер: Эндрю НикколАктеры: Сирша Ронан, Макс Айронс, Джейк Эйбел, Дайан Крюгер, Уильям Хёрт, Чандлер Кентербери, Фрэнсис Фишер, Скотт Лоуренс, Бойд Холбрук, Мустафа ХаррисПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 02:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFB9B73480B481903F8A73429659C2A42634908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674772   (690425) от 01.07.2013
-
-Город грехов / Sin City (2005) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Город грехов - это адская бездна преступлений. Один из его жителей пытается найти убийцу своей невесты. Другой, фотограф, случайно убивает полицейского и старается скрыть свое преступление. Спуститесь по глухому переулку города, и вы найдете кое-что еще. В городе грехов полиция коррумпирована и улицы смертельно опасны…Жанр: Боевик, Триллер, КриминалРежиссер: Фрэнк Миллер, Роберт Родригес, Квентин ТарантиноАктеры: Брюс Уиллис, Микки Рурк, Джессика Альба, Клайв Оуэн, Ник Сталь, Пауэрс Бут, Рутгер Хауэр, Элайджа Вуд, Розарио Доусон, Бенисио Дель Торо, Бриттани Мерфи, Майкл Кларк Данкан, Карла Гуджино, Джош Хартнетт, Майкл МэдсенПеревод: Дублированный, Многоголосый, 2х Двухголосый, 3х Авторский одноголосыйЯзык субтитров: РусскийПродолжительность: 02:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01772918B381C1EA139C3D88F719F786DC0F2BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028265   (690403) от 22.06.2016
 
 Инсайдеры / Nae-bu-ja-deul (2015) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690403.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690373.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690372.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690362.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690361.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690359.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690358.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690325.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690319.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690273.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690264.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690208.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690206.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ King’s Man: Начало / The King's Man (2021) BDRemux [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690199.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690187.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690179.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690166.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690141.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690097.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.265]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690086.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690084.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690078.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690077.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690059.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D144CF3ED8D7A5E56EAEB39D37305003806AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795477   (690042) от 12.06.2014
+
+Тайны «Ночного дозора» / Nightwatching (2007) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Великобритания, Польша, Канада, Нидерланды / Aria FilmsЖанр: Драма, Детектив, Биография, ИсторияРежиссер: Питер Гринуэй / Peter GreenawayАктеры: Мартин Фриман, Эмили Холмс, Джоди Мэй, Майкл Тиган, Анна Антонович, Ева Берфистел, Кристофер Бриттон, Агата Бузек, Майкл Калкин, Гарри Феррье, Тоби Джонс, Джонатан ХолмсПеревод: Многоголосый закадровый (R5) ,Двухголосый закадровый (НТВ+), ОригинальныйПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24552C52D5A93E78788FEED5AD8812966D76E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403082   (690021) от 20.08.2020
+
+Чёрная дыра / Pitch Black (2000) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision TV, 10-bit] [Unrated Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690021.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем космический корабль терпит бедствие, в результате чего совершает вынужденную посадку на отдаленной планете. Но в результате такой посадки погибает командир корабля, часть команды и большинство пассажиров.
+Оставшиеся в живых оказываются одни на жуткой и безжизненной планете. Первое, что бросается в глаза - это то, что планета имеет три солнца, (   Читать дальше...   )Производство: США, Австралия / Polygram Filmed EntertainmentЖанр: Ужасы, Фантастика, БоевикРежиссер: Дэвид ТуиАктеры: Вин Дизель, Рада Митчелл, Коул Хаузер, Кит Дэвид, Льюис Фиц-Джералд, Клаудия Блэк, Риана Гриффит, Джон Мур, Саймон Бурк, Лес ЧэнтериПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F434325E8995F4F74973E2322131237964193A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336846.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Live @ Medusa Sunbeach Festival, Spain (2019) [MP3|320 Kbps] <Electro House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336845.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mate Translate 6.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336844.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Comix Zone Return 1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336801.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Linkin Park: Дорога к революции (живой концерт в М
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336797.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Skype 7.14.32.104 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336796.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Castlevania Immortality 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336794.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Skype 7.40.32.104 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336779.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ RE Vision FX Effections Plus 16.0.2 RePack by Team V.R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336770.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336768.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Pure Moods - 5CD (1997 - 2004) [FLAC|lоssless] <New Age>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_336751.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336739.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Renamer 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336736.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Talla 2XlC - Fascinated (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336735.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Power Manager 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336733.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Audirvana 3.5.23 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336730.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Carbon Copy Cloner 5 v5.1.12 (5830) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336728.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Wale - Wow... That's Crazy (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336727.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Things 3 v3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336726.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ iVI Video Converter 4 v4.650 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336725.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ The Clock - The Best World Clock 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336723.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Tone Science Module No​.​3 Cosines and Tangents (2019) DiN / Tone Scien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336718.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Typeface 2 v2.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336717.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336676.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Android Studio 1.4.1 Build #AI-141.2343393 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336661.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Winstep Xtreme 15.9 Full RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336658.jpg" />
 </div>
 
 

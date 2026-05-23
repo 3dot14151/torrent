@@ -6,7 +6,7 @@ Diabulus In Musica - Euphonic Entropy (2020) [MP3|320 kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952408.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Gothic Spirits vol.1-16 (2005-2012) [MP3|192-320 kbps]<Gothic Rock, Symphon
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951962.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Gone Is Gone (Mastodon, Queens Of The Stone Age, At The Drive-In) - Echolocation
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951915.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Royal Hunt - X (2010) [MP3|320 kbps]<Progressive Melodic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951476.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ S.T.E.A.M - WARP (2016) [MP3|320 кб/с]<Progressive Metalcore, Electronic>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950098.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ We Sell The Dead - Black Sleep (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949689.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Neaera - Neaera (2020) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949675.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949669.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Beneath the Massacre - Fearmonger (2020) [MP3|320 Kbps] <Technical Death Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949665.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Neaera - 8 Releases (2005-2020) [MP3|320 кб/с] <Metalcore, Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949440.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ice On Mercury - Blind Leading The Lifeless (2016) EP [MP3|320 Kbps] <Groove, He
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949293.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Dantalion - ...And All Will Be Ashes (2016) [MP3|320 Kbps] <Melodic Metal, Doom-
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949286.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Spitfire - State Of Mind (2017) [MP3|320 Kbps] <Groove, Stoner Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949183.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ A.E.R.I.S.T. - Redeemer/Destroyer, Pt. 1: The Strength of Many (2017) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949179.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Drowning Pool - Hellelujah (2016) [MP3|320 кб/с] <Alt.Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946792.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Word Alive - Monomania (2020) [MP3|320 kbps] <Post-Hardcore, Alternative Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946630.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Textures - Phenotype (2016) [MP3|320 кб/с] <Progressive Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945582.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ektomorf - Retribution (Digipak Edition) (2014) [MP3|320 кб/с]<Groove / Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945013.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Varg - Das Ende Aller Lugen (Das Ende Aller Lügen) (2016) 2CD Deluxe Edition [M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943867.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Fleshgod Apocalypse - King (2016) 2CD Deluxe Edition [MP3|320 кб/с] <Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943862.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Last In Line - Heavy Crown (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943740.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Megadeth - Dystopia (2016) Japanese Edition [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941856.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Braid Skill - Prior (2015) [MP3|320 кб/с]<Groove Metal, Metalcore, Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940631.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Five Finger Death Punch - F8 (2020) Deluxe Edition [MP3|320 кб/с] <Groove Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940569.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Striker - Stand in the Fire (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940080.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Sepultura - Machine Messiah (2017) Limited Edition [MP3|320 кб/с]<Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939956.jpg" />
 </div>
 
 

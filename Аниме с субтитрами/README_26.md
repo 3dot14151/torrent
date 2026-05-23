@@ -6,7 +6,7 @@ Eizouken ni wa Te o Dasu na! | Keep Your Hands Off Eizouken! | Руки проч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901141.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900772.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kikou Ryouhei Mellowlink / Armor Hunter Mellowlink / Бронебойщик Ме
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900134.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898802.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка А�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898752.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan / Armored Trooper Votoms: Shining Heresy
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898163.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, ONA, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898122.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Natsunagu! | Нацунагу! [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898007.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tenkuu Senki Shurato / Heaven Wars Shurato / Небесные войны Сюр�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897839.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Dominion Tank Police | Доминион: Танковая полиция [1988, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897747.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896872.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896373.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896256.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mugen no Juunin: Immortal | Клинок бессмертного (2019) [2019, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896248.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Tsukimonogatari: Yotsugi Doll / История одержимости: Кукл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895766.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894682.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Soukou Kihei Votoms: Pailsen Files / Soukou Kihei Votoms Pailsen Files / Бро�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894607.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894599.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu. | A Destructive God Sits Next to Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894596.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894580.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ High Score | Лучший счет [2011, TV, 8 + 2 SP] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893639.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Wasteful Days of High School Girl | Бездельные дни старшекл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893554.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 эп.] DVDRip 540p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893378.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Steins;Gate: Soumei Eichi no Cognitive Computing | Врата Штейна: Ве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893363.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Koi Suru Asteroid / Asteroid in Love / Влюблённый астероид [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893008.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Kyokou Suiri / In/Spectre / В/Спектре / Ложные выводы [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893002.jpg" />
 </div>
 
 

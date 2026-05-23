@@ -6,7 +6,7 @@ PortableApps.com Platform 29.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118439.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ PhotoRoom v4.8.4 b1280 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118429.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ CrossOver 24.0-b2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118428.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ QOwnNotes 24.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118426.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ K-Lite Codec Pack Update 18.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118422.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Fort Firewall 3.11.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118420.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Skype 8.112.0.210 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118419.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Perfectly Clear WorkBench 4.6.0.2638 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118418.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Skype 8.112.0.210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118402.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Clipboard Manager 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118397.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Permute 3 v.3.11.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118396.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ FL Studio Producer Edition 21.2.3.4004 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118393.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ macOS 14 Sonoma 14.3.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118384.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ FL Studio Producer Edition 21.2.3 Build 4004 + FLEX Extensions +Addons RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118376.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Windows 10 Manager 3.9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118352.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ OfficeSuite Pro + PDF v14.2.50882 Extra Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118330.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Freemake Video Converter 4.1.13.167 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118319.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ FreeCommander XE 2024 (public x32 build 901 & donor x64 build 903) +portable [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118316.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ AirBrush: ИИ Фоторедактор v6.2.1 Mod by ImanAlien [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118294.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ doPDF 11.9.438 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118285.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Monkey's Audio 10.49 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118276.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FBackup 9.9.853 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118274.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118239.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ CyberLink PowerDVD Ultra 23.0.1303.62 (x64) RePack by TheBig [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118221.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ GoodbyeDPI 0.2.2 Launcher 6.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118220.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Kodi 20.4 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118174.jpg" />
 </div>
 
 

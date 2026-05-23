@@ -6,7 +6,7 @@ VA - This is Ablazing 2025 (Mixed and Selected by Rene Ablaze) (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049366.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Monster Tunes Year Mix 2025 (Mixed By Exouler) (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049363.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Best Of Full On 140 Records 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049300.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Best Releases 2025 of Your Melodies (2025) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049245.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Ori Uplift - Uplifting Only Episode 671 (Ori’s Top 50 Instrumental Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049244.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Armin van Buuren - A State Of Trance 1256 (Top 50 Of 2025) (2025) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049243.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Armada Music Year Mix 2025 (2025) Extended Versions [MP3|320 Kbps] <Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049225.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Calibre - they want you (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum'n'Bas
 >>Drum'n'Bass, Breakbeat (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049221.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Calibre - Rudy (2023) [FLAC|Lossless|tracks + .cue] <Drum'n'Bass, Liquid Funk, A
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049219.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Redux Presents: The Finest Selection 2025 Mixed by DJ Jayel (2025) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049156.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048952.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Chill Lounge del Mar 2026 (Café Chillout Playlist Compilation, Vol.9 - mix
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048939.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048930.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048872.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048792.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048665.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048604.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048594.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048590.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048544.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048432.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - The Orient Collective: Oriental Sunrise (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048294.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Black Hole Trance Music 12-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048253.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Lost Kommunication Reflections 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048212.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Massive Attack - Heligoland (2010) Bonus Edition, 2010, Virgin Records [FLAC|Los
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048211.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ VA - After Work Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048163.jpg" />
 </div>
 
 

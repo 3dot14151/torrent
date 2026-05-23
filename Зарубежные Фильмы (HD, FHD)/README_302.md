@@ -1,55 +1,3 @@
-###  Публикация: 1387607   (791140) от 02.06.2020
-
-Квин и Слим / Queen & Slim (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Не самое удачное свидание из-за встречи с патрульным превращается в историю о погоне и любви, где два человека вынуждены бежать не куда, а откуда. И пока одни думают о выживании, для других эта парочка превращается в символ травмы и боли.Производство: Канада, США / BRON Studios, 3Blackdot, Creative Wealth Media FinanceЖанр: Драма, мелодрама, криминалРежиссер: Мелина МатсукасАктеры: Дэниэл Калуя, Джоди Тёрнер-Смит, Боким Вудбайн, Клоэ Севиньи, Фли, Стерджил Симпсон, Индия Мур, Бенито Мартинес, Джахи Диалло Уинстон, Грэйлен Брайант БэнксПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54DF219109A1FCDE9FC427FC9E7094A0E3533F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387375   (791133) от 02.06.2020
-
-Опасная роль Джин Сиберг / Seberg (2019) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Конец 60-х. Красавица Джин Сиберг, любимица французской новой волны, возвращается в Лос-Анджелес. От предложений новых ролей нет отбоя, она — новая икона Голливуда. Но внезапный головокружительный роман с лидером партии Черные пантеры делают Джин мишенью спецслужб. Круглосуточная слежка ФБР и провокации грозят разрушить не только ее карьеру, но и жизнь.Производство: Великобритания, США / Phreaker Films, Bradley Pilz Productions, Automatik EntertainmentЖанр: Триллер, драма, биографияРежиссер: Бенедикт ЭндрюсАктеры: Кристен Стюарт, Джек О`Коннелл, Маргарет Куэлли, Зази Битц, Винс Вон, Энтони Маки, Стивен Рут, Иван Атталь, Колм Мини, Сер`Дариус Блэйн, Гэбриел Скай, Виктория БарабашПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881B514285BA0E35E770585B038E19A915A3402B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275279   (791003) от 10.01.2019
 
 Солдаты / Бойцы / Рядовые Зоны / Soldier Boyz (1995) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791003.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790959.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790923.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790920.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790912.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790909.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790888.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790873.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790870.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790835.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790820.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790780.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790776.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790728.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790722.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790708.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790706.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790701.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790639.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790596.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790416.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790382.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790319.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790314.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ACA244C2B8C06EA4DB4CC3333C1484E5840C384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275433   (790264) от 11.01.2019
+
+Сеть / The Net (1995) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и все мы, Анжела Беннет живет в век информации. Все аспекты ее существования переведены в цифры и занесены в различные компьютерные базы данных: личный идентификационный номер, номер банковского счета, номер страхового свидетельства, номер водительского удостоверения, сведения об отсутствии судимости. Работа Анжелы тоже связана с компьютерами — она программист. (   Читать дальше...   )Производство: США | Columbia Pictures Corporation, Winkler FilmsЖанр: Боевик, триллер, драма, криминал, детективРежиссер: Ирвин УинклерАктеры: Сандра Баллок, Джереми Нортэм, Деннис Миллер, Дайан Бэйкер, Венди Газелль, Кен Ховард, Рэй МакКиннон, Дэниэл Шорр, Скотт Колдуэлл, Роберт ГоссеттПеревод: Дублированный; многоголосый, закадровый; одноголосый, закадровыйСубтитры: Русские, украинские, английскиеПродолжительность: 01:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D7ACFFAD9B1924FD40CA9888FC6D4FA66E8F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275352   (790263) от 11.01.2019
+
+Агент Джонни Инглиш 3.0 / Johnny English Strikes Again (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда все агенты секретной службы Её Величества внезапно выходят из строя, в игру вступает запасной вариант. Образец английского стиля и любимец роковых красоток; король безвыходных ситуаций и хранитель аналоговых традиций в цифровом мире, агент Джонни Инглиш — боль и гордость британской разведки. Этому парню есть что взбалтывать, и он взболтает не по-детски.Производство: Великобритания, Франция, США / Universal Pictures, Studio CanalЖанр: Боевик, Комедия, ПриключенияРежиссер: Дэвид КеррАктеры: Эмма Томпсон, Ольга Куриленко, Роуэн Аткинсон, Джейк Лэси, Бен Миллер, Миранда Хеннесси, Адам Джеймс, Пиппа Беннетт-Уорнер, Ирена Тишина, Джеймс ИлсПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48EFD075D8CD555554C4C9D6E1144132F28294E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

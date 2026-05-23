@@ -1,56 +1,3 @@
-###  Публикация: 1169381   (402986) от 27.09.2017
-
-Ночь ужаса: глава 1 / A Night of Horror Volume 1 (2015) BDRip [H.264/1080p-LQ] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сборник короткометражек от режиссеров фильмов ужасов. Зомби, демоны, призраки, злобные косметологи- все в одном флаконе. Готовы ли вы пройти через весь этот кошмар?Производство: США, Канада, Австралия, Deadhouse FilmsЖанр: УжасыРежиссер: Босси Бэйкер, Николас Колла, Дэниэл Даперис, Кармен Фолк, Мэтью Гудрич, Эван Рэнделл, Джастин Хардинг, Горан Сикс, Энцо Тедески, Ребекка ТомсонАктеры: Бьянка Брэди, Эмили Уитон, Теган Хиггинботэм, Рози Кеог, Кейли Колфилд, Джессика Гауэр, Джон Флаус, Джессика Хинксон, Марк Уолтерс, Дэниэл ДаперисПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CCDFE44A1745674C4BDF6CB8BFDAE201C0D890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169351   (402982) от 27.09.2017
-
-Гуд бай, Ленин! / Good Bye Lenin! (2003) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мать Алекса впала в кому незадолго до падения Берлинской стены. А когда, наконец, пришла в себя, не было уже ни ГДР, ни стран «победившего социализма». Тревожась за здоровье матушки, Алекс решил не сообщать ей о переменах: ведь что может стать более убийственным для убеждённой коммунистки, чем торжество капитализма?
-Сыну пришлось пойти на обман и превратить свою (   Читать дальше...   )Производство: Германия / arte, Westdeutscher Rundfunk (WDR), X-Filme Creative PoolЖанр: Комедия, Драма, МелодрамаРежиссер: Вольфганг БеккерАктеры: Даниэль Брюль, Катрин Засс, Мария Зимон, Чулпан Хаматова, Флориан Лукас, Александр Байер, Бургхарт Клаусснер, Михаэль ГвиздекПеревод: Многоголосый закадровыйСубтитры: русскиеПродолжительность: 02:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE01E1D07EA0F60CC732E7C0D4C855348CA97F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169332   (402976) от 27.09.2017
 
 Гинденбург: Последний полет / Hindenburg (2011) BDRip [H.265/1080p] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402976.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402970.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402967.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402959.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402908.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402906.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402898.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402885.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402784.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402700.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402688.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402651.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402377.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402253.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402240.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402204.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402181.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402166.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402156.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402083.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402079.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402034.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402032.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402010.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F3BF18E98E465CF255F8F4CFA20DB19A61ADB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169066   (402006) от 28.09.2017
+
+Нерв / Nerve (2016) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через Интернет вас контролируют не только спецслужбы, но и создатели видеоигр. Они буквально берут вашу жизнь под контроль. По крайней мере, так случилось с Ви – обычной студенткой, которая решила поискать приключений и ввязалась в модную игру, основанную на принципе дополненной реальности. Начиналось все безобидно, а вылилось в итоге в сущий кошмар и безумие.Производство: США | Lionsgate, Allison Shearmur Productions, Keep Your HeadЖанр: Триллер, криминал, детектив, приключенияРежиссер: Генри Джуст, Эриель ШульманАктеры: Эмма Робертс, Дэйв Франко, Эмили Мид, Майлс Хейзер, Кимико Гленн, Марк Джон Джеффрис, Машин Ган Келли, Брайан «Сене» Марк, Эд Сквайр, Райтор Дойл, Джульетт ЛьюисПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506546ECCB6E0EA87207AD7E9856CF4337353F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169555   (402005) от 28.09.2017
+
+Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402005.jpg" />
+</div>
+
+
+###  Подробнее
+
+После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: США, Columbia Pictures, Marvel Studios Inc., Pascal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд, Роберт Дауни-мл., Майкл Китон, Мариса Томей, Джон Фавро, Дональд Гловер, Логан Маршалл-Грин, Зендая, Тони Револори, Мартин Старр, Стэн Ли, Буким Вудбайн, Майкл Чернус, Абрахам Аттах, Танд Эйдебимп, Марта КеллиПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные)Продолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219376D6CE920571A49F3DC45B1C17C3252E42DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

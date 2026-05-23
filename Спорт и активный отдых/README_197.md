@@ -6,7 +6,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_476.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Спринт (27.09.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_474.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_206.jpg" />
 </div>
 
 

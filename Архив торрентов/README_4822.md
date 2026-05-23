@@ -6,7 +6,7 @@ NVIDIA GeForce Desktop Game Ready 566.14 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37141.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Gigapixel AI 8.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37138.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Snappy Driver Installer 1.24.8 (R2408) | Драйвер-паки 24.11.0 [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37130.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Eric's Movie DataBase (EMDB) 5.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37122.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IM-Magic Partition Resizer 7.3.0 Professional |Server | Unlimited Edition RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37113.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Photo AI 3.3.3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37105.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ DigiKam 8.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37102.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Firefox Browser ESR 128.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37094.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mp3tag 3.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37093.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Sante DICOM Viewer Pro 14.0.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37088.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rosetta Stone: Изучение языков 8.29.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37084.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PictureThis - Plant Identification v5.0.13 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37079.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Firefox Browser 132.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37076.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sante DICOM Editor 10.0.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37072.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Firefox Browser ESR 115.17.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37069.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Firefox Browser ESR 115.17.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37068.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Textra SMS v4.77 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37063.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Balabolka 2.15.0.882 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37062.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FanControl V208 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37060.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ IObit Driver Booster Pro 12.1.0.469 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37047.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Snappy Driver Installer Origin R772 | Драйверпаки 24.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37035.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ FinePrint 12.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37013.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37012.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ PdfFactory Std & Pro 9.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36991.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ XRecode 3 1.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36986.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36982.jpg" />
 </div>
 
 

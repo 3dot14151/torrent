@@ -1,55 +1,3 @@
-###  Публикация: 1776397   (29212) от 31.01.2025
-
-Собачье дело / Le proces du chien / Who Let the Dog Bite? (2024) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Как вы думаете, что ждет собаку, если она кусает человека? А если троих? За такое несдержанное поведение пса в нашей истории ждет смертная казнь. Но за дело обреченного неуравновешенного пса Космоса берется молодой амбициозный адвокат Аврил. Она уверена, что сможет вытащить пса из беды, ведь выигрывала уже немало безнадежных на первый взгляд дел. Но дело Космоса (   Читать дальше...   )Производство: Швейцария, Франция / Bande à Part Productions, Atelier de Production, Radio Télévision Suisse (RTS)Жанр: комедияРежиссер: Летиция ДошАктеры: Коди, Летиция Дош, Франсуа Дамиенс, Жан-Паскаль Зади, Энн Дорваль, Анабела Морейра, Tom Fiszelson, Матье Деми, Пьер Деладоншам, Michèle GurtnerПеревод: Дублированный (Okko)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD76F38FB774B3D99BB31BF02F958AC600FF5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821071   (29201) от 30.09.2025
-
-Война Богов: Бессмертные / Immortals (2011) BDRip [H.264/1080p
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Одержимый жаждой власти царь Гиперион хочет уничтожить род людской и низвергнуть богов. С помощью Эпирского Лука, сделанного руками бога войны Ареса, он освобождает Титанов от тысячелетнего заточения в горах Тартара. Боги бессильны противостоять безумному царю. Единственная надежда на спасение — герой Тесей, который вступает в неравную войну с Титанами. Боги Олимпа (   Читать дальше...   )Производство: США, Канада / Relativity Media, Virgin Produced, Mark Canton ProductionsЖанр: фэнтези, боевик, драма, мелодрамаРежиссер: Тарсем СингхАктеры: Генри Кавилл, Микки Рурк, Фрида Пинто, Люк Эванс, Стивен Дорфф, Изабель Лукас, Келлан Латс, Джон Хёрт, Стивен Макхэтти, Марк МарголисПеревод: Дублированный, многоголосыйЯзык озвучки: Русский, узбекскийСубтитры: отсутствуютПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB94556F955F0F098847791D551FF3E2A67D8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506635   (29193) от 30.09.2025
 
 Загадочная кожа / Mysterious Skin (2004) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29193.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29191.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29175.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29162.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29144.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29107.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29106.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29092.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29040.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29038.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28969.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28924.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28912.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28867.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28740.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28713.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28708.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28679.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28677.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28645.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28626.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28604.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28587.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28575.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD877612A2144F556F34CFF6E6DCDD9EFE4740B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777319   (28570) от 05.02.2025
+
+Космический мальчик / SpaceBoy (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28570.jpg" />
+</div>
+
+
+###  Подробнее
+
+11-летний Джим — одаренный мальчик, интересующийся наукой и космосом. Приехав в новый город со своим отцом, он решает принять участие в научном конкурсе со своей одноклассницей Эммой. Несмотря на протесты, Джим убеждает ее повторить проект Киттингера (первый человек, побывавший на стратостате практически на границе космоса в 1960 году) «Эксельсиор» и построить огромный (   Читать дальше...   )Производство: Бельгия / Bulletproof Cupid, Kwassa FilmsЖанр: приключения, семейныйРежиссер: Olivier PairouxАктеры: Базиль Грюнбергер, Альбан Массон, Янник Ренье, Беренис Баоо, Жан-Бенуа Югё, Петер ван ден Бегин, Sacha Teichman, Lior Zwikielski, Marie du Bled, Michel SchillaciПеревод: ДублированныйЯзык озвучки: Русский, ФранцузскийСубтитры: русские (hardsub)Продолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6780040B2BF4828A3347682F4485E33B948AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777324   (28561) от 05.02.2025
+
+Инкогнито / Incognito (1997) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый художник пишет гениальные подделки великих мастеров, но мечтает ставить свою подпись на картине. Делая последний заказ, он неожиданно попадает в грязную преступную махинацию, встречает очаровательную женщину и находит свою судьбу...Производство: США / Morgan Creek ProductionsЖанр: мелодрама, криминал, триллерРежиссер: Джон БэдэмАктеры: Джейсон Патрик, Ирен Жакоб, Томас Локйер, Иэн Ричардсон, Саймон Чэндлер, Пип Торренс, Майкл Кокрейн, Род Стайгер, Того ИгаваПеревод: дублированный (Варус Видео), профессиональный двухголосый закадровый (Екатеринбург Арт)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EDC6E92AD3F8F80C03DA797AC4B70986343CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

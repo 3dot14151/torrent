@@ -1,55 +1,3 @@
-###  Публикация: 1159559   (483731) от 20.08.2017
-
-Aiseesoft Total Video Converter 9.2.18 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Total Video Converter является многофункциональным программным обеспечением для конвертации видео в другие популярные форматы, такие как MP4, MKV, WMV, AVI, H.264/MPEG-4 AVC, H.265/HEVC, FLV, 3GP, DivX, VOB, HD видео и другие. Кроме того, программа может извлекать аудио дорожки из видеофайлов и конвертировать их в AAC, AC3, AIFF, MP3, M4V, MP2, WAV, WMA (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29219FE689CCF9991B07B26146139AC371F441E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055903   (483298) от 24.09.2016
-
-Aiseesoft MP4 Video Converter 8.2.10 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft MP4 Video Converter разработана специально для решения проблем совместимости видео файлов различных форматов с теми или иными устройствами. Поможет провести конвертацию видео в поддерживаемый подавляющим большинством устройств формат MP4 (включая H.264) без потери качества, а также позволит провести быструю конвертацию видео формата MP4 в любой другой формат, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF284884184985548607299CD37CB0332E2666DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159754   (481958) от 21.08.2017
 
 AnyMP4 Video Enhancement 7.2.12 RePack by вовава [Ru/En]
@@ -58,7 +6,7 @@ AnyMP4 Video Enhancement 7.2.12 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481958.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ AnyMP4 4K Converter 7.2.12 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481936.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ AnyMP4 MP4 Converter 7.2.16 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481863.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ FilmConvert Pro OFX 2.07 for DaVinci, Sony Vegas and Scratch [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481123.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Xilisoft Video Editor 2.2.0 Build 20120901 Portable by SamDel [MULTi / Русс�
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480020.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by Dodakaedr [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478681.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ AnyMP4 BD to MKV Backup 6.0.16.43011 RePack (& Portable) by AlekseyPopovv [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473095.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Aiseesoft BD to MKV Copy 6.1.6.14343 RePack (& Portable) by AlekseyPopovv [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473089.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Photodex ProShow Producer 9.0.3771 [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471282.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470607.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ FilmConvert Pro 2.35 for After Effects and Premiere Pro [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463796.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Ashampoo Video Optimizer Pro 2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462167.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461333.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Faasoft Video Converter 5.4.20.6448 RePack by вовава [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461203.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461196.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Boris FX Continuum Complete 2022 15.5.1.565 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459315.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ GiliSoft Video Editor 13.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455588.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Nero Video 2016 17.0.12000 + ContentPack Portable by PortableWares [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455136.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Ashampoo Video Optimizer Pro 2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453285.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ GiliSoft Video Converter Discovery Edition 11.0.0 RePack (& Portable) by TryRooM
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451308.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Nero Video 2017 18.0.00900 Retail [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447835.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Tipard 4K UHD Converter 9.2.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444381.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ DFT Tiffen Dfx 4.0 v8 CE RePack by Team VR [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441987.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ TMPGEnc Movie Plug-in AVC v1.0.5.5 CE RePack by Team VR [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441980.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ TMPGEnc Movie Plug-in AVC для Premiere Pro даёт возможность в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E62DD2471A03EDB819BAFEAD06D1C02CCD71D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945168   (435058) от 09.10.2015
+
+Nero Recode 2016 17.0.10000 Portable by PortableWares [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nero Recode — очень мощное и в то же время простое в использовании приложении для преобразования видео на дисках и в файлах в другие форматы. Nero Recode поддерживает практически все последние аудио- и видеоформаты. Кроме того, это приложение поддерживает предварительно настраиваемые профили для самых популярных мобильных и развлекательных устройств, так что вы сможете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896228F6FEB60EF2A9EF147FDC85868E8717AE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249088   (432489) от 24.09.2018
+
+Freemake Video Converter Business 4.2.0.8 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB40A38FD9996A75C4D0487298640D4BF914A181
 ```
 
 https://mybot314.ru/tekegram_catalog/

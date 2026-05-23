@@ -1,57 +1,3 @@
-###  Публикация: 1259731   (318294) от 04.11.2018
-
-Без боли / Painless (2017) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Генри Лонг с самых малых лет не способен ощущать какую-либо физическую боль. Он не заметит ожога на коже от пролившегося кофе и не почувствует внутреннего кровотечения после падения с высоты. Он пытается найти лекарство от этого состояния с помощью своего врача, но когда тот оказывается неспособен предоставить Генри компоненты, которые ему нужны для своих собственных (   Читать дальше...   )Производство: США, Blue Bus Productions, Ambrosino / DelmenicoЖанр: Триллер, ДрамаРежиссер: Джордан ХоровицАктеры: Джои Клейн, Эвалена Мари, Кип Гилмен, Паскаль Йен Пфистер, Томми Сокс, Nick Latrenta, Джошуа Копман, Eileen Paulino, Дэвид Уэйндел, Лино ТанакаПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: АнглийскиеПродолжительность: 01:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671F427F98EB49710BA373D6543ADC47AF186594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259754   (318290) от 04.11.2018
-
-Ты водишь! / Tag (2018) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Каждый год в течение месяца пятеро друзей участвуют в беспощадно навороченной версии игры в кошки-мышки. Они играют в нее с первого класса, чтобы, рискуя собственной шеей, работой и отношениями, одолеть противника с победоносным криком: «Ты водишь!»
-
-В этом году кошки-мышки приходятся на свадьбу единственного непобежденного игрока, что должно сделать из него легкую (   Читать дальше...   )Производство: США / Warner Bros. Pictures, New Line Cinema, Broken Road ProductionsЖанр: КомедияРежиссер: Джефф ТомсичАктеры: Эд Хелмс, Джереми Реннер, Джон Хэмм, Джейк Джонсон, Хэннибал Бёресс, Аннабелль Уоллис, Айла Фишер, Рашида Джонс, Лил Релл, Нора ДаннПеревод: Дублированный (лицензия)Субтитры: Русские, английские, болгарские, хорватские, эстонские, латышские, литовские, польские, словенские, турецкиеПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C62914018C629E0C998D40A4436693DD0FB2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259602   (318284) от 04.11.2018
 
 G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [H.265/1080p] [10-bit]
@@ -60,7 +6,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [H.265/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318284.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318282.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318254.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318243.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318179.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318177.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318174.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318171.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318170.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318166.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318125.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318124.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318120.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318082.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318074.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318071.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318070.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318068.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318066.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318058.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318053.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317940.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317937.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317933.jpg" />
 </div>
 
 
@@ -672,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:694970EC26B168E1EDA0FD6CD2EEFDE442398117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075769   (317918) от 23.11.2016
+
+Парни со стволами / War Dogs (2016) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальная история о приятелях-планокурах из Майами, умудрившихся выбить в Пентагоне контракт на 300 миллионов долларов на поставку оружия.Производство: СШАЖанр: Драма, Комедия, Криминал, ВоенныйРежиссер: Тодд ФиллипсАктеры: Майлз Теллер, Джона Хилл, Ана де Армас, Кевин Поллак, Брэдли Купер, Джейби Бланк, Шон Тоуб, Патрик Ст. Эсприт, Андрей Финти, Эдди Джемисон.Перевод: Дублированный (Лицензия, Blu-Ray CEE)Язык субтитров: Русские (forced, full), английскиеn (Full, SDH)Продолжительность: 01:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8E1861C7019A32124157E096CB9F249E56B4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075742   (317917) от 23.11.2016
+
+Эверест — вершина богов / Everesuto: Kamigami no itadaki (2016) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного японского романа-бестселлера, посвященная истории самого первого удачного покорения смертельно опасного Эвереста, совершенного Ирвингом и Мэллори, чье первенство так и осталось недоказанным, так как оба альпиниста пропали без вести. Но вот, уже в 21 веке профессиональный фотограф-альпинист выходит на след камеры Мэллори, которая может стать (   Читать дальше...   )Производство: ЯпонияЖанр: Драма, экранизацияРежиссер: Хидеюки ХираямаАктеры: Хироси Абэ, Сюнсукэ Кадзама, Сергей Куваев, Масахиро Комото, Тилен Лондюп, Дзюнити Окада, Матико Оно, Кураносукэ Сасаки, Пьер Таки ...Перевод: Любительский многоголосый (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 02:02:37Реклама: Присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE87CC58F9E0C201D0D3BF35798860775F90D1B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

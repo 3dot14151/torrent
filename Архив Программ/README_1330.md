@@ -6,7 +6,7 @@ DU Meter 6.05 Build 3768 Final [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362415.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362364.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Destroy Windows 10 Spying 1.5 Build 600 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362360.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Acrobat Pro DC 2015.009.20077 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362355.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AVG Internet Security 2016 16.0.7226 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362350.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows Update MiniTool 09.10.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362348.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Maxthon Cloud Browser 4.4.8.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362347.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Acrobat Reader DC 2015.009.20077 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362346.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Nero Burning ROM 2021 23.0.1.8 Portable by FC Portables [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362328.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Win10 All Settings 2.0.2.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362324.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Realtek High Definition Audio Driver 6.0.9018.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362310.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Media Encoder CC 2018. 12.0.0.202 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362301.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ESET NOD32 Internet Security 11.0.144.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362297.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Apache OpenOffice 4.1.2 Stable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362259.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Red Giant Trapcode Suite Repack by TeamVR 13.0.0 CE [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362249.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ IVONA Reader 1.1.3 + Русскоязычный синтезатор речи Т
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362243.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362189.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VMware ThinApp 4.7.3 Build 891762 Portable by KpoJIuK [Русский / Англ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362173.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Norton Internet Security 2013 20.1.0.24 OEM 90 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362160.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ TeamViewer 15.10.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362070.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Glary Utilities Pro 5.194.0.223 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361806.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ SRWare Iron 104.0.5300.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361777.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Opera 91.0.4516.16 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361770.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Brave Browser 1.43.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361767.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Ocenaudio 3.11.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361642.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Microsoft Edge 105.0.1343.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361639.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1212111   (776504) от 10.03.2018
-
-Хилари Мантел | Внесите тела (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Генрих VIII Тюдор, король Англии, потратил долгие годы, чтобы покорить Анну Болейн, порвал с католической церковью, пошел на интриги, подлости и преступления ради женитьбы на ней.
-Но страсть мужчины преходяща, а Анна так и не сумела подарить Генриху и Англии долгожданного наследника. Более того, острый ум супруги раздражает тщеславного Генриха, а ее независимость (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 17:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA34696651409DE20122469419BFCC7E80667CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014093   (776491) от 07.05.2016
-
-Сергей Булыга | Шпоры на босу ногу (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман "Шпоры на босу ногу" с первых же страниц погружает нас в самую гущу героических событий достославного двенадцатого года. Великая и непобедимая доселе армия Наполеона позорно отступает, подгоняемая лихими наскоками гусарских рейдеров и неожиданными атаками партизанских ватаг. И уже ясно, что ради спасения собственных жизней горе-завоевателям придется (   Читать дальше...   )Жанр: Исторический романПродолжительность: 21:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F842027A0AB818AFB0C8B2AB008A9F9B78F2501D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014542   (776488) от 07.05.2016
-
-Рекс Стаут | Золотые пауки (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Очередное дело легендарного детектива Ниро Вульфа, которое начиналось, как шутка или розыгрыш, внезапно становится очень серьезным.
-В этот день на прием к Вульфу приходит соседний мальчишка, Пит Дроссос. Обычно таких «клиентов» Гудвин даже не пускает на порог, но в тогда ему захотелось поддразнить Вульфа. Пит рассказывает историю о женщине за рулём кадиллака. Щека (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E28231629B8AE870AAAA5048AB18A3E03DFAD69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212103   (776470) от 10.03.2018
 
 Найо Марш | Родерик Аллейн (Книга 3). Убийство в частной лечебнице (2018) [MP3, Валерий Стельмащук]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776470.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776452.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776449.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776444.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776434.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776411.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776408.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776405.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776394.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776364.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776336.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776335.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776278.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776176.jpg" />
 </div>
 
 
@@ -458,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776164.jpg" />
 </div>
 
 
@@ -484,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776153.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776113.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776107.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776068.jpg" />
 </div>
 
 
@@ -592,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776003.jpg" />
 </div>
 
 
@@ -618,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775999.jpg" />
 </div>
 
 
@@ -644,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775972.jpg" />
 </div>
 
 
@@ -670,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775938.jpg" />
 </div>
 
 
@@ -682,6 +602,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:583A3B836D5BEA4ECCD770600E3B1A97CAD4FF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212537   (775790) от 12.03.2018
+
+Михаил Черненок | Антон Бирюков (Книга 2). С субботы на воскресенье (2018) [MP3, Валерий Стельмащук]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775790.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь с субботы на воскресенье в райцентре обворовали магазин и Антон Бирюков со своим помощником Славой Голубевым берутся за дело...Жанр: ДетективПродолжительность: 07:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B371F13C27E40C9AD461AEF9463CB62C8B41A805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212482   (775775) от 12.03.2018
+
+Сьюзен И | Нашествие ангелов (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пенрин, ее мать и сестра — одни из немногих уцелевших в новом мире. Жизнь Пенрин и до апокалипсиса легкой назвать было нельзя: сестра Пейдж прикована к инвалидной коляске скорее всего по вине матери, страдающей шизофренией, а отец бросил семью после этого, официально “несчастного”, случая. Теперь же на Пенрин висит еще больше ответственности. Когда у семьи закончилась (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F162ED43FED806B91CE93ADC3B3FE253D75AE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212540   (775773) от 12.03.2018
+
+Михаил Черненок | Антон Бирюков (Книга 1). Тайна старого колодца (2018) [MP3, Валерий Стельмащук]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775773.jpg" />
+</div>
+
+
+###  Подробнее
+
+В колхозе стали чистить старый, заброшенный колодец и вместе с илом достали человеческие кости. Убийство?
+Или просто кто-то оступился и... Расследовать этот случай поручили недавнему выпускнику института Антону Бирюкову.Жанр: ДетективПродолжительность: 06:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19910C1AE9444A75CDD18ADECEF04EA180495641
 ```
 
 https://mybot314.ru/tekegram_catalog/

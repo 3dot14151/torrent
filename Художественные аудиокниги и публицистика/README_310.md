@@ -1,82 +1,3 @@
-###  Публикация: 1277100   (784985) от 21.01.2019
-
-Донато Карризи | Девушка в тумане (2019) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Затерянный в Альпах сонный городок, рождественский вечер, туман. От дома, где сияют огни елки и лежат подарки, до празднично украшенной местной церкви всего триста метров, но в церкви юная Анна Лу так и не появилась… Вездесущие журналисты, фоторепортеры и телевизионщики осаждают городок. Каждый из них жаждет первым сообщить сенсационные новости о ходе расследования. (   Читать дальше...   )Жанр: ДетективИздательство: Азбука-АттикусПродолжительность: 12:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9502B815C27625B2CFEE69CF8700D0FDF87AEF9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277114   (784973) от 21.01.2019
-
-Карлос Руис Сафон | Кладбище Забытых Книг (Книга 3). Узник неба (2014) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Барселона, конец 1950-х. Даниэль Семпере, уже знакомый читателю по роману «Тень ветра», по-прежнему владеет букинистической лавкой, в которой работает его друг Фермин. Но чем дальше, тем яснее становится Даниэлю, что Фермина что-то тревожит... Так начинается поразительная, трагическая и захватывающая история третьего романа из знаменитого цикла Сафона «Кладбище Забытых (   Читать дальше...   )Жанр: Драма, неоготикаИздательство: Театр АбукиПродолжительность: 09:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D096621732690F9D6CEB160DF759FFCD8FD76B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276907   (784969) от 21.01.2019
-
-Клиффорд Саймак | Кукла судьбы (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Несколько совершенно разных по характеру человек: прожига-космонавт, богатая авантюристка-охотница , святой отец и фанатичный, полубезумный слепец пускаются в авантюрное путешествие, следуя слепому поиску в надежде отыскать нечто необыкновенное. И достигнув нужной планеты, находят для себя свой жизненный путь, выбрав который каждый получают своё.
-Человек во вселенной... (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 07:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFC0CE107C479835F1C78C24844FB5181328FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204446   (784967) от 05.02.2018
 
 Янник Гранек | Богиня маленьких побед (2018) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784967.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784953.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784945.jpg" />
 </div>
 
 
@@ -167,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784898.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784868.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784863.jpg" />
 </div>
 
 
@@ -245,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784778.jpg" />
 </div>
 
 
@@ -271,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784761.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784745.jpg" />
 </div>
 
 
@@ -326,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784712.jpg" />
 </div>
 
 
@@ -352,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784684.jpg" />
 </div>
 
 
@@ -378,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784621.jpg" />
 </div>
 
 
@@ -404,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784596.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784505.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784491.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784490.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784456.jpg" />
 </div>
 
 
@@ -535,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784365.jpg" />
 </div>
 
 
@@ -561,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784355.jpg" />
 </div>
 
 
@@ -587,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784321.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784282.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784249.jpg" />
 </div>
 
 
@@ -668,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784182.jpg" />
 </div>
 
 
@@ -680,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E18EC91293DCDE695E04D843A572F911CACB8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389685   (784172) от 11.06.2020
+
+Виктор Пелевин | iPhuck 10 (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порфирий Петрович – литературно-полицейский алгоритм. Он расследует преступления и одновременно пишет об этом детективные романы, зарабатывая средства для Полицейского Управления. Маруха Чо – искусствовед с большими деньгами и баба с яйцами по официальному гендеру. Ее специальность – так называемый “гипс”, искусство первой четверти XXI века. Ей нужен помощник для (   Читать дальше...   )Жанр: Русская литератураПродолжительность: 12:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3746AB2DA47893F3B75C36AF384A3D4AC566C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204970   (784078) от 08.02.2018
+
+Иван Баграмян | Так шли мы к победе (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминания Маршала Советского Союза Ивана Христофоровича Баграмяна являются прямым продолжением его первой мемуарной книги «Так начиналась война». В них автор анализирует ход боевых действий советских войск на различных участках, где ему довелось принимать участие в руководстве войсками, возглавляя крупные штабы, командовать армией, а затем фронтом. С большой душевной (   Читать дальше...   )Жанр: Bоенная проза, мемуарыПродолжительность: 56:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DF095144F96E29281697E42ED66B6AC261A3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205055   (784025) от 08.02.2018
+
+Марина и Сергей Дяченко | Медный король (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу «Медный король» популярной серии известных писателей-фантастов Марины и Сергея Дяченко – «Бродячая Искра». Мир велик и опасен: небо патрулируют всадники на огромных птицах, в пещерах водятся донные драконы, и четвероногие люди – зверуины – вершат правосудие на своей земле. Кто ведает, что стало бы с мальчишкой-рабом, если (   Читать дальше...   )Жанр: Героическая фантастикаПродолжительность: 23:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8C7BF46952CBBFCC26794A342605A0E8724B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

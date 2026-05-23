@@ -1,81 +1,3 @@
-###  Публикация: 965955   (221795) от 16.12.2015
-
-Ли Чайлд | Джек Ричер (Книга 2). Ценой собственной жизни (2015) [MP3, Валерий Стельмащук]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Джек Ричер решил помочь привлекательной женщине на костылях и угодил в самый эпицентр криминальной драмы. В следующее мгновение они оказываются под прицелом двух мужчин с пистолетами. Вооруженные люди похищают Джека и его новую знакомую. Женщина утверждает, что она агент ФБР, работающий под прикрытием. Странную парочку увозят в неизвестном направлении. Судя по времени, (   Читать дальше...   )Жанр: ДетективПродолжительность: 19:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EB68F6755BD2ECD1E5D55404EC05881EA3771FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651310   (221771) от 06.08.2023
-
-Владимир Кунин | Русские на Мариенплац (2017) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Не зря говорят, что пути Господни неисповедимы. А как иначе объяснить невероятную встречу выходцев из бывшего СССР: сценариста из Москвы, девушки с голосом Нани Брегвадзе, циркача-эквилибриста и казахского танкиста за тысячу километров от родины, в далёком Мюнхене? О том, к чему приводят подобные незапланированные встречи, о злоключениях эмигрантов на чужбине, о (   Читать дальше...   )Жанр: современная русская литература, юмористическая прозаИздательство: СОЮЗПродолжительность: 12:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37D36E6EA2144C245979748596DEAF66A28E37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651306   (221666) от 06.08.2023
-
-Ли Бардуго | Николай Ланцов (Книга 2). Правление волков (2021) [MP3, Алексей Данков, Ксения Бржезовская]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение «Короля шрамов» — бестселлер New York Times. Вторая книга в дилогии о Николае Ланцове. Равка воюет с войсками Фьерды и собирается стоять до последней капли крови на рукаве её правителя Николая. Союзники прибывают, но их помощи оказывается недостаточно. Король готов решиться на что угодно, лишь бы отстоять свою страну. Хотя возможно, не в руках Николая (   Читать дальше...   )Жанр: героическое фэнтези, городское фэнтези, зарубежное фэнтезиПеревод: Ирина МеньшаковаИздательство: АСТ-АудиокнигаПродолжительность: 20:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AED867E87D0D1197E69259F20A3124EF4C8626C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342848   (221511) от 04.12.2019
 
 Галина Романова | Месть Спящей красавицы (2018) [MP3, Татьяна Ненарокомова]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221511.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221487.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221482.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221430.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221405.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221395.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221383.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221376.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221353.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221349.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221346.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221345.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221331.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221262.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221260.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221241.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221231.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221170.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221154.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221118.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221104.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221089.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221057.jpg" />
 </div>
 
 
@@ -679,6 +601,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1184C3BD4E4AD4291C43114F631B063EF54DC63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269331   (221005) от 14.12.2018
+
+Алль Терр | Пробуждение крови (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был болезненным мальчишкой, который умер в свой день рождения. Но тут же открыл глаза, уже в другом мире и новом теле. Теперь его зовут Лин Табул, Безродный. В Цитадели собрались представители различных родов из Четырёх Кланов, а также Безродные, Изгои и даже один раб. Им всем необходимо пройти обучение, чтобы открыть в себе родовые умения и овладеть Интерфейсом. (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 11:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A690D9004C498A65C9B5349DCF207286071B4305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513996   (220963) от 01.12.2021
+
+Александр Воропаев | Новые люди. Том 2 (2021) [MP3, Илья Дементьев, Олег Троицкий, Ксения Большакова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миссия бывшего стажера полиции Анны Нойманн, отправившейся к лесным людям, потерпела неудачу. Матиуш Ардо, обвиненный в убийстве брата, бежит из темницы и движется навстречу новым испытаниям.
+
+Старые клятвы утратили свою силу, отношения больших и малых домов переживают кризис. Тревожные события происходят и на Королевском холме в столице Восточного Предела. Дети (   Читать дальше...   )Жанр: Героическое фэнтези, Историческое фэнтези, ПопаданцыПродолжительность: 14:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D379F0EAA452CB9D76DA73666850F0BC37E8BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083452   (220948) от 18.12.2016
+
+Николай Лесков | Шерамур. Русское тайнобрачие (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий Русский писатель Николай Семёнович Лесков стремился в своем творчестве постигнуть жизнь разных классов, социальных групп, сословий России, создать многокрасочный, сложный, во многом еще не изученный образ всей страны в один из самых трудных периодов ее существования. Горький скажет о произведениях Николая Лескова: "... он писал не о мужике, не о нигилисте, (   Читать дальше...   )Жанр: КлассикаПродолжительность: 03:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D375571BABB668D1E7491C8FC727B38E57415998
 ```
 
 https://mybot314.ru/tekegram_catalog/

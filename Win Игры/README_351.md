@@ -1,29 +1,3 @@
-###  Публикация: 1651163   (183464) от 28.09.2023
-
-Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к партизанам и уничтожайте врагов на своем транспортном средстве в этом 3D-шутере от третьего лица! Получайте опыт и улучшения, побеждая врагов, выбирайте новое оружие и боевые навыки. Используйте золото, полученное в битвах, чтобы покупать тактические наборы, объединять их в свои собственные комбо и побеждать врагов!Тип издания: SceneРазработчик: What‘s Up LabsЖанр: Экшены, Казуальные игры, Инди, СтратегииЯзык субтитров: Английский, Китайский, Японский, КорейскийЯзык интерфейса: Английский, Китайский, Японский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E8E871330CF338EEEDDF8203CA2815D5C4537B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518054   (183420) от 28.09.2023
 
 Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
@@ -32,7 +6,7 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183420.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183333.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182868.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182713.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BIT.TRIP BEAT (2009) [En] (2.0.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182311.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BIT.TRIP Presents... Runner2: Future Legend of Rhythm Alien (2013) [En] (2.0.0.3
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182212.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182201.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182112.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (53106) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182090.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182046.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181896.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BIT.TRIP RERUNNER (2023) [Multi] (20230927) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181886.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181847.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ NASCAR Arcade Rush (2023) [En] (1.0.0.2/dlc) Scene Tenoke [Project-X Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181790.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Dark Pictures Anthology: Little Hope (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181746.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Earthlock: Festival of Magic (2016) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181730.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181618.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181340.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Paranormal Files 6: The Trap of Truth / Паранормальные явлен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181302.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mystery Case Files 22: Crossfade / За семью печатями 22: Изло
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181298.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181279.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181208.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Tails Noir (2021) [Ru/Multi] (11857296/dlc) Scene Tenoke [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181113.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ AMID EVIL (2019) [En] (2614/dlc) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181078.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181037.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA2D2AD339B10F90990F3E5A018C2DF761D91CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665765   (181033) от 01.10.2023
+
+Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torn Away — интерактивная история, собранная из элементов приключенческих игр, стелс сайд-скроллеров и уровней от первого лица. Взгляните на ужасы Второй мировой войны глазами ребенка. Сможете ли вы сохранить веру в людей и вернуться домой?Тип издания: RepackРазработчик: perelesoqЖанр: Adventure, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B0352DA63C7C55B42FCD5B69F0D0616CC85349
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 1441944   (1037072) от 23.01.2021
-
-Дивергент, глава 3: За стеной / Allegiant (2016) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Трис и Фор впервые покидают город и своих близких и оказываются в опасном мире за стеной, отделяющей Чикаго, где им открывается шокирующая правда.
-Они должны быстро разобраться, кому можно доверять, так как битва, разгорающаяся за стенами города , угрожает всему человечеству. Чтобы выжить, Трис придется сделать непростой выбор между мужеством, верностью, любовью (   Читать дальше...   )Производство: США / Mandeville Films, Red Wagon Entertainment, Summit EntertainmentЖанр: Фантастика, боевик, триллер, детектив, приключенияРежиссер: Роберт ШвенткеАктеры: Шейлин Вудли, Тео Джеймс, Энсел Элгорт, Зои Кравиц, Майлз Теллер, Джефф Дэниелс, Наоми Уоттс, Мэгги Кью, Билл Скарсгард, Кейнан ЛонсдейлПеревод: Дублированный (Лицензия, Централ Партнершип)Субтитры: Английские (Full)Продолжительность: 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E5FE782EB6788385CC24FA9DEFEC41DB438E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441575   (1037071) от 23.01.2021
-
-Чистота крови / Blood Quantum (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В индейской резервации Ред Кроу начали оживать мёртвые: выпотрошенная рыба, пристреленная из жалости собака. Зараза не обошла стороной и людей, которые, превратившись в безмозглых агрессивных тварей, стали бросаться на здоровое население. Но у коренных жителей Америки обнаружился иммунитет к неизвестному вирусу. Теперь они вынуждены жить на ещё меньшей огороженной (   Читать дальше...   )Производство: Канада / Prospector FilmsЖанр: УжасыРежиссер: Джефф БарнебиАктеры: Майкл Грейес, Эль-Майя Тэйлфезерс, Форрест Гудлак, Кайова Гордон, Оливия Скривен, Стоунхорс Лоун Гоеман, Брэндон Оакес, Уильям Белло, Девери Джейкобс, Гэри ФармерПеревод: Дублированный (iTunes)Субтитры: Английские (Forced)Продолжительность: 01:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889A17EC3CCA1B102D48DD0ADC8612B1413CEFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441932   (1037068) от 23.01.2021
 
 Дивергент / Divergent (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037068.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037067.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037065.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037062.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037057.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037054.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037051.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037047.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037045.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037040.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [H.264
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037038.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037033.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037032.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037027.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037024.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036972.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036969.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036966.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036965.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036926.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036925.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036924.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036923.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036920.jpg" />
 </div>
 
 
@@ -668,6 +615,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A745948A504E0383B5908F21A1C2F36DD90265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493357   (1036914) от 28.02.2023
+
+Форсаж 9 / F9 (2021) BDRip [H.264/1080p-LQ] [Theatrical Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доминик Торетто ведет спокойную жизнь вместе с Летти и сыном Брайаном, но новая опасность всегда где-то рядом. В этот раз Доминику придется встретиться с призраками прошлого, если он хочет спасти самых близких. Команда снова собирается вместе, чтобы предотвратить дерзкий план по захвату мира, который придумал самый опасный преступник и безбашенный водитель из всех, (   Читать дальше...   )Производство: США, Таиланд, Канада / One Race Films, Original Film, Perfect Storm Entertainment, Roth/Kirschenbaum Films, Universal PicturesЖанр: боевик, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина, Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Хелен Миррен, Шарлиз Терон, Майкл РукерПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 02:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0D6ADEAA3CA2E1E9E0B2B3698A31413B931A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433473   (1036826) от 24.01.2021
+
+Поцелуй смерти / Kiss of Death (1995) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшему заключенному Джимми Килмартину не позавидуешь. После того, как он вышел из тюрьмы на свободу, полицейские, не оставив выбора, решили использовать его в качестве «стукача», внедрив в одну из криминальных группировок Нью - Йорка.
+Джимми придется лавировать между амбициями честолюбивого прокурора, рвущегося любыми способами усадить гангстеров за решетку, и смертельными (   Читать дальше...   )Производство: США / 20th Century FoxЖанр: Боевик, Триллер, КриминалРежиссер: Барбет ШрёдерАктеры: Дэвид Карузо, Сэмюэл Л. Джексон, Николас Кейдж, Хелен Хант, Кэтрин Эрбе, Стэнли Туччи, Майкл Рапапорт, Винг Реймз, Филип Бейкер Холл, Энтони ХилдПеревод: Многоголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631D3254C1C15917573D1E1AB8F373BCF263929F
 ```
 
 https://mybot314.ru/tekegram_catalog/

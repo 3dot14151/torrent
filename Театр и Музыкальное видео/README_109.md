@@ -1,108 +1,3 @@
-###  Публикация: 1080534   (280417) от 11.12.2016
-
-Джузеппе Верди - Травиата / Giuseppe Verdi - La Traviata (1973) DVDRip [IT]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Одно из лучших видео Травиаты. Таковым его делают 3 исполнителя. Рената Скотто обладает, перефразируя, огромным красивым голосом, ее Травиата одна из лучших даже среди аудио записей, количество великих среди которых делает еще более ценным ее исполнение. Хосе Каррерас делает Альфредо нежным и трепетным влюбленным и отлично справляется со всеми трудностями партируры (   Читать дальше...   )Производство: Япония, Германия, VAI, NHKЖанр: Фильм-опера, драма, экранизацияАктеры: Рената Скотто, Хосе Каррерас, Сесто Брускантини, Анна ди СтазиоПеревод: Не требуетсяСубтитры: Русские (отдельным файлом), японские (не отключаемые)Продолжительность: 02:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EC059AAA7596241951534B22A163AA10DC47EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210631   (280337) от 06.11.2019
-
-Кто-то должен (1984) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По одноименной повести Даниила Гранина. Об ученых, о моральном выборе. Проблемы у Даниила Гранина поставлены очень остро - о правде и неправде, о приспособленчестве, которое поощряется, о том, как трудно отстоять что-то настоящее в науке. История эта произошла с инженером Константином Селяниным, который пытается дать путевку в жизнь своему изобретению в области электротехники. (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программЖанр: ДрамаРежиссер: Никита ТягуновАктеры: Георгий Бурков, Вера Глаголева, Родион Нахапетов, Даниил ГранинСубтитры: отсутствуютПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF57BDDDC84C7904D3D825E647EC1DE4C8EC5F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705308   (280180) от 06.11.2019
-
-Уильям Шекспир - Сэр Джон Фальстаф (Виндзорские Насмешницы) (1973) TVRip (2 части)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По мотивам комедии У. Шекспира "Виндзорские Насмешницы" и опере Дж. Верди "Фальстаф".
-Сэр Джон Фальстаф, развеселый пьяница, обжора и ловелас, становится жертвой трех предприимчивых леди - миссис Форд, миссис Пейдж и миссис Куикли. Решив приударить за прекрасным полом, Фальстаф оказывается втянутым в клубок остроумных розыгрышей, неожиданных событий (   Читать дальше...   )Жанр: Фильм-спектакль, комедия, костюмированный, 16 векРежиссер: Наталья БаранцеваАктеры: Михаил Жаров, Микаэла Дроздовская, Татьяна Брагина, Виктория Духина, Вячеслав Дугин, Гарри Дунц, Алексей Кузнецов, Александр Граве, Николай ПажитновПродолжительность: 00:58:21 + 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929FFAB1E793D9B31E656624B1D70CD69C2DD5AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080529   (280025) от 11.12.2016
-
-Пётр Чайковский - Лебединое озеро (2015) HDTVRip [H.264/720p] (Большой театр)
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Балет «Лебединое озеро» на музыку Петра Ильича Чайковского имеет свою уникальную историю в Большом театре. Премьера балета состоялась на сцене Большого в 1877 году. В феврале того года под руководством Владимира Бегичева было написано либретто на музыку Петра Чайковского, а хореографической постановкой балета занялся Варцлав Рейзингер. На удивление, премьера «Лебединого (   Читать дальше...   )Производство: Россия, Большой театрЖанр: БалетРежиссер: Юрий ГригоровичАктеры: Светлана Захарова, Денис Родькин, Артемий Беляков, Игорь Цвирко, Екатерина Барыкина, Алексей Лопаревич, Кристина Кретова, Елизавета Крутелева, Александр Фадеечев, Ангелина Карпова, Анна Ребецкая, Анна Тихомирова, Дарья Хохлова, Ольга Марченкова, Ана Туразашвили, Анна Воронкова, Юлия Лунькина, Светлана ПавловаПродолжительность: 02:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60151CF3F8811FEAD762A3A471070ED21E8238E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084970   (279972) от 06.11.2019
 
 Трамвай «Желание» / A Streetcar Named Desire (2014) HDTV [H.264 / 1080p] [EN]
@@ -111,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279972.jpg" />
 </div>
 
 
@@ -137,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278700.jpg" />
 </div>
 
 
@@ -164,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278630.jpg" />
 </div>
 
 
@@ -190,7 +85,7 @@ Hymn: Sarah Brightman in Concert (2018) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278582.jpg" />
 </div>
 
 
@@ -217,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278470.jpg" />
 </div>
 
 
@@ -246,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278171.jpg" />
 </div>
 
 
@@ -276,7 +171,7 @@ Thunder - Flawed to Perfection: the Video Collection 1990-1995 (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277070.jpg" />
 </div>
 
 
@@ -305,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277058.jpg" />
 </div>
 
 
@@ -331,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276954.jpg" />
 </div>
 
 
@@ -358,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276901.jpg" />
 </div>
 
 
@@ -387,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276877.jpg" />
 </div>
 
 
@@ -416,7 +311,7 @@ Beyonce - I Am... World Tour (2010) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275839.jpg" />
 </div>
 
 
@@ -442,7 +337,7 @@ Muse - Rock Am Ring 2010 (2010) [720p] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275675.jpg" />
 </div>
 
 
@@ -468,7 +363,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) BDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275668.jpg" />
 </div>
 
 
@@ -494,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275429.jpg" />
 </div>
 
 
@@ -523,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274655.jpg" />
 </div>
 
 
@@ -549,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274590.jpg" />
 </div>
 
 
@@ -578,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274475.jpg" />
 </div>
 
 
@@ -605,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274471.jpg" />
 </div>
 
 
@@ -632,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274435.jpg" />
 </div>
 
 
@@ -659,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274334.jpg" />
 </div>
 
 
@@ -687,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274297.jpg" />
 </div>
 
 
@@ -698,6 +593,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DF8EF90581F814F2030546DDC1AE0CA1076F551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265260   (274061) от 28.11.2018
+
+Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления американской хэви-метал-группы Alcatrazz в зале Nakano Sun Plaza (Токио) 28 января 1984г.01. Opening
+02. Too Young To Die, Too Drunk To Live
+03. Hiroshima Mon Amour
+04. Night Games(   Читать дальше...   )Производство: Ward RecordsЖанр: Hard rock, Neoclassical metalРежиссер: Ward RecordsАктеры: AlcatrazzСубтитры: отсутствуютПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320ED10B6BAA930DEEF3186497825ED5F0765673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337631   (273536) от 11.11.2019
+
+Большой юбилейный концерт Александры Пахмутовой (2019) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь вечер на сцене Большого театра – Александра Пахмутова, поздравить композитора выйдут прославленные спортсмены: Вячеслав Фетисов, Лариса Латынина, Иван Едешко, Елена Чайковская, Владислав Третьяк, Аделина Сотникова, а также артисты самых разных жанров, среди которых Денис Мацуев и Лев Лещенко, Александр Градский и Тамара Гвердцители, Сергей Полунин и Хибла Герзмава, (   Читать дальше...   )Производство: РоссияЖанр: концертСубтитры: отсутствуютПродолжительность: 02:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE42D571DCD61CFD0B21401A30EC36996765BA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083151   (273486) от 16.12.2016
+
+Группа «Лицей» выступление на Авторадио (12.12.2016) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настя Макаревич & группа «Лицей» в гостях у "Шоу Мурзилки LIVE" на АВТОРАДИО с живым концертом. Песни, а так же интервью. Состав группы "Лицей": Анастасия Березовская, Анастасия Макаревич, София Тайх.1. Фотография
+2. Рыжий пёс
+3. След на воде
+4. Осень(   Читать дальше...   )Производство: АвторадиоЖанр: КонцертПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81B4823769C70D0F94807918F80538C8AFD4FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189228   (273465) от 11.11.2019
+
+Фёдор Достоевский - Варвар и Еретик (Игрок) (2005) TVRip (Ленком)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наравне с землей, водой, воздухом и огнем - деньги суть пятая стихия, с которой человеку чаще всего приходится считаться. В этом одна из многих -возможно, даже главная- причина того, что сегодня, через сто лет после смерти Достоевского, произведения его сохраняют свою актуальность. Сценография монументальна. Александр Абдулов и Инна Чурикова демонстрируют высочайшее (   Читать дальше...   )Производство: Россия, Московский театр Ленинского комсомола, ГТРК "Культура"Жанр: Драма, спектакльРежиссер: Марк ЗахаровАктеры: Александр Абдулов, Александра Захарова, Инна Чурикова, Леонид Броневой, Мария Миронова мл., Юрий Колычев, Данила Соломатин, Полина Воропаева, Виктор Речман, Владимир Володин, Александра Дорохина, Андрей Соколов, Сергей Чонишвили, Людмила Зорина, Сергей АлександровСубтитры: отсутствуютПродолжительность: 02:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A66B775B15FCBD01585EC4C6FCA6EA26B22394
 ```
 
 https://mybot314.ru/tekegram_catalog/

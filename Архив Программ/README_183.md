@@ -6,7 +6,7 @@ GPU-Z 2.29.0 + ASUS_ROG RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985949.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YoWindow Unlimited Edition 3S Build 137 Final Portable by SamDel [Мульти /
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985925.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ZW3D 2020 v.24.0.0.0 x86/x64 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985872.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985862.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SUMo Pro 4.2.6.299 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985855.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Java SE Runtime Environment 7.0 Update 13 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985843.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Comodo IceDragon 18.0.3.1 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985840.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ UltraDefrag 6.0.0 RC2 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985836.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ZWCAD 2020 SP1 v.20.11.1005(2019.11.06) 51422 x64 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985782.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MAGIX Vegas Pro 17.0 Build 387 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985777.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AOMEI Partition Assistant 8.6 Pro | Server | Technician | Unlimited Edition RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985772.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Free Desktop Clock 2.4 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985746.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985660.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft .NET Framework 1.1 - 4.8 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985646.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Windows 7 Manager 4.2.1 Portable by DiZel [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985645.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Internet Download Manager 6.15 Final [Rus/Eng] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985640.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Scanitto Pro 2.15.26.243 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985638.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Windows Repair (All In One) 1.9.7 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985631.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Zortam Mp3 Media Studio Pro 14.80 [Eng + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985630.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Paint.NET 4.0.8 Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985558.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ HostsPatrol 0.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985542.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Loaris Trojan Remover v.1.1.9.9.0 / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985508.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ SkypeContactsView 1.05 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985468.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Driver Genius 12.0.0.1211 DataCode 01.02.2013 Portable by SV [Мульти / Р�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985459.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ SoftMaker Office 2010 build 569[Русский(Multilanguage)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_985382.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ CyberLink PhotoDirector 3.0.3618 Deluxe-OEM [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985281.jpg" />
 </div>
 
 

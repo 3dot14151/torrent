@@ -1,30 +1,3 @@
-###  Публикация: 1136519   (551702) от 18.06.2019
-
-Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на новый Дикий Запад.
-Этот шутер переносит беззаконие Дикого Запада в наши дни. Вы отправляетесь в кровавое путешествие из Лос-Анджелеса в Хуарес — Мексику окутает запутанный сюжет с интересными персонажами и самыми разнообразными вариантами игрового процесса. Почувствуйте беззаконие современного Дикого Запада, выслеживая картель Мендозы в мире, (   Читать дальше...   )Тип издания: RipРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B5D17F2AF0188ECD301BF68591B7B43F530720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309455   (550845) от 19.06.2019
 
 Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episodes 1-2]
@@ -33,7 +6,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episodes 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550845.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Klocki (2016) [Ru] (1.5) Repack WetGrapesStudio
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550737.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Clandestine (2014) [En] (1.0.6.1) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550728.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Parvaneh: Legacy of the Light's Guardians (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550725.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ My Sunny Resort (2015) [Ru/Multi] (27.07.2016) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550719.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Ocean City Racing: Redux (2016) [En] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550714.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Zombie Night Terror (2016) [Ru/Multi] (1.0/upd3/dlc) Repack Other [Special Editi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550707.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ The Unseen Fears 4: Stories Untold (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550237.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ SteamWorld Quest: Hand of Gilgamech (2019) [Ru/Multi] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550003.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Sky To Fly: Faster Than Wind (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549831.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Zombasite (2016) [En] (1.000) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549823.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549795.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Existentia (2016) [Ru/Multi] (1.0.3) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549789.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Gravilon (2015) [En] (1.8) Repack WetGrapesStudio
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549018.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548982.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Bear With Me (2016) [Ru/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548974.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ Assault Suit Leynos (2016) [En/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548923.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ SCP 087. Re (2016) [En] (1.0 Remake) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548908.jpg" />
 </div>
 
 
@@ -502,7 +475,7 @@ Tales Of Terror 4: Art Of Horror / Трепетные истории: Искус
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548713.jpg" />
 </div>
 
 
@@ -528,7 +501,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.55.47) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548711.jpg" />
 </div>
 
 
@@ -554,7 +527,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (1.2.2.55.80) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548634.jpg" />
 </div>
 
 
@@ -580,7 +553,7 @@ Blamdown: Udder Fury (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548032.jpg" />
 </div>
 
 
@@ -606,7 +579,7 @@ Bear With Me (2016) [Ru/Multi] (5.2.2.22320) Repack Dok2 [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548008.jpg" />
 </div>
 
 
@@ -632,7 +605,7 @@ The Final Station (2016) [Ru/Multi] (1.2) Repack MasterDarkness
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547980.jpg" />
 </div>
 
 
@@ -658,7 +631,7 @@ Super Bomberman R (2018) [Ru/Multi] (1.1) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547822.jpg" />
 </div>
 
 
@@ -669,6 +642,32 @@ Super Bomberman R (2018) [Ru/Multi] (1.1) License SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70BABA594DBB1AB2CB7D425F55B2CD4F048B741F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238245   (547756) от 28.07.2018
+
+Mega Man X Legacy Collection (2018) [Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mega Man X возвращается! Вы Мегамен Икс, преемник робота Мегамена, который сражается с опасными боссами Мавериками и становится сильнее с каждой победой. В комплект входят легендарные 16-битные игры и первые представители эпохи 32 бит: Mega Man X, X2, X3 и X4.Тип издания: LicenseРазработчик: CapcomЖанр: Action, 3D, ArcadeЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английски, Немецкий и другиеЯзык интерфейса: Английски, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDB3118821C51205770EA2F7727DFF217166024
 ```
 
 https://mybot314.ru/tekegram_catalog/

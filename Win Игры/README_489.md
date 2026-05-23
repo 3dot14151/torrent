@@ -1,29 +1,3 @@
-###  Публикация: 1764229   (34993) от 06.12.2024
-
-inbento (2019) [Ru/Multi] (2.51) License GOG
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Очаровательная игра, сочетающая в себе все три составляющие. В этой игре вам нужно разложить различные закуски в коробки для бенто, следуя рецептам, показанным на экране. Игра проста в освоении, но сложна в освоении, поскольку вам придется использовать логику и творческий подход, чтобы расставить еду в нужных местах. В игре более 120 уровней, каждый из которых отличается (   Читать дальше...   )Тип издания: LicenseРазработчик: AfterburnЖанр: Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8966ADD524F703BE31244C29B279DBB37192E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740891   (34988) от 07.12.2024
 
 B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Early Access]
@@ -32,7 +6,7 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34988.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Thing: Remastered (2024) [Multi] (1.0) Scene Skidrow
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34987.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Lords of the Fallen (2023) [Multi] (1.6.49/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34976.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34974.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack seleZen [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34968.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34958.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34950.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34949.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34934.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ World War Z (2019) [Ru/Multi] (2.36/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34931.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34916.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34912.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34888.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Railbound (2022) [Multi] (3.06) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34879.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34878.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34873.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34851.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34840.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ CONSCRIPT (2024) [Ru/Multi] (1.0.1.2/dlc) Repack Let'sРlay [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34838.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Let'sРlay [Complete 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34837.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34826.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34817.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Chasm (2018) [Multi] (1.093) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34762.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Sun Haven (2023) [Ru/Multi] (1.7.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34758.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Primateria (2023) [Multi] (2.17.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34749.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Primateria - это карточный рогалик с многогранно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA1FC48219EE410B78D63718B5A0A5CE58DD19EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764891   (34680) от 09.12.2024
+
+Strange Investigations 4: Truth Will Out / Удивительные расследования 4: Тайное становится явным (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступления на почве страсти и предательства оказываются в центре внимания, когда Кевин Вудс, требовательный владелец сети ночных клубов Rainville Shine, нанимает детективное агентство Strange Investigations для расследования похищения своей жены. Но вскоре становится ясно, что происходит нечто большее, чем простая попытка получить выкуп. Чем больше Дана погружается (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21457761FCF322083EFDC31DCF7850497AEE14FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

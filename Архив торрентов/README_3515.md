@@ -6,7 +6,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 эп.] BDRip 1080p raw+r
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269908.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Dash 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269891.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ EdgeView 2 v2.831 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269886.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Affinity Publisher Beta 1.8.0.502 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269880.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Valentina Studio Pro 9.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269877.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - House Vip [25.12.2010] (2010) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269842.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Opera GX 63.0.3368.58152 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269815.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Cockos - REAPER 5.985 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269810.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Privacy Eraser Free 4.56.3 Build 3298 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269802.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269790.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows 10 x64 Release by StartSoft 39-2018 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269777.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Barbie In A Christmas Carol (2008) [MP3|128 kbps]<Soundtrack>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269776.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Opera 65.0.3467.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269713.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Carbon Copy Cloner 5 v5.1.14 (build 5863) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269711.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Adobe Bridge 2020 10.0.0.124 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269691.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Internet Download Manager 6.35 Build 11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269688.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Brian Tyler, VA - Charlie's Angels / Ангелы Чарли (Original Score + O
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269686.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ IObit Smart Defrag Pro 6.4.0.256 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269661.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Microsoft Visual Studio 2019 Enterprise 16.3.7 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269657.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ BBC. Мир природы. Королева морских дьяволов / T
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269656.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269655.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ K-Lite Codec Pack 15.2.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269652.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Viber 11.9.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269644.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ W10Privacy 3.3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269642.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Apowersoft Screen Capture Pro 1.4.8.3 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269637.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269623.jpg" />
 </div>
 
 

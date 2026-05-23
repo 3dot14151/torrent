@@ -6,7 +6,7 @@ Brymir - Slayer of Gods (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729761.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Woe Unto Me - Spiral-Shaped Hopewreck (2021) EP [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729026.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Eternity's End - The Fire Within (2016) Japanese EdItion [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729003.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Withem - The Unforgiving Road (2016) Japanese EdItion [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729000.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Iron Savior - Titancraft (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728994.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ A Pale Horse Named Death - When The World Becomes Undone (2019) [FLAC|Lossless|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728959.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Aes Dana - La Chasse Sauvage (2001) [FLAC|Lossless|image + .cue] <Celtic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728873.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Amorphis - Halo (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728696.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Order From Chaos - Dawn Bringer (1995) [FLAC|Lossless|image + .cue] <Black, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726647.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Disavowed & Nocturnal Silence - Plateau (1998) [FLAC|Lossless|tracks + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726580.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Internal Bleeding - Onward To Mecca (2004) [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726579.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Elffor - Dra Sad (2017) [FLAC|Lossless|image + .cue] <Medieval Ambient, Dungeon 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726560.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Perverted Dexterity - Spiritual Awakening (2017) [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726416.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bloodhammer - Post-Apocalypse Trilogy (2006) [APE|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725294.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ S-Tool - 2 Albums (2017-2020) [FLAC|Lossless|image + .cue] <Groove Metal, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725211.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Septic Flesh - Sumerian Daemons (2003) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725210.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Volbeat - The Strength / The Sound / The Songs (2005) [APE|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724831.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Metal For The Masses 666 (2007) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724651.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Death Angel - The Evil Divide (2016) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724546.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Forbidden - Twisted Into Form (1990) Japan [FLAC|Lossless]<Thrash metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_724448.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Gorefest - Soul Survivor (1996) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_723898.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Alcyona - Trailblazer (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723294.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Skyclad - Oui Avant-garde A Chance (1996) [FLAC|Lossless|image + .cue] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723165.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Septicflesh - Communion (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723158.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Rammstein - 5 Albums (1997-2009) Japanese Edition, 6 CD [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722839.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Imagika - Worship (1998) [FLAC|Lossless|image + .cue] <Power, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722720.jpg" />
 </div>
 
 

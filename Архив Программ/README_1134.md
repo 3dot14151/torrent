@@ -6,7 +6,7 @@ Reg Organizer 7.52 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Theme Windows7  Perfect 7 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FlashBoot 2.1s + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468688.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slimjet 5.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468674.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 18.08.19 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468624.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIMP 4.11 Build 1839 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468564.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zemana AntiLogger 2.50.204.92 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468561.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Nik Software Complete Collection 2012 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468554.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Red Giant: Keying Suite 11.0.1 64-bit CS5.5/CS6 Compatible (Win 32/64) 11.0.1 [�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468551.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ SAM Broadcaster 4.9.7 Pro [Только Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468549.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Autodesk AutoCAD 2013 LT SP1.1 x32 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468535.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Microsoft .NET Framework 4.5 Full Repack by gora [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468532.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Blender 2.76 rc1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468495.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ CCleaner 5.10.5373 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468493.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adobe components: Flash Player 19.0.0.185 + AIR 19.0.0.190 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468425.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CCleaner 5.10.5373 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468400.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Ashampoo Video Optimizer Pro 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468378.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ ABBYY FineReader 12.0.101.382 Professional Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468349.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Internet Download Manager 6.26 Build 7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468322.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ FixMouseLMB 1.0.4113.36184 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468314.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Android Studio 2.2.0.12 Build #AI-145.3276617 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468216.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ QTTabBar 1041 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468168.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Internet Download Manager 6.26 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468112.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Pamela for Skype Pro / Business 4.9.0.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468109.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Macrium Reflect v 7.2.5107 x64 Home [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468067.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Win10 All Settings 1.4.0.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468052.jpg" />
 </div>
 
 

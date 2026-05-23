@@ -1,57 +1,3 @@
-###  Публикация: 1047702   (548922) от 30.08.2016
-
-Первый мститель: Противостояние / Captain America: Civil War (2016) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мстители под руководством Капитана Америки оказываются участниками разрушительного инцидента, имеющего международный масштаб. Эти события заставляют правительство задуматься над тем, чтобы начать регулировать действия всех людей с особыми способностями, введя «Акт о регистрации супергероев», вынуждая их подчиняться ООН.
-
-Видя в этом договоре нарушение гражданских (   Читать дальше...   )Производство: США, Германия / Deluxe Digital Studios, Marvel Entertainment, Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Крис Эванс, Роберт Дауни мл., Скарлетт Йоханссон, Себастьян Стэн, Энтони Маки, Дон Чидл, Джереми Реннер, Чэдвик Боузмэн, Пол Беттани, Элизабет ОлсенПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 02:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A761A31B3A5C7F15927DD8BFD499706AC183AD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047220   (548913) от 30.08.2016
-
-Книга джунглей / The Jungle Book (2016) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Непримиримая борьба с опасным и страшным тигром Шерханом вынуждает Маугли покинуть волчью стаю и отправиться в деревню к людям. На пути мальчика ждут удивительные открытия и захватывающие приключения с пантерой Багирой, медведем Балу, питоном Каа и другими обитателями дремучих джунглей.Производство: Великобритания, США / Walt Disney PicturesЖанр: фэнтези, драма, приключения, семейныйРежиссер: Джон ФавроАктеры: Нил Сети, Билл Мюррэй, Бен Кингсли, Идрис Эльба, Лупита Нионго, Скарлетт Йоханссон, Джанкарло Эспозито, Кристофер Уокен, Гарри Шендлинг, Брайтон РоузПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C891026186D290BF9DCE049AE6D1B6D285C697DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047579   (548903) от 30.08.2016
 
 Первый мститель: Противостояние / Captain America: Civil War (2016) HDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548903.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548901.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548900.jpg" />
 </div>
 
 
@@ -142,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548895.jpg" />
 </div>
 
 
@@ -168,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548894.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548715.jpg" />
 </div>
 
 
@@ -220,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548710.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548626.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548623.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548487.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548412.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548391.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548386.jpg" />
 </div>
 
 
@@ -402,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548370.jpg" />
 </div>
 
 
@@ -428,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548369.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548311.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548309.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548302.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548281.jpg" />
 </div>
 
 
@@ -558,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548274.jpg" />
 </div>
 
 
@@ -584,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548215.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548106.jpg" />
 </div>
 
 
@@ -636,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548095.jpg" />
 </div>
 
 
@@ -663,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548073.jpg" />
 </div>
 
 
@@ -674,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B1C8DACEF99559E008C34A4311FE624FAF93FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047992   (548067) от 31.08.2016
+
+Заклятие 2 / The Conjuring 2 (2016) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на случае, с которым столкнулись практикующие исследователи паранормальных явлений Эд и Лоррэйн Уоррены. На этот раз вызов будет из северного пригорода Лондона, где семья, состоящая из четырех детей и матери-одиночки, подвергается нападениям потусторонних сил. Супругам предстоит выяснить, какова природа этих явлений, полтергейст ли это, или что-то другое, (   Читать дальше...   )Производство: США, Канада / New Line Cinema, Evergreen Media, Atomic Monster, RatPac-Dune Entertainment, Safran Company, TheЖанр: Ужасы, Триллер, ДетективРежиссер: Джеймс ВанАктеры: Патрик Уилсон, Вера Фармига, Мэдисон Вульф, Фрэнсис О’Коннор, Лорен Эспозито, Бенжамин Хэй, Патрик МакОли, Саймон МакБерни, Мария Дойл Кеннеди, Саймон Делани, Франка Потенте, Боб Адриан, Робин Аткин Даунс, Бонни Ааронс, Хавьер Ботет, Стив Култер, Абхи Синха, Крис Ройдс, Стерлинг Джеринс, Энни ЯнгПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3794B69B9DEB00CF0197D08BB814196B4E88A6CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693721   (548058) от 27.08.2013
+
+Соблазнитель 2 / Kokowaah 2 (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри — в прошлом известный ловелас. Однако пришло время забыть о прежних привычках и стать прилежным семьянином. Дети, бывший муж Катарины, Тристан со своей привлекательной подружкой, молодая няня, истеричный директор студии — все они превращают жизнь Генри в череду смешных, порой неловких ситуаций. Как найти время на всех и в то же время побороть инстинкты, ведь (   Читать дальше...   )Производство: Германия - barefoot films, Béla Jarzyk Production, Warner Bros. Film Productions GermanyЖанр: Комедия, СемейныйРежиссер: Тиль Швайгер, Торстен КюнстлерАктеры: Тиль Швайгер, Эмма Швайгер, Самуэль Финци, Жасмин Герат, Маурицио Магно, Маттиас Швайгхефер, Михаэль Островский, Яна Рейнерманн, Гедеон Буркхард, Юлия ЙенчПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: HamsterStudioСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, немецкийПродолжительность: 02:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBF97A5E287EC2AA8ADEC1DBFCAFC277F056D30
 ```
 
 https://mybot314.ru/tekegram_catalog/

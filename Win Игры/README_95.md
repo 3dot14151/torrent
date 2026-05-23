@@ -1,29 +1,3 @@
-###  Публикация: 1493943   (891978) от 05.09.2021
-
-Olija (2021) [Ru/Multi] (2-1-2021) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Игра про путешествие Фарадея, потерпевшего кораблекрушение, которого вынесло на таинственные берега Террафагоса. С легендарным гарпуном в руках, он вместе с остальными выжившими пытается вернуться домой из этих опасных земель. Следуя сюжету и сражаясь в напряжённых битвах, игроку предстоит бесстрашно исследовать чуждый ему мир и познакомиться с его обитателями, среди (   Читать дальше...   )Тип издания: LicenseРазработчик: Skeleton Crew Studio, Thomas OlssonЖанр: Platformer, Action, Adventure, SlasherЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC6DBC18E3E3EB4F5F9C0E433A9840E81F9979B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102127   (891861) от 08.02.2017
 
 Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.07/dlc) SteamRip Let'sPlay
@@ -32,7 +6,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.07/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891861.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Danse Macabre: The Last Adagio / Танец Смерти: Последнее А�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891797.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Nowhere Prophet (2019) [Multi] (1.07.013) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891765.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891722.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Detectives United 3: Timeless Voyage / Лига детективов 3: Вечн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891592.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891444.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dance Magic (2016) [En] (1.0) License POSTMORTEM
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890747.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Her Story (2015) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890707.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Disgaea PC: Digital Dood Edition (2016) [En/Multi] (1.0.3) Repack АRMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890706.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Red Risk (2016) [En] (1.0) Repack Mr.Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890705.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Stonefly (2021) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890174.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Saints Row 2 (2009) [Ru/Multi] (1.2) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889808.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Wuppo (2016) [En] (1.2.8/dlc) License GOG [Definitive Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_889711.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Entropia Universe (2003) [En] (17.1.1) License
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889708.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889041.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Tom Clancy's The Division (2016) [Ru] (1.0) License
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888861.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Minit (2018) [Ru/Multi] (1.0.0.3) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888718.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Lithium: Inmate 39 (2016) [Ru/Multi] (1.3.1) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888657.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888617.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Stick It To The Man (2013) [Ru/En] (1.0u?) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888446.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887939.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Cannon Brawl (2014) [En] (1.261) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887391.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Call of Duty: Ghosts [Patch + Crack] (2015) (upd20/3.15.1.0.0.702660)
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887372.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Enter the Gungeon (2016) [Ru/Multi] (1.1.1h1/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886729.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Solus Project (2016) [Ru/Multi] (1.031) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886723.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Solus Project (2016) [Ru/Multi] (1.031) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C3C03F6658DF121A2E5B8F28DCB63C847DBCE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061861   (886719) от 11.02.2017
+
+Infested Planet (2014) [En] (1.10.9/dlc) License GOG
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infested Planet – стратегия, в которой игроку предстоит уничтожать огромные орды инопланетных противников, управляя отрядом элитных солдат. Будучи окруженным со всех сторон, задача игрока – перехитрить противника и получить преимущество над врагом. И даже после успешного завершения очередного боя не стоит расслабляться, так как пришельцы постоянно эволюционируют (   Читать дальше...   )Тип издания: LicenseРазработчик: Rocket Bear GamesЖанр: Strategy (Real-time), Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22CF897A775E5E1079D6A604A2935EF30440F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

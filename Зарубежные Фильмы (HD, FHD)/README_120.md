@@ -1,55 +1,3 @@
-###  Публикация: 592003   (1001863) от 11.01.2020
-
-Люди как мы / People Like Us (2012) Blu-ray [H.264/1080p] [CEE]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-История молодого бизнесмена, который должен доставить 150 000 долларов своей сестре-алкоголичке. Проблема в том, что герой со своей родственницей знаком не был и узнал о ее существовании только после смерти отца. Познакомившись с ней, он не сообщает о своем родстве, но вмешивается в жизнь сестры и ее 12-летнего сына.Производство: США, DreamWorks SKG, Kurtzman Orci Paper Products, Reliance Entertainment, Touchstone PicturesЖанр: ДрамаРежиссер: Алекс КуртцманАктеры: Крис Пайн, Элизабет Бэнкс, Мишель Пфайффер, Оливия Уайлд, Марк Дюпласс, Сара Морнелл, Филип Бейкер Холл, Дин Чеквала, Барбара Ив ХаррисПеревод: Профессиональный (многоголосый закадровый) -Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, испанский, португальский, китайский, тайский, вьетнамский, индонезийский, малайскийПродолжительность: 01:54:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351664   (1001859) от 11.01.2020
-
-Рэмбо IV / Rambo (2008) BDRip [H.265/1080p] [10-bit] [Tеатральная версия] [SWE Transfer] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вьетнамский ветеран Джон Рэмбо ведет уединенный образ жизни на окраине Бангкока. Уставший от борьбы и кровопролития, скрываясь от проблем, он селится в небольшом доме у реки и проводит дни, ремонтируя старые лодки и катера. Однако судьба вновь заставляет его взяться за оружие. Собрав отряд из пяти наемников, Рэмбо встает на защиту жителей тайской деревни и американских (   Читать дальше...   )Производство: Германия, США / Lionsgate, The Weinstein Company, Millennium FilmsЖанр: боевик, триллерРежиссер: Сильвестр СталлонеАктеры: Сильвестр Сталлоне, Джули Бенц, Мэттью Мэрсден, Грэм МакТавиш, Рейнальдо Гальегос, Джэйк Ла Ботц, Тим Кенг, Манг Манг Хим, Пол Шульц, Камерон ПирсонПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 01:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1D18183E3BDDA908288A9A7F45B0F842971627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351667   (1001857) от 11.01.2020
 
 Универсальный солдат / Universal Soldier (1992) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001857.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001847.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001841.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001815.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001732.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001729.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001703.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001665.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001657.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001632.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001543.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001525.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001524.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001522.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001519.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001505.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001492.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001489.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001414.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001405.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001394.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001393.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001390.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001381.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C024385941CD98E518335BDF9CA3B2F00A4B587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486367   (1001376) от 13.08.2021
+
+Капкан / Crawl (2019) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001376.jpg" />
+</div>
+
+
+###  Подробнее
+
+У пловчихи Хэйли день не задался: сначала она проиграла заплыв, уступив доли секунды, а затем на Флориду обрушивается ураган 5-й категории. Но что ещё хуже, отец не выходит на связь, поэтому Хэйли отправляется в уже эвакуированную зону и находит его тяжелораненым и без сознания в подвале их старого дома. Пытаясь вытащить отца из сырого подвального помещения, девушка (   Читать дальше...   )Производство: США, Сербия, Канада / Paramount Pictures, Raimi ProductionsЖанр: ужасы, боевик, триллер, драмаРежиссер: Александр АжаАктеры: Кая Скоделарио, Бэрри Пеппер, Морфидд Кларк, Росс Андерсон, Хосе Пальма, Джордж Сомнер, Энсон Бун, Эми Меткалф, Тина Прибичевич, Срна ВасильевичПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 01:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08CB1F8C712C09297F9958FEBE05F2E8969897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488805   (1001362) от 13.08.2021
+
+Тихое место 2 / A Quiet Place Part II (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001362.jpg" />
+</div>
+
+
+###  Подробнее
+
+474 дня прошло после нападения на Землю охотящихся на звук существ, семья Эбботт продолжает бороться за жизнь в полной тишине. Столкнувшись со смертельной угрозой в собственном доме, они вынуждены отправиться во внешний мир, где находят убежище и старого знакомого семьи. Поймав радиосигнал, Реган вычисляет место предполагаемой колонии выживших и решает во что бы (   Читать дальше...   )Производство: США / Buffalo FilmWorks, Paramount Pictures, Platinum Dunes, Sunday Night ProductionsЖанр: ужасы, фантастика, драмаРежиссер: Джон КрасинскиАктеры: Эмили Блант, Миллисент Симмондс, Киллиан Мёрфи, Ноа Джуп, Джон Красински, Джимон Хонсу, Окьерете Онаодован, Скут МакНэри, Захари Голингер, Блейк ДеЛонгПеревод: Дублированный (Лицензия)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, SDH)Продолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4233EE50FAB1EB0F3FDEC18BD079E153489CDC93
 ```
 
 https://mybot314.ru/tekegram_catalog/

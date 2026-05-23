@@ -1,32 +1,3 @@
-###  Публикация: 1003842   (841848) от 04.04.2016
-
-VA - Trance Desire Volume 65 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Progressive Mix) (05:57)
-02. Dimension feat. Cat Martin - Memories (05:26)
-03. Lence & Pluton - Native Home (05:40)
-04. Hazem Beltagui feat. Charlotte Haining - Of What We Once Had (Vocal Mix) (06:56)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A96312369D2260515E95AB005910F769706622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003845   (841689) от 04.04.2016
 
 VA - 100 Пудовый Auto hit 1 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
@@ -35,7 +6,7 @@ VA - 100 Пудовый Auto hit 1 (2016) [MP3|256-320 кб/с] <Поп, Тан�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841689.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Tropical Fantasy Reggae Mix April (2016) [MP3|320 кб/с] <Reggae, Jungle>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841378.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Relax Piano Music: Instrumental Collection (2017) [MP3|320 Kbps] <Downtempo
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841235.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841222.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Within Temptation - Angel A Best Of (2016) Compilation [MP3|320 кб/с] <Gothic
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841170.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - не Громкие новинки недели 65 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840977.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840949.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840913.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ Bonfire - 100% Bonfire (2020) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840746.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840700.jpg" />
 </div>
 
 
@@ -319,7 +290,7 @@ VA - Как Это Было. Популярные Хиты 80-Х 90-Х. Выпу
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840659.jpg" />
 </div>
 
 
@@ -345,7 +316,7 @@ VA - Progressive Beats 008 (2016) [MP3|320 кб/с] <Trance, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840312.jpg" />
 </div>
 
 
@@ -374,7 +345,7 @@ VA - Deep Love Session (Mixed By Mark Bonk) (2016) [MP3|320 кб/с] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840311.jpg" />
 </div>
 
 
@@ -403,7 +374,7 @@ VA - Lobby Bar Lounge Vol.2: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840305.jpg" />
 </div>
 
 
@@ -432,7 +403,7 @@ VA - На волне позитива. Сборник № 4 (2017) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840210.jpg" />
 </div>
 
 
@@ -461,7 +432,7 @@ VA - Положительный заряд от Хит FM выпуск № 2 (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840208.jpg" />
 </div>
 
 
@@ -490,7 +461,7 @@ VA - Luxemusic Dance Super Chart Vol.62 (2016) [MP3|320 кб/с] <House,  Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840206.jpg" />
 </div>
 
 
@@ -519,7 +490,7 @@ VA - Отдыхаем душой на Шансоне. Часть № 5 (2017) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840203.jpg" />
 </div>
 
 
@@ -548,7 +519,7 @@ VA - Весенний Прорыв Шансона (2016) [MP3|256 кб/с] <Shan
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840198.jpg" />
 </div>
 
 
@@ -577,7 +548,7 @@ VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840121.jpg" />
 </div>
 
 
@@ -606,7 +577,7 @@ VA - Вечеринка в стиле радио Шансон. Часть № 4 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840120.jpg" />
 </div>
 
 
@@ -635,7 +606,7 @@ VA - Лучшая дискотека от Европы Плюс выпуск №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840119.jpg" />
 </div>
 
 
@@ -664,7 +635,7 @@ VA - Ресторан Кураж для друзей. Выпуск № 7 (2017) 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840116.jpg" />
 </div>
 
 
@@ -693,7 +664,7 @@ VA - Любимые песни шансона (2017) [MP3|256 Kbps] <Шансо�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840115.jpg" />
 </div>
 
 
@@ -722,7 +693,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840113.jpg" />
 </div>
 
 
@@ -736,6 +707,35 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA6E932CBD065E9948099B73C87A7491009C506B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003876   (840097) от 05.04.2016
+
+VA - Megahits Best Of (2016) [MP3|320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cara - Down for Whatever 03:54
+02 Party Bombers - We Found Love 03:34
+03 George Powers, Party Bombers - Give Your Heart a Break 03:25
+04 George Powers - Party in the USA 03:23(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 03:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7061961F7B48853FDB397610880D054DB0EA750B
 ```
 
 https://mybot314.ru/tekegram_catalog/

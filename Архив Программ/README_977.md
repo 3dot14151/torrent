@@ -6,7 +6,7 @@ Cent Browser 4.0.9.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555642.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AMD Radeon Software Adrenalin 2019 Edition 19.5.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555639.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniTool Partition Wizard Technician 11.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555635.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Dreamweaver 2019 19.2.0.11274 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555634.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BlueStacks Tweaker 5.13.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555624.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ BlueStacks App Player 4.90.0.1046 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555608.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VueScan Pro 9.6.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555549.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Opera 60.0.3255.151 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555546.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ SamDrivers 19.5.1 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555544.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Download Master 6.17.4.1625 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555540.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ TechSmith SnagIt 2019.1.2 Build 3596 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555523.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Bridge 2019 9.1.0.338 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555513.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ uTorrent 3.5.5 Build 45271 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555510.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555482.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Overloud - TH-U Complete 1.0.13 STANDALONE, VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555457.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Advanced Installer 16.0 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555445.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Caramba Switcher + Corporate + Lab 2019.06.06 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555441.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Windows 10 (v1809) x64 HSL/PRO by KulHunter v21 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555403.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Windows 10 (v1809) x64 LTSC by KulHunter v21 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555400.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dolby Atmos 3.20402.414.0 x64 (06.05.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555399.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ CCleaner 5.58.7209 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555396.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ TeamViewer Free 14.3.4730 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555390.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mozilla Firefox Quantum 67.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555366.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Master PDF Editor 5.4.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555349.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Ashampoo WinOptimizer 17.00.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555342.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ iZotope - Neutron Advanced 3.0.0.3342 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555341.jpg" />
 </div>
 
 

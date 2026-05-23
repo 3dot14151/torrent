@@ -6,7 +6,7 @@ VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Down
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584461.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583895.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - The Best Of LoungeLegends (7CD) (2013) [MP3|192-320 кб/с]<Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583894.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Smooth Romance: Love Notes by the Piano (2016) [MP3|320 Kbps] <Downtempo, C
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581465.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - I Like An Indian (Indian Heart) (2016) [MP3|256-320 Kbps] <Native american,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580422.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - Музыкотерапия. Повышение потенции (2011) [MP3
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579555.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Green Area: Beauty Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576039.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Mystic Adventures: Balearic Downtempo (2016) [MP3|320 кб/с] <Downtempo, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574154.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Paul Sills - Awake and Dreaming (2015) [MP3|320 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573737.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Oceanic Chill Out 30 Great Chill Out Selection (2015) [MP3|320 кб/с]<Dow
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573705.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Chill Out Instrumental Hits (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573694.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - One Day Meditation (2016) [MP3|320 Kbps] <Interlude, Acoustic, Ambient, Lou
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572676.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Shaman's dream 3+ (2015) [MP3|320 кб/с]<Native American, World, Ethnic F
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571686.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Rautalanka Paraati 1 - 4 (2003 - 2007) [MP3|224 - 320 Kbps] <Instrumental, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570640.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - The Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566974.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Emerald Island: Chillout Area (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563284.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Paul Mauriat - Grand Orchestra (Gold Collection) (2011) [MP3|320 кб/с]<Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560227.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Night Piano and Sweet Classical Moments (2016) [MP3|320 Kbps] <Lounge, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559447.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Piano Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557943.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Ambient Lounge Lyric (2016) [MP3|320 Kbps] <Chillout, Lounge, Ambient Lyric
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557730.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Super Yoga Meditation and Relax (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550890.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - I Like An Indian 3 ( Native Soul) (2016) [MP3|320 Kbps] <Native American, E
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550799.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - The Most Relaxing Guitar Album In The World...Ever! (2005) [MP3|320 кб/с
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540302.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Chill Acoustic Covers 2 (2015) [MP3|320 кб/с]<Acoustic, Chillout, Lounge
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540259.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Otta-Orchestra - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533471.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532745.jpg" />
 </div>
 
 

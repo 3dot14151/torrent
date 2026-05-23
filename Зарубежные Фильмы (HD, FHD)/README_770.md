@@ -1,56 +1,3 @@
-###  Публикация: 494461   (249234) от 09.05.2012
-
-Пожиратели / Intruders (2011) [1080p] Blu-ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В Мадриде 8-летний мальчик Хуан рассказывает родителям жуткие истории. Его мать, Луиза, предполагает, что богатое воображение отрока, подпитанное яркими и реалистичными ночными кошмарами являются основной причиной нарушения сна и психического надлома ребенка. Однако Хуан продолжает настаивать на том, что жуткие существа вовсе не плод его больного воображения.
-В то (   Читать дальше...   )Производство: США, Великобритания, ИспанияЖанр: Ужасы, ТриллерАктеры: Клайв Оуэн, Кэрис Ван Хаутен, Даниэль Брюль, Керри Фокс, Элла Пурнелла, Лолита Чакрабарти, Пилар Лопес де Айяла, Марк Уингетт, Эктор Альтерио, Адам ЛизПеревод: ДубляжСубтитры: (PGS): Английский, Чешский, Венгерский, Польский, Португальский, Румынский, Русский, Испанский, Тайский, ТурецкийПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493881   (249221) от 09.05.2012
-
-Спросите Синди / Good Advice (2001) [720p] HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Попав в переплет, биржевой маклер Райан Тернер остался без гроша в кармане, без работы, квартиры, любовницы и девушки. Но Тернер не привык сдаваться!  Он хочет взять реванш и начинает писать в женской газетной колонке «Спросите Синди» от имени сбежавшей подружки. И быстро понимает, что на большинство вопросов просто не способен ответить. Ему приходится включить всю (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, комедияПеревод: Многоголосый закадровыйСубтитры: русские, английскиеПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493751   (248985) от 08.05.2012
 
 Красный Дракон / Red Dragon (2002) [1080p] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248985.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248953.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248894.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248679.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248661.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248528.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248523.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248522.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248250.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248079.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248070.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_247962.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247867.jpg" />
 </div>
 
 
@@ -403,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247804.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247803.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247801.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247800.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247797.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247793.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247792.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247777.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247743.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247728.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247724.jpg" />
 </div>
 
 
@@ -675,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17FB8519AC46CB23DFDF12BBAC24ADF70C1EADE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638468   (247718) от 08.06.2023
+
+Последняя сделка / The Last Deal (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство собирается легализовать продажу конопли, и тогда у наркоторговца созревает план, как урвать последний куш…Производство: США, Bohemia Group Originals, L.A.N.E. 38Жанр: Триллер, криминалРежиссер: Джонатан СалемиАктеры: Сала Бэйкер, Gigi Gustin, Энтони Молинари, Кенни Джонстон, Одра Ван Хиис, Коннер Флойд, Майк Фергюсон, Addison Bowman, Линда Бурзински, София МассонПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867EB94271043FF545F465EDD08B10577A1138E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622810   (247707) от 08.06.2023
+
+Шанхайский полдень + Шанхайские Рыцари / Shanghai Noon + Shanghai Knights (2000, 2003)  2*Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247707.jpg" />
+</div>
+
+
+###  Подробнее
+
+После приручения Дикого Запада в комедии «Шанхайский полдень», Чон Ванг и Рой О`Баннон - опять в седле, но на сей раз совсем в другом месте - они оказались в цивилизованном Лондоне в продолжении этого фильма, «Шанхайских Рыцарях».
+Когда китайский предатель убивает отца Чона и убегает в Англию, Чон и Рой отправляются за ним в Лондон с планами мести. Сестра Чона, Лин, (   Читать дальше...   )Производство: Touchstone Pictures ,  Spyglass Entertainment ,  Birnbaum / Barber Productions (США, Гонконг)Жанр: боевик, комедия, приключенияРежиссер: Дэвид ДобкинАктеры: Джеки Чан, Оуэн Уилсон, Донни Ен, Эйден Гиллен, Аарон Тейлор-Джонсон, Том Фишер, Фэнн Вонг, Оливер Коттон, Элисон Кинг, Константин ГрегориПеревод: Русский (2 шт.) и украинский закадровый многоголосый, русский одноголосыйСубтитры: (PGS): РусскиеПродолжительность: 01:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3810DA8BEDCCDD46353C1633504B8B3DB9AD8F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Google Chrome 108.0.5359.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178573.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Search 10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178571.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Duplicate File Finder Pro 6.11.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178568.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AYBO 1.16.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178565.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Moviebase Premium 3.6.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178562.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ ShredIt X 6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178561.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ WinRAR 6.24 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178560.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Auslogics Disk Defrag Pro 11.0.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178558.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ NetShred X 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178557.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ PatterNodes 2 v2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178548.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ColorWell 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178543.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MacX DVD Ripper Pro 6.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178541.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 10.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178540.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Revo Uninstaller Pro 5.0.7 Portable by NNM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178539.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Mic Drop 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178538.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WebScraper 4.14.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178537.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Default Folder X 5.5.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178534.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ CoLocalizer Pro 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178533.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Cisdem AppCrypt 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178532.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Deckset 2.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178528.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ iBarcoder 3.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178524.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ MacX Video Converter Pro 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178523.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Bigasoft Total Video Converter 6.4.4.8368 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178509.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Autorun Organizer 5.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178507.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Auslogics Windows Slimmer 4.0.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178505.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ WhatsApp 2.2242.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178502.jpg" />
 </div>
 
 

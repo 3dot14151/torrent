@@ -1,29 +1,3 @@
-###  Публикация: 1375558   (865147) от 14.04.2020
-
-Xeno Crisis (2019) [Multi] (1.0.2) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Xeno Crisis — это шутер на арене, где один или два игрока контролируют закаленных в боях морских пехотинцев, начинающих смертельную миссию — победить пришельцев и вернуться домой целыми и невредимыми! Бегите и пробивайтесь сквозь тысячи противников, исследуйте разрушенный исследовательский пункт, ищите выживших и в конце концов узнайте, по какой причине этот исследовательский (   Читать дальше...   )Тип издания: LicenseРазработчик: Bitmap BureauЖанр: Шутер, Экшн, ФантастикаЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2905BE298DDD47068E0F974D42B13F740A328133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375477   (865085) от 14.04.2020
 
 Weedcraft Inc (2019) [Ru/Multi] (1.3.2) License GOG
@@ -32,7 +6,7 @@ Weedcraft Inc (2019) [Ru/Multi] (1.3.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865085.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864293.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Hyperdimension Neptunia U: Action Unleashed (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863834.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.0.2) License HI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863797.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) License CODEX [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863724.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863675.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shift Happens (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863668.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Mooseman / Человеколось (2017) [Ru/En] (1.0) Repack R.G. Мех�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863665.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Age of Mythology (2014) [Ru/En] (2.6/dlc) Repack R.G. Механики [Extended
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863663.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Railway Empire (2018) [Ru/Multi] (1.12.0.25598/dlc) Repack R.G. Catalyst
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863364.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sky Cannoneer (2020) [En] (1.1.8.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863286.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Curse at Twilight: Thief of Souls / Проклятие в сумерках. По
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862961.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.0) Repack Other s [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862638.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Subterrain (2015) [Ru/Multi] (1183) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862496.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) Repack bosenok [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862182.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Day of the Tentacle Remastered (2016) [En/Multi] (1.1.6) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862061.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Move or Die (2016) [Ru/Multi] (7.0.3 Hotfix) Repack VseTop
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862029.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Mushroom Wars (2016) [Ru/En] (1.2.2) Repack VseTop
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862019.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Republique Remastered (2015) [Ru/En] (1.0) Repack xatab [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861974.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Absent Mind (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861903.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Hollow Knight (2017) [En] (1.0.0.6) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861900.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861788.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sunwards (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861456.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Orphan (2018) [Ru/Multi] (1.0.2.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860887.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Professional Farmer 2017 (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860411.jpg" />
 </div>
 
 
@@ -669,6 +643,33 @@ Professional Farmer 2017 (2016) [En/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA8161F251D76509805D45EA995A3453F3D3A70A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000082   (860294) от 24.03.2016
+
+Way of the Samurai 3 (2016) [En/Multi] (1.0) License RELOADED
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия в Way of the Samurai 3 разворачиваются в феодальной Японии периода Сенгоку. Главным героем выступает странствующий самурай, прибывший в небольшую провинцию Gishu Amana, которой правит клан Fujimori, свергнувший самураев клана Sakurai.
+Как и в предыдущих частях серии, в Way of the Samurai 3 вам вновь предстоит сделать выбор и присоединиться к одной из противоборствующих (   Читать дальше...   )Тип издания: LicenseРазработчик: ACQUIRE Corp.Жанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5E973C5960A94C877E4DF145865BA394EBE879
 ```
 
 https://mybot314.ru/tekegram_catalog/

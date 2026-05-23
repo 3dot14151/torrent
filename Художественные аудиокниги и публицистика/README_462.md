@@ -1,83 +1,3 @@
-###  Публикация: 1554700   (575463) от 31.05.2022
-
-Анджей Сапковский | Ведьмак (Книга 3). Кровь эльфов (2019) [MP3, PL, Krzysztof Gosztyła]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Третья книга из расказов о Ведьмаке. Лучшие польские актеры и актрисы сыграли персонажей саги о ведьмаке Геральте. 79 актеров озвучили эту аудиокнигу. Читает Кшиштоф Гоштила, музыка Адама Скорупы.
-
-"Истинно, истинно говорю вам, придет век Меча и Топора, век Волчьей Пурги. Придет Час Белого Хлада и Белого Света. Час Безумия и Час Презрения, Tedd Deireadh. Час (   Читать дальше...   )Жанр: Героическое фэнтезиЯзык озвучки: ПольскийПродолжительность: 12:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150470B636BD4F2A4A8196823876E5384D8AA316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554643   (575459) от 31.05.2022
-
-Алексей Доронин | Кабельщики (2022) [MP3, Проводник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ближайшее будущее. На Земле, которую и так сотрясают социальные и политические кризисы, группа ученых расшифровала сигнал, отправителем которого могла быть только внеземная цивилизация. Но на этом они не собираются останавливаться. В нарушение всех запретов четверо энтузиастов хотят отправить в космос ответ. Какой будет реакция на их действия остальных землян? И (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастикаПродолжительность: 02:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B16DDDA578AA7F008B8103D0799914CC9CAD8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554707   (575458) от 31.05.2022
-
-Филип K. Дик | Убик (2022) [MP3, Александр Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. Корпорации ведут между собой бесконечную войну. Нанятые ими контр-телепаты преследуют агентов-телепатов конкурентов. Смерти нет – теперь умерших родственников погружают в специальные криокамеры, где они продолжают существование. Но вдруг время начинает обращаться вспять, реальность разрушается, а с ней и люди.. И есть только одно спасение – Убик!Жанр: Зарубежная фантастика, Научная фантастикаПродолжительность: 07:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E629D33C70F42A403D571DF53EE7E3424518284B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921245   (575267) от 25.07.2015
 
 Николай Свечин | Сыщик Его Величества (Книга 4). Выстрел на Большой Морской (2015) [MP3, Sibiryak]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575267.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575187.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575145.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574702.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574693.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574690.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574663.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574618.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574610.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574585.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574581.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574570.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574555.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574538.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574478.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574423.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574402.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574393.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574350.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574299.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574295.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574248.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574176.jpg" />
 </div>
 
 
@@ -678,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C0226365141D2A317ABFC22DFF38B7F14F7B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554928   (574010) от 01.06.2022
+
+Виктор Астафьев | Звездопад (1980) [MP3, Олег Борисов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть Виктора Астафьева «Звездопад» напоминает исповедь. Читателю видится немолодой уже, зрелый человек, который заглянул в свое прошлое и увидел в нем сквозь кровавые военные картины блики первой любви, самой чистой, беззаветной, незабываемой. В этой повести много автобиографического. Главный герой «Звездопада» Михаил тоже сибиряк, воспитывался в детском доме, (   Читать дальше...   )Жанр: Классика, РадиоспектакльПродолжительность: 01:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D08F3A83F39907AC53F448BEDEE5E3A414C405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554924   (574009) от 01.06.2022
+
+Виктор Гюго | Собор Парижской Богоматери (2022) [MP3, Иван Забелин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию знаменитый роман классика французской литературы Виктора Гюго «Собор Парижской Богоматери» (1831), первый исторический роман, написанный на французском языке. Роман живописует Париж XV века и великое творение готики. У Гюго легенда уравнена в правах с историей: «У книги нет никаких притязаний на историю, разве что на описание с известным (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 19:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5AF292E2B7A36329669479384D8A3CDC5AE6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554968   (573914) от 01.06.2022
+
+Генри Каттнер, Кэтрин Мур | Все тенали бороговы (2022) [MP3, Сергей Дмитриев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как изуродовать человека так, чтобы он стал чужим для своих родных и близких? - С помощью... игрушек.Жанр: ФантастикаПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910751343EE8089E782A6FB9A5982C2E06DAEB64
 ```
 
 https://mybot314.ru/tekegram_catalog/

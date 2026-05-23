@@ -6,7 +6,7 @@ Discovery: Экспедиция в Арктику / Expedition to the Edge (2020
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62371.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Железная дорога Австралии / Railroad Australia
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57790.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57694.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: 11 сентября: когда башни упали / 9/11: After T
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43951.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Пропавшие женщины шоссе 20 / Lost Women of Highw
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29838.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14598.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14591.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Человек против медведя / Man vs Bear (2019-2020) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13332.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2013) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9065.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Челюсти против кракена / Jaws vs Kraken (2022) WE
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8822.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2815.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery. Великий замысел по Стивену Хокингу / St
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2729.jpg" />
 </div>
 
 

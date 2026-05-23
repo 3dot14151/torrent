@@ -1,55 +1,3 @@
-###  Публикация: 1608248   (1043723) от 29.01.2023
-
-Двойной обман Мадлен Коллинз / Madeleine Collins (2021) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Она живет на две страны, у нее два имени, два любовника, два сына во Франции и дочь в Швейцарии. Из-за роковой случайности часть тайного становится явным. Запутавшись в паутине лжи, она рискует не только своей жизнью.Производство: Франция, Бельгия, Швейцария / Les Films du Bélier, Frakas Productions, Close Up FilmsЖанр: триллер, драмаРежиссер: Антуан БарроАктеры: Виржини Эфира, Ким Гутьеррес, Бруно Саломон, Жаклин Биссет, Франсуа Ростен, Лоис Бенгерель, Тома Жория, Валери Донзелли, Надав Лапид, Натали БутфоПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), Французские (Forced)Продолжительность: 01:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7642CA17E12D40E8F209FD9E54FEA2C13AD78055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608254   (1043722) от 29.01.2023
-
-13 убийц / Jusan-nin no shikaku / 13 Assassins (2010) BDRip [H.264/1080p] [Extended Cut]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Япония, 1844 год. Советник сёгуна поручает верному самураю Синдзаэмону убить лорда, позорящего самурайский кодекс чести. А тот набирает команду из 12 преданных воинов.Производство: Япония / Sedic International, Recorded Picture Company (RPC), Asahi Broadcasting Corporation (ABC)Жанр: боевик, драмаРежиссер: Такаси МиикеАктеры: Кодзи Якусё, Такаюки Ямада, Юсукэ Исэя, Горо Инагаки, Масатика Итимура, Микидзиро Хира, Хироки Мацуката, Цуёси Ихара, Арата Фурута, Икки СавамураПеревод: Двуголосый профессиональный (BBC Saint-Petersburg), Авторский (Ю. Сербин)Язык озвучки: Русский, ЯпонскийСубтитры: АнглийскиеПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E839B56B8137F3EE5CEB0FAC30D11D9D1F14774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608279   (1043718) от 29.01.2023
 
 13 убийц / Jusan-nin no shikaku / 13 Assassins (2010) BDRip [H.264/720p] [Extended Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043718.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043710.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043709.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043708.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043704.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043701.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043690.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043681.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043678.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043671.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043670.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043628.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043621.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043609.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043608.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043606.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043605.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043603.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043600.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043595.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043588.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043585.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043580.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043560.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7970F1005D3133E5395789DC1B23527C1942CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608544   (1043533) от 31.01.2023
+
+Макс и дикая семерка / Max und die wilde 7 (2020) BDRip [H.264/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марион устраивается на работу в дом престарелых, и переезжает туда вместе с сыном Максом. В учреждении происходит несколько краж, в которых руководство подозревает маму мальчика и грозится уволить. Макс в компании трех харизматичных старичков начинает собственное расследование, чтобы найти настоящего преступника.Производство: Германия / Hessischer Rundfunk (HR), Leonine, Neopol Film и др.Жанр: криминал, приключения, семейныйРежиссер: Винфред ЭлснерАктеры: Jona Eisenblätter, Уши Глас, Гюнтер Мария Халмер, Томас Тиме, Stella Brückner, Алвара Хёфельс, Нина Петри, Альвар Гоце, Leo Knizka, Мартин ЛойтгебПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, немецкийСубтитры: русские, немецкиеПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6666DD1DE880337CDAC81319FC4BD91774BE400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608590   (1043532) от 31.01.2023
+
+Ода Нобунага / Fuunji Oda Nobunaga / Lucky Adventurer Oda Nobunaga (1959) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043532.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти старого князя в Овари, главой клана становится его сын - Ода Нобунага. Нобунага довольно беспечный молодой человек, ведущий, так сказать разгульный образ жизни, а всеми делами управляет за него "дедушка" Хирате Масахидэ. Однако враг не дремлет: соседний князь Имагава Ёсимото, обладающий значительной силой и завышенными амбициями, стремится (   Читать дальше...   )Производство: Япония / Toei CompanyЖанр: драма, историяРежиссер: Тосикадзу КоноАктеры: Kyoko Mitsui, Кацуо Накамура, Кинносукэ Накамура, Эитаро Синдо, Рюносукэ Цукигата, Эидзиро ЯнагиПеревод: Одноголосый любительский (Shaman)Язык озвучки: русский, японскийСубтитры: английские, русские (forced-Song)Продолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2249462CD126337A607C5786B468AAC16F870C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

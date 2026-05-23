@@ -6,7 +6,7 @@ PDF-XChange PRO 10.1.3.383 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144872.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Speedyfox 2.0.14 Build 95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144870.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PotPlayer 231113 (1.7.22038) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144858.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-Studio Network 9.3 Build 191259 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144850.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MInstAll v.25.12.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144840.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LeaderTask 7.6.0.0 [Multi/Rus] RePack & Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_144835.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PowerRun v1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144782.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sumatra PDF 3.2.11801 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144773.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Stellarium 0.15.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144762.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BELOFF [dp] 2019.12.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144738.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Comfy Partition Recovery 2.4 Home Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144734.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Luminant Music Ultimate 2.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144694.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Flash Player 20.0.0.267 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144649.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Acrobat Professional DC 15.009.20077 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144593.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Calibre 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144580.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Mozilla Thunderbird 60.4.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144555.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Download Master 6.19.4.1649 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144544.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ DP Animation Maker 3.4.22 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144526.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Mozilla Thunderbird 60.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144507.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ NIUBI Partition Editor 7.2.7 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144497.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Aurora Blu-ray Media Player 2.18.9.2163 RePack (& Portable) by AlekseyPopovv [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144474.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Dism++ 10.1.21.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144473.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Macgo Windows Blu-ray Player 2.16.9.2163 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144461.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Phase One Capture One Pro 9.0.1 Build 13 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144453.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144445.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ BurnAware Professional 11.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144419.jpg" />
 </div>
 
 

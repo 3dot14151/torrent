@@ -6,7 +6,7 @@ Audio Hijack 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173647.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EtreCheck Pro 6.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173506.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Marked 2 - Markdown Preview 2.6.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173504.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dropzone 4 Pro 4.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173503.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Permute 3 v.3.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173502.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ DirEqual 5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173498.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dropshare 5 v.5.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173496.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ A Better Finder Rename 12.01 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173494.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Native SQLite Manager 1.26.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173493.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ DockView 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173486.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dash 7.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173482.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Downie 4 v.4.6.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173470.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ SwitchResX 4.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173388.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ XMind Pro 2023 23.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173360.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Storyist 4 v.4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173262.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Notebooks – Write and Organize 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173259.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ YT Saver Video Downloader & Converter for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173245.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ TechSmith Camtasia 2022 Studio 2022.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173244.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Proxyman for Mac 4.12.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173238.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ USBclean 3.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173214.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173207.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ DxO PhotoLab 7 ELITE Edition 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173170.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Yate 6.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173057.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Dato 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173049.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Mirror for LG TV 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173040.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Path Finder 2161 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173035.jpg" />
 </div>
 
 

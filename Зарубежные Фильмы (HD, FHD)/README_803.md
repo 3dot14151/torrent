@@ -1,56 +1,3 @@
-###  Публикация: 1268286   (227267) от 10.12.2018
-
-Супербратья Марио / Super Mario Bros. (1993) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Два брата-водопроводчика из Бруклина, Марио Марио и Луиджи Марио, случайно обнаружили совершенно новое измерение. Это подземный мир, в котором правит жестокий тиран Купа, город, населенный людьми-ящерицами, прямыми потомками динозавров.
-Они жаждут освободиться из подземного плена и под предводительством Купы захватить всю Землю. Ключ к победе хранится в осколке хрустального (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Фантастика, Комедия, ПриключенияРежиссер: Аннабел ДженкелАктеры: Боб Хоскинс, Джон Легуизамо, Деннис Хоппер, Саманта Мэтис, Фишер Стивенс, Ричард Эдсон, Фиона Шоу, Дэна Камински, Mojo Nixon, Джанни Руссо, Франческа Робертс, Лэнс ХенриксенПеревод: Многоголосый закадровыйСубтитры: Русские (полные)Продолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6B1528892329BFD5602DA0B40D20BCA4C10339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267685   (227261) от 10.12.2018
-
-Дитя тьмы / Orphan (2009) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Супружеская пара, совсем недавно потерявшая своего ребенка, удочеряет девятилетнюю девочку, которая оказывается совсем не такой милой и безобидной, как это могло показаться на первый взгляд.Производство: США, Канада, Германия, Франция, Don Carmody Productions, Studio Babelsberg Motion Pictures GmbH, Studio Canal, Warner Bros. PicturesЖанр: Ужасы, Драма, Триллер, ДетективРежиссер: Жауме Коллет-СерраАктеры: Вера Фармига, Питер Сарсгаард, Изабель Фурман, Си Си Эйч Паундер, Джимми Беннетт, Ариана Энджинир, Лорри Айерс, Марго Мартиндейл, Карел Роден, Розмари ДансморПеревод: Дублированный (Лицензия)Субтитры: Русские (полные)Продолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A5B298B8282352C00EE33F0463926B35A17B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583867   (227252) от 16.10.2022
 
 Три орешка для Золушки / Tre notter til Askepott / Three Wishes for Cinderella (2021) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227252.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227246.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227242.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227238.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227237.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227223.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227174.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227163.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227150.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227147.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227084.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227077.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227074.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227069.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227022.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227006.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226988.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226971.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226939.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226894.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226892.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226881.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226878.jpg" />
 </div>
 
 
@@ -658,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226804.jpg" />
 </div>
 
 
@@ -669,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:630530C44C1BB5D658675CAD1A69AE17A4517900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964793   (226803) от 13.12.2015
+
+Дама в очках и с ружьем в автомобиле / La dame dans l'auto avec des lunettes et un fusil (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она самая прекрасная, самая чувственная, самая импульсивная, самая упрямая, самая незадачливая девушка. Она хотела воплотить мечту и увидеть море, а в результате попала в невероятную переделку. В чужом автомобиле и с трупом в багажнике, скрываясь от полиции и рискуя собственной жизнью, ей осталось только одно — убедить себя в том, что она еще не окончательно сошла (   Читать дальше...   )Производство: Франция, БельгияЖанр: Триллер, экранизацияРежиссер: Жоанн СфарАктеры: Фрейя Мавор, Бенжамин Биолэй, Элио Джермано, Стэйси Мартин, Тьерри Анкиссе, Сандрин Ларош, Фредерик Этерлинк, Ален Белло, Эдуар Жиар, Франсуа-Доминик БленПеревод: Дублированный (iTunes)Язык субтитров: ФранцузскийПродолжительность: 01:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3969D852364AF07D220464F2DA5BD52F889F23F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424653   (226780) от 17.11.2020
+
+Галерея разбитых сердец / The Broken Hearts Gallery (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люси с трудом забывает о прошлых отношениях, оставляя на память разные сувениры. Однажды она случайно знакомится с Ником, который помогает ей разобраться с прошлым и организовать «Галерею разбитых сердец» — открытое пространство, где каждый желающий может оставить предметы, связанные с неудавшимися отношениями.Производство: США, Канада / No Trace CampingЖанр: Мелодрама, комедияРежиссер: Натали КринскиАктеры: Джеральдин Вишванатан, Дэйкер Монтгомери, Уткарш Амбудкар, Молли Гордон, Филлипа Су, Сьюки Уотерхаус, Шейла Маккарти, Бернадетт Питерс, Нэйтан Дэйлз, Ego NwodimПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 01:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE8D7CF51CFA4D7E86472DE9CF5295B3A027420
 ```
 
 https://mybot314.ru/tekegram_catalog/

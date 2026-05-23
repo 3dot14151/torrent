@@ -1,55 +1,3 @@
-###  Публикация: 1567236   (211427) от 01.08.2022
-
-GiliSoft Video Editor 15.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Мощный и многофункциональный видеоредактор. С его помощью можно обрезать черный полосы по краям видео, вырезать из видео ненужные фрагменты, склеить несколько видеоклипов в один ролик, повернуть видео, добавить визуальные эффекты, наложить на видео водяной знак. В Gilisoft Video Editor также есть инструменты для наложения фоновой музыки на видео и работы с субтитрами.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEF00B5CB9A0D2372AA01269303111829BE20C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602885   (210626) от 07.01.2023
-
-Assimilate Scratch 9.3 Build 1052 [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Assimilate Scratch программа предназначена для обработки цифровых изображений в фильме, а также отличный инструмент для цифрового пост-продакшена. Эта программа сочетает в себе множество полезных инструментов, тут вам и возможность повторного создания документов и координации работы, редактирование, выполнение цветокоррекции и цифровой макет, вы можете сохранить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCF3D3643ABFFE6589EFC8C60AC08C5FA8143B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603515   (210442) от 09.01.2023
 
 Apeaksoft Video Editor 1.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -58,7 +6,7 @@ Apeaksoft Video Editor 1.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210442.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ HitPaw Object Remover 1.0.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210411.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ HitPaw Compressor 1.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210409.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ WinX HD Video Converter Deluxe 5.17.1 RePack (& Portable) by elchupacabra [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210360.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Movavi Video Suite 22.4.1 (x64) Portable by FC Portables [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209798.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ Movavi Video Suite 22.4.1 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209776.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Wise Video Converter Pro 2.3.1.66 (акция Comss)  [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207578.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Any Video Converter Professional 7.1.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206761.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ HitPaw Video Editor 1.6.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206386.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ MAGIX Photostory Deluxe 2023 22.0.3.149 (x64) Portable by 7997 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205932.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ vMix Pro 28.0.0.42 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205615.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ MAGIX Vegas Pro 20.0 Build 214 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204917.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ The Foundry Nuke Studio 14.0v1 RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204607.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204570.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ PowerDirector Ultimate 21.1.2401.0 (x64) RePack by PooShock [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202533.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ NewBlue FX plugins 2.0.0.34 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202497.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ MAGIX Photostory Deluxe 2023 22.0.3.149 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202095.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ LosslessCut 3.66.1 Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201754.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ MediaCoder 0.8.65 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201732.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ AnyMP4 4K Converter 7.2.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201318.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ VideoProc Converter 5.5 Portable by zeka.k [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201280.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200091.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199854.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ Sony Catalyst Production Suite 2023.1.0.975 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199202.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ Catalyst Production Suite — это пакет мощных инструмен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F335EB1C48244A1F9347030BF6629DFAE32E112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630526   (199099) от 01.05.2023
+
+Apowersoft ApowerCompress 1.1.16.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apowersoft ApowerCompress  - программа для сжатия изображений, видео и PDF в один клик. Она имеет много преимуществ: высокая скорость работы и степень сжатия, стабильная производительность и имеет несколько алгоритмов сжатия. Она также позволяет вам настроить разрешение видео, обрезать видео, выбрать формат вывода, пакетное сжатие файлов и т.д.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04763DBC9EF30283191663FC25E978224A2F26A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631475   (198865) от 06.05.2023
+
+Movie To GIF 3.2.0.0 Portable by GrayWolFX [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movie To GIF — это простой в использовании конвертер видео в анимированный GIF с простым и дружественным интерфейсом. Movie to GIF эффективно конвертирует из большинства популярных видеоформатов (включая AVI, MPEG, MP4, WMV, MKV, MOV, VOB, RMVB и т. д.) в GIF.
+Вы можете установить больше кадров в секунду, чтобы выходной GIF-файл отображался как исходное видео, или (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F14DADC7B8DF6DFD892BEF3078A568A773CAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

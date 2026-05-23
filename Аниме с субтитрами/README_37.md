@@ -6,7 +6,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801537.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Onigiri | Онигири [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801234.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Koukaku no Pandora: Ghost Urn | Pandora in the Crimson Shell: Ghost Urn | Дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801168.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Monster Strike / Монстр Страйк [2015, TV, 51 + 2 SP] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801132.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Marginal #4 Kiss kara Tsukuru Big Bang / Маргинал №4 [2017, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801121.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801048.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800919.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kitsune no Koe | Voice of Fox | Голос лисицы [2018, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800566.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Golden Kamuy | Золотой Камуй | Золотое божество [TB-1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800535.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Yuyushiki: Komarasetari, Komarasaretari / Формула жизни OVA [2017, O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800507.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800336.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ai Mai Mii: Surgical Friends / Ай Май Ми - 3 [2017, TV, 12] WEB-DLRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800317.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800285.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kanamemo | Записки Каны [2009, TV, 13 эп.] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800277.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Itsudatte My Santa! | Навсегда мой Санта [2005, OVA, 2 эп.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800210.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800151.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800130.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Akiba's Trip The Animation / Виды Акибы [2017, TV, 13] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800088.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800087.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Kuzu no Honkai / Scum's Wish / Тайные желания отвергнуты�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800083.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Gakuen Choujotai | Школа супер девушек [1991, OVA, 1 из 1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799769.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Osake wa Fuufu ni Natte kara | Супружеская пара и алкогол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799714.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Nyanko Days / Кошачьи дни [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799569.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Shouwa Genroku Rakugo Shinjuu: Sukeroku Futatabi Hen / Сквозь эпохи: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799555.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Oira Sukeban / Delinquent in Drag / Задира Банджи [1992, OAV] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799053.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Onihei / Онихей: Криминальные истории периода Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799014.jpg" />
 </div>
 
 

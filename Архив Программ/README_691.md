@@ -6,7 +6,7 @@ PDF-XChange Viewer Pro 2.5.322.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700770.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 13.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700769.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comodo Dragon 57.0.2987.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700722.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slimjet 14.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700717.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Disk Cleaner 9.47.663 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700709.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ActivePresenter Professional Edition 7.2.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700640.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ K-Lite Codec Pack Update 14.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700634.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PDF-XChange Viewer Pro 2.5.322.0 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700633.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PDF-XChange Editor Plus 6.0.322.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700625.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ DriverPack Solution 15.5 + Драйвер-Паки 15.04.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700591.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Viber 6.7.2.21 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700555.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AusLogics BoostSpeed 9.1.3.0 DC 05.05.2017 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700539.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Maxthon Browser 5.2.1.6000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700535.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe Flash Player 25.0.0.171 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700457.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ StartIsBack++ 2.0.9 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700440.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Google Chrome 58.0.3029.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700439.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Readiris Corporate 16.0.2 Build 11398 RePack (& Portable) by TryRooM 16.0.2 Buil
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700423.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Nox App Player 6.0.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700409.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700354.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ O&O ShutUp10 1.5.1390 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700352.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ KLS Backup 2015 Professional 8.4.4.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700349.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ AusLogics BoostSpeed 9.1.3.0 DC 05.05.2017 RePack (& Portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700347.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe Flash Player 25.0.0.171 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700343.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Mem Reduct 3.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700341.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Panda Free Antivirus 2016 16.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700319.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Skype 7.36.32.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700225.jpg" />
 </div>
 
 

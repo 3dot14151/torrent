@@ -6,7 +6,7 @@ Royal Hunt - X (2010) [APE|Lossless]<Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951423.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Morgart - Die Schlacht (In Acht Sinfonien) (2005) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951016.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Impellitteri - Pedal To The Metal (2004) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950900.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Sebastian Bach - Kicking And Screaming (2011) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950799.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Malum - Awakening of the Black Flame (2016) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950762.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Nocturnal Degrade - The Dying Beauty (2015) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950758.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Delain - Moonbathers (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950533.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ For Today - 6 Альбомов + 1 EP (2008-2015) [FLAC|tracks|Lossless]<Christi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949075.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Eternal Tears of Sorrow - Before the Bleeding Sun (2006) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948503.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Axel Rudi Pell - Gunfire (2020) Single [FLAC|Lossless|WEB-DL|track] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948408.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Sepultura - Quadra (2020) 2 CD, Deluxe Edition [FLAC|Lossless|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948223.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Inferi - The End of a Weak Nature (2009) [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946636.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Those Endless Eyes - Awaits Behind (2006) [FLAC|Lossless]<Gothic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946576.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kvelertak - Splid (2020) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Hardcore, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945368.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Demons & Wizards - III (2020) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945301.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Megadeth - Dystopia (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945205.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Black Sabbath - Master of Reality (1971) Deluxe Edition, 2016, Rhino/Warner Bros
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943684.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Happy Days - Save Yourself (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943228.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Five Finger Death Punch - F8 (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942316.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Exumer - The Raging Tides (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942252.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Die Krupps - V-Metal Machine Music (2015) 2CD [FLAC|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942113.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Ozzy Osbourne - Diary Of A Madman (1981) X-Cellent only for sale in CIS, 1995 [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941013.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Ozzy Osbourne - No Rest For The Wicked (1988) X-Cellent only for sale in CIS, 19
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941005.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Ozzy Osbourne - No More Tears (1991) X-Cellent only for sale in CIS [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940928.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Ozzy Osbourne - Ozzmosis (1995) X-Cellent only for sale in CIS [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940924.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Mayfair - Behind… (1993) [APE|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939700.jpg" />
 </div>
 
 

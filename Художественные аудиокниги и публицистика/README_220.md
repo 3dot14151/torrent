@@ -1,57 +1,3 @@
-###  Публикация: 1492405   (904085) от 29.08.2021
-
-Галина Щербакова | Актриса и милиционер (2021) [MP3, Евгения Добровольская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Не совсем юная, но все еще чертовски привлекательная актриса Нора Лаубе волею случая оказывается замешана в очень неприятную историю. С шестого этажа, прямо с балкона ее однокомнатной квартиры, падает мужчина. Шансов выжить у несчастного практически не было. Ужасная трагедия, но вот вопрос: как мог очутиться в квартире Норы абсолютно незнакомый ей человек? Ведь женщина (   Читать дальше...   )Жанр: ДетективПродолжительность: 03:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A117C7DA7E4FB293799BC8CDEB3B0E57C9C64081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492402   (904029) от 29.08.2021
-
-Мария Адольфссон | Доггерланд (Книга 2). Штормовое предупреждение (2021) [MP3, Вероника Райциз]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Захватывающий роман, построенный по всем канонам первоклассного скандинавского детектива.
-
-Первый день Рождества. Морозный воздух буквально режет легкие. По покрытой трещинами дороге, спускающейся со склона горы вниз к шоссе, уже давно никто не ездит. По краю обрыва заброшенной каменоломни, то ложась на живот и подползая к самому краю, то бешено прыгая на всех четырех (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективы, Современные детективы, ТриллерыПродолжительность: 12:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072417D7AAE476AAD50F641469AD8909A1B57F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991876   (904021) от 29.02.2016
 
 Евгения Гордеева | Естественный отбор (2016) [MP3]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904021.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903987.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903978.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903975.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903958.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903895.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903863.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903811.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903666.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903639.jpg" />
 </div>
 
 
@@ -326,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903598.jpg" />
 </div>
 
 
@@ -352,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903563.jpg" />
 </div>
 
 
@@ -378,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903537.jpg" />
 </div>
 
 
@@ -404,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903449.jpg" />
 </div>
 
 
@@ -430,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903411.jpg" />
 </div>
 
 
@@ -456,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903381.jpg" />
 </div>
 
 
@@ -482,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903372.jpg" />
 </div>
 
 
@@ -509,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903279.jpg" />
 </div>
 
 
@@ -535,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903212.jpg" />
 </div>
 
 
@@ -561,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903166.jpg" />
 </div>
 
 
@@ -587,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903098.jpg" />
 </div>
 
 
@@ -614,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903042.jpg" />
 </div>
 
 
@@ -640,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902805.jpg" />
 </div>
 
 
@@ -666,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902793.jpg" />
 </div>
 
 
@@ -679,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D7CA2FE07E5148F76C326213FBC74D414A8E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992174   (902764) от 01.03.2016
+
+Борис Колоколов | Русская сага (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902764.jpg" />
+</div>
+
+
+###  Подробнее
+
+В исторической хронике воссоздана картина плавания двух русских кораблей — "Святой Петр" и "Святой Павел", совершенного в 1740–1742 годах и увенчавшегося открытием северо-западных берегов Америки. Прослеживаются судьбы отдельных участников и, может быть, впервые в нашей литературе так отчетливо выявлены герои того знаменательного плавания: одни (   Читать дальше...   )Жанр: Исторический хроникаПродолжительность: 10:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0272221705C7368CEC491739A16683330DB6723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992200   (902760) от 01.03.2016
+
+Фазиль Искандер | Поэт (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902760.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Юрий Сергеевич Волков был романтическим поэтом, и притом очень талантливым. Однако стихи его редко печатали, и в сорок пять лет у него не было ни одной книги. Речь идет о блаженных временах блаженного Брежнева. У Юрия Сергеевича было хроническое свойство раздражать начальство. Раздражать всем - голосом, стихами, внешностью. Начнем с голоса. Как известно, с (   Читать дальше...   )Жанр: ПрозаПродолжительность: 05:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA153115E9F728A6BD217DD151CA478A1AF0DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

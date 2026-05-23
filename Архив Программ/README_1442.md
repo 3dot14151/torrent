@@ -6,7 +6,7 @@ Nero 12.0.02900 RePack by MKN [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304520.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Burning Studio 18.0.0.57 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304472.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.12 Build 1870 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304463.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AOMEI Partition Assistant Technician Edition 7.5.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304454.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Panda Dome 18.06.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304447.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CD/DVD shot 3.0 (32 bit + 64 bit) 3.0.0.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304414.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Avira Internet Security 2013 13.0.0.565[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_304374.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AMD Radeon Software Crimson Edition 16.11.5 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304302.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Chromium 86.0.4240.193 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304282.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Norton AntiVirus 22.8.1.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304193.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Reg Organizer 7.62 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304188.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Reg Organizer 7.62 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304185.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WindowsPlayer 3.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304182.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AVG Clear (AVG Remover) 20.9.5758.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304174.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Mirillis Action! 4.13.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304163.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Topaz Video Enhance AI 1.7.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304161.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Norton 360 22.8.1.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304073.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Apache OpenOffice 4.1.8 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304021.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Norton Internet Security 22.8.1.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303948.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Adobe Muse CC 2017 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303946.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Koplayer 1.4.1052 Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303940.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Start Menu X 6.00 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303937.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Active@ Boot Disk Suite 10.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303931.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Topaz Video Enhance AI 1.7.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303905.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WinToUSB Technician 5.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303899.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303819.jpg" />
 </div>
 
 

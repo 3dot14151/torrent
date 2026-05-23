@@ -1,55 +1,3 @@
-###  Публикация: 1138577   (662025) от 31.05.2017
-
-Дэвид Копперфилд / David Copperfield (1999) 2хDVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этой безупречной экранизации знаменитого романа, в котором Диккенс впервые обратился к миру детства, зрителю предстоит пройти вместе с главным героем нелегкий путь становления личности, испытать пагубность неправильного воспитания, почувствовать и осознать, как ошибки взрослых отражаются на формировании юных характеров, целей и устремлений.Производство: Великобритания, США,  BBC Television CentreЖанр: ДрамаРежиссер: Саймон КертисАктеры: Дэниэл Рэдклифф, Киаран МакМенамин, Эмилия Фокс, Боб Хоскинс, Полин Куирк, Мэгги Смит, Джон Нормингтон, Тревор Ив, Майкл Элфик, Джеймс Торнтон, Алан Армстронг, Пэтси Бирн, Иэн МакКелленПеревод: Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 01:26:58+01:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE0AB1BFB27DC339396FD2B05C31EE9CB376A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138818   (662020) от 31.05.2017
-
-Последнее слово / The Last Word  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Гарриет - успешная бизнесвумен, которая всегда держала жесткий контроль над каждым аспектом своей жизни. Когда она размышляет о своих достижениях, она решает подключить молодую местную писательницу Энн Шерман для описания своей жизни. Если первоначальный результат не соответствует высоким ожиданиям Гарриет, то она изменяет свои воспоминания, но Энн не хочет быть (   Читать дальше...   )Производство: СШАЖанр: драма, комедияРежиссер: Марк ПеллингтонАктеры: Ширли МакЛейн, Аманда Сайфред,  Томас Садоски, Филип Бейкер Холл, Гедде Ватанабэ, Том Эверетт Скотт, Джоэль Мюррей, Иветт Фриман, Валерий Росс, Энн Хеч, Стивен КалпПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7942F6DA8448E214544555E6F50A646D9363D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538527   (662016) от 21.03.2022
 
 Исповедь / Mass (2021) BDRip [H.265/1080p-LQ] [10-bit] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662016.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662003.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661999.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661996.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661984.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661952.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661950.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661928.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661901.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661866.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661851.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661834.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661767.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661756.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661735.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661716.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661715.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661665.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661661.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661651.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661646.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_661469.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661270.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661193.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50563164B4B0EE215E8A9E876D64BA1EE9F97D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538751   (661182) от 22.03.2022
+
+Пробел / Kuuhaku / Intolerance (2021) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аояги Наото управляет супермаркетом. Однажды он замечает школьницу, пытающуюся украсть косметику из магазина. Но потом случается ужасное – выбежав на улицу, девочка попадает под машину и погибает. Её отец Соэда Мицуру не верит в то, что его дочь могла что-то украсть, и начинает давить на всех причастных к её гибели.Производство: Япония, KadokawaЖанр: ДрамаРежиссер: Кэисукэ ЁсидаАктеры: Арата Фурута, Тори Мацудзака, Кисэцу Фудзивара, Аои Ито, Рэйко Катаока, Сюри, Томоко Табата, Синобу ТэрадзимаПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B11A89F62F04A05127FDAFD1A88B0C54476FFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538855   (661181) от 22.03.2022
+
+Об этом не знает никто / Det som ingen ved (2008) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просматривая личные вещи недавно погибшей сестры Шарлотты, Томас неожиданно обнаруживает среди них доказательства того, что их отец работал на разведку. Томас приходит к выводу, что Шарлотта пыталась выяснить подробности его жизни и, возможно, смерть её была вовсе не случайной. Герой встречается со старым приятелем отца по военно-морской службе, но тот уклоняется (   Читать дальше...   )Производство: Дания, Швеция, Canal+, Det Danske Filminstitut, Hepp Film, Nimbus Film ApS, Nordisk Film- & TV-Fond, Svenska Filminstitutet (SFI), Sveriges Television (SVT), TV2 DanmarkЖанр: драма, трилллерРежиссер: Сёрен Краг-ЯкобсенАктеры: Андерс В. Бертельсен, Мария Бонневи, Гита Нёрбю, Хеннинг Енсен, Ларс Миккельсен, Мария Луиза Вилле, Сара Джуел Вернер, Соня Рихтер, Йонас Шмидт, Сара БобергПеревод: профессиональный двухголосый (Ульпаней Эльром, Ольга Туберовская и Николай Кузнецов)Субтитры: английские, датскиеПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C362929057802E1EB4C66D991422458C98B06D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1626095   (199948) от 13.04.2023
-
-На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Германская империя, 1917 год. Преисполненные патриотизмом 19-летний Пауль Боймер и его друзья-одноклассники отправляются добровольцами на фронт, где им предстоит испытать на себе ужасы Первой мировой войны.Производство: Германия, США, Великобритания / Amusement Park Films, Rocket Science, Sliding Down Rainbows EntertainmentЖанр: Военный, боевик, драма, историяРежиссер: Эдвард БергерАктеры: Феликс Каммерер, Альбрехт Шух, Аарон Хилмер, Мориц Клаус, Адриан Грюневальд, Эдин Хасанович, Даниэль Брюль, Тибо де Монталембер, Девид Штрисов, Андреас Дёлер, Себастьян ХюлькПеревод: Многоголосый закадровый (Jaskier, LostFilm, TVShows), Авторский (М. Яроцкий)Язык озвучки: Русский, Украинский, Английский, НемецкийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full), Немецкие (Forced, Full)Продолжительность: 02:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C41451CAC363CF2C4F8ED68A1767C9E664BB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625728   (199942) от 12.04.2023
-
-Двойная жизнь Чарли Сан-Клауда / Charlie St. Cloud (2010) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Романтическая драма, основанная на романе-бестселлере Бэна Шервуда «Жизнь и смерть Чарли Клауда». Чарли Сан-Клауд живёт в тихом городке. Он преуспевает в спорте и готовится к учебе в престижном университете. Но случается трагедия — в аварии погибает его младший брат Сэм. И жизнь Чарли меняется. Он винит себя в случившемся. Прошлое не даёт ему покоя. Спустя 5 лет (   Читать дальше...   )Производство: США, Канада, Charlie Film ProductionsЖанр: фэнтези, драма, мелодрамаРежиссер: Берр СтирсАктеры: Зак Эфрон, Чарли Тахэн, Аманда Крю, Август Прю, Донал Лог, Ким Бейсингер, Рэй Лиотта, Дэйв Франко, Мэтт Уорд, Майлз ЧалмерсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AB9485E59A153FC63D5F57E9DEA4DB8F738141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617814   (199933) от 12.04.2023
 
 Лишай / Ringworms (2022) WEBRip [H.264/1080p] [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199933.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199919.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199898.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199894.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199891.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199866.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199864.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199860.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199843.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199842.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199841.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199840.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199834.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199823.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199822.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199821.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199820.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199806.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199803.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199747.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199735.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199728.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199727.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199723.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FADE699347B7CAF42635830E3543BBE242CB77E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627123   (199718) от 17.04.2023
+
+Граф Монте-Кристо / The Count of Monte Cristo (2002) BDRemux [VC-1/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так же, как и в знаменитой классической истории, главным героем фильма является Эдмон Дантес. Этого бесхитростного молодого человека, собирающегося жениться на красавице Мерседес, предает его лучший друг Фернан.
+Оказавшись заключенным в тюрьму, Эдмон Дантес в течение тринадцати лет вынужден терпеть лишения и лелеять мысли о мести своим обидчикам. С помощью человека, (   Читать дальше...   )Производство: Великобритания, США, Ирландия, Швейцария / Count of Monte Cristo Ltd., Epsilon Motion Pictures, Spyglass Entertainment, Touchstone PicturesЖанр: боевик, триллер, драма, приключенияРежиссер: Кевин РейнольдсАктеры: Кристофер Адамсон, Джейби Бланк, Гай Карлтон, Бэрри Кессин, Джеймс Кэвизел, Генри Кавилл, Бриана Корригэн, Брендан Костильо, Майрид Дэвлин, Дагмара ДоминчикПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: Русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB28765231322AFA97E432ABCA41F2AEDC1C5E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618317   (199704) от 15.04.2023
+
+Невыносимая тяжесть огромного таланта / The Unbearable Weight of Massive Talent (2022) BDRip [H.265/1080p] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда востребованный актёр Николас Кейдж переживает затянувшийся кризис среднего возраста: карьера требует камбэка; бывшая жена и 16-летняя дочь устали от его раздутого эго; отелю, в котором он живет, Кейдж уже должен 600 000 долларов. А всё, что может предложить агент — это полететь за миллион на Майорку на день рождения фаната, оливкового короля Хави Гутьерреса. (   Читать дальше...   )Производство: США / Burr! Productions, Embassy Films, LionsgateЖанр: боевик, комедия, криминалРежиссер: Том ГормикэнАктеры: Николас Кейдж, Педро Паскаль, Тиффани Хэддиш, Шэрон Хорган, Пако Леон, Нил Патрик Харрис, Лили Мо Шин, Алессандра Мастронарди, Джейкоб Скипио, Katrin VankovaПеревод: Многоголосый профессиональный (Jaskier, NewComers, TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952C7C5C39438620AED89976D76C471DD4286C4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

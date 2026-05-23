@@ -1,55 +1,3 @@
-###  Публикация: 1325982   (386439) от 19.09.2019
-
-Середина 90-х / Mid90s (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в 1995 году в Лос-Анджелесе. Тринадцатилетний Стивен практически каждый день подвергается издевательствам со стороны Яна, своего старшего брата. Их мать Дабни почти не занимается своими детьми, мужчины интересуют её гораздо больше, чем воспитание сыновей. В поисках своего места в мире Стивен знакомится с группой подростков, которые (   Читать дальше...   )Производство: США, A24, IAC Films, Waypoint EntertainmentЖанр: Драма, комедияРежиссер: Джона ХиллАктеры: Санни Сулджик, Кэтрин Уотерстон, Лукас Хеджес, На-кел Смит, Олэн Пренатт, Джио Галисия, Райдер Маклафлин, Алекса Деми, Фиг Камила Эбнер, Лиана ПерлихПеревод: Многоголосый профессиональный, авторский одноголосыйСубтитры: Русские (ненормативная лексика), английскиеПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACEFBABDC3747B78E8457D6E2F23448DA50792A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983603   (386423) от 14.10.2017
-
-Нерожденный / The Unborn (2009) BDRip [H.264/1080p-LQ] [Unrated Edition]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кейси Белл ненавидела свою мать за то, что та ее бросила. Но, когда начинает твориться необъяснимое, Кейси понимает, почему мама ушла. Измученная кошмарами и присутствием злого духа, она обращается к единственному человеку, который, возможно, способен ее спасти — опытному советчику по спиритуальным вопросам, а также известному экзорцисту по имени Сендак.Производство: США / Relativity Media, Rogue Pictures, Platinum Dunes, Phantom FourЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Дэвид С. ГойерАктеры: Одетт Юстман, Гари Олдман, Миган Гуд, Кэм Жиганде, Идрис Эльба, Джейн Александр, Аттикус Шаффер, Джеймс Римар, Карла Гуджино, К.С. ЛиПеревод: Дублированный BD EURЯзык субтитров: Русские, английскиеПродолжительность: 01:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31C60448148D0D7C361EC359CF2A66C9FDE37A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 832911   (386368) от 21.10.2014
 
 Меняющие реальность / The Adjustment Bureau (2011) BDRemux [VC-1/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386368.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386333.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386260.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386258.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386245.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386233.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386219.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386134.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386124.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386110.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_385766.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385723.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385527.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385522.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385501.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385412.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385388.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385334.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385308.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385255.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385247.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385236.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385224.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385187.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73270A047A72669D2668557CDE5B64FB2EF7B0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574497   (385183) от 05.09.2022
+
+Стоп-кран / Attention au depart! (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непутёвому папаше, который с трудом справляется со своим собственным сыном, доверяют отвезти в летний лагерь компанию неугомонных детей, которая так и норовит избавиться от опеки взрослых и устроить вокруг себя полный Армагеддон. Помогать ему в этом деле вызывается «дедушка лёгкого поведения», вместе с которым они умудряются посадить всех детей в вагон, но не успевают (   Читать дальше...   )Производство: Франция, Бельгия / Les Films du Castel, M6, M6 FilmsЖанр: КомедияРежиссер: Бенжамен ЭврарАктеры: Андре Дюссолье, Жером Коммандёр, Джонатан Ламбер, Нильс Отенен-Жерар, Шарли де Витте, Лео Дюссолье, Мари-Жюли Бо, Леклер Фердинанд, Мельхиор Герле, Селеста ЭвагораПеревод: Дублированный (Akimbo Production)Язык озвучки: русский, французскийСубтитры: ОтсутствуютПродолжительность: 01:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176C437E2CE8450061167CFB2061197A8BC4BDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414469   (385169) от 08.10.2020
+
+В поисках Стива Маккуина / Ограбление президента / Finding Steve McQueen (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голливудская внешность, неординарный ум, страсть к скорости и красивым женщинам... В этом весь он. Однако, он – не тот, за кого себя выдает. В 1972 году на поиски человека, называющего себя Стивом Маккуином, в Калифорнии были брошены силы десятков агентов ФБР. Вор не только присвоил себе имя знаменитого актера, но вдобавок дерзнул ограбить самого президента США, (   Читать дальше...   )Производство: США, AMBI Group, BondIt Media Capital, Identity FilmsЖанр: Мелодрама, криминалРежиссер: Марк Стивен ДжонсонАктеры: Трэвис Фиммел, Рэйчел Тейлор, Джейк Вири, Уильям Фихтнер, Форест Уитакер, Лили Рэйб, Риз Койро, Джон Финн, Луис Ломбарди, Молли МакКуинПеревод: Дублированный (iTunes), Многоголосый закадровый (HDrezka Studio)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4775E7305B1EFDA7CDFE88CE6E85368214AEDEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

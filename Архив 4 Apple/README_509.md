@@ -6,7 +6,7 @@ MetaImage  2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239977.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Amadine 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239972.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SuperDuper! 3.5 beta1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239969.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Markster 2.12.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239962.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AirFoil+Airfoil Satellite 5.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239960.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Metadatics 1.6.8 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239951.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ BluePlum Home Inventory 4 v4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239941.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AYVY 1.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239931.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239925.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ iShowU Instant (Advanced) 1.4.11 (beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239918.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ EasyGantt 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239917.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Magic Sort List 3.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239912.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ BusyCal 2023.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239906.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Find Any File (FAF) 2.3.3b13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239901.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Artstudio Pro 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239894.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ iCompta 6 v6.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239866.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ CHM Viewer Star 6.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239835.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ PullTube 1.6.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239828.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Library Monkey Pro 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239803.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Word Counter Pro 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239796.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Sound Grinder Pro 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239766.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Acon Digital Acoustica Premium Edition 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239757.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Smart Disk Image Utilities 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239740.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Video Converter X2 for Mac 1.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239724.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Money Pro - Personal Finance 2.7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239722.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ TG Pro (Temperature Gauge Pro) 2.79 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239705.jpg" />
 </div>
 
 

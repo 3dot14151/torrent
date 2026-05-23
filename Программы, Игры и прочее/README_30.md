@@ -1,61 +1,3 @@
-###  Публикация: 1461918   (1020962) от 15.04.2021
-
-Handy Photo v2.3.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Приглашаем к творческому фото редактированию!
-
-Handy Photo – это приложение, разработанное с мыслью о людях, для которых фото редактирование является страстным увлечением. Это идеальный выбор для коррекции и улучшения ваших фотографий.
-(   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 1 декабря 2020 г.Разработчик: ADVA SoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083F47C987E66027D4EFD9043204896DA3D4B255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462666   (1020904) от 15.04.2021
-
-Kinoplay v0.1.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Онлайн просмотр фильмов, мультфильмов
-Kinoplay позволяет смотреть любимое кино на любом устройстве в любой точке мире с доступом в интернет.
--Огромный каталог с кино
--Простота использования(   Читать дальше...   )Тип издания: OriginalРелиз состоялся: 15 апреля 2021Разработчик: descodeПоддерживаемая ОС: Android: 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4865F5803750CAF75054FCCDC59C19F2B0F104D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463029   (1020775) от 16.04.2021
 
 Wim Hof Method v6.2.0 [En] - Making you strong, healthy & happy
@@ -64,7 +6,7 @@ Wim Hof Method v6.2.0 [En] - Making you strong, healthy & happy
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020775.jpg" />
 </div>
 
 
@@ -92,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020706.jpg" />
 </div>
 
 
@@ -119,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020143.jpg" />
 </div>
 
 
@@ -146,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020123.jpg" />
 </div>
 
 
@@ -175,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020053.jpg" />
 </div>
 
 
@@ -204,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020033.jpg" />
 </div>
 
 
@@ -231,7 +173,7 @@ KnownReader Premium v2021.04.14.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019937.jpg" />
 </div>
 
 
@@ -257,7 +199,7 @@ Lingvist v2.65.8 + Lite Mod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019764.jpg" />
 </div>
 
 
@@ -283,7 +225,7 @@ MIX by Camera360 v4.9.12 + Opti-Lite Mod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019643.jpg" />
 </div>
 
 
@@ -309,7 +251,7 @@ n-Track Studio 9 Pro v9.3.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019626.jpg" />
 </div>
 
 
@@ -335,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019435.jpg" />
 </div>
 
 
@@ -364,7 +306,7 @@ SoundStream v4.3.17 [Ru] - слушаем различные подкасты (�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019379.jpg" />
 </div>
 
 
@@ -390,7 +332,7 @@ Titan Quest: Legendary Edition v2.9.9 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019369.jpg" />
 </div>
 
 
@@ -416,7 +358,7 @@ Mokoroom v1.1.2 [En] - Мультяшный фоторедактор (обнов
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019278.jpg" />
 </div>
 
 
@@ -442,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019259.jpg" />
 </div>
 
 
@@ -471,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019256.jpg" />
 </div>
 
 
@@ -499,7 +441,7 @@ mcpro24fps v035b [Ru] - для профессиональной записи в�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019247.jpg" />
 </div>
 
 
@@ -525,7 +467,7 @@ Bikemap v13.1.0 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019204.jpg" />
 </div>
 
 
@@ -551,7 +493,7 @@ OruxMaps Donate v8.1.8 GP [Ru/Multi] - Регистратор маршрутов
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019180.jpg" />
 </div>
 
 
@@ -579,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019105.jpg" />
 </div>
 
 
@@ -606,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019104.jpg" />
 </div>
 
 
@@ -632,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019098.jpg" />
 </div>
 
 
@@ -658,7 +600,7 @@ MyLifeOrganized 3 Pro 3.4.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019009.jpg" />
 </div>
 
 
@@ -684,7 +626,7 @@ PhotoPills v1.7.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018938.jpg" />
 </div>
 
 
@@ -696,6 +638,61 @@ PhotoPills v1.7.3 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D3B8C8E3F0FF66B2F93071868159C4329EDCA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465667   (1018918) от 27.04.2021
+
+Sunnytrack v6.2.2 [Ru] – Положение солнца, Тени, Золотой Час
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018918.jpg" />
+</div>
+
+
+###  Подробнее
+
+☀️ Вы придаете большое значение фотографированию идеально освещенных фотосцен? 📷 Будучи отличным фотографом, вы никогда больше не пропустите оптимальные световые ситуации. Солнечная трасса дает Вам возможность точно спланировать положение солнца и Blue Hour/dusk 🌃 для Ваших сцен. Независимо от того, идет ли речь о фотографии пейзажей (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 12 апреля 2021 г.Разработчик: Plan the sunПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35958EB53A66162F24AF8B600CD72E20DE78EB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077352   (1018882) от 27.04.2021
+
+Songsterr Guitar Tabs & Chords v3.2.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Songsterr — приложение для просмотра и разучивания табов и аккордов музыки ваших любимых исполнителей. Приобретая его, вы получаете более 500.000 интерактивных табулатур для гитары, баса и барабанов с возможностью проигрывания.
+Табулатуры
+• Реалистичный звук. Высококачественные инструментальные сэмплы.
+• Отдельные дорожки для каждого инструмента (гитары, баса, барабанов, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 26 апреля 2021 г.Разработчик: SongsterrПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5456A316D9C93A3EF7931D64E7782FDECA5523
 ```
 
 https://mybot314.ru/tekegram_catalog/

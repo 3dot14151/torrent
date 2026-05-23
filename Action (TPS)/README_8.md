@@ -6,7 +6,7 @@ Sniper Elite V2 Remastered (2019) [Ru/En] (SVN2797PF85690) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919757.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NieR: Automata (2017) [Ru] (1.0.1787043/dlc) Repack xatab [Day One Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919754.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918478.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918476.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tomb Raider (2013) [Ru/Multi] (1.0/dlc) License GOG [Game of the Year Edition / 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918332.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Forbidden Siren [Ru] (P) 2010 | NightLection Team
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917986.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ HEPH (2017) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916704.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916694.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914996.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack R.G. Revenants [Gold Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914995.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911604.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911507.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Town of Light (2016) [En/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907316.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Manhunt (2004) [Ru/En] (25.02.2016) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907311.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905978.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack YelloSOFT [Digital Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905965.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Fortified (2016) [En] (1.0.5.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905532.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Metal Gear Solid (2000) [En] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904962.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904786.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Metal Gear (1987) [Multi] (1.0.cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903342.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903337.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903333.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903330.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) SteamRip =nemos= [Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902893.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902643.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Death to Spies: Moment of Truth / Смерть шпионам: Момент ис
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902576.jpg" />
 </div>
 
 

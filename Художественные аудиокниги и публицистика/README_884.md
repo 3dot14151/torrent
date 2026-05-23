@@ -1,83 +1,3 @@
-###  Публикация: 1525625   (129254) от 21.01.2022
-
-Джим Хаттон | Меркьюри и я. Богемская рапсодия, любовь и котики (2019) [MP3, Андрей Крупник]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фредди Меркьюри – культовый артист, чьи невероятные сценические образы и неповторимая манера выступления до сих восхищают слушателей по всему миру. Но каким он был вне ослепительного света софитов? В 1983 году судьба случайно сводит Фредди Меркьюри с Джимом Хаттоном в одном из лондонских баров. С этого момента начинается удивительная история любви простого ирландского (   Читать дальше...   )Жанр: Биографии и мемуары, МузыкаПеревод: Вера ГерстлеПродолжительность: 07:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C39D69230A4187BD8C1F5AD0CA32FE14EF82C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525681   (129235) от 21.01.2022
-
-Юрий Хорольский | История гвардейского кота (2021) [MP3, Татьяна Янчук]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о карьере корабельного кота с гвардейского крейсера.
-"Наша служба и опасна и трудна, но вдвойне трудней без шуток и кота."
- (Из народного фольклора)Жанр: юморПродолжительность: 02:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C4371F355C636B464FD27F44E04D4DB8DEC8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525678   (129213) от 21.01.2022
-
-Жорж Сименон | Мегрэ и порядочные люди (2018) [MP3, Александр Хошабаев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Комиссар Мегрэ – типичный парижанин. Он носит пальто с бархатным воротником, не расстаётся с трубкой и обожает греться у огня. Однако в любое время суток он готов покинуть свою уютную квартирку на бульваре Ришар-Ленуар или прокуренный кабинет на набережной Орфевр, чтобы прийти на помощь оказавшемуся в беде человеку. Разгадывая самые сложные преступления, распутывая (   Читать дальше...   )Жанр: Жанр: Зарубежные детективы, Классические детективы, Полицейские детективыПеревод: Марианна ТаймановаПродолжительность: 03:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95EF99C6526C7555B297477FA8BC48C44AFC3B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525600   (129206) от 21.01.2022
 
 Эдгар Уоллес | Трефовый валет (2022) [MP3, Валерий Стельмащук]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129206.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129194.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129152.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129149.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128994.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128926.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128875.jpg" />
 </div>
 
 
@@ -271,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128837.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128836.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128835.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128834.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128831.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128830.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128829.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128824.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128823.jpg" />
 </div>
 
 
@@ -511,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128822.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128806.jpg" />
 </div>
 
 
@@ -565,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128755.jpg" />
 </div>
 
 
@@ -593,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128738.jpg" />
 </div>
 
 
@@ -619,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128696.jpg" />
 </div>
 
 
@@ -645,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128695.jpg" />
 </div>
 
 
@@ -674,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128683.jpg" />
 </div>
 
 
@@ -685,6 +605,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49EF3339564798E77FCE4EBD1FEE2AF365D55B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824017   (128662) от 13.10.2025
+
+Брайан Плант | Только человек (2025) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь игроков, один из которых является искусственным интеллектом. Сперва игроки голосую за выбывание друг друга а в конце в игру вступают сами зрители. Люди получают призовой фонд в миллионы если им удастся раскрыть искусственное сознание. Но за многие годы вещания это случалось считанные разы.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52ADF784521D79424CE30188CDFEFFA06FC54C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823995   (128656) от 13.10.2025
+
+Лев Жуковский | Утопающий во лжи (Книги 1-8) (2024-2025) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великие Лорды очень давно приспособились к изменившемуся после случившегося катаклизма миропорядку. И к тем возможностям, что пришли вместе с неизбежными разрушениями их мира. Давно отгремели кровопролитные войны между королями и их подданными. Им на смену пришли настоящие герои, обретшие силу Богов. Среди бесконечных свар и жестокости погибло как минимум три четверти (   Читать дальше...   )Жанр: Фэнтези, РеалРПГИздательство: Аудиокнига своими рукамиПродолжительность: 101:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3595B1AC5B6B33989C87C06776FD31C5D09A1F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824020   (128654) от 13.10.2025
+
+Дмитрий Дубов, М. Борзых | Восхождение Примарха (Книга 4) (2025) [MP3, Константин Загацкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда казалось, что враги уже повержены, и можно, наконец, отдохнуть и заняться насущными проблемами, выяснилось, что настоящие противники ещё даже не показывали своё лицо. А кто говорил, что будет легко? Я – Примарх, и это моё восхождение!Жанр: фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 09:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E14FF99FEE3776F24BA7A9149BAA60A43411CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

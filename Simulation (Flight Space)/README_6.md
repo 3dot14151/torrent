@@ -6,7 +6,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1a) License GOG [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30895.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1.A.24.1208.9439/dlc) Repack Let'sРlay [
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29643.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Star Trek: Bridge Commander (2002) [En] (1.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29231.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31/dlc) Repack Let'sРlay [Fleet Command Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27491.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ X4: Foundations (2018) [Ru/En] (7.50/dlc) Repack Decepticon [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26746.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31-CL364745/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26436.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Avorion (2020) [Ru/Multi] (2.5.7/dlc) Repack Pioneer
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20091.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack FitGirl [Complete Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18102.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack seleZen
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18044.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17805.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.64.0/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13024.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188/dlc) Repack Let'sРlay [Complete Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12412.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11011.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9020.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Distant Worlds 2 (2022) [En] (1.3.1.1.1/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7812.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5303.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack Let'sРlay [Planet Community
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3536.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.70.1_m/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3510.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack seleZen [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3027.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack FitGirl [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2387.jpg" />
 </div>
 
 

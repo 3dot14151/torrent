@@ -6,7 +6,7 @@ Microsoft PowerToys 0.67.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042091.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinToUSB Technician 7.8 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042086.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hard Disk Sentinel Pro 6.10 Build 12918 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042084.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blackmagic Design Fusion Studio 18.1.3 Build 7 (x64) Portable by FC Portables [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042083.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Audition 2023 23.2.0.68 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042081.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe After Effects 2023 23.2.0.65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042076.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 11 3in1 x64 22Н2 (build 22621.1194) by ivandubskoj 07.02.2023 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042069.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FileZilla 3.52.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042048.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Free Download Manager 6.13.1.3480 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042032.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Soft4Boost Document Converter 6.6.1.617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042017.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PrivaZer 4.0.17 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042016.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ PrivaZer 4.0.17 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042015.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Brave Browser 1.18.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042004.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Glary Utilities Pro 5.158.0.184 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041993.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Basilisk 2021.01.05 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041982.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Opera 73.0.3856.329 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041979.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ MKVToolNix 52.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041978.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Simplenote 2.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041976.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MEmu 7.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041974.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ ContaCam 9.9.14 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041967.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ EF Commander 20.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041963.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ IsMyLcdOK 4.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041962.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Phototheca Free 2020.12.5.318 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041959.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ USB Device Tree Viewer 3.5.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041958.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041950.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041948.jpg" />
 </div>
 
 

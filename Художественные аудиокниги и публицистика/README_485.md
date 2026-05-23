@@ -1,82 +1,3 @@
-###  Публикация: 694814   (545422) от 30.08.2013
-
-Борис Акунин | Приключения магистра (Книга 1). Алтын-толобас (2013) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие романа развивается параллельно в современной России и в России конца семнадцатого века. Английский историк Николас Фандорин, потомок знаменитого детектива Эраста Петровича Фандорина, идёт по следам своего предка, Корнелиуса фон Дорна. В то время, как Корнелиус знакомится с Россией предпетровской эпохи, сэр Николас вкушает прелести постсоветской реальности. (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E95EB86FF96D1A52733C5D76DADBF879EF4C754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694831   (545421) от 30.08.2013
-
-Борис Акунин | Приключения магистра (Книга 2). Внеклассное чтение (2013) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие романа развивается параллельно: в последний год царствования Екатерины Великой и в начале XXI века.
-Семилетний вундеркинд по имени Митридат становится свидетелем заговора против императрицы. Стараясь спасти ее от смерти, мальчик сам оказывается впутан в дворцовые интриги и его собственной жизни грозит опасность. Кажется, что, помощи ждать неоткуда, но тут (   Читать дальше...   )Жанр: ДетективПродолжительность: 18:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4BC42EF0DD4BEA2DEFA931F57A0B187EE478AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048540   (545400) от 03.09.2016
-
-Андрей Вербицкий | Безжалостный край (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В результате аварии в одном научно-исследовательском институте происходит взрыв и часть города переносится в иную реальность. Выжившие в катастрофе люди по воле судьбы и вследствие роковой ошибки наших ученых попали во враждебное окружение, лишились привычных благ и надежды на будущее. Чтобы выжить, нужно забыть себя? А может, наоборот, надо помнить, кто ты, во что (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 14:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF051B2B2DE352821BC02A789CA9504CFA6F9B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310645   (545250) от 26.06.2019
 
 Элизабет Макнил | Мастерская кукол (2019) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545250.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545247.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545246.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545181.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544858.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544852.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544849.jpg" />
 </div>
 
 
@@ -272,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544759.jpg" />
 </div>
 
 
@@ -298,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544653.jpg" />
 </div>
 
 
@@ -324,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544625.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544610.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544502.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544439.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544378.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544327.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544173.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544136.jpg" />
 </div>
 
 
@@ -536,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544133.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544098.jpg" />
 </div>
 
 
@@ -590,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544094.jpg" />
 </div>
 
 
@@ -616,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544083.jpg" />
 </div>
 
 
@@ -642,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544007.jpg" />
 </div>
 
 
@@ -668,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543846.jpg" />
 </div>
 
 
@@ -679,6 +600,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F09CE5256AB93C5599F6EA4C04228B355004BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238892   (543773) от 02.08.2018
+
+Наринэ Абгарян | С неба упали три яблока (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543773.jpg" />
+</div>
+
+
+###  Подробнее
+
+История одной маленькой деревни, затерянной высоко в горах, и её немногочисленных обитателей, каждый из которых немножко чудак, немножко ворчун и в каждом из которых таятся настоящие сокровища духа. От автора: «Бабушка говорила – ближе всех к небесам старики и дети. Старики потому, что им скоро уходить, а дети потому, что недавно пришли. Первые уже догадываются, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF2C06C9FF594A661E01564C4F6246D6E9B199E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238925   (543768) от 02.08.2018
+
+Майя Лунде | История пчел (2018) [FB2]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман норвежки Майи Лунде – антиутопия, скрещенная с семейной сагой.
+1852-й год, Англия. Любитель-естествоиспытатель Уильям Сэведж, отягощенный большой семьей и денежными затруднениями, впадает в депрессию, потому что отказался от мечты своей юности – занятий наукой. Вынырнув из душевной трясины, он решает изобрести новый улей, который прославит его имя и даст достаток (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Анастасия НаумоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C526AB7B15EC4411E87E4E837E278421345584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048627   (543762) от 05.09.2016
+
+Льюис Пэджетт| Все тенали бороговы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрушки из будущего становятся причиной исчезновения двоих детей в прошлом, а также влияют на написание Кэрролом «Алисы в Зазеркалье».
+На основе рассказа также в 2007 году снят фильм, русский перевод названия "Последняя Мимзи вселенной", режиссер Роберт Шэй.Жанр: ФантастикаПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729D471918F4E9FE141BF3076FE4D5D904A788BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

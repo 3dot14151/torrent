@@ -1,29 +1,3 @@
-###  Публикация: 1136880   (670525) от 24.05.2017
-
-Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Late Shift - это криминальный FMV-триллер, ставки в котором как никогда высоки. После того, как студента-математика Мэтта силой втягивают в ограбление рентабельного аукционного дома, ему не остаётся ничего иного, кроме как попытаться доказать свою невиновность в этом жестоком лондонском ограблении. Ваши выборы будут иметь последствия с самого начала и до самого конца.Тип издания: SteamRipРазработчик: CtrlMovieЖанр: Movie, Action, Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730AF62046B8F21B3BA9B2924CFDE8481C72F8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136837   (670522) от 24.05.2017
 
 Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
@@ -32,7 +6,7 @@ Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670522.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Fear for Sale 5: The 13 Keys / Страх на продажу 5: 13 ключей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670491.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Oxygen Not Included (2017) [Ru/En] (217565) SteamRip Let'sPlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670442.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ HordeCore (2022) [Ru/Multi] (1.06.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670438.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Steel Division: Normandy 44 (2017) [Ru/Multi] (300080502/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670419.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Telepath Tactics (2015) [En] (1.051) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670222.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670136.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Total War: Napoleon (2018) [Ru/Multi] (1.3.0) SteamRip R.G. Origins [Definitive 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670025.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Total War: Empire (2018) [Ru/Multi] (1.5.0) SteamRip R.G. Origins [Definitive Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670021.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670014.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Awakened (2016) [En/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669907.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Awakened (2016) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669882.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Earth Space Colonies (2016) [En] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669754.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dovetail Games Flight School (2016) [En/Multi] (1.0.8470.0) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669753.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Battlezone (2017) [Ru/Multi] (1.08/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669385.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dark Parables 9: Queen of Sands (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669352.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Bonfire Stories: The Faceless Gravedigger / Истории у костра: Бе
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668950.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ ICED (2017) [Ru/Multi] (23.05.2017) Repack VseTop
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668826.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Inversion (2012) [Ru/Multi] (5.48) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668812.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dark Parables 14: Return of the Salt Princess (2018) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668792.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Mystery Tales 9: The Other Side (2017) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668790.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.3L) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668706.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (20170523/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668702.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Lossless Repack R.G. Catalyst [G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668699.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668424.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C9411B387788429657B04E5E0AC953AF83FFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224103   (668022) от 08.05.2018
+
+Edge of Reality 3: Fatal Luck / Край Реальности 3: Роковая Удача (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Edge of Reality. Ребенком, Вас оставили в нескольких шагах от приюта с единственным ключом к разгадке Вашей личности. Годы спустя, эта подсказка приведет вас к двери Азарского игрового дома, где Вы соглашаетесь принять участие в секретном турнире, только самых удачливых игроков. Но вместо ответов, Вы оказываетесь вовлечены в опасную (   Читать дальше...   )Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F1FCDDEBCCBC62FDAD99A2D1B6D564E90A447E
 ```
 
 https://mybot314.ru/tekegram_catalog/

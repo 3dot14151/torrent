@@ -1,29 +1,3 @@
-###  Публикация: 1421058   (319182) от 04.11.2020
-
-Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Asterix и Obelix с помпой возвращаются в новой версии, полной римлян. На дворе 50-й год до н.э. Вся Галлия оккупирована римлянами... Вся? Нет! Одна деревушка, населенная непокорными галлами, до сих пор сопротивляется захватчику. И гарнизонам римских легионеров в укрепленных лагерях Babaorum, Aquarium, Laudanum и Petitbonum живется очень несладко.Тип издания: LicenseРазработчик: OSome StudioЖанр: Экшн, ПриключениеЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC23138CDEE9E92BC280E88D069986CA7AD71216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182180   (318798) от 09.11.2017
 
 Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318798.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318449.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317906.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316369.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315612.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Miasmata [En] (L) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314601.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Stories Untold (2017) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313740.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/En] (3.0/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313736.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313730.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313104.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312897.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312382.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311651.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Book of Unwritten Tales 2 (2015) [En/Multi] (25.11.2015) License PROPHET [Al
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311544.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311428.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310996.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.3.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310987.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309018.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307945.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306935.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306774.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306718.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) Repack Other s [Masterpiece Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306542.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306537.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305804.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF8BBD316472D666F9773ED4DA8680C186F1553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266655   (305799) от 05.12.2010
+
+Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дилогия]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осень 2008 года. Агент ФБР Виктория Макферсон отправляется в штат Мэн для расследования убийства Одри Данниген. Фотографии с места преступления не оставляют сомнений - маньяк, известный как «Палач Восточного побережья», вновь начал собирать кровавую жатву. Убийца не поленился тщательно вымыть труп, при вскрытии не было обнаружено никаких улик. Преступник снова не (   Читать дальше...   )Тип издания: RePackРазработчик: GameCo StudiosЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F769A18485D1112490DA92C6CF7C3F38BAC4F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

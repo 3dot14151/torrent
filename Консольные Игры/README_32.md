@@ -1,109 +1,3 @@
-###  Публикация: 925098   (540539) от 06.08.2015
-
-Under Night In-Birth Exe: Late (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Разработчик French-Bread (серия игр Melty Blood) совместно с компанией Arc System Works (серии игр Guilty Gear и BlazBlue) решили выпустить игру, изначально разработанную для аркадных автоматов, Under Night In-Birth Exe:Late (UNIEL) на PS3 со множеством улучшений и обновлений!
-
-Under Night In-Birth Exe:Late это файтинг со стильными, плавно анимированными специальными (   Читать дальше...   )Тип издания: UnofficialРазработчик: Ecole Software, French BreadЖанр: Arcade (Fighting) / 2DЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2502425CB2C51E263E4D4489E7762033204BC23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925266   (540533) от 06.08.2015
-
-THE KING OF FIGHTERS XIII (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-The King of Fighters XIII – очередная часть серии файтингов The King of Fighters, которая объединяет вместе бойцов различных проектов компании SNK Playmore. В игре представлено более 30 персонажей, а бои ведутся между командами по 3 бойца в каждой. Действия нового турнира разворачиваются после событий The King of Fighters XI и являются заключительной частью сюжетной (   Читать дальше...   )Тип издания: UnofficialРазработчик: SNK PlaymoreЖанр: FightingЯзык озвучки: Японский, Английский, Немецкий, Итальянский, ФранцузскийЯзык интерфейса: Японский, Английский, Немецкий, Итальянский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CD7B2ABAD62894C76462AC68C5C3E6DE470251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925154   (540411) от 06.08.2015
-
-The Smurfs 2 (2013) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [License] [Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Платформер The Smurfs 2 основан на одноименном мультфильме про маленьких смурфиков. Вместе с Папой Смурфом, Ворчуном, Красавчиком, Растяпой и другими героями вы побываете в захватывающем приключении от Парижа до Нью-Йорка, где сразитесь со злобным Гаргамелом. В игре представлен кооперативный режим до 4 человек.Тип издания: LicenseРазработчик: WayForward TechnologiesЖанр: Arcade, PlatformerЯзык озвучки: Английский, Немецкий, Итальянский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Итальянский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FADAC10AA7125B9DB9C7B0807F1415E481E277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925140   (540274) от 06.08.2015
-
-Army of Two: The 40th Day (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Тщательно спланированная и подготовленная серия загадочных катастроф превращает Шанхай в руины. И, конечно же, неразлучная пара ветеранов-наемников — Салем и Риос — оказываются в самом центре событий. Не в то время, не в том месте, но в правильной компании! Теперь они должны проложить себе путь через разрушенные городские кварталы и не взирая на риск и опасности, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Electronic ArtsЖанр: 3rd-person shooterЯзык озвучки: АнглийскийЯзык субтитров: ОтсутствуетЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F59C9744F03D290A2F4A271F8DE29CB5EB7D16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050225   (539781) от 07.09.2016
 
 Akiba's Trip: Undead & Undressed (2014) [PSVita] [USA] 3.60 [HENkaku] [License] [Multi]
@@ -112,7 +6,7 @@ Akiba's Trip: Undead & Undressed (2014) [PSVita] [USA] 3.60 [HENkaku] [License] 
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539781.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ Where the Wild Things Are (2009) [PS3] [USA] 2.76 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538626.jpg" />
 </div>
 
 
@@ -164,7 +58,7 @@ Sky Force Anniversary (2016) [PS3] [USA] 4.21 [PSN] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537774.jpg" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536200.jpg" />
 </div>
 
 
@@ -219,7 +113,7 @@ The Legend of Heroes: Trails of Cold Steel II (2016) [PS3] [USA] 3.55 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535949.jpg" />
 </div>
 
 
@@ -246,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535763.jpg" />
 </div>
 
 
@@ -274,7 +168,7 @@ Project Zero 2: Wii Edition [Wii] [PAL] [Multi 5] [Undub] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535753.jpg" />
 </div>
 
 
@@ -303,7 +197,7 @@ Phineas and Ferb: Across the 2nd Dimension (2011) [PS3] [USA] 3.40 [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534832.jpg" />
 </div>
 
 
@@ -329,7 +223,7 @@ Brink (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534830.jpg" />
 </div>
 
 
@@ -356,7 +250,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534731.jpg" />
 </div>
 
 
@@ -382,7 +276,7 @@ Soul Sacrifice Delta (Limited Edition) (2014) [PSVita] [USA] 3.60 [HENkaku] [Rep
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534031.jpg" />
 </div>
 
 
@@ -408,7 +302,7 @@ Monster Hunter World Iceborne (2019) [PS4] [EUR] 5.05 [HEN] [License / 15.11 / D
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533468.jpg" />
 </div>
 
 
@@ -434,7 +328,7 @@ PSA World Tour Squash (2015) [Wii] [PAL] [License] [En/Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533112.jpg" />
 </div>
 
 
@@ -460,7 +354,7 @@ Nail’d (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533025.jpg" />
 </div>
 
 
@@ -486,7 +380,7 @@ Color Zen (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop / 1.1] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532345.jpg" />
 </div>
 
 
@@ -512,7 +406,7 @@ Velocity 2X (2014) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.04] [Multi]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530309.jpg" />
 </div>
 
 
@@ -540,7 +434,7 @@ Killzone: Mercenary /  Killzone: Наемник (2013) [PSVita] [EUR] 3.60 [HENk
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530196.jpg" />
 </div>
 
 
@@ -566,7 +460,7 @@ Snark Busters: High Society (2014) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528831.jpg" />
 </div>
 
 
@@ -592,7 +486,7 @@ Street Fighter X Tekken (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.08] [Ru
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528781.jpg" />
 </div>
 
 
@@ -619,7 +513,7 @@ Pro Evolution Soccer 2017 (2016) [PS3] [USA] 4.21 [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528768.jpg" />
 </div>
 
 
@@ -645,7 +539,7 @@ LEGO Indiana Jones 2: The Adventure Continues [Wii] [PAL] [Multi 6] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528025.jpg" />
 </div>
 
 
@@ -671,7 +565,7 @@ Almost There / Почти у цели (2019) [PS4] [USA] 5.05 [HEN] [License / 1
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527141.jpg" />
 </div>
 
 
@@ -682,6 +576,111 @@ Almost There / Почти у цели (2019) [PS4] [USA] 5.05 [HEN] [License / 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70858027B60C7951A8EB9B0ADF9069306BF51B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052845   (527132) от 15.09.2016
+
+PlayStation All-Stars Battle Royale (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.12] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вступите в невероятное противостояние самых известных и самых харизматичных героев игр PlayStation. С вашим участием на PlayStation 3 развернется битва, равной которой еще не бывало.
+В составе команды звезд такие легендарные персонажи, как спартанец Кратос, малыш-музыкант Параппа из игры Parappa the Rapper, искатель сокровищ Натан Дрейк, воришка Слай Купер и многие (   Читать дальше...   )Тип издания: RepackРазработчик: SuperBot Entertainment, SCE Santa Monica StudioЖанр: Action, Fighting, 2DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545F42DAB4AE26DACBAF0BD7A37B9E806B7BCF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052829   (526439) от 16.09.2016
+
+Call of Duty: Black Ops Declassified (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.02] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty, сверхпопулярный шутер от компании Activision, ставший легендой и заполучивший миллионы поклонников по всему миру, завоевывает новые пространства. Возможность очутиться в эпицентре кровопролитной войны, развернувшейся в альтернативном будущем, появится у владельцев игровой системы PS Vita. Судьба мира окажется в их руках - в буквальном смысле этих слов. (   Читать дальше...   )Тип издания: RepackРазработчик: Nihilistic SoftwareЖанр: Action, Shooter, First-Person, ArcadeЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1BACC90800BDA05781FDFDDC0A2F7DC45CE900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370367   (525559) от 01.08.2011
+
+Animal Crossing - Let's Go to the City [Wii] [PAL] [MULTI 5] (2008)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия симуляторов жизни для игроков всех возрастов - Animal Crossing - с огромным успехом выходила на многих платформах Nintendo, от Nintendo64 до Nintendo DS. Теперь продолжение великолепной серии пришло и на Wii! Animal Crossing: Let's Go to the City очень напоминает The Sims. Вы покупаете небольшой домик в городке, наполненном дружелюбными зверьками, и начинаете (   Читать дальше...   )Разработчик: Nintendo EADЖанр: life simulationЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADDAD08A33E639B5436D81A16908FE46C09BC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156150   (525435) от 11.08.2017
+
+Skullgirls 2nd Encore+ (2017) [PS3] [USA] 4.50 [Repack / 1.08 / 7DLC] [Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525435.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Skullgirls игроки участвуют в битве между двумя командами, каждая из которых состоит от одного до трёх персонажей. Каждый игрок, управляя своей командой, пытается нокаутировать всех персонажей противника или сохранить наибольшее количество жизненной энергии среди всех участников своей команды к тому моменту, когда закончится время раунда. Сюжет кампании одиночной (   Читать дальше...   )Тип издания: RepackРазработчик: Lab Zero GamesЖанр: 2D файтингЯзык интерфейса: Английский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39717F5AA4C4AC0ED1BADEB4A4D66299744D34C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

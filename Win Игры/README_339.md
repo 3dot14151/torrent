@@ -1,29 +1,3 @@
-###  Публикация: 1641885   (196577) от 24.06.2023
-
-Yakuza 5 Remastered (2021) [Multi] (1.006a) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Пройдите пятую часть саги о Кадзуме Кирю - с разрешением 1080p и частотой 60 кадров в секунду. В декабре 2012 года Кадзума Кирю отказался от образа жизни «легендарного якудза» и покинул свой тихий приют в Окинаве. Теперь он живет в Фукуоке, где скрывает свою личность, работая водителем такси в районе красных фонарей. Он делает всё это, чтобы дорогой ему человек мог (   Читать дальше...   )Тип издания: LicenseРазработчик: Ryu Ga Gotoku StudioЖанр: Action, AdventureЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Корейский, Китайский, ЯпонскийЯзык интерфейса: Английский, Корейский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C01D346FC057D60C1E02BB513A8937CC13D959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632160   (196565) от 24.06.2023
 
 Unwording (2023) [En] (1.02) License GOG
@@ -32,7 +6,7 @@ Unwording (2023) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196565.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Fireball Wizard (2023) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196534.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Undead Horde 2: Necropolis (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196521.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Yakuza 6: The Song of Life (2021) [Multi] (1.009a/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196520.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Farworld Pioneers (2023) [Ru/Multi] (1.0.0) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196508.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196453.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Spellcaster University (2021) [Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196381.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Livestream: Escape from Hotel Izanami (2023) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196353.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196310.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196294.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196286.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Civitatem (2022) [En] (1.09) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196282.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Dr. Fetus Mean Meat Machine (2023) [Ru/Multi] (1.0.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196279.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196276.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196258.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (2.01) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196203.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cloud Meadow (2020) [En] (0.1.4.2a2) License GOG [Early Access] [18+]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196115.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Afterimage (2023) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196112.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196038.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196026.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196015.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195974.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Stay Out of the House (2022) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195961.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195939.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195890.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Adeptus Titanicus: Dominus – пошаговая тактическая стр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D38FF0FB7A6704C7575308B36443A705CC745A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645738   (195879) от 11.07.2023
+
+Time Loader (2021) [Ru/Multi] (1.6.7) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Time Loader - игра-головоломка, пропитанная ностальгией по 90-м годам. Погрузитесь В музыку прошлого и прикоснитесь к ретро-технологиям. Вам предстоит управлять маленьким роботом, который совершает путешествие в прошлое, а также попадает в параллельные миры. Ваша главная цель - предотвратить трагический инцидент.Тип издания: LicenseРазработчик: FlazmЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A844A26C5F2AF389AB57F7D0EE7872EB6BCCDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

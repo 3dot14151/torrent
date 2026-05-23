@@ -1,87 +1,3 @@
-###  Публикация: 786144   (736680) от 17.05.2014
-
-Эльдар Рязанов, Владимир Моисеенко, Александр Новотоцкий | Старые клячи (2014) [MP3, Светлана Репина]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-«Старые клячи» — киноповесть, литературная основа российского художественного фильма 2000 года, снятого Эльдаром Рязановым.
-История начинается начинается с встречи четырёх подруг, женщин средних лет: профсоюзной активистки, завлаба, железнодорожницы и школьной учительницы, в 1989 году. Сын одной из них, Любы (Лия Ахеджакова), погиб в Афганистане. Подруги поют под (   Читать дальше...   )Жанр: КиноповестьПродолжительность: 04:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529F073102FDEA508A5D464CCFD9F8627145C054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397932   (736613) от 24.07.2020
-
-Виктор Ардов | Рассказы (2011) [MP3, Олег Исаев, Фаина Раневская]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Виктор Ефимович Ардов, советский писатель-сатирик, драматург, сценарист, карикатурист.
-Регулярно печатался в сатирических изданиях «Крокодил» и «Красный перец»,  в 1942 году ушёл добровольцем на фронт, в звании майора служил в армейской печати, награждён орденом «Красной Звезды».
-Виктор Ардов — автор большого количества сборников юмористической прозы.
-В этом сборнике (   Читать дальше...   )Жанр: Отечественная проза. ЮморПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3672FBD87716EA2ADC2E837F0F0D08DE963DD3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398096   (736523) от 24.07.2020
-
-Сергей Мусаниф | Больше, чем Физрук (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эм… Сильные продолжают возвышаться, слабые все еще падают, Система по-прежнему жрет всех.
-
-А он – физрук.Жанр: Боевая фантастикаПродолжительность: 08:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CD62650B855C4F5A99BDF0E23A1E8626C50CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 786171   (736470) от 17.05.2014
 
 Сергей Тармашев | Древний. Час воздаяния (2014) [MP3]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736470.jpg" />
 </div>
 
 
@@ -116,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736413.jpg" />
 </div>
 
 
@@ -142,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736406.jpg" />
 </div>
 
 
@@ -168,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736405.jpg" />
 </div>
 
 
@@ -194,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736396.jpg" />
 </div>
 
 
@@ -220,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736198.jpg" />
 </div>
 
 
@@ -246,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735875.jpg" />
 </div>
 
 
@@ -272,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735874.jpg" />
 </div>
 
 
@@ -298,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735852.jpg" />
 </div>
 
 
@@ -324,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735841.jpg" />
 </div>
 
 
@@ -350,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735815.jpg" />
 </div>
 
 
@@ -376,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735741.jpg" />
 </div>
 
 
@@ -403,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735587.jpg" />
 </div>
 
 
@@ -430,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735583.jpg" />
 </div>
 
 
@@ -456,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735575.jpg" />
 </div>
 
 
@@ -482,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735385.jpg" />
 </div>
 
 
@@ -508,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735379.jpg" />
 </div>
 
 
@@ -534,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735373.jpg" />
 </div>
 
 
@@ -562,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735372.jpg" />
 </div>
 
 
@@ -588,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735367.jpg" />
 </div>
 
 
@@ -614,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735366.jpg" />
 </div>
 
 
@@ -640,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735354.jpg" />
 </div>
 
 
@@ -666,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735336.jpg" />
 </div>
 
 
@@ -677,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D18A9050814179634C8BC680350614B14DC3740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528351   (734953) от 01.02.2022
+
+Евгений Сухов | Горящие камни (2022) [MP3, Борис Горский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Январь 1945 года. Восьмая гвардейская армия генерала Чуйкова штурмует город-крепость Познань. В авангарде наступающих сил – батальон майора Прохора Бурмистрова. Бойцы выбивают немцев с железнодорожной станции, форсируют реку Варта и захватывают один из фортов крепости. Однако, оправившись от первого удара, фашисты бросаются в контратаку и блокируют наших на верхних (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 07:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F20F8D21B187FACC07AD2D91E26479AA61DE94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528239   (734943) от 01.02.2022
+
+Российский аудиофонд | Коллекция "Старое Радио" [Я] (2022) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции сайта  "Старое Радио" по состоянию на январь 2022 года.Жанр: РадиозаписиПродолжительность: 97:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230239FA50042ECFEFBA252C6EC044302443FD85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528241   (734940) от 01.02.2022
+
+Российский аудиофонд | Коллекция "Старое Радио" [Школьная фонохрестоматия] (2022) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции сайта  "Старое Радио" по состоянию на январь 2022 года.Жанр: РадиозаписиПродолжительность: 106:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546965CB47F595C22EEEC9D63CAE823B670F34B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

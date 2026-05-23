@@ -6,7 +6,7 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651479.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651475.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion P
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651378.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650391.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649827.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649824.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649677.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649675.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649670.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Medwyn Goodall - The Dreamworld (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649543.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649061.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649057.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Cel
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648641.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648635.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|trac
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648625.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Quiero Fiesta (Club Hits 2018) [MP3|320 Kbps] <Latin Hip-Hop, Reggaeton, Ba
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648472.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648418.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Pia
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647764.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647694.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647614.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647543.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647540.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647307.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647264.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - 599 фраз из нашего кино и мультфильмов (2009) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646868.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646812.jpg" />
 </div>
 
 

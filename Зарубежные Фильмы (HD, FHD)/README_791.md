@@ -1,55 +1,3 @@
-###  Публикация: 1551106   (235265) от 14.05.2022
-
-Операция «Мясной фарш» / Operation Mincemeat (2021) WEBRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Во время Второй мировой войны два офицера разведки используют труп и фальшивые документы, чтобы перехитрить немецкие войска.Производство: Великобритания, США / Archery Pictures, Cohen Media Group, FilmNation Entertainment, See-Saw FilmsЖанр: Драма, военныйРежиссер: Джон МэдденАктеры: Колин Фёрт, Мэттью Макфэдиен, Келли Макдоналд, Пенелопа Уилтон, Джонни Флинн, Джейсон Айзекс, Саймон Расселл Бил, Пол Риттер, Марк Гэтисс, Николас РоуПеревод: Профессиональный, многоголосый (Jaskier)Язык озвучки: Русский, английскийСубтитры: Английские (Forced, Full, SDH)Продолжительность: 02:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75942462F972D6FB77A57BB00927F9DFBBE5F6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576378   (235255) от 14.09.2022
-
-Опасный свидетель / Wrong Place (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Когда бывший полицейский становится единственным свидетелем убийства, на него открывается охота. Но втянув в игру его семью, преступник совершает большую ошибку, не предполагая, насколько его соперник действительно опасен.Производство: США / BondIt Media Capital, Buffalo 8 Productions, Emmett/Furla/Oasis Films (EFO Films)Жанр: боевик, триллер, криминалРежиссер: Майк БёрнсАктеры: Брюс Уиллис, Эшли Грин, Майкл Сироу, Тексас Бэттл, Стэйси Дейнджер, Масси Фурлан, Джош Ретт Ноубл, Мохаммед Альбадж, Джон Д. Хикман, Хэссел КромерПеревод: Дублированный (Pride Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7253B702B80367598848C9A7DACAE9894628A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632530   (235237) от 10.05.2023
 
 Медуза / Medusa (2021) BDRip [H.264/1080p-LQ] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235237.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235209.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235173.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235124.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235096.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234992.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234986.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234979.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234977.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234921.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234885.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234849.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234841.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234751.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234740.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234737.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234724.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234682.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234662.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234637.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234599.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234534.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234489.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234482.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4452D0AA9D7C5D01C840495752616C3445A8C061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551868   (234442) от 18.05.2022
+
+Скорая / Ambulance (2022) WEB-DL [H.264/1080p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший военный Уилл Шарп отчаянно нуждается в деньгах на экспериментальную операцию для смертельно больной жены. Он обращается за помощью к сводному брату-преступнику Дэнни, и тот втягивает его в ограбление банка. Однако всё идет не по плану, братьям приходится угнать машину скорой помощи вместе с врачом и тяжело раненым патрульным, и теперь их единственный шанс (   Читать дальше...   )Производство: США / Universal Pictures, Endeavor Content, New Republic Pictures, Bay Films, Dentsu, Project X EntertainmentЖанр: Боевик, триллер, драма, криминалРежиссер: Майкл БэйАктеры: Джейк Джилленхол, Яхья Абдул-Матин II, Эйса Гонсалес, Гаррет Диллахант, Кейр О’Доннелл, Джексон Уайт, Оливия Стамбулиа, Моусес Ингрэм, Колин Вуделл, Седрик СандерсПеревод: Дублированный (Line), профессиональный многоголосый (Jaskier, TVShows, Ukr.Цікава Ідея)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, Английские (full, SDH), Болгарские, Датские, Голандские, Чешские, Итальянские, Польские, Сербские, Немецкие (SDH), Эстонские, ФинскиеПродолжительность: 02:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6BCE81230188C4B70BDD5F89408649E14EEEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539098   (234433) от 18.09.2022
+
+Послезавтра / The Day After Tomorrow (2004) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля уверенно движется навстречу глобальной экологической катастрофе. В одной части света все живое погибает от засухи, в другой разбушевавшаяся водная стихия сносит города. Близость катастрофы вынуждает ученого-климатолога, пытающегося найти способ остановить глобальное потепление, отправиться на поиски пропавшего сына в Нью-Йорк, в котором наступил новый ледниковый (   Читать дальше...   )Производство: США / Twentieth Century Fox, Centropolis Entertainment, Lions Gate FilmsЖанр: Триллер, Фантастика, ДрамаРежиссер: Роланд ЭммерихАктеры: Дэннис Куэйд, Джейк Джилленхол, Эмми Россам, Дэш Майок, Джей О. Сандерс, Села Уорд, Остин Николс, Эрджей Смит, Тэмлин Томита, Саша РойзПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357F9AEFA799A78CDDB528CDB239C35889A18609
 ```
 
 https://mybot314.ru/tekegram_catalog/

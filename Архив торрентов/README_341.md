@@ -6,7 +6,7 @@ Wallpapers - Computer Desktop Wallpapers Collection 602 [JPEG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987113.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987112.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987090.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Acronis Backup Advanced Workstation / Server 11.5 Build 43994 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987086.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DaVinci Resolve Studio 12.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987084.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ HistoryHound 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987076.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Affinity Publisher Beta 1.8.0.535 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987074.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ FotoMix 9.0 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987073.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987072.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ YoWindow Unlimited Edition 3S Build 137 Final [Multi/Rus] Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987069.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Light Alloy 4.70 Build 1256 RC2 Portable [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987068.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987059.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Inna - Hot (2nd Version) (2009) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987054.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ MovieSherlock 6.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987051.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tidy Up 5 v5.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987048.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ CheckBook Pro 2.6.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987047.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Distel - Wapens (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darkwav
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987046.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ AnyMP4 Data Recovery 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987045.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ExactScan Pro 20.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987042.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Website Watchman 2.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987041.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Cisdem Data Recovery 6 v6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987040.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Type Fu 4.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987039.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ E-Trophee Andros. Сезон 2019-2020. Этап 4. Serre Chevalier. Гонка 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987036.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Blocs 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987034.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ TunesKit Video Converter 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987030.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Fugenn & The White Elephants - Layer Of Soul (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987029.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1774741   (12621) от 04.07.2025
-
-Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Глубоко вдохните, сосчитайте до трёх и... вперёд! Катитесь кувырком, пока не покорите гору в снежном продолжении Lonely Mountains: Downhill. Lonely Mountains: Snow Riders - это игра, в которой есть и серьёзные испытания, и лёгкая атмосфера. Прокладывайте лыжню по глубокому снегу, скользите по ледяным озёрам и выполняйте невероятные прыжки вместе с друзьями. Snow (   Читать дальше...   )Тип издания: RepackРазработчик: Megagon IndustriesЖанр: Инди, Гонки, СпортЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771579   (12617) от 04.07.2025
 
 The Spell Brigade (2024) [Ru/Multi] (0.11.0.4764) Repack Pioneer [Early Access]
@@ -32,7 +6,7 @@ The Spell Brigade (2024) [Ru/Multi] (0.11.0.4764) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12617.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12613.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Moonstone Island (2023) [Ru/Multi] (1.5.2553.9/dlc) License GOG [Collector’s E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12610.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tales of Maj'Eyal (2012) [En] (1.7.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12606.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Frog Jump (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12601.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Build 52126/dlc) Repack FitGirl [Brutal Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12595.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Perfect Heist 2 (2021) [Ru/Multi] (03.07.2025) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12591.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12587.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12586.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12518.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Paranormal Torment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12497.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ship of Fools (2022) [Ru/Multi] (1.5.2.613fe2f3/dlc) Repack Let'sРlay [Aquapoca
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12481.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12466.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Assault On Proxima (2023) [En] (1.02) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12458.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12451.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12450.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ City Enigma (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12428.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188/dlc) Repack Let'sРlay [Complete Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12412.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12410.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12405.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Heart of the Machine (2025) [Multi] (0.660.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12404.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12403.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12395.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12392.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12391.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CA64EE7FF47DD46257BFF44CDACE612081B1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805401   (12387) от 06.07.2025
+
+The Echo Paradox (2025) [En] (19081580) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12387.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Echo Paradox - это психологическая игра ужасов, в которой вы исследуете альтернативные вселенные с различными существами. Человечество стоит на пороге тревожного откровения – мультивселенная реальна, но жутко лишена жизни. Как смелый доброволец исследовательской группы Phaselink, вы отправляетесь в пугающее путешествие, отправляясь в неизвестные параллельные (   Читать дальше...   )Тип издания: RepackРазработчик: VirtuzillaЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F18B917D9DBCF0BA12E7F176A4E2CE88A3EC12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ UFS Explorer Professional Recovery 5.20.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544263.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Native Instruments - Symphony Series String Ensemble v1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544262.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AusLogics BoostSpeed 9.0.0.0 DC 27.08.2016 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544257.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Norton 360 22.17.3.50 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544228.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Unity Pro 2018.4.2f1 x64 LTS Release [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544188.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Opera 62.0.3331.18 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544185.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Bandicam 4.4.2.1550 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544174.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Norton Internet Security 22.17.3.50 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544138.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ JetBrains PyCharm-professional 2019.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544096.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ UltraISO Premium Edition 9.6.2.3059 DC 25.08.2014 RePack (& Portable) by Trovel 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543946.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ JottaCloud 3.1.55.483 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543861.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Comodo IceDragon 61.0.0.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543832.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Torch Browser 65.0.0.1599 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543777.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ReGen - KeyCode 1.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543758.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543709.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VSO ConvertXtoDVD 6.0.0.63 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543662.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543593.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Pazera Free Audio Video Pack 2.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543589.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NVIDIA GeForce Desktop 398.82 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543557.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.07.31 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543539.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Norton 360 22.17.3.50 [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543518.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543514.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Unreal Commander 3.57 alpha 13 Build 1163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543506.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ AVG Internet Security 2016 16.111.7797 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543499.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Skype 8.48.0.51 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543456.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ DLL Care 1.0.0.2266 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543447.jpg" />
 </div>
 
 

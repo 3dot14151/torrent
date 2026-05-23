@@ -6,7 +6,7 @@ Gekijouban Hibike! Euphonium / Sound! Euphonium The Movie / Играй, эуфо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463889.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463820.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nozo x Kimi | Нодзоми и Кимио [2014, OVA, 3 из 3] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463809.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Devilman: Tanjou Hen / Devilman - The Birth / Человек-дьявол OVA-1 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463754.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Amon Devilman Mokushiroku / Amon: The Apocalypse of Devilman / Амон: Апо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463747.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Danganronpa 3 Zetsubou Hen | Danganronpa 3: The End of Hope's Peak High School -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463613.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Danchigai / Big Difference / Большая разница [2015, TV, 12 + OVA] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462386.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Akai Koudan Zillion | Red Photon Zillion | Красный фотон Зилли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462348.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Akai Koudan Zillion: Utahime Yakyoku | Red Photon Zillion: Burning Night | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462195.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Gundam G no Reconguista / Гандам: Возвращение на G [2014, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461677.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gekijouban Hibike! Euphonium | Sound! Euphonium The Movie | Играй, эуфо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461628.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Aa! Megami-sama! OVA / Ah! My Goddess! OVA / Моя богиня! OVA [1993, 5 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461624.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mai-HiME / My-Hime / Май-Химэ TV [2004, TV, 26  эп. + 26 сп.] DVDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461622.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Garou Densetsu / Fatal Fury / Фатальная ярость [1992/1993/1994, M
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460532.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Princess Tutu | Принцесса Тютю [2002, TV, 38 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459963.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Monster Musume no Iru Nichijou / Everyday Life with Monster Girls / Повсед
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459354.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Prison School / Школа-тюрьма [2015, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459351.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Watashi ga Motenai no wa Dou Kangaete mo Omaera ga Warui! / WataMote / Не мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457574.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Non Non Biyori Repeat / Прекрасные деньки [2015, TV, 12] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457280.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Neppu Kairiku Bushi Road | Neppuu Kairiku Bushi Road | Burning Wind Ocean Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455446.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Plunderer | Грабитель [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455421.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Log Horizon | Лог Горизонтa [TV-1][2013, TV, 25 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455214.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453602.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Kami nomi zo Shiru Sekai: Megami Hen / The World God Only Knows: Goddesses Arc /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453213.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Okusama ga Seito Kaichou! / My Wife Is the Student Council President! / Моя �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453099.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Ore Monogatari!! / My Love Story!! / Моя история! [2015, TV, 24] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452993.jpg" />
 </div>
 
 

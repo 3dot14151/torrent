@@ -1,29 +1,3 @@
-###  Публикация: 1727582   (54463) от 03.06.2024
-
-Echoes (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Визуальная новелла и приключенческая игра в жанре point-and-click, которая отправит вас в увлекательное путешествие по сельскому американскому городку. Разгадайте тайну убийства в Гринхарте, кажущемся сонным городке, хранящем мрачные эльдритские секреты. Великолепные черно-белые иллюстрации, раскрашенные вручную, меняются в зависимости от сюжета: от мягких серых (   Читать дальше...   )Тип издания: SceneРазработчик: Nova-boxЖанр: Приключение, Визуальные новеллыЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727585   (54462) от 03.06.2024
 
 Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
@@ -32,7 +6,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54462.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54448.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54412.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54366.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54208.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54076.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54067.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53994.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53870.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53863.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53859.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53849.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53821.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53800.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ NUKITASHI Дилогия (2023-2024) [Multi] (1.0.1/1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53676.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Three Goblin Wobblin' (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53651.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Wild at Heart (2021) [Multi] (1.1.9.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53599.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53576.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53559.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53534.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53479.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Enigma Quest (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53477.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53469.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.15/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53467.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Fallen Seeds (2024) [Ru/En] (1.0.15) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53371.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Fallen Seeds отправляет игроков на Ультар, планет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74F2FE942FED1A436C4D7E3FDF8A6EFE445DF502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730396   (53236) от 15.06.2024
+
+Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куда попадает наша душа перед тем, как перевоплотиться? Это мир Промежутка, затерянный между сном и явью. Здесь нет плохих и хороших, нет добра и зла, этот мир живет по своим законам. В нем сложно выжить и еще труднее – спастись. Лишь одна субстанция питает обитателей Промежутка – Цвет. Все вокруг: предметы, чувства, существа – ее источник, а любое действие ведет (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick LodgeЖанр: Экшены, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
 ```
 
 https://mybot314.ru/tekegram_catalog/

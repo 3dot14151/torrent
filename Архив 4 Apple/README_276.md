@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695979.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sketch 84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695978.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cookie 5 v 5.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695930.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Twixl Publisher 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695924.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ PDF Reader Pro Edition 2.8.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695871.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ FontLab VI v 6.1.3 (7002b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695816.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Video Editor MovieMator Pro 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695811.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MarginNote 3 v 3.2.2003 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695809.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Creo Pro 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695806.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Touch Forms Pro 7.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695801.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Money Pro 2.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695799.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ DaVinci Resolve Studio 12.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695798.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ DRmare Music Converter for Spotify 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695767.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ iDatabase 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695664.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ iA Writer 5.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695656.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ iTubeGo YouTube Downloader Pro 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695523.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Pixelmator Pro 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695414.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ iGallery Pro — Best Instagram Uploader 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695196.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ PatterNodes 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695193.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ TaskPaper 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695136.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ TouchCopy 16.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695131.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Direct Message for Instagram Pro 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695128.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Email Archiver Enterprise 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694938.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Calendarique 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694830.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Adobe Photoshop Lightroom Classic CC 2018 v7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694672.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Aeon Timeline 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694551.jpg" />
 </div>
 
 

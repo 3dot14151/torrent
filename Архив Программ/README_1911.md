@@ -6,7 +6,7 @@ PIDKey Lite 1.64.4 b36 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159206.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Photo AI 2.1.1 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159190.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159189.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ n-Track Studio Suite 10.0.0.8209 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158979.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Perfectly Clear WorkBench 4.6.0.2614 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158955.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Radiant Photo 1.1.2.341 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158953.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ TweakNow WinSecret Plus! 4.9.14 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158951.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ KORG - Wavestate Native 1.1.1 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158948.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ KORG - Modwave Native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158944.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ One Commander Pro 3.28.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158938.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ RSS Guard 4.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158931.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sumatra PDF 3.5.15264 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158922.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Extreme Picture Finder 3.65.11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158897.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Nitro PDF 14.17.2.29 (x64) Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158864.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ PotPlayer 221215 (1.7.21862) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158863.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Rainmeter 4.5.17 Build 3700 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158861.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ IObit Smart Defrag Pro 9.2.0.323 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158859.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by elchupacabra (x86/x64) Standard [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158852.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158843.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MetaProducts Offline Explorer Enterprise 8.5.0.4972 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158831.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Maxon ZBrush 2022.0.6 (x64) RePack by OctaneS [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158817.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ foobar2000 1.6.11 DarkOne + DUIFoon Portable by MC Web (04.12.2022) (Облег�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158801.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MInstAll v.25.12.2022 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158764.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ MInstAll v.25.12.2022 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158762.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Wise Program Uninstaller 1.83.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158698.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ MediaFire 1.8.12.11026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158691.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1793379   (20428) от 24.04.2025
-
-Всемирный потоп / The End We Start From (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Англию настигает наводнение невиданных масштабов. В Лондоне вода постепенно проникает в дом беременной женщины, и она с трудом успевает добраться до больницы, где рожает долгожданного ребёнка. Однако и здесь становится небезопасно. Женщина вместе с младенцем и мужем переезжают за город в дом его родителей. Но вскоре трагические обстоятельства разлучают супругов, (   Читать дальше...   )Производство: Великобритания / Anton, BBC Film, BFI Film FundЖанр: драма, триллерРежиссер: Махалия БелоАктеры: Джоди Комер, Джоэль Фрай, Кэтрин Уотерстон, Бенедикт Камбербэтч, Марк Стронг, Джина Макки, Нина Сосанья, Ив Рассу, Раманике Ахлувалиа, Нил БеллПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1E55FE27A7D310D3D9272C01AEE796EDA6CE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793343   (20419) от 24.04.2025
-
-Отмель / The Shallows (2016) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Бескрайний океан, безлюдный пляж и идеальная погода для серфингистов в поисках хорошей волны. Казалось бы, ничто не предвещает беды для очаровательной любительницы серфинга в одиночку. Разве что свидание тет-а-тет с гигантской акулой, которая загонит спортсменку на песчаную отмель и не отступит до тех пор, пока не получит своё.Производство: США / Columbia Pictures, Ombra Films, Weimaraner Republic PicturesЖанр: Ужасы, триллер, драмаРежиссер: Жауме Коллет-СерраАктеры: Блейк Лайвли, Оскар Хаэнада, Анджело Джосу Лозаньо Корзо, Бретт Каллен, Седона Ледже, Пабло Кальва, Диего Эспехель, Джанелл Бэйли,Ава Дин, Челси МудиПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 01:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F953456BE4AE290737EA940C6699B17A30455F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793354   (20411) от 24.04.2025
 
 Элизиум: Рай не на Земле / Elysium (2013)  UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20411.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20388.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20363.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20341.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20327.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20323.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20310.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20223.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20216.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20209.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20187.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20128.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19997.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19930.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19927.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19895.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19874.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19873.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19785.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19783.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19714.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19702.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19694.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19693.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3017405A4ECC6535CB87F95836C84D6BEFA2CC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795060   (19634) от 02.05.2025
+
+Расхитители гробниц. Королева монстров / Luo bu po you ling / Lop Nor Tomb (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно древней легенде, королева Лоуаня была жестокой правительницей, и предводитель народа гумо убил её священным мечом. Это привело к падению её государства. Тем не менее, верная красная жрица королевы скрыла её тело в черной башне Лоп-нор, которую охраняет черный змей до тех пор, пока она не оживёт. Никто не знает, что произошло с красной жрицей, но её барабан, (   Читать дальше...   )Производство: КитайЖанр: приключения, фэнтези, боевикРежиссер: Кай Кевин ХуанАктеры: Бай Энь, Ху Сюээр, Ян Дунци, Би Мэнгэ, Цзюй Пэнцзяо, Лю Фэйфань, Гао ЦзыганПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE719167AB4CEF4A4BDB64D23DD9DCE52FC0838A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792747   (19614) от 02.05.2025
+
+Астрал. Спуск к дьяволу / The Painted (2024) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эвелин неожиданно получает в наследство от сестры огромное поместье. Переехав туда с семьей, она обнаруживает в подвале странный алтарь. Когда сначала пропадает ее дочь, а потом сын, Эвелин выясняет, что у этого дома мрачная история — здесь было совершено немало убийств и самоубийств, а сестра перед смертью пыталась провести тут какой-то темный ритуал. Чтобы вернуть (   Читать дальше...   )Производство: США / Cadence PicturesЖанр: ужасыРежиссер: Саша СиблиАктеры: Алекса Палладино, Шон Бриджерс, Джейдон Кэл, Джессика Рут Белл, Зара Кинг, Лелэнд Александр, Sam H. Clauder II, Мэтт Дивайн, Патрис Джонсон, Dieter H. Kiesel Jr.Перевод: Дублированный, двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (sdh)Продолжительность: 01:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C364D049D32A1DFB87962549F11E15CCE95B3ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

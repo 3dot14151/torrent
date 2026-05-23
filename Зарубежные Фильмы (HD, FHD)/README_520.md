@@ -1,55 +1,3 @@
-###  Публикация: 1045995   (556668) от 25.08.2016
-
-Крик 4 / Scream 4 (2011) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сидни Прескотт последние несколько лет провела в относительной тишине и покое. Жизнь потихоньку налаживается, вдали от вспышек и видеокамер папарацци. Но когда находят труп одного из студентов, мир Сидни Прескотт вновь начинает рушиться. Всему виной возродившийся убийца в маске «Лицо Призрака».Производство: США / Dimension FilmsЖанр: ужасы, детективРежиссер: Уэс КрэйвенАктеры: Нив Кэмпбелл, Дэвид Аркетт, Кортни Кокс, Эмма Робертс, Рори Калкин, Хайден Панеттьери, Эрик Кнудсен, Адам Броди, Мэри МакДоннелл, Энтони АндерсонПеревод: Дублированный (R5)Продолжительность: 01:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCAD64813178F3EEABFB8F1D762790A556ED4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154036   (556653) от 28.07.2017
-
-Неоспоримый 4 / Boyka: Undisputed IV (2016) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Случайное убийство на ринге заставляет Юрия Бойка переосмыслить всё то, во что он верил. Узнав о том, что жена убитого им бойца находится в беде, Бойка решает принять участие в турнире высшего уровня, чтобы выиграть и спасти её от рабства, тем самым, искупив свою вину.Производство: Bulgaria | USAЖанр: БоевикРежиссер: Тодор ЧапкановАктеры: Скотт Эдкинс, Теодора Духовникова, Алон Абутбул, Юлиан Вергов, Брахим Ачаббаке, Пол Чахиди, Пети Петков, Валентин Ганев, Владо Мажанаов, Мартин Форд ...Перевод: Профессиональный многоголосый (ненормативная лексика)Субтитры: АнглийскийПродолжительность: 01:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6184E53306518E0DD0BE90C1C21FC2AC5B5B2966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046039   (556639) от 25.08.2016
 
 Голубь сидел на ветке, размышляя о бытии / En duva satt p en gren och funderade p tillvaron (2014) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556639.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556629.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556622.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556621.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556549.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556534.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556531.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556525.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556485.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556478.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556433.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556346.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556343.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556317.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556244.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556238.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556230.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556214.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556206.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556033.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556025.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555971.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555960.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555959.jpg" />
 </div>
 
 
@@ -674,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7016251EAC9CCBC8054BC18DBFD5544B591C33FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306061   (555897) от 02.06.2019
+
+Расчленитель / Kolobos (1999) BDRip [H.264/1080p-LQ] [GBR Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художница Кайра получила заманчивое предложение: принять участие в съемках экспериментального фильма. Для этого она вместе с четырьмя молодыми людьми — Томом, Эрикой, Гэри и Тиной должна провести три месяца в курортном домике в горах с бесплатным проживанием и едой.
+Кайра разрешает новым друзьям посмотреть свои мрачные и гнетущие рисунки, но ничего не рассказывает (   Читать дальше...   )Производство: США / Armitage PicturesЖанр: Ужасы, Триллер, ДетективРежиссер: Даниэль Лиатович, Дэвид Тодд ОсвиркАктеры: Эми Уэбер, Донни Терранова, Николь Пелерин, Джон Фэйрли, Промис ЛаМарко, Илья Волох, Симс Томас, Тодд Бидл, Мари Уайсс, Джонатан РоунПеревод: Двухголосый профессиональный (Екатеринбург Арт)Субтитры: Русские (full), Английские (SDH)Продолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8838A5BFDAA458AE2D5E3060BE0856CF8038FEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306025   (555856) от 02.06.2019
+
+Отмщение / Avengement (2019) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступнику дают в тюрьме отгул, во время которого он сбегает из-под наблюдения и начинает мстить людям, которые сделали его хладнокровным убийцей.Производство: Великобритания, Samuel Goldwyn FilmsЖанр: Боевик, криминалРежиссер: Джесси ДжонсонАктеры: Скотт Эдкинс, Крэйг Фэйрбрасс, Томас Тургус, Ник Моран, Кирстон Вэрэйнг, Лео Грегори, Бо Фаулер, Луис Мэндилор, Теренс Мэйнард, Росс О’ХеннессиПеревод: Многоголосый закадровый (HDRezka Studio)Субтитры: Английские (Full, SDH)Продолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C68F47B9399EF14F7F72E5D013DE9ED7C4FC48
 ```
 
 https://mybot314.ru/tekegram_catalog/

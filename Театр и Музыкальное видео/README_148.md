@@ -1,116 +1,3 @@
-###  Публикация: 257565   (48713) от 27.07.2024
-
-Фил Коллинз - Прощальный тур / Phil Collins: Finally... The First Farewell Tour (2005) 2xDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Замечательный как по песенному материалу
-(сплошные хиты: In the Air Tonight, Another Day in Paradise, You Can't Hurry Love,...),
-так и по энергетике концерт.01. Drums, Drums & More Drums
-02. Something Happened On the Way to Heaven
-03. Against All Odds
-04. Don't Lose My Number(   Читать дальше...   )Язык субтитров: English, Spanish, German, French, Italian, Dutch, PortugueseПродолжительность: 323 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047183   (48648) от 27.07.2024
-
-Валентин Катаев - Юморески Валентина Катаева (1968) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По рассказам Валентина Катаева "Дневник горького пьяницы", "Шубка" и "Жемчужина".
-Маленький шедевр замечательного режиссёра Александра Белинского с прекрасными ленинградскими актёрами. Смешные и очень жизненные рассказы - случаи из жизни и ситуации по рассказам Валентина Катаева поставлены и сыграны ведущими ленинградскими актёрами...Производство: СССР, Ленинградское ТелевидениеЖанр: Фильм-спектакль, комедияРежиссер: Александр БелинскийАктеры: Аркадий Стучков, Юрий Аптекман, Валентина Ковель, Вадим Медведев (I), Георгий Куровский, Людмила Макарова, Владимир ТатосовПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A917AE98BBAB6C5A73860D07AF6D584F8E92AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193817   (48615) от 28.07.2024
-
-Василий Шукшин - Михаил Ульянов читает рассказы Василия Шукшина (1977) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сравнительно небольшая, но очень достойная работа Михаила Александровича Ульянова, а также известного своими запоминающимися телепостановками режиссера Бориса Михайловича Конухова и его группы. В исполнении М. Ульянова прозвучали три рассказа В.М. Шукшина: "Раскас", "Осенью", "Микроскоп". В моноспектакль внесен также личный момент: Ульянов (   Читать дальше...   )Производство: СССР, Центральное телевидениеЖанр: Моноспектакль, литературное чтениеРежиссер: Борис КонуховАктеры: Михаил УльяновСубтитры: отсутствуютПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622FC0878E280BC19C0F1E085535FF6E93470AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463788   (48603) от 28.07.2024
-
-"Послушайте!" Вечер Авангарда Леонтьева (2012) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия вечера Авангарда Леонтьева в Московском Международном Доме Музыки.
-
-Авангард Леонтьев читает и комментирует поэму Михаила Лермонтова "Тамбовская казначейша", а также несколько стихотворений.
-В программе использованы рисунки Михаила Лермонтова.Жанр: поэзияРежиссер: Анастасия СинельниковаПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D026B4B370FE45E46A2CF67FDE976258F888DC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046808   (48602) от 28.07.2024
 
 Борис Лавренев - Разлом (1977) SATRip (2 серии) (Московский театр им. М.Н. Ермоловой)
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48602.jpg" />
 </div>
 
 
@@ -146,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48587.jpg" />
 </div>
 
 
@@ -172,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48577.jpg" />
 </div>
 
 
@@ -199,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48570.jpg" />
 </div>
 
 
@@ -225,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48541.jpg" />
 </div>
 
 
@@ -253,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48540.jpg" />
 </div>
 
 
@@ -280,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48536.jpg" />
 </div>
 
 
@@ -308,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48535.jpg" />
 </div>
 
 
@@ -336,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48526.jpg" />
 </div>
 
 
@@ -364,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48452.jpg" />
 </div>
 
 
@@ -392,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48446.jpg" />
 </div>
 
 
@@ -419,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48443.jpg" />
 </div>
 
 
@@ -448,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48441.jpg" />
 </div>
 
 
@@ -475,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48431.jpg" />
 </div>
 
 
@@ -501,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48425.jpg" />
 </div>
 
 
@@ -527,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48418.jpg" />
 </div>
 
 
@@ -554,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48408.jpg" />
 </div>
 
 
@@ -580,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48360.jpg" />
 </div>
 
 
@@ -608,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48357.jpg" />
 </div>
 
 
@@ -634,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48340.jpg" />
 </div>
 
 
@@ -660,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48336.jpg" />
 </div>
 
 
@@ -686,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48330.jpg" />
 </div>
 
 
@@ -699,6 +586,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12FFE671110427D3B888171A9537161AE5028B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713686   (48329) от 31.07.2024
+
+А король-то голый (1992) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по пьесе Евгения Шварца "Голый король".
+Пьеса Евгения Шварца основана на нескольких андерсеновских сказках: "Свинопас", "Принцесса на горошине" и "Новое платье короля".
+У Шварца "Голый король" - протест против глупости и ограниченности.
+В одном королевстве живет хорошенькая принцесса, в другом - старый (   Читать дальше...   )Производство: Телерадиокомпания "Петербург", Творческое объединение "Искусство".Жанр: Комедия, Сказка, МьюзиклРежиссер: Борис ГерштАктеры: Король- Николай Трофимов, Первый министр - Георгий Штиль, Принцесса - Юлия Соколова, Генрих - Александр Саюталин, Христиан - Олег Куликович, Министр нежных чувств - Борис Смолкин, Король-отец - Александр Демьяненко, Первая дама - Ольга Волкова, Мэр - Николай Поздеев, Камердинер - Евгений Тиличеев, Повар - Сергей Лосев, Ученый - Изиль Заблудовский, Портной - Александр (   Читать дальше...   )Продолжительность: 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E04E525BC4D41A081C005207ED63E1332DE7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 330626   (48325) от 31.07.2024
+
+Васса Железнова (1953) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Васса Железнова, владелица волжского пароходства "Храповы и Железновы", - умная, расчетливая женщина, умудренная жестоким жизненным опытом. Она не может не осознавать ничтожества и никчемности окружающих ее людей: мужа, брата, дочерей. Васса мучительно ищет приемника своему "делу" и находит его в маленьком Коле, своем внуке. Но за ним приезжает (   Читать дальше...   )Жанр: Телевизионный спектакльРежиссер: Константин Зубов, Леонид ЛуковВ ролях: Вера Пашенная, Михаил Жаров, Елизавета Солодова, Шамин НиколайФормат: AVIПродолжительность: 1:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C28581AF8F40B29F28A993117023FB22FB40E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772372   (48310) от 31.07.2024
+
+Виноватые (1987) TVRip (театр им. Моссовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48310.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе Алексея Арбузова.
+В дом молодого юриста Леонтия Соколика нанимается домработница Мария Васильевна. Постепенно выясняется, что она - мать Леонтия, которого она бросила двадцать пять лет назад ради новой настоящей любви. Сейчас ее сын – успешный юрист – ради карьеры вынужден расстаться со своей любимой женой. Перед кем и за что виноваты герои пьесы? (   Читать дальше...   )Жанр: Телеспектакль, пьеса, драмаРежиссер: Андрей МеккеАктеры: Георгий Тараторкин, Галина Дашевская, Елена Валюшкина, Валерий Сторожик, МихаилПродолжительность: 02:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C0FD1B5FC8374B408C08D5E45F8DF26779EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663060   (48304) от 31.07.2024
+
+В городе хорошая погода (1983) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48304.jpg" />
+</div>
+
+
+###  Подробнее
+
+О деятельности председателя исполкома небольшого города - Павла Петровича Леднева. Не все ладится на работе и в личной жизни героя, но в любых ситуациях проявляются его высокие нравственные качества.Жанр: Киноповесть, мелодрама, телеспектакльРежиссер: Юрий КротенкоАктеры: Олег Ефремов, Елена Козелькова, Евгения Уралова, Людмила Полякова, Юлия Юльская, Александр Шаврин, Игорь Охлупин, Ольга Станицина, Евгений Евстигнеев, Аркадий КруглякПродолжительность: 01:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B37E128DBD8C29EAECD376DC12DAA2E60BB9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

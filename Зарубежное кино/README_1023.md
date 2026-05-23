@@ -1,56 +1,3 @@
-###  Публикация: 530801   (560335) от 03.08.2012
-
-Сказки юга / Southland Tales (2006) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 2008 году, после Третьей мировой войны, Лос-Анджелес находится на пороге социальной, экономической и природной катастрофы. Звезда боевиков, параноидальный шизофреник Боксер Сантариос, страдает амнезией и периодически видит будущее. Его жизнь переплетается с жизнями Кристы Нау, звездой кино для взрослых, которая разрабатывает свое собственное телевизионное реалити-шоу…Жанр: фантастика, фэнтези, триллер, драма, комедияРежиссер: Ричард КеллиАктеры: Дуэйн «Скала» Джонсон, Шонн Уильям Скотт, Сара Мишель Геллар, Джастин Тимберлэйк, Эми Полер, Вуд Харрис, Мэнди Мур, Кристофер Ламберт, Кевин Смит, Кертис АрмстронгПеревод: Профессиональный (Многоголосый, закадровый)Субтитры: (srt): РусскийПродолжительность: 02:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C313C82B9C1CC1A97A7D963A49F1F7850F59F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530416   (560321) от 03.08.2012
-
-Спаун / Spawn (1997) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-«Краповый берет» Эл Симмонс убит своим начальником во время выполнения очередной миссии. Попав в чистилище, он заключает сделку с Дьяволом. Сатана дает ему силу, доспехи и оружие.
-В обмен на то, чтобы еще раз увидеть свою жену, Симмонс должен предварить приход сил Зла на Землю. Оказавшись на свободе, он разрывает контракт в одностороннем порядке...Жанр: Ужасы, Фэнтези, БоевикРежиссер: Марк А.З. ДиппеАктеры: Майкл Джей Уайт, Джон Легуизамо, Мартин Шин, Тереза Рэндл, Никол Уильямсон, Д.Б. Суини, Мелинда Кларк, Мико Хьюз, Сидни Бодуан, Майкл ПападжонПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235219   (560241) от 11.07.2018
 
 Нечего терять / TBS / Nothing to Lose (2008) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560241.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560229.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_560225.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560220.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560158.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560157.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560154.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560143.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560137.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560134.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_560126.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560040.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560032.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560020.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560016.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559994.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559987.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559744.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559715.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559713.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559706.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559585.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559549.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559547.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B12A1C76CC7461301765FC63048E68A119E0CD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305009   (559506) от 28.05.2019
+
+Не отпускай его / Holding the Man (2015) HDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в Австралии 1970-1980-х гг. Тим и Джон учатся в католической школе для мальчиков в Мельбурне. Джон возглавляет футбольную команду, а Тим пробует свои силы на сцене школьного театра. Парни тянутся друг к другу и постепенно юношеская влюблённость перерастает в нечто более серьёзное. Отношения Тима и Джона будут длиться 15 лет. Героям (   Читать дальше...   )Производство: Австралия / Goalpost Pictures, John Barry Group, Screen AustraliaЖанр: Драма, Мелодрама, БиографияРежиссер: Нил АрмфилдАктеры: Райан Корр, Крэйг Стотт, Гай Пирс, Энтони ЛаПалья, Джеффри Раш, Керри Фокс, Камилла Ах Ким, Брайан Липсон, Ли Корми, Сара СнукПеревод: Многоголосый любительский, одноголосый любительскийСубтитры: Русские, английскиеПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9C065496129643F6EAD283CE8D5D9DD419F8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304994   (559504) от 28.05.2019
+
+Особь 3 / Species III (2004) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара — уже третье поколение получеловеческого-полуинопланетного существа. Это почти совершенная особь, которая была возрождена ренегатом — профессором биохимии Абботом. Жестокая в своих поисках партнера для размножения, Сара обладает удивительной физической силой и способностью преобразовывать свое тело в различные агрессивные формы, выбрасывать щупальца, когти. (   Читать дальше...   )Производство: США / FGM Entertainment, Metro-Goldwyn-Mayer (MGM)Жанр: Ужасы, ФантастикаРежиссер: Брэд ТернерАктеры: Робин Данн, Роберт Неппер, Санни Мабри, Амелия Кук, Джон Пол Питок, Майкл Уоррен, Кристофер Ним, Патриша Бетун, Джоэль Штоффер, Джеймс Лео РайанПеревод: Двуголосый профессиональный, авторскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CF23F12D2601DE9AB25AF34DB889D40A7DCE74
 ```
 
 https://mybot314.ru/tekegram_catalog/

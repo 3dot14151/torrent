@@ -1,55 +1,3 @@
-###  Публикация: 1299784   (595781) от 03.05.2019
-
-Стикс / Styx (2018) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рике 40, по профессии она врач скорой помощи. Собираясь в отпуск, она загружает всем необходимым собственную небольшую парусную яхту и берёт курс на остров Вознесения, предвкушая тишину и покой. Однажды Рики замечает из окна рыболовецкий траулер. Попытка выйти на связь с судном оказывается безуспешной. Однако ситуация и без того ясна: на палубе масса людей, они кричат (   Читать дальше...   )Производство: Германия, Австрия / Schiwago Film, Amour Fou Vienna, Westdeutscher RundfunkЖанр: ДрамаРежиссер: Вольфганг ФишерАктеры: Сюзанна Вольф, Gedion Oduor Wekesa, Kelvin Mutuku Ndinda, Инга Биркенфелд, Александр Байер, Dominik Böth, Anika Menger, Mario Mangion, Chris Spiteri, Charlie GaleaПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (Full)Продолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EB16651AD68DB071DBFCDD83AE3A0F896B57F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914896   (595772) от 03.07.2015
-
-Одинокий рейнджер / The Lone Ranger (2013) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История блюстителя закона Джона Рида, который с помощью индейца Тонто стал легендарным мстителем в маске, стоящим на защите справедливости. Тонто с юмором и небылицами повествует о тех приключениях, которые пришлось пережить двум непохожим друг на друга героям, сведенным судьбой для того, чтобы вместе сражаться против общего врага. Им приходится противостоять жадности (   Читать дальше...   )Производство: США / Walt Disney Pictures, Jerry Bruckheimer Films, Blind Wink ProductionsЖанр: вестерн, приключения, боевик, комедияРежиссер: Гор ВербинскиАктеры: Джонни Депп, Арми Хаммер, Том Уилкинсон, Уильям Фихтнер, Рут Уилсон, Барри Пеппер, Хелена Бонем Картер, Брайант Принц, Стивен Рут, Леон РиппиПеревод: профессиональный (полное дублирование), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 02:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37CE51D15F315D05A770667B6F46B743797C847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527098   (595740) от 25.07.2012
 
 Спунер / Spooner (2009) HDTVRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595740.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595714.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595701.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595693.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595602.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595598.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595535.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Cнайпер: воин призрак / Снайпер: призрачный с
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595531.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595485.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595483.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595306.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595252.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595164.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595029.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594941.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594939.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594765.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594738.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594733.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594697.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594612.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594474.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594463.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594417.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3DC2EB7C0751B77400FED0044D9C89811F7B4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914974   (594399) от 04.07.2015
+
+Пригородная готика / Suburban Gothic (2014) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594399.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Рэймонда престижная степень магистра делового администрирования, но он не может найти работу. Он может связываться с паранормальными явлениями, но его озадачивает общение в чате с милой девушкой. Выгнанный из большой городской квартиры, Рэймонд возвращается домой к своей властной матери, отцу, бывшему качку, и одноклассникам с пивными животами. Но когда мстительный (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, Триллер, КомедияРежиссер: Ричард Бейтс мл.Актеры: Мэттью Грей Гублер, Кэт Деннингс, Рэй Уайз, Барбара Нивен, Мьюз Уотсон, Сэлли Кёркленд, Мэл Родригез, Джеффри Комбс, Джон Уотерс, Ронни Джин БлевинсПеревод: Многоголосный закадровый, любительский (Андрей Питерский, Камилла Юнусова, Den904, DeadSno, Izanami, Gyllor, Robi Ainer)Продолжительность: 01:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239D7F26138A4AC5A9BF917D9EC65AFB593296A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039487   (594356) от 02.08.2016
+
+Кассадага / Cassadaga (2011) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кассадага - название городка во Флориде, население которого составляет чуть больше 200 человек. Говорят, его населяют люди с паранормальными способностями, которым платят большие деньги за сеансы всегда стремящиеся попасть туда туристы. Фильм рассказывает о том, что не стоит вызывать души своих умерших сестер, как бы по ним не скучали родственники, потому что призраки (   Читать дальше...   )Производство: США / Cassadaga Film Production, Poiley Wood EntertainmentЖанр: Ужасы, ТриллерРежиссер: Энтони ДиБлазиАктеры: Келен Коулмэн, Кевин Алехандро, Луиза Флетчер, Рас Блэквелл, Лукас Бек, Люсиус Бастон мл., Эми ЛоЦицеро, Сара Скулко, Рэйчел Дуроз, Авис-Мари Барнс, Хэнк Стоун, Кристина БахПеревод: ДублированныйПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FA7FEC638CCB50DF047B43D2BA3F4326C25524
 ```
 
 https://mybot314.ru/tekegram_catalog/

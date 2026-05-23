@@ -1,55 +1,3 @@
-###  Публикация: 508910   (670214) от 14.06.2012
-
-Сван / სვანი / Svani (2007) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Фильм - легенда о жизни, междоусобной вражде и любви, основан на реальных событиях. В густо заселенной Европе, в высокогорной грузинской части Кавказских гор, проживает старейшая грузинская христианская община, которая все еще следует древнейшим традициям кровавой мести. Существует легенда о башне рода Джачвлиани из общины Булахи. Как только наступал вечер, с вершины Тетнулды в виде огня снисходил в башню ангел-хранитель. Люди, живущие в башне, начинали молиться. Ангел-хранитель защищал людей, живших в башне, до тех пор, пока один из них не убил человека из другого рода. После этого белый ангел ни разу не появлялся…Жанр: ДрамаРежиссер: Сосо Джачвлиани, Бадри ДжачвлианиАктеры: Бадри Джачвлиани, Дариан Харшиладзе, Елена Великанова, Элгуджа Бурдули, Нугзар Курашвили, Александр Скотников, Зура Бегалишвили, Сосо ДжачвлианиПеревод: Двуголосый закадровыйПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509937   (670209) от 14.06.2012
-
-[Sp / Еn Sub] Хуан - истребитель кубинских зомби / Juan de los Muertos / Jaun Of The Dead (2011) DVDRip
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Гавана переживает эпидемию зомби. 40-летний бездельник Хуан решил заработать на этом. Под девизом «Хуан избавит вас от тех, кого вы любили» он предлагает людям за деньги избавляться от окружающих их инфицированных родственников и друзей. Но, когда эпидемия зомби накрывает всю страну, Хуан вынужден думать уже не о своем заработке, а о выживании.Жанр: Ужасы, КомедияРежиссер: Алехандро БругесАктеры: Алексис Диаз Де Виллегас, Хорхе Молина, Андреа Дуро, Андрос Перугоррия, Джазз ВилаПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EE343FA3A2EF4646524BEFE8CDF294FD367918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510670   (670200) от 14.06.2012
 
 Мальчишник в Техасе / I Hope They Serve Beer in Hell (2009) [H.264/720p-LQ] HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670200.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670154.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670140.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670124.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670123.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670118.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670105.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670085.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670066.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670033.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670032.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670026.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670024.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670019.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670017.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669991.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669979.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669978.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669975.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669974.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669972.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_669933.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669901.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669884.jpg" />
 </div>
 
 
@@ -671,6 +619,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3979A3B39789129D79B4D67FFEA1AB3CCD17B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030899   (669874) от 02.07.2016
+
+Планета обезьян: Революция / Dawn of the Planet of the Apes (2014) BDRip [H.265/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Численность генетически модифицированных обезьян, возглавляемых Цезарем, продолжает увеличиваться, но обезьянам угрожают люди, которым удалось выжить во время ужасной эпидемии десятилетней давности. Поначалу между соперниками устанавливается хрупкий мир, но он оказывается недолговечным. Обезьяны и люди находятся на грани войны, в ходе которой станет понятно, кто (   Читать дальше...   )Производство: США / TSG EntertainmentЖанр: Фантастика, Боевик, ДрамаРежиссер: Мэтт РивзАктеры: Энди Серкис, Джейсон Кларк, Гари Олдман, Кери Расселл, Тоби Кеббелл, Коди Смит-МакФи, Кирк Асеведо, Ник Тёрстон, Терри Нотари, Карин Коновал, Джуди Грир, Джон Эйз, Энрике МурсианоПеревод: Дублированный, профессиональный (Blu-ray CEE)Язык субтитров: Итальянский, английский, русский, украинскийПродолжительность: 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E69A2864DB5FE6B4D074C16C423F27090029BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510179   (669856) от 14.06.2012
+
+Код доступа «Кейптаун» / Safe House (2012) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпускник Гарварда Мэтт мечтает со своей невестой переехать в Париж. Но она не знает, что уже год он работает на ЦРУ.
+
+ Легендарный агент ЦРУ Фрост владеет секретной информацией. Но он вышел из-под контроля, и теперь его главное правило: «не доверяй никому - тебя предаст каждый».
+
+ Их пути пересекутся в одном из красивейших городов мира - Кейптауне, где каждый должен будет сделать свой выбор.Жанр: Триллер, Криминал, ДетективРежиссер: Дэниэл ЭспинозаАктеры: Дензел Вашингтон, Райан Рейнольдс, Вера Фармига, Брендан Глисон, Сэм Шепард, Рубен Бладес, Нора Арнезедер, Роберт Патрик, Лиам Каннингэм, Юэль КиннаманПеревод: ДублированныйПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46944C11393AD55873A5B1004D4F17131CCFEE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

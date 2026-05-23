@@ -1,55 +1,3 @@
-###  Публикация: 1486824   (1004515) от 01.08.2021
-
-Новейший завет / The Brand New Testament / Le tout nouveau testament (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Да, Бог существует. Но он совсем не такой, каким мы его представляли. Он живет в Брюсселе, и у него есть не только сын, но и дочь. Она сбегает из дома и отправляется в наш мир искать приключения и испытывать терпение своего отца на прочность. Надолго ли его хватит?Производство: Бельгия, Франция, Люксембург / Belga Films Fund, Caviar Films, Juliette Films, La Wallonie, Le PacteЖанр: Фэнтези, комедияРежиссер: Жако ван ДормельАктеры: Бенуа Пульворд, Катрин Денёв, Франсуа Дамиенс, Иоланда Моро, Пили Груан, Лаура Верлинден, Серж Ларивьер, Дидье Де Нек, Марко Лоренцини, Ромен Желен, Анна Тента, Йохан Хелденберг, Давид МуржиаПеревод: Дублированный (iTunes)Субтитры: Английские, французскиеПродолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29024A5F30CC300D0E5836623B55A059440591CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486698   (1004513) от 01.08.2021
-
-Беги, прячься, бей / Run Hide Fight (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-17-летняя Зои живёт с отцом и никак не может смириться с недавней смертью матери, её даже не особо волнует предстоящий выпускной. Очередной день в школе внезапно оборачивается захватом заложников: вооружённые школьники-террористы удерживают одноклассников Зои и заставляют их вести онлайн-трансляцию происходящего. Тут-то девушке и пригодятся навыки охоты и выживания, (   Читать дальше...   )Производство: США / Bonfire Legend, Media Finance CapitalЖанр: Боевик, триллерРежиссер: Кайл РанкинАктеры: Изабель Мэй, Томас Джейн, Рада Митчелл, Эли Браун, Олли Шолотан, Трит Уильямс, Барбара Крэмптон, Сайрус Арнольд, Бриттон Сир, Кэтрин ДэвисПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (SDH), французские (Full)Продолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A1AC38145F12CAFE907CAE59ADA327235ABF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486645   (1004509) от 01.08.2021
 
 Беги, прячься, бей / Run Hide Fight (2020) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004509.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004508.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004502.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004501.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004448.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004444.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004414.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004405.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004404.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004403.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004396.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004391.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004321.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004317.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004315.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004287.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004278.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004275.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [UKR] [Line]
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004257.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004246.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004245.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004244.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004239.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004218.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C2A2F8BFE10228FA0A5378C42A14872698F48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349660   (1004217) от 02.01.2020
+
+Ford против Ferrari / Ford v Ferrari (2019) WEBRip [UKR] [Line]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция, 20th Century Fox Film Corporation, ...Жанр: Биография, Спорт, Драма, БоевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: ОтсутствуетЯзык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5BDC33BE550432F5E9D8214DC6B3E78397803B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349651   (1004212) от 02.01.2020
+
+Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция, 20th Century Fox Film Corporation, ...Жанр: Биография, Спорт, Драма, БоевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: ОтсутствуетЯзык озвучки: английский (оригинал)Субтитры: Русские, английские (Full)Продолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97EAD6DB8817624034FD7B8E14914CDB28AB83D
 ```
 
 https://mybot314.ru/tekegram_catalog/

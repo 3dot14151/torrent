@@ -1,55 +1,3 @@
-###  Публикация: 1565104   (494316) от 23.07.2022
-
-Прощённый / The Forgiven (2021) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Проезжая через марокканскую пустыню, чтобы посетить роскошную вечеринку старых друзей, богатые лондонцы Дэвид и Джо Хеннингер случайно сбивают подростка-марроканца. Опоздав на вечеринку, пара пытается скрыть инцидент сговором с местной полицией. Но когда отец мальчика прибывает в поисках справедливости, он озвучивает только одну просьбу — Дэвид и Джо должны отправиться (   Читать дальше...   )Производство: Великобритания / Assemble Media, Brookstreet Pictures, Head Gear FilmsЖанр: драмаРежиссер: Джон Майкл МакдонаАктеры: Джессика Честейн, Эбби Ли, Мэтт Смит, Рэйф Файнс, Калеб Лэндри Джонс, Кристофер Эбботт, Алекс Дженнингс, Мари-Жозе Кроз, Саид Тагмауи, Анас ЭльбазПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EBA3701FBB4AB65A4B22E8E8C1739112E9EA627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318470   (494315) от 06.08.2019
-
-Холостяки / The Bachelors (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История недавно овдовевшего мужчины, который вместе с 17-летнем сыном переезжает из провинции в Лос-Анджелес, чтобы всё начать с чистого листа. И действительно, смена окружения и знакомство с удивительными женщинами возымеют целительный эффект для обоих героев. Но оставят ли они в новой жизни место друг для друга?Производство: США / Matt Baer Films, Windowseat EntertainmentЖанр: Драма, КомедияРежиссер: Курт ФолькерАктеры: Одейя Раш, Дж.К. Симмонс, Джин Луиса Келли, Жюли Дельпи, Т.Дж. Рамини, Джей Хед, Кевин Данн, Джош Уиггинс, Тайрел Джексон Уильямс, Том Амандес, Хэролд Перрино, Спенсер ЛистПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB649781C402AA40D1411F60B4758A97319C58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318508   (494313) от 06.08.2019
 
 Голем: Начало / The Golem (2018) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494313.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494312.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494311.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494308.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494303.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494297.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494146.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494131.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494000.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493993.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493986.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493949.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493884.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493879.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493860.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493785.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493747.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493720.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493686.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493680.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493634.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493628.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493609.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493608.jpg" />
 </div>
 
 
@@ -670,6 +618,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7C694960A046F79AC4D10F6741314D4860DB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936348   (493566) от 12.09.2015
+
+Красотки в бегах / Hot Pursuit (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина-полицейский свято верит в закон и готова сделать все, дабы никто не остался безнаказанным, если посмеет преступить его. Когда же ее заданием станет доставка взбалмошной и капризной красавицы в другой город для дачи показаний, она поймет, что ничего не знала о реальной жизни, пока просиживала в кабинете. Мало того, что свидетельница откажется слушаться, так (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM), New Line Cinema, Pacific StandardЖанр: боевик, комедия, криминалРежиссер: Энн ФлетчерАктеры: Риз Уизерспун, София Вергара, Мэттью Дель Негро, Майкл Мосли, Роберт Казински, Ричард Т. Джонс, Бенни Нивз, Майкл Рэй Эскамиллья, Хоакин Косио, Джон Кэрролл ЛинчПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4708216F51FD8DA1C9FFC8CF0CA0539D92A4F365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936451   (493562) от 12.09.2015
+
+Последний легион / The Last Legion (2007) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493562.jpg" />
+</div>
+
+
+###  Подробнее
+
+476 год нашей эры. Римская империя в агонии… Династия Цезарей повержена… Последнего императора, 12-летнего Ромулуса Августуса, правившего страной всего один день, варвары заключают в темницу на острове Капри.
+
+Однако с помощью своего учителя и легионера Августус совершает побег и отправляется в рискованное путешествие к берегам Британии, чтобы возглавить Девятый (   Читать дальше...   )Производство: Великобритания, Италия, Франция, Тунис |  Dino De Laurentiis Company, Quinta Communications, Ingenious Film PartnersЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Даг ЛефлерАктеры: Колин Фёрт, Бен Кингсли, Айшвария Рай Баччан, Питер Муллан, Кевин МакКидд, Джон Ханна, Иэн Глен, Томас Сэнгстер, Руперт Френд, Нонсо АнозиПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC925C0F050F29B1F8111C700AA23037B7854CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

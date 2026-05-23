@@ -6,7 +6,7 @@ ChromePass 1.32 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670945.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VMware Workstation 11.1.0 Build 2496824 Lite + VMware-tools 9.9.2 RePack by alex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670936.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GeoGebra 6.0.693.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670871.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Firefox Quantum 66.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670831.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Dreamweaver CC 2014.1.1 Build 6981 RePack by alexagf [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670824.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ R-Studio 7.6 Build 158796 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670821.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Total Uninstall 6.19.1 DC 12.05.2017 Professional Edition RePack by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670774.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wise Data Recovery Pro 6.0.2.489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670729.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mozilla Firefox Quantum ESR 60.6.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670691.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mozilla Firefox 14.0  Beta 7 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670644.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SolveigMM Video Splitter 3.2.1206.13 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670643.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ K-Lite Codec Pack 13.2.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670630.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WinX HD Video Converter Deluxe 5.9.9 Build 23052017 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670627.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FileZilla 3.41.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670562.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ K-Lite Codec Pack 8.9.0 Beta (Full+Mega) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670553.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ WinRAR 5.50 Beta 3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670537.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Photoshop Lightroom CC 2015.10.1 (6.10.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670527.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Game WideScreener 1.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670483.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Viber 10.3.0.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670482.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mirillis Splash 2.1.0.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670436.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adobe components: Flash Player 32.0.0.156 + AIR 32.0.0.89 + Shockwave Player 12.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670346.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Q-Dir 5.16(32-bit/64-bit) + Portable [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670306.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Surf Anonymous Free 2.2.1.2 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670297.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BELOFF [dp] 2019.3.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670235.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Avidemux 2.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670225.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Adobe Animate CC and Mobile Device Packaging CC 2019 19.2.0.405 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670224.jpg" />
 </div>
 
 

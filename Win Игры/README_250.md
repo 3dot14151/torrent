@@ -1,29 +1,3 @@
-###  Публикация: 1249089   (437155) от 22.09.2018
-
-Grim Tales 15: The Hunger / Страшные сказки 15: Голод (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пятнадцатая часть увлекательной серии "Grim Tales" от Elephant Games и Большой рыбы. Ваша племянница Джеки Грэй была убита неизвестным злодеем, преступления которого остаются нераскрытыми вот уже 17-й год. Объединитесь с отцом полицейского Джеки и, используя свои способности, вернитесь в прошлое, чтобы остановить убийцу и спасти племянницу!Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F6609F74D91607D80156D51FD532874A5BC811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248925   (436847) от 22.09.2018
 
 My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
@@ -32,7 +6,7 @@ My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436847.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ STALINGRAD ABATIS (2018) [Ru/En/De] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436835.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Whispered Secrets 7: Forgotten sins / Нашептанные секреты 7: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436580.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Endless Legend (2014) [Ru/Multi] (1.5.1.s3/dlc) License HI2U
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436472.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ State of Decay: Year One (2015) [Ru/Multi] (1.0/dlc) Repack R.G Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436396.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ THORNYWAY (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436393.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Murdered: Soul Suspect (2014) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436392.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Late Shift (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436390.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Stay Close (2016) [En] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436370.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Clockwork (2016) [En] (1.0.0.3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436364.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Help (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436357.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Scars of Destiny (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435995.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mystery Crusaders - Resurgence of the Templars (2015) [En] Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435857.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435787.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Twilight Phenomena 3: The Incredible Show / Сумрачное явление: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435670.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.5898046) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435656.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Nevaeh (2020) [Ru/Multi] (1.0.1010) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435491.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Mars Horizon (2020) [Ru/Multi] (1.4.2.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435335.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ THYMESIA (2022) [Ru/Multi] (15.17249) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435333.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Monkey King: Master of the Clouds (2018) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435130.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Battle Royale Tycoon (2019) [Ru/Multi] (1.00) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435096.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Haunted Hotel 9: Phoenix / Проклятый отель 9: Феникс (2015) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435071.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Warlock Dilogy (2012-2014) [Ru/En] (1.4.1.56/2.2.202.24549) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434929.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Aggressors: Ancient Rome (2018) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434777.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Doll of Resurrection (2018) [En/Ch] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434630.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Doll of Resurrection - это игра в жанре экшен и rpg, разр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E53098D169EFEF39B4D57D835D6AB023ECFA5904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228950   (434626) от 23.09.2018
+
+BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) Repack R.G. Catalyst [Complete Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434626.jpg" />
+</div>
+
+
+###  Подробнее
+
+BLACKHOLE («Черная дыра») – суровый сюжетный платформер и в то же время - веселый фантастический квест с гравитационными головоломками, прохождение которых потребует более 15 часов. Парень, разносящий кофе, всех спасет! И мы имеем в виду вовсе не спасение от похмелья утром понедельника. Мы про Настоящее Спасение Мира. Потому что разносчик кофе - единственный, кто (   Читать дальше...   )Тип издания: RepackРазработчик: FiolaSoft StudioЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Чешский, Испанский и другиеЯзык интерфейса: Русский, Английский, Чешский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049A197A2A2D6E5C38277117666E4C248953BFA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

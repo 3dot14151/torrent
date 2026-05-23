@@ -6,7 +6,7 @@ VA - Condura Selection Part 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889697.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Uplifting Only Top15: February (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889673.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Physical Dreams - Cosmos (2016) [MP3|320 кб/с] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886151.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885883.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Best Of Silver Waves Recordings 2016 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883720.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - TranceMission 2017 (Mixed by Feel & Roman Messer) (2017) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883633.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Physical Dreams - Orbital (2016) [MP3|320 кб/с] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880933.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Armin Van Buuren A State Of Trance 800 (The Official Compilation) (2017) [M
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876284.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ DJ Dado - DJ Dado (2020) [MP3|320 Kbps] <Trance, Classic Trance, Downtempo, Drea
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872561.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Black Hole Trance Music 09-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871413.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Electronic Dance Music Vol.14 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864830.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Black Hole Trance Music 04-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860375.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857441.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Global DJ Broadcast Top 20 March (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853922.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848874.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841894.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841844.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Vocal Trance Philosophy Vol.2 (Mixed by Vyze) (2016) [MP3|320 кб/с] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840015.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Martin Graff & Eva Kade - Destiny (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832087.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Best Of Progressive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829898.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Melodic Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828250.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Ahmed Romel - 2 Compilations, 39 Singles, 62 Remixes, 3 Tracks (2010 - 2017) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827615.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive Hous
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825578.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Black Hole Trance Music 10-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824851.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823101.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Transire Recordings Best Of 2017 (Mixed by Lightform) (2017) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822554.jpg" />
 </div>
 
 

@@ -7,7 +7,7 @@ VA - Ждем лето под русский шансон (2026) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069848.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Майские праздники под шансон (2026) [FLAC|Lossless
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069847.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Новые хитовые песни 2026, Часть 5 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069846.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 7 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069845.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - На дачу под шансон (2026) [FLAC|Lossless|WEB-DL|tracks] <Ш�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068257.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Русский шансон для душевного застолья (202
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068254.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Русский шансон под шашлычок (2026) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068253.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Шансон года 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068251.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Самые новые песни о любви 14 (2026) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066957.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Шансон премьера 2026 апрель (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066956.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 6 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064655.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Шансон 2026 (Музыкальный хит-парад) (2026) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064651.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - 50 песен радио шансон, Часть 10 (2026) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061619.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Новые хитовые песни 2026, Часть 3 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061618.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Шансон премьера 2026 март (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061607.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Волчий шансон: Сборник крутых песен otKOSTETa
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059601.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Колючий Шансон: Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059598.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Новые хитовые песни 2026, Часть 2 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059596.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 1 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059595.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 2 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059594.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 4 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059592.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 5 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059590.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Шансон 90-х, Часть 4 (Избранные песни десят�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059589.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Новые хитовые песни 2026, Часть 1 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055314.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Русский Шансон_ Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055313.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Самые новые песни о любви 12 (2026) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055312.jpg" />
 </div>
 
 

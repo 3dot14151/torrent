@@ -1,55 +1,3 @@
-###  Публикация: 1315277   (513581) от 19.07.2019
-
-Поле битвы: Земля / Battlefield Earth: A Saga of the Year 3000 (2000) BDRemux [H.264/1080p] [Extended Edition] [GER Transfer] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-3000 год. Уже десять веков Землей правит жестокая раса пришельцев. Поработив людей, гиганты Сайклосы превратили завоеванную планету в источник сырья для своего далекого мира. Избежавшие смерти и рабства земляне первобытными племенами рассеялись по горам и лесам. Но однажды, получив доступ к оружию и технологиям пришельцев, они поднимают восстание. Начинается новая (   Читать дальше...   )Производство: США / Warner Bros., Morgan Creek Entertainment, Franchise PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Роджер КристианАктеры: Джон Траволта, Барри Пеппер, Форест Уитакер, Ким Коутс, Сабина Карсенти, Майкл Бирн, Кристиан Тессьер, Сильвен Ландри, Ричард Тайсон, Кристофер ФриманПеревод: Авторский (Ю. Сербин)Субтитры: Немецкие (full)Продолжительность: 01:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3604F4C1BDD8BCC463696ACEFF62224C323DE52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315437   (513577) от 19.07.2019
-
-Смейся или умри / Suomen hauskin mies (2018) BDRip [H.264/1080p] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1918 год. Финляндия после Гражданской войны. Знаменитый актер Парикка, считающийся лучшим комиком в стране, схвачен и отправлен в лагерь, где уже томятся его товарищи в ожидании смерти. Все «красные» будут казнены. Положение Парикки оказывается хуже всех: узники считают его предателем. Неожиданно комендант лагеря делает предложение актерам. Если они подготовят хорошее (   Читать дальше...   )Производство: Финляндия, Швеция / Inland Film Company, LjudbangЖанр: Драма, военный, историяРежиссер: Хейкки КуянпяяАктеры: Мартти Суосало, Яни Воланен, Лиина Пёвсти, Пааво Киннунен, Веса Вьерикко, Юсси Лехтонен, Юсси Никкиля, Томми Эронен, Пану ВауконенПеревод: Любительский двухголосый, любительский одноголосыйСубтитры: Русские (Full), английские (Full)Продолжительность: 01:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB020E96F432148C90229E25363030475B45C76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315399   (513541) от 19.07.2019
 
 Джон Уик 3 / John Wick: Chapter 3 - Parabellum (2019) WEBRip [UKR] [Line]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513541.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513512.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513490.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513431.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513420.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513419.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513417.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513416.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513415.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513410.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513400.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513329.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513323.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513322.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513315.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513301.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513267.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513223.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513221.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513195.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513189.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513187.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513147.jpg" />
 </div>
 
 
@@ -662,13 +610,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513141.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Шумная компания из пяти друзей сбегает на уик-энд подебоширить в изолированную от всего мира деревенскую хижину. Звучит знакомо? Ну так вы и не представляете, что вас ждёт на самом деле.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Дрю ГоддардАктеры: Ричард Дженкинс, Брэдли Уитфорд, Джесси Уильямс, Крис Хемсворт, Фрэн Кранц, Кристин Нора Коннолли, Анна Хатчисон, Брайан Дж. Уайт, Эми Эккер, Джоделль ФерландПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536721   (513140) от 19.08.2012
+
+Голодные игры / The Hunger Games (2012) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее. Деспотичное государство ежегодно устраивает показательные игры на выживание, за которыми в прямом эфире следит весь мир. Жребий участвовать в Играх выпадает юной Китнисс и тайно влюбленному в нее Питу. Они знакомы с детства, но теперь должны стать врагами. Ведь по нерушимому закону Голодных игр победить может только один из 24 участников. Судьям не важно (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Гэри РоссАктеры: Дженнифер Лоуренс, Лиам Хемсворт, Джош Хатчерсон, Элизабет Бэнкс, Вуди Харрельсон, Стенли Туччи, Ленни Кравиц, Уэс Бентли, Дональд Сазерленд, Уиллоу ШилдсПеревод: ДублированныйЯзык субтитров: Русские, Английские, Английские(SDH)Продолжительность: 02:22:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536865   (513133) от 19.08.2012
+
+Голодные игры / The Hunger Games (2012) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее. Деспотичное государство ежегодно устраивает показательные игры на выживание, за которыми в прямом эфире следит весь мир. Жребий участвовать в Играх выпадает юной Китнисс и тайно влюбленному в нее Питу. Они знакомы с детства, но теперь должны стать врагами. Ведь по нерушимому закону Голодных игр победить может только один из 24 участников. Судьям не важно (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Гэри РоссАктеры: Дженнифер Лоуренс, Лиам Хемсворт, Джош Хатчерсон, Элизабет Бэнкс, Вуди Харрельсон, Стенли Туччи, Ленни Кравиц, Уэс Бентли, Дональд Сазерленд, Уиллоу ШилдсПеревод: ДублированныйЯзык субтитров: Русские (2 вида), АнглийскиеПродолжительность: 02:22:33
 
 ## Скачать торент
 ```bash

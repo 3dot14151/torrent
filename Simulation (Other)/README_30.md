@@ -6,7 +6,7 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34851.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34826.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34817.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sun Haven (2023) [Ru/Multi] (1.7.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34758.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Primateria (2023) [Multi] (2.17.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34749.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34518.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34020.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Autopsy Simulator (2024) [Ru/Multi] (Build 153 413) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34005.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33909.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33795.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33486.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Oxygen Not Included (2019) [Ru/Multi] (647408/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33348.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.3.311/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33153.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32962.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32930.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) License GOG [Collector's Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32892.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Transport Fever 2 (2019) [Ru/Multi] (35924.0/dlc) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32577.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Recycling Center Simulator (2024) [Ru/Multi] (1.1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32510.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Architect Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32471.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32376.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32271.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32235.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32025.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32021.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Garry's Mod (2006) [Ru/Multi] (Build 162138607) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31950.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Beach Invasion 1945 - Pacific (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31828.jpg" />
 </div>
 
 

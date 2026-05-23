@@ -1,32 +1,3 @@
-###  Публикация: 1225041   (662767) от 13.05.2018
-
-VA - Andromed: Glamtronica Remix (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Andromeda: Glamtronica Remix - это новаторский подход к синтипоп-музыке со своей неповторимой подачей, включающий в себя глубокий, порой академический вокал, виртуозную работу с различными музыкальными жанрами и превосходные мелодии, которые сразу врезаются в память.001. LEVEL 2.0 - Off The Radar
-002. Fake The Envy - These Are The Fools (2016 Edit)
-003. Slave Republic - Something Inside You
-004. Night Drive - Trapeze Artist Regrets(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicaПродолжительность: 10:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387AB853836E313974E36E6803AF92D05F91CCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 341014   (662710) от 24.05.2011
 
 VA - Танцевальный Рай № 29 50/50 (2011) [MP3|256 kbps]<Pop | Dance>
@@ -35,7 +6,7 @@ VA - Танцевальный Рай № 29 50/50 (2011) [MP3|256 kbps]<Pop | Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662710.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ Missy Elliott - Get Ur Freak On (2017) Remix [MP3|320 Kbps] <G-House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662648.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ VA - Ночное такси. Лучшее за рулём. (2011) [MP3|128 kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662597.jpg" />
 </div>
 
 
@@ -113,7 +84,7 @@ VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662326.jpg" />
 </div>
 
 
@@ -142,7 +113,7 @@ VA - EDM European Collection (2017) [MP3|232-320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662216.jpg" />
 </div>
 
 
@@ -171,7 +142,7 @@ Ernesto Cortazar - Compilation part 2 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662198.jpg" />
 </div>
 
 
@@ -200,7 +171,7 @@ Ernesto Cortazar - Compilation part 4 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662194.jpg" />
 </div>
 
 
@@ -229,7 +200,7 @@ Ernesto Cortazar - Compilation Part 1(2022) [MP3|320 Kbps] <Easy Listening, Inst
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662191.jpg" />
 </div>
 
 
@@ -258,7 +229,7 @@ VA - Music News vol.174 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662189.jpg" />
 </div>
 
 
@@ -287,7 +258,7 @@ Willie Dixon - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662035.jpg" />
 </div>
 
 
@@ -316,7 +287,7 @@ VA - Summer Nostalgia: Cherry Disco 80s (2017) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661962.jpg" />
 </div>
 
 
@@ -345,7 +316,7 @@ The Bee Gees - The Platinum Collection (2017) 2CD [MP3|320 Kbps] <Pop-Rock, Folk
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661961.jpg" />
 </div>
 
 
@@ -374,7 +345,7 @@ VA - Top 100: Radio Record (2015) [MP3|320 кб/с]<Dance, Club, Trance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661791.jpg" />
 </div>
 
 
@@ -403,7 +374,7 @@ VA - Dуша болит (2009) [MP3|128 kbps]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661608.jpg" />
 </div>
 
 
@@ -429,7 +400,7 @@ VA - Trance Traveling 89 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661399.jpg" />
 </div>
 
 
@@ -458,7 +429,7 @@ VA - New Funky House 175 May (2017) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661393.jpg" />
 </div>
 
 
@@ -487,7 +458,7 @@ VA - The Land Of Romance (2017) [MP3|320 Kbps] <Pop, Rock Lyric>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661391.jpg" />
 </div>
 
 
@@ -516,7 +487,7 @@ VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661305.jpg" />
 </div>
 
 
@@ -545,7 +516,7 @@ VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661294.jpg" />
 </div>
 
 
@@ -574,7 +545,7 @@ VA - American Country Blues (3CD) (2017) [MP3|256-320 Kbps] <Country, Folk Blues
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661200.jpg" />
 </div>
 
 
@@ -603,7 +574,7 @@ VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661088.jpg" />
 </div>
 
 
@@ -632,7 +603,7 @@ VA - 55 most slow Blues (Bonus) (2017) [MP3|320 Kbps] <Blues, Rock, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661000.jpg" />
 </div>
 
 
@@ -661,7 +632,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.61
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660796.jpg" />
 </div>
 
 
@@ -690,7 +661,7 @@ VA - Звездная 100-ка (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660676.jpg" />
 </div>
 
 
@@ -716,7 +687,7 @@ VA - Europa Plus 200 лучших. Выпуск 2 50/50 (2011) [MP3|128 kbps]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660560.jpg" />
 </div>
 
 
@@ -727,6 +698,41 @@ VA - Europa Plus 200 лучших. Выпуск 2 50/50 (2011) [MP3|128 kbps]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:163B96471810EBBA4F48DC8D2B9D1B6E8CE8FDC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513864   (660536) от 22.06.2012
+
+VA - Sexy Trance #39 (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNS Project feat. Madelin Zero - Another Day (KhoMha Remix) [07:22]
+ 02. Cerf, Mitiska & Jaren - Another World (Shogun Remix) [07:34]
+ 03. David Forbes feat. Antonia Lucas - Because of You (Pulser Remix) [05:26]
+ 04. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) [06:11]
+ 05. Indecent Noise - Civitanova (Nick Callaghan & Will Atkinsons Dark Sessions Remix) [07:30]
+ 06. EDX - D.A.N.C.E. (Original Mix) [05:43]
+ 07. Daniel Kandi & Phillip Alpha - Don't Fix It (Original Mix) [07:46]
+ 08. Dj Nail with Kudesnik & PriSe feat. V.Ray - Falling With You [05:59]
+ 09. Fabio XB feat. Simona Barbieri - Flash Of Life (Cressida Remix) [07:00]
+ 10. Ferrit - Galaxy [05:11](   Читать дальше...   )2012Жанр: Trance, Vocal TranceПродолжительность: 03:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FE50751F8B25E031A23BABA4A685B2F5848B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

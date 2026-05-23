@@ -1,29 +1,3 @@
-###  Публикация: 1795460   (19262) от 05.05.2025
-
-ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Человечество медленно, но верно идёт к своей гибели. От известного нам мира не осталось почти ничего. Города, леса, моря, горы - всё стало незнакомым. Стаи до неузнаваемости мутировавших тварей охотятся среди искажённых деревьев. Ветхие военные роботы с давно перегоревшими сенсорами и логическими узлами бездумно бродят среди развалин. Солдаты-пришельцы, ранее неимоверно (   Читать дальше...   )Тип издания: RepackРазработчик: Proxy StudiosЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795520   (19252) от 05.05.2025
 
 Card Summoner (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Card Summoner (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19252.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Revita (2022) [Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19212.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0.171) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19207.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19204.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19202.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ SubwaySim 2 (2025) [Multi] (2153) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19200.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.4.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19196.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19191.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Bridge to Another World Remastered: Burnt Dreams / Мост в другой ми
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19148.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Slavania (2024) [Ru/Multi] (1.1.0-885/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19118.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19112.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19107.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (143421/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19106.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack Decepticon [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19103.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Reignbreaker (2025) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19098.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.3) Repack FitGirl [Deluxe Edi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19095.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Aquarist (2024) [Ru/Multi] (Build 18222695/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19090.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19089.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.171) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19074.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Drop Duchy (2025) [Ru/Multi] (0.40.6) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19070.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Slavania (2024) [Ru/Multi] (1.1.0-887/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19054.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Food Park Manager (2025) [Multi] (1.0.0c) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19050.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ ShoppingMall: Manager Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19047.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19045.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Repack Wanterlude [Premium E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19011.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Forza Horizon 5 – продолжение популярной гоночной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B0E0572874E8BC0731075D4E4097D28994C748A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784749   (19007) от 08.05.2025
+
+Rise of the Ronin (2024) [Ru/Multi] (1.09.0.4/dlc) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rise of the Ronin - динамичная ролевая игра, в которой вам предстоит стать ронином, самураем без хозяина, и вершить свою судьбу в Японии эпохи Бакумацу. Ваш выбор повлияет на развитие событий - на чью сторону вы встанете? Будете сражаться с сёгунатом или поддержите его? Может быть, примкнете к прозападным силам? Будущее страны в ваших руках.Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8CCEEB67F4D675092BEF531D4702F36F586B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

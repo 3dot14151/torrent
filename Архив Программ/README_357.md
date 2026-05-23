@@ -6,7 +6,7 @@ MAGIX Vegas DVD Architect 7.0.0 Build 54 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867683.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Pro DC 2021.007.20091 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867586.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soft Organizer 6.06 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867544.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Punto Switcher 4.3.5 Build 1815 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867537.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wire 2.11.2712 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867427.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FastStone Photo Resizer 3.8 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867425.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cowboy MInstALL StartSoft Spring 11-2016 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867400.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ K-Lite Codec Pack 12.9.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867345.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VueScan Pro 9.5.70 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867342.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Windows 10 Manager 2.0.6 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867340.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ EASEUS Partition Master 11.10 Professional | Server | Technican | Unlimited RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867333.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ DAEMON Tools Pro 8.1.1.0666 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867330.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Acronis True Image 2017 20.0.8029 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867328.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Acronis True Image 2017 Build 8029 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867239.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Acrobat Reader DC 2015.023.20070 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867233.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Acronis True Image 20.8029 + Universal Restore 11.5.40028 + Disk Director 12.0.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867224.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adobe Acrobat Pro DC 2015.023.20070 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867210.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PTE AV Studio Pro 10.0.9 Build 5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867193.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ GoodSync Enterprise 10.11.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867189.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ JRiver Media Center 26.0.56 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867183.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NVIDIA GeForce/ION driver release 267.24 Beta (Драйвер для видео�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_867145.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ MassTube Plus 12.9.8.364 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867118.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Glary Utilities Pro 5.140.0.166 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867115.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ The KMPlayer 4.2.2.38 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867107.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The Bat! Voyager 9.1.14.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867040.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Soft4Boost Easy Disc Burner 6.6.3.389 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867036.jpg" />
 </div>
 
 

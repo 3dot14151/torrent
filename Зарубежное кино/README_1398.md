@@ -1,58 +1,3 @@
-###  Публикация: 1421376   (319695) от 04.11.2020
-
-15 августа / 15 aout / August 15th (2001) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-99% женщин «кидают» своих мужей во время отпуска! Когда Макс, Рауль и Венсан в дождливый летний день приезжают на курорт в Боль, они не находят там своих жен!
-Злые и мокрые, друзья вваливаются в снятый на три семьи коттедж и обнаруживают, что жены сбежали, оставив кучу нестиранного белья и чумазых, голодных детей. Устав от домашних забот, они решили, что тоже достойны (   Читать дальше...   )Производство: Франция / ARP Sélection, EuropaCorp, Leeloo ProductionsЖанр: КомедияРежиссер: Патрик АлессандринАктеры: Ришар Берри, Шарль Берлен, Жан-Пьер Дарруссен, Мелани Тьерри, Сельма Эль Муисси, Манон Горен, Квентин Поммье, Тома Гулар, Людмила Микаэль, Бландин БариПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C2324749D9C690E9A7C8C6976B1D594CD6FF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582316   (319675) от 29.11.2012
-
-Слоеный торт / Layer Cake (2004) [1080p] Blu-ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Торговать кокаином — не цветочки разводить. Бизнес нервный, чреватый ранней смертностью. Поэтому наркодилер по кличке Четыре Икса, заработав достаточно неправедных денег, решает более не искушать судьбу и уйти на покой. Однако перед этим ему, как водится, придется оказать своему боссу последнюю услугу: разыскать пропавшую дочку его старого приятеля.
-
-Кажется, плевое дело для знатока лондонского дна?! Если бы бедняга знал, каким безумным беспределом и чередой опасных недоразумений обернется это задание, в котором «случайно» оказалась замешана партия экстази на два миллиона, то вышел бы в отставку месяцем раньше! А лучше — двумя!..Жанр: Триллер, Драма, КриминалРежиссер: Мэттью ВонАктеры: Дэниэл Крэйг, Сиенна Миллер, Колм Мини, Кеннет Крэнэм, Майкл Гэмбон, Джейсон Флеминг, Том Харди, Бен Уишоу, Декстер Флетчер, Джордж ХаррисПеревод: Многоголосый закадровыйЯзык субтитров: Английский, Испанский, Португальский, Китайский, Болгарский, Хорватский, Эстонский, Исландский, Латвийский, Литовский, Румынский, Сербский, Русский (форсированный)Продолжительность: 01:45:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728081   (319577) от 28.11.2013
 
 Энималс / Animals (2012) WEB-DL [720p]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319577.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319539.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319504.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319503.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319501.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319492.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319449.jpg" />
 </div>
 
 
@@ -244,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319434.jpg" />
 </div>
 
 
@@ -270,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319400.jpg" />
 </div>
 
 
@@ -296,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319391.jpg" />
 </div>
 
 
@@ -322,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319360.jpg" />
 </div>
 
 
@@ -349,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319352.jpg" />
 </div>
 
 
@@ -375,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319316.jpg" />
 </div>
 
 
@@ -401,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319311.jpg" />
 </div>
 
 
@@ -427,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319304.jpg" />
 </div>
 
 
@@ -453,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319298.jpg" />
 </div>
 
 
@@ -480,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319250.jpg" />
 </div>
 
 
@@ -506,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319246.jpg" />
 </div>
 
 
@@ -533,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319242.jpg" />
 </div>
 
 
@@ -559,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319194.jpg" />
 </div>
 
 
@@ -585,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319193.jpg" />
 </div>
 
 
@@ -611,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319189.jpg" />
 </div>
 
 
@@ -637,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319183.jpg" />
 </div>
 
 
@@ -663,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319117.jpg" />
 </div>
 
 
@@ -675,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD061922E3BDC1373F8FBB6AEAB58BB6AAEBD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727903   (319115) от 28.11.2013
+
+Ограбление по-итальянски / The Italian Job (2003) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банда грабителей под руководством Чарли Крокера во всю прыть несется на Мини Куперах по улицам Лос-Анджелеса и даже заныривает в подземку. Банда стремится увезти в безопасное место добычу - сейф, набитый золотом.
+В Лос-Анджелесе с его чудовищными пробками просто так не поездишь, поэтому банда предварительно позаботилась о «зеленой улице» для себя: на всех светофорах (   Читать дальше...   )Производство: США, Франция, Великобритания / Paramount Pictures, De Line PicturesЖанр: боевик, триллер, криминалРежиссер: Ф. Гэри ГрейАктеры: Марк Уолберг, Шарлиз Терон, Дональд Сазерленд, Джейсон Стэтхэм, Сет Грин, Мос Деф, Эдвард Нортон, Фаусто Каллегарини, Стефано Петронелли, Фабио СкарпаПеревод: Профессиональный (дублированный), Профессиональный (многоголосый), Профессиональный (одноголосый)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full), Английский (Full)Продолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992BC1535792A2544BD98D3AE0BD2640A75CD65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727505   (319114) от 28.11.2013
+
+Очень голодные игры / The Starving Games (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США, Louisiana Production Consultants, Safran Company, TheЖанр: КомедияРежиссер: Джейсон Фридберг, Аарон ЗельцерАктеры: Майра Уолш, Брэнт Догерти, Александрия Деберри, Коди Кристиан, Ник Гомес, Дидрих Бадер, Лорен Боулз, Эрик Борк, Джозеф Авиль, Элис ФордПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DC280D3BAC09870487A8E19791D956DB093F57
 ```
 
 https://mybot314.ru/tekegram_catalog/

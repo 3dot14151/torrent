@@ -6,7 +6,7 @@ VA - New Club-12 (2012) [MP3|320 кб/с]<Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368936.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - XXXL Турбомодный Зарубежный (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368777.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ VA - Лучшие кавер-версии (часть 3) (2016) [MP3|160-320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368559.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Всё сразу 200 хитов Выпуск 10 (from Valik) (2015) [MP3|1
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367551.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Легенды Русского Рока (2012) [MP3|128 кб/с]<Русс�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367541.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Stereo 100 Hits Dance (2016) [MP3|234-320 Kbps] <Club, Progressive, Vocal, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366678.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Big 1990s Twisted Hits (2016) [MP3|192~320 Kbps] <Pop, Techno, Rock, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366651.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - TOP 100 Club Hits #5 (2012) [MP3|320 кб/с]<Club, Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366571.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Осенние Русские Хиты (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366458.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Beautiful Dubstep (2009-2011) [MP3|320 kbps]<Dubstep>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_366008.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - Hits The Coast Of Miami (2015) [MP3|96-320 кб/с]<Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365991.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Piano Acoustic Version (2015) [MP3|320 кб/с]<Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365644.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Танцевальная клубничка Клубный выпуск (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364716.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Зажигательная Dance Тусовка. Зарубежный (2012
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364339.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Music News vol.216 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363847.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Plexus Relax Sector (2011-2012) [MP3|320 кб/с]<Chill Out, Ambient, Psy C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363744.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Самые популярные осенние песни (2012) [MP3|320 �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363532.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - The Official UK Top 40 Singles Chart 16.10.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363021.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - По волне моей памяти: Том 11 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362996.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - По волне моей памяти: Том 9 (2017) [MP3|320 Kbps] <По
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362994.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - По волне моей памяти: Том 10 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362992.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - По волне моей памяти: Том 13 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362989.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ VA - По волне моей памяти: Том 14 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362986.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ Tmg Gang Feat Sabi Miss, Manro, Angelika Gal - Оскал (2018) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362894.jpg" />
 </div>
 
 
@@ -771,7 +771,7 @@ Haddaway - What is Love (2011) Remix [MP3|192 Kbps] <Club, Dance, Techno>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362892.jpg" />
 </div>
 
 
@@ -797,7 +797,7 @@ VA - ЕвроХит Топ 40 Europa Plus 16.10.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362859.jpg" />
 </div>
 
 

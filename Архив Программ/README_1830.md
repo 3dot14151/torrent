@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.0.7 Portable by NNM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178539.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bigasoft Total Video Converter 6.4.4.8368 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178509.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Autorun Organizer 5.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178507.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Windows Slimmer 4.0.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178505.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WhatsApp 2.2242.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178502.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ W10 Digital Activation v1.5.0 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178495.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ WinRAR 6.24 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178483.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Office 2013-2021 C2R Install + Lite 7.4.9 b05 ++ Portable by Ratiborus [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178472.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ LDPlayer 9.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178460.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ InnoExtractor Plus 6.2.0.415 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178456.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ AIDA64 Engineer Edition 6.80.6200 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178453.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Auslogics BoostSpeed 13.0.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178423.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ BELOFF [dp] 2022.11.4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178422.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Google Chrome 108.0.5359.72 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178414.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Topaz Gigapixel AI 6.2.2 Portable by NNM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178406.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.80.6200 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178403.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ KMSAuto++ Portable 1.7.7 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178373.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178353.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Uninstall Tool 3.7.1 Build 5699 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178349.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ EaseUS Data Recovery Wizard Technician 15.8.1.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178342.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ qBittorrent 4.5.0 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178329.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Sandboxie 5.66.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178311.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Calibre 6.28.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178308.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ PDF24 Creator 10.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178304.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Brave Browser 1.58.137 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178292.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ O&O DiskImage Professional 18.4 Build 322 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178285.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1783270   (25608) от 05.03.2025
-
-Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack seleZen [Premium Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Age of Mythology: Retold - игра от создателей культовой серии Age of Empires. На этот раз вам предстоит выйти за рамки привычной истории и погрузиться в мифическую эпоху, где бок о бок сосуществуют боги, чудовища и люди. Retold - это эволюция всеми любимой стратегии в реальном времени Age of Mythology, ставшая возможной благодаря современной графике и свежему подходу (   Читать дальше...   )Тип издания: RepackРазработчик: World's Edge, Forgotten Empires, Tantalus Media, CaptureAge, Virtuos GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098E164F79D81AC2518C7B3C8EF4F66CE5F3BAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746821   (25603) от 06.03.2025
 
 Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack FitGirl [Premium Edition]
@@ -32,7 +6,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack FitGirl [P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25603.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Builders Of Egypt (2025) [Ru/Multi] (1.0408) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25598.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.14955) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25597.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25595.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Pegasus Expedition (2022) [Ru/Multi] (2025 mar01 patch) License GOG [Grand A
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25593.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25585.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25578.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25550.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25547.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (2.1.2 R22365/dlc) Repack FitGirl [Essentia
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25533.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25530.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25513.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25508.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25499.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25493.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25492.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25489.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25481.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack Decepticon [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25474.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25473.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Citizen Sleeper 2: Starward Vector (2025) [En] (1.1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25471.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25462.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack FitGirl [Ultimate Sati
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25461.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/Multi] (1.0.1) Repack Decepticon [Anni
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25459.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25458.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Memory Lost - захватывающий шутер от третьего лиц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15F9F76A3AAA36A6C75C6F7ABAB0BE832B19758A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756874   (25457) от 07.03.2025
+
+Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25457.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Hundred Days Вы будете иметь полный контроль над новым винодельческим заводом, придётся выбирать какие виноградники выращивать и как их выращивать, когда собирать урожай. Вы должны следить за всем процессом виноделия и делать выбор, который лучше всего подходит для типа вина, который Вы хотите произвести или что требует рынок.Тип издания: LicenseРазработчик: Broken Arms GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08689ABE288D7DB9D1600234E0D96E2AAD6FDFAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

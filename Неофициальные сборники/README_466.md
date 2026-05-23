@@ -1,38 +1,3 @@
-###  Публикация: 568940   (393144) от 02.11.2012
-
-VA - Осенняя бомба года 17 Зарубежный (2012) [MP3|128 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Dash Berlin Feat. Chris Madin - Silence In Your Heart
-002. Markus Schulz Feat. Seri - Love Rain Down
-003. Katrin Moro & Yan Loran - Baila Conmigo
-004. Liviu Hodor Feat. Mona - Be Free (Radio Edit)
-005. Ne-Yo - Let Me Love You (Seamus Haji Radio Edit)
-006. Andreea Banica - Could U (Radio Edit)
-007. Dns Project Feat. Madelin Zero - If I Just Listened
-008. Jay Sean - I Don't Know
-009. Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum
-010. Dash Berlin Feat. Emma Hewitt - Like Spinning Plates(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4747A92666BCBB520EDE7933047B55C3BD4CA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567968   (393139) от 02.11.2012
 
 VA - 100 пудовые хиты осени 50/50 (2012) [MP3|128 кб/с]<pop>
@@ -41,7 +6,7 @@ VA - 100 пудовые хиты осени 50/50 (2012) [MP3|128 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393139.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ VA - Взорви Танцпол. Русский Сборник (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393130.jpg" />
 </div>
 
 
@@ -111,7 +76,7 @@ VA - Из Каждого Утюга (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393127.jpg" />
 </div>
 
 
@@ -146,7 +111,7 @@ VA - Impulse 7: Супермузыка для супермашин (2017) [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393108.jpg" />
 </div>
 
 
@@ -175,7 +140,7 @@ VA - Золотой Граммофон Осенний Выпуск (2012) [MP3|1
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392965.jpg" />
 </div>
 
 
@@ -210,7 +175,7 @@ VA - Beatport Top 100 Downloads September (2017) [MP3|320 Kbps] <Electro, Indie,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392826.jpg" />
 </div>
 
 
@@ -239,7 +204,7 @@ VA - Новое Радио - 100 хитов Нового Радио. выпус�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392675.jpg" />
 </div>
 
 
@@ -274,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392578.jpg" />
 </div>
 
 
@@ -303,7 +268,7 @@ VA - Trance Universe Vol.8 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392292.jpg" />
 </div>
 
 
@@ -338,7 +303,7 @@ VA - Best of World Trance. October (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392287.jpg" />
 </div>
 
 
@@ -373,7 +338,7 @@ VA - Новинки Эфира Радиостанций (2012) [MP3|128 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392267.jpg" />
 </div>
 
 
@@ -408,7 +373,7 @@ VA - Пираты Финского Залива Радио DFm (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392260.jpg" />
 </div>
 
 
@@ -443,7 +408,7 @@ VA - Deep+   Vol. 6 (2012) [MP3|320 кб/с]<Deep House/Tech House,NuDisco,Vocal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392223.jpg" />
 </div>
 
 
@@ -478,7 +443,7 @@ VA - Dash Berlin Top 20 November (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392219.jpg" />
 </div>
 
 
@@ -513,7 +478,7 @@ VA - Радио Энергия: Лучшая 200-ка (2012) [MP3|128 кб/с]<D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392217.jpg" />
 </div>
 
 
@@ -548,7 +513,7 @@ VA - Танцевальный Динамит осенний (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392183.jpg" />
 </div>
 
 
@@ -583,7 +548,7 @@ VA - Лучшее от МУЗ-ТВ (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392122.jpg" />
 </div>
 
 
@@ -618,7 +583,7 @@ VA - Empire Records - ANDRS Disco 2 (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392091.jpg" />
 </div>
 
 
@@ -647,7 +612,7 @@ VA - Music For Sports Games Vol.11 (2017) [MP3|320 Kbps] <Electro, Dance House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392053.jpg" />
 </div>
 
 
@@ -676,7 +641,7 @@ VA - Disco Italo Love: Extended Version (2017) [MP3|320 Kbps] <Disco, Synth Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391947.jpg" />
 </div>
 
 
@@ -705,7 +670,7 @@ VA - Хит года от Европа плюс 7 50/50 (2012) [MP3|128 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391939.jpg" />
 </div>
 
 
@@ -740,7 +705,7 @@ VA - Rock Ballads by ROCKRADIO 2017 VOL I (2017) [MP3|256 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391842.jpg" />
 </div>
 
 
@@ -769,7 +734,7 @@ VA - Самые Яркие Русские Хиты За Последние 15 л
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391540.jpg" />
 </div>
 
 
@@ -804,7 +769,7 @@ VA - Дискотека 80-х от Авторадио. Зарубежная ве
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391419.jpg" />
 </div>
 
 
@@ -839,7 +804,7 @@ VA - Disco Remix Hits - Best Of The Best (2012) [MP3|256 кб/с]<Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391386.jpg" />
 </div>
 
 
@@ -859,6 +824,35 @@ VA - Disco Remix Hits - Best Of The Best (2012) [MP3|256 кб/с]<Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43735ADCBD45ACA32C571F7DFA709C455384A67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173027   (391369) от 10.10.2017
+
+VA - Small Square Tech House Party October (2017) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daviddance - S.E.X.O. (Daniele Sirnico Remix)
+002. Ugur Yurt - Harmonix (Original Mix)
+003. DJ Dado - Universe Of Love (Original Mix)
+004. Aki Drope - Spectral Dream (Extended Mix)(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 10:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D150C9EF03312807EBE7F531B7453A88A77A61CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

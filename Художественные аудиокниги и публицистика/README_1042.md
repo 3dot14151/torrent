@@ -1,86 +1,3 @@
-###  Публикация: 1759123   (38072) от 06.11.2024
-
-Артур Хейли | Вечерние новости (2021) [MP3, Дмитрий Оргин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Артур Хейли (1920–2004) – канадский прозаик, создавший ряд бестселлеров, многие произведения были экранизированы.
-Роман «Вечерние новости» (другое название «Сенсация») написан в 1990 году.
-«Неужели у этих людей не осталось ничего человеческого? Неужели их не волнует, что происходит? Они что же, не способны ни чувствовать, ни сопереживать, не испытывают ни капли горя?» (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: Наталья Изосимова, Татьяна КудрявцеваИздательство: Студия «ГЛАГОЛ»Продолжительность: 24:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D285829A6B9D75FF265A3AEB136AA0F3AF9C2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759134   (38070) от 06.11.2024
-
-Артур Хейли | Перегрузка (2021) [MP3, Дмитрий Оргин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Артур Хейли (1920–2004) – канадский прозаик, создавший ряд бестселлеров, многие произведения были экранизированы.
-Роман «Перегрузка» написан в 1979 году.
-«…жизнь на осыпающемся краю пропасти»
-Электроэнергетика как она есть. И в центре – энергетическая компания Калифорнии перед лицом надвигающейся катастрофы. Всё нарастающая круговерть событий и людей: одни силятся (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: А. Козлов, А. Курдюков, Л. Крайненков, О. ДонИздательство: Студия «ГЛАГОЛ»Продолжительность: 22:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18182389B3754DA25456EEA0471ACD49D8F9681C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759017   (38066) от 06.11.2024
-
-Евгений Дубровин | Грибы на асфальте (2022) [MP3, Константин Суханов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сошлись несколько человек. Те, что институты окончили, а по распределению ехать неохота. Задумались буйные головушки: как быть? А очень просто. Надо жениться на дочерях начальства. И решили объединить свои усилия. Кто женится удачно – всех на хорошую работу устроит. Тут же распределили «объекты», назначили, в зависимости от степени вредности работы, оклады и выбрали (   Читать дальше...   )Жанр: Юмористическая прозаИздательство: Аудиокнига своими рукамиПродолжительность: 07:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BD1D3AE559D77A519F692A6C40438F2DCC6287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 321044   (38008) от 07.11.2024
 
 Андре Моруа | Превратности любви (2007) [MP3, Кирилл Гребенщиков, Екатерина Семёнова]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38008.jpg" />
 </div>
 
 
@@ -116,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38003.jpg" />
 </div>
 
 
@@ -142,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38001.jpg" />
 </div>
 
 
@@ -170,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37987.jpg" />
 </div>
 
 
@@ -196,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37985.jpg" />
 </div>
 
 
@@ -223,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37959.jpg" />
 </div>
 
 
@@ -250,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37924.jpg" />
 </div>
 
 
@@ -277,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37914.jpg" />
 </div>
 
 
@@ -303,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37911.jpg" />
 </div>
 
 
@@ -329,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37887.jpg" />
 </div>
 
 
@@ -356,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37881.jpg" />
 </div>
 
 
@@ -382,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37864.jpg" />
 </div>
 
 
@@ -408,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37860.jpg" />
 </div>
 
 
@@ -434,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37859.jpg" />
 </div>
 
 
@@ -460,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37858.jpg" />
 </div>
 
 
@@ -486,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37827.jpg" />
 </div>
 
 
@@ -513,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37826.jpg" />
 </div>
 
 
@@ -540,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37820.jpg" />
 </div>
 
 
@@ -568,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37793.jpg" />
 </div>
 
 
@@ -595,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37789.jpg" />
 </div>
 
 
@@ -622,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37709.jpg" />
 </div>
 
 
@@ -648,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37686.jpg" />
 </div>
 
 
@@ -674,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37684.jpg" />
 </div>
 
 
@@ -688,6 +605,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AD52F86910B0F641B54047D0B7949D471A1D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759741   (37676) от 10.11.2024
+
+Кирилл Шарапов | 1001 мир (Книга 3). Ключник (2024) [MP3, TED]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительная книга цикла.
+Финн предупреждал Егора о встрече с чёрным Странником по прозвищу Чужой, и эта встреча не принесла Каскаду ничего хорошего - он застрял во тьме междумирья. Теперь Лина сама по себе, одна в новом мире, и работает телохранительницей у магессы, попутно обучаясь управлению силой. Её талант невелик, но на пару фокусов она может рассчитывать. (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 10:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90DFF1D4C9A46E83336254E2CDA1044D86B4B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759819   (37659) от 10.11.2024
+
+Александр Майерс | Пипец Котёнку! (Книга 1) (2024) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37659.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пипец Котёнку!» – фантастический роман, первая книга одноименного цикла, жанр бояръ-аниме, боевое фэнтези, юмористическое фэнтези.
+
+Какого х… А, так я переродился. Но почему я – какой-то жалкий щенок?! Котёнок, вернее. Ведь именно так меня все зовут. Слабак без магического дара. Ещё и рыжий к тому же.
+Сиротский приют?! Да вы шутите! Хотя сколько тут красивых девушек… (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-аниме, Юмористическое фэнтезиИздательство: ИДДКПродолжительность: 07:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98053AF87B2EA166067807BBE1EA8B4C27CB131F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759686   (37658) от 10.11.2024
+
+Владимир Марков-Бабкин | Империя единства (Книга 8). Империя. Терра Единства (2024) [MP3, Пожилой Ксеноморф]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш попаданец, Михаил Романов, возглавляет Империю уже два десятка лет, и теперь ему предстоит столкнуться с беспрецедентной глобальной войной.
+Вот она – Новая История…
+Глобальная война началась на три года раньше, чем в реальной истории. Истории, из которой принесла нелегкая нашего попаданца в 1917 год, в самый разгар Февральского мятежа в Петрограде. И теперь это (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыИздательство: АСТ-АудиокнигаПродолжительность: 16:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFE1350FE3F9C9268D411D465EF6C95FB53BCE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

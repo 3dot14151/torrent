@@ -6,7 +6,7 @@ Windows 8.1 x86 x64 pe StartSoft 8-2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905449.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VidCoder 5.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905442.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft Data Recovery 1.2.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905413.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905389.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ O&O DiskImage Professional 16.5 Build 241 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905344.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ReviverSoft Driver Reviver 5.39.2.14 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905335.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Unreal Commander 3.57 Build 1496 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905332.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ IObit Uninstaller Pro 11.0.1.14 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905278.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ DP Animation Maker 3.5.00 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905274.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ CrystalDiskInfo 8.12.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905247.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ IcoFX 3.3 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905231.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ LosslessCut 3.39.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905228.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sumatra PDF 3.3.12402 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905227.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ EZ CD Audio Converter 9.4.0.1 (x64) Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905204.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz Gigapixel AI 5.6.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905149.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ SpeedyFox 2.0.28 Build 145 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905116.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ CCleaner Browser 80.0.3626.135 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905108.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Psiphon 3 build 153 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904907.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ GPU-Z 1.17.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904843.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Amazing Slider Enterprise 6.3 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904827.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Advanced SystemCare Ultimate с Антивирусом 13.1.0.110 (акция CO
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904801.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ LibreOffice 5.3.0 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904745.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904674.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ FPS Monitor 5203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904671.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Simple Backuper 0.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904622.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Nero Burning ROM 2020 22.0.1011 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904540.jpg" />
 </div>
 
 

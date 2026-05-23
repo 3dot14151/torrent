@@ -1,56 +1,3 @@
-###  Публикация: 1536680   (250242) от 13.03.2022
-
-Внебрачные связи / Tromperie (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Известный американский писатель Филип живет с женой в Лондоне. Кроме того, к нему в офис регулярно приходит любовница. Они ссорятся, мирятся, говорят обо всем на свете и занимаются сексом.Производство: Франция / Why Not Productions, Canal+, CineЖанр: драмаРежиссер: Арно ДеплешенАктеры: Леа Сейду, Эммануэль Дево, Мадалина Константин, Анук Гринбер, Ребекка Мардер, Дени Подалидес, Миглен Миртчев, Саадиа Бентайеб, Андре Умански, Геннадий ФоминПеревод: Дублированный (КиноПоиск HD)Субтитры: отсутствуютПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C7379006A05432B1255D692103AA3FA636EF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537083   (250233) от 14.03.2022
-
-Пуленепробиваемый монах / Bulletproof Monk (2003) WEB-DLRip [H.264/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Монах - мастер боевых искусств, который охраняет могущественный древний свиток - таинственный артефакт, содержащий ключ к безграничной власти. Монаху нужно найти следующего хранителя свитка, и поиски приводят его в Америку. Согласно древнему пророчеству и к изумлению Монаха его преемником оказывается обаятельный хулиган по имени Кар.
-Пока Монах обучает Кара, как (   Читать дальше...   )Производство: США, Канада / Cub Five Productions, Flypaper Press, Lakeshore Entertainment, Lion Rock ProductionsЖанр: Фэнтези, боевик, мелодрама, комедияРежиссер: Пол ХантерАктеры: Чоу Юнь-Фат, Шонн Уильям Скотт, Джейми Кинг, Карел Роден, Виктория Смёрфит, Маркус Жан Пирэ, Мако, Роджер Юань, К.К. Коллинз, Шон БеллПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BB6EE93358FEA27D2BB84E69B997D6BFA6DA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617787   (250228) от 08.03.2023
 
 Бугимен / Boogeyman (2005) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250228.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250219.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250211.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250208.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250187.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250179.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250176.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250173.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250170.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250139.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250130.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250112.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250092.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250090.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250088.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250076.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250075.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250059.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250035.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250030.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249999.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249979.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249948.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249947.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C63CDB8BF92F377DCF24841914F33032BD2B08C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537956   (249940) от 18.03.2022
+
+Гонщик / Rookie (2021) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249940.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Ники, молодого амбициозного и уверенного в себе мотоциклиста. Он всегда рискует своей жизнью во время гонок, но не ради денег, а ради удовольствия, уважения и славы. Когда он попадает в аварию, его мир рушится, и он не уверен, сможет ли еще когда-нибудь снова участвовать в гонках. Ему трудно смириться с этой новой жизнью, и он обращается к своей сестре Веро (   Читать дальше...   )Производство: Бельгия, Czar, Versus Production, Movie FXЖанр: ДрамаРежиссер: Ливен Ван БаеленАктеры: Верле Батенс, Маттео Симони, Guy Combes, Тибо Ванденборре, Стилян Кели, Стефаан Деган, Зибер Марли, Ilse De Rauw, Valentijn Braeckman, Лоуренс БрианПеревод: Двуголосый любительский (Pazl Voice)Субтитры: Русские (Full), Датские (Full), Французские (Full)Продолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4766B2847C9E6B71EAAD686B7D802B546BB291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537473   (249914) от 18.03.2022
+
+Аллея кошмаров / Nightmare Alley (2021) BDRip [H.264/720p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мошенник Стэн Карлайл объединяется с женщиной-психиатром, чтобы обманывать людей под видом чтения их мыслей.Производство: США, Мексика / Fox Searchlight Pictures, Double Dare You (DDY), Searchlight PicturesЖанр: триллер, драма, криминалРежиссер: Гильермо дель ТороАктеры: Брэдли Купер, Кейт Бланшетт, Тони Коллетт, Уиллем Дефо, Ричард Дженкинс, Руни Мара, Рон Перлман, Дэвид Стрэтэйрн, Мэри Стинберген, Марк ПовинеллиПеревод: дублированный, профессиональный многоголосый (Jaskier, HDRezka Studio)Субтитры: русские (forced, full), английские (full, SDH)Продолжительность: 02:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22090DAB3E540776428ED558CA6F7CD5A2B13808
 ```
 
 https://mybot314.ru/tekegram_catalog/

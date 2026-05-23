@@ -6,7 +6,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531779.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530825.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530816.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530814.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529929.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Inst
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525466.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Sy
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522189.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520309.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519197.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518170.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518071.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516955.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514763.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511469.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506102.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505271.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504743.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500499.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498048.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490071.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487725.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486809.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyb
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486692.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484053.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483491.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482234.jpg" />
 </div>
 
 

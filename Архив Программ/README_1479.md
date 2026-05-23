@@ -6,7 +6,7 @@ MAGIX Video Pro X9 15.0.5.195 (x64) + Content [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283469.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SamDrivers 17.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283443.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Notepad++ 6.8.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283397.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kaspersky TDSSKiller 3.1.0.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283393.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Windows 7 Pro SP1 x86 для незрячих. 12.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283391.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rufus 2.6 (Build 816) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283390.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ SoftPerfect WiFi Guard 1.0.6 + Portable[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283389.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ GOM Player 2.2.74 Build 5237 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283387.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Acronis True Image 2018 Build 10410 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283368.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Reg Organizer 8.04 Final RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283360.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CCleaner 5.12.5431 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283333.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe components: Flash Player 20.0.0.228 + AIR 20.0.0.204 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283327.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Remote Desktop Manager Enterprise 11.0.14.0 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283300.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ MyPhoneExplorer 1.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283288.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Windows 8 PE x86x64 Universal by Xemom1 (05.12.2015) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283287.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Adobe Photoshop CC 2015.1 (20151114.r.301) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283282.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ K-Lite Codec Pack Update 12.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282995.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ SRWare Iron 70.0.3650.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282951.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Soft4Boost Easy Disc Burner 5.0.7.481 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282914.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Soft4Boost Secure Eraser 4.2.9.477 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282913.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Soft4Boost Document Converter 4.6.9.453 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282900.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282894.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ CocCoc 76.0.96 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282890.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ SRWare Iron 70.0.3650.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282881.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ SQLite Expert Professional 5.3.0.352 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282791.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Vivaldi 2.1.1337.51 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282788.jpg" />
 </div>
 
 

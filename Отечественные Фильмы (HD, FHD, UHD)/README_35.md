@@ -1,81 +1,3 @@
-###  Публикация: 881675   (822487) от 26.03.2015
-
-Горячие новости (2009) BDRip [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В центре Москвы группа оперативников под руководством майора Смирнова готовит операцию по захвату банды вооруженных преступников во главе с загадочным и неуловимым Германом. В неожиданно вспыхнувшей жестокой перестрелке стражи порядка терпят унизительное поражение, а случайно оказавшаяся на месте событий телевизионная съемочная группа снимает и передает в эфир репортаж (   Читать дальше...   )Производство: Россия, ШвецияЖанр: Боевик, Криминал, ДрамаРежиссер: Андерс БанкеАктеры: Cергей Гармаш, Андрей Мерзликин, Мария Машкова, Евгений Цыганов, Максим Коновалов, Алексей Франдетти, Юлия Кронрод, Юрий ШлыковПродолжительность: 01:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF748B24977433797A71D7701744538284141E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503012   (822440) от 17.10.2021
-
-Холодно (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В российской глубинке двое сотрудников полиции отправляются на задание. Задача перед ними стоит достаточно простая, но особенности местного климата создают серьезное препятствие для ее выполнения.Производство: РоссияЖанр: Короткометражный, драма, комедияРежиссер: Данил ИвановАктеры: Ольга Лапшина, Дмитрий Куличков, Павел Ворожцов, Анна Слю, Данил Стеклов, Юрий Колганов, Василий Шмаков, Юлия ЛеваковаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 00:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4427398BD1DBD0B611C714125B7D3FA65E5356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503047   (822436) от 17.10.2021
-
-Хорошая девочка Лида (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Лиде и Боре по двадцать лет, они обычная, ничем не примечательная пара. Он работает на заводе, она в кофейне. Проблемы у них как у всех, радости и мечты как у всех, и в общем жизнь как у всех. Но однажды утром Лида приходит домой с подозрительным пятном на шее.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Антон ЕлисеевАктеры: Виктория Лемешенко, Владислав Мелихов, Анастасия Панькова, Татьяна Бунькова, Валерий Петунин, Роман Цыруль, Анастасия Лыхенко, Анастасия Турховская, Владимир Лободин, Джагарханир УктомовичПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 00:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62565D368F4D79FEF4790C8DA3E06E459AE55D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381815   (822266) от 09.05.2020
 
 Продкомиссар (2019) WEBRip [H.264/1080p-LQ]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822266.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822165.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820639.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820612.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820357.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820283.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820134.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818664.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817667.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817117.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816404.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815900.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814904.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814814.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814762.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814700.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814565.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814272.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814038.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814023.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813964.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813957.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813654.jpg" />
 </div>
 
 
@@ -673,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D9484E25C60A19AAE36A91628F6F8C5E8422C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504260   (813560) от 22.10.2021
+
+Текст (2019) BDRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — 27-летний Илья Горюнов, семь лет отсидевший в тюрьме по ложному обвинению в распространении наркотиков. Когда Илья выходит на свободу, он понимает, что прежняя жизнь, по которой он тосковал, разрушена, и вернуться к ней он больше не сможет. Хотя он не собирался мстить человеку, который отправил его в тюрьму, другого выхода теперь нет. Встретившись (   Читать дальше...   )Производство: Россия / Фонд развития современного кинематографа «КИНОПРАЙМ», Централ Партнершип, START StudioЖанр: Драма, триллерРежиссер: Клим ШипенкоАктеры: Александр Петров, Кристина Асмус, Иван Янковский, Софья Озерова, Максим Виноградов, Дмитрий Глуховский, Кирилл Нагиев, Елена Финогеева, Владимир Капустин , Павел ГолубеПеревод: Не требуетсяСубтитры: АнглийскиеПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D383ECE80AE00647D9FD257F900CD47142FE7ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504234   (813360) от 22.10.2021
+
+Молоко (2021) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жителей города Кировска давно не удивить красотой северного сияния. Однажды именно благодаря ему простая девушка Зоя получает фантастический дар — магическую силу, способную менять судьбы людей.Производство: Россия / IRSNA MEDIA, Карго ФильмЖанр: ДрамаРежиссер: Карен ОганесянАктеры: Юлия Пересильд, Гоша Куценко, Андрей Бурковский, Юрий Колокольников, Елена Валюшкина, Эрик Панич, Егор Абрамов, Евгения Каверау, Ирина ВороноваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9231727243DBF1C95A7A1E484C5149C75CE8BF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504105   (813344) от 22.10.2021
+
+Молоко (2021) WEBRip [H.264/1080p] [PR]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жителей города Кировска давно не удивить красотой северного сияния. Однажды именно благодаря ему простая девушка Зоя получает фантастический дар — магическую силу, способную менять судьбы людей.Производство: Россия / IRSNA MEDIA, Карго ФильмЖанр: драмаРежиссер: Карен ОганесянАктеры: Юлия Пересильд, Гоша Куценко, Андрей Бурковский, Юрий Колокольников, Елена Валюшкина, Эрик Панич, Егор Абрамов, Евгения Каверау, Ирина ВороноваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A38D00EBA8DCAA3D9EC10BBD25BFC21F675ABC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

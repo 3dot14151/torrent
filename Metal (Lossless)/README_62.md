@@ -6,7 +6,7 @@ Nightingale - 7 Albums, 1 Compilation, 1 Live (1995-2017) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880215.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Them - Sweet Hollow (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880162.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Angtoria - God Has A Plan For Us All (12-track version) (2006) [FLAC|Lossless]<H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880137.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Overkill - The Grinding Wheel (2017) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880108.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Battle Beast - Bringer of Pain (2017) Limited Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879988.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Hordak - Padre (2016) [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879518.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Elyria - Reflection And Refraction (2016) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879409.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878297.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Solution .45 - Nightmares in the Waking State- Pt.I (2015) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878288.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877575.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877455.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dirkschneider & The Old Gang - Arising (2021) EP [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877429.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ In Aeternum - The Blasphemy Returns (2016) [FLAC|Lossless|image + .cue] <Back, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876738.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Stonelight - Into the Unknown (2016) [FLAC|Lossless|image + .cue] <Symphonic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876735.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Hevidence - Nobody's Fault (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876646.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Planet Alliance - Planet Alliance (2006) Japanese Edition, 2007 [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876642.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Witchery - In His Infernal Majesty's Service (2016) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876461.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Cronopolis - Cronopolis (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876078.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Bon Scropion - Winds Of The Unseen Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876071.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Thundermaker - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876068.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Tower - Uriel (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875980.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Metalsteel - Forsaken By The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875979.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Blazon Stone - Damnation (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875975.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Destoyer 666 - Wildfire (2016) [FLAC|Lossless|image + .cue] <Black, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875832.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Entombed A.D. - Dead Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875828.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Lords Of Black - II (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875821.jpg" />
 </div>
 
 

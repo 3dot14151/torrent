@@ -1,59 +1,3 @@
-###  Публикация: 320657   (122813) от 15.01.2024
-
-М.Н. Загоскин | Вечер на Хопре (2009) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Михаил Николаевич Загоскин (1789—1852) – исторический романист и комедиограф.
-Эта книга объединяет цикл повестей «Вечер на Хопре», написанных в «готическом» стиле романтизма и с ярким сказочно-фантастическим колоритом.Жанр: Русская литература, классика, историческая повестьИздательство: Вира-М (аудио)Продолжительность: 04:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2666E8FD324B76CFE5C4FC6C57120C39EC15F55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692338   (122528) от 16.01.2024
-
-Алексей Песков | Павел I (2008) [MP3, Вадим Максимов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Жизнь замечательных людей.
-Алексей Михайлович Песков – российский историк литературы, литературовед, филолог. Доктор филологических наук, профессор. Один из лучших специалистов по русской истории, литературе, и культуре XVIII – XIX вв.
-Самый непредсказуемый российский император Павел I царствовал с 7 ноября 1796-го по 11 марта 1801 года. Он считал, что (   Читать дальше...   )Жанр: Историческая литература, биография, жизнеописаниеИздательство: Молодая гвардияПродолжительность: 13:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A7FE6A247E0674390577E0317750FD89B92F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694830   (120840) от 26.01.2024
 
 Игорь Можейко (Кир Булычёв) | Тайны истории. Тайны древнего мира (2008) [MP3, Елена Чебатуркина, Андрей Симанов]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120840.jpg" />
 </div>
 
 
@@ -91,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120826.jpg" />
 </div>
 
 
@@ -117,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120809.jpg" />
 </div>
 
 
@@ -145,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120735.jpg" />
 </div>
 
 
@@ -173,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120363.jpg" />
 </div>
 
 
@@ -200,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119539.jpg" />
 </div>
 
 
@@ -226,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119488.jpg" />
 </div>
 
 
@@ -252,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119465.jpg" />
 </div>
 
 
@@ -280,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119258.jpg" />
 </div>
 
 
@@ -306,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119257.jpg" />
 </div>
 
 
@@ -333,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119251.jpg" />
 </div>
 
 
@@ -360,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119125.jpg" />
 </div>
 
 
@@ -389,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119122.jpg" />
 </div>
 
 
@@ -416,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119116.jpg" />
 </div>
 
 
@@ -443,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116622.jpg" />
 </div>
 
 
@@ -472,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116618.jpg" />
 </div>
 
 
@@ -501,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116614.jpg" />
 </div>
 
 
@@ -529,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116595.jpg" />
 </div>
 
 
@@ -556,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116528.jpg" />
 </div>
 
 
@@ -583,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115796.jpg" />
 </div>
 
 
@@ -610,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115773.jpg" />
 </div>
 
 
@@ -638,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115760.jpg" />
 </div>
 
 
@@ -666,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115758.jpg" />
 </div>
 
 
@@ -693,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115688.jpg" />
 </div>
 
 
@@ -706,6 +650,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE23F42BE27DF7DA99846AC0D500BCB4AC35CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 405693   (115422) от 27.02.2024
+
+Торнтон Уайлдер | Мартовские иды (2005) [MP3, Юрий Григорьев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торнтон Найвен Уайлдер (1897–1975) – драматург и эссеист, классик американской литературы ХХ столетия.
+«Мартовские иды» (1948) Торнтона Уайлдера – замечательный исторический роман, представляющий эпоху Юлия Цезаря, «фантазия о некоторых событиях и персонажах последних дней Римской республики», по словам самого автора. Через письма и документы писатель возрождает (   Читать дальше...   )Жанр: Зарубежная литература, исторический романИздательство: БиблиофоникаПродолжительность: 09:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F67F6319204D31AD2B0FC074ADE0AB875A6193C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 405695   (115420) от 27.02.2024
+
+Торнтон Уайлдер | Мост короля Людовика Святого (2004) [MP3, Александр Хорлин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: О, дерзкий новый мир.
+Торнтон Найвен Уайлдер (1897–1975) – драматург и эссеист, классик американской литературы ХХ столетия, лауреат Пулитцеровской премии (1928, 1938 и 1943).
+Роман-притча «Мост короля Людовика Святого» принес Торнтону Уайлдеру первую из трех его Пулитцеровских премий.
+В полдень в пятницу 20 июля 1714 года рухнул самый красивый мост в (   Читать дальше...   )Жанр: Зарубежная литература, исторический роман-притчаИздательство: ЭлитайлПродолжительность: 03:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDE2C433EC80CFD3D6C44A56EA92CD830E0BD19
 ```
 
 https://mybot314.ru/tekegram_catalog/

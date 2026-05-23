@@ -1,56 +1,3 @@
-###  Публикация: 902855   (658688) от 30.05.2015
-
-Призрак и Тьма / The Ghost and the Darkness (1996) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1898 год. Лондон. Молодой строитель полковник Джон Паттерсон получает срочное задание построить мост через реку в африканской провинции Цаво. Всю жизнь мечтавший о путешествии в Африку, Паттерсон, оставив беременную жену, спешит к месту работ. На месте его ожидает целая армия рабочих.
-Несмотря на разницу вероисповеданий, всех их объединяет один общий страх перед (   Читать дальше...   )Производство: США | Constellation Entertainment, Douglas/Reuther ProductionsЖанр: Боевик, Триллер, Ужасы, Приключения, ДрамаРежиссер: Стивен ХопкинсАктеры: Майкл Дуглас, Вэл Килмер, Том Уилкинсон, Джон Кахи, Бернард Хилл, Брайан МакКарди, Эмили Мортимер, Ом Пури, Генри Селе, Курт ЭгельхофПеревод: Многоголосый закадровый, Двуголосый закадровый (х2), Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B59F3B1B3C031E14221195AA7252EC3883C20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139801   (658669) от 03.06.2017
-
-От заката до рассвета / From Dusk Till Dawn (1996) BDRip [H.265/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Спасаясь от полиции после ограбления банка, два брата — грабителя берут в заложники священника и его детей. Около американской границы они решают провести ночь в придорожном баре. Тут-то всё и начинается…Производство: СШАЖанр: Ужасы, Боевик, Триллер, КомедияРежиссер: Роберт РодригесАктеры: Джордж Клуни, Харви Кейтель, Квентин Тарантино, Джульетт Льюис, Эрнест Лю, Сальма Хайек, Чич Марин, Дэнни Трехо, Том Савини, Фред Уильямсон, Майкл Паркс, Бренда Хиллхаус, Джон Сэксон, Марк Лоуренс, Келли Престон, Джон Хоукс, Тито ЛарриваПеревод: Многоголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5789895E9D13F6F777A0D6FE9495C15D5F68D965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139538   (658668) от 03.06.2017
 
 Арес / Ares (2016) BDRip [H.264/1080p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658668.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658667.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658585.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658567.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658560.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658547.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658545.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658527.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658518.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658488.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658482.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658481.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658478.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658472.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658468.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658445.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658436.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658432.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658415.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658404.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658402.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658396.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658394.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658392.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B555AF74CC1E3102430138B0279E55C01A36A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539454   (657934) от 25.03.2022
+
+Хинтерленд: город грехов / Hinterland (2021) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вена, 1920 год. На город обрушивается серия загадочных жестоких убийств, которые расследует суровый детектив-одиночка Петер Перг. Следуя за мистически неуловимым серийным убийцей, он узнает в жертвах своих бывших сослуживцев. Кто этот безумец и какие демоны им движут?Производство: Австрия, Люксембург / Amour Fou Luxembourg, Film Fund LuxembourgЖанр: Детектив, триллер, драмаРежиссер: Штефан РузовицкиАктеры: Муратан Муслу, Маттиас Швайгхёфер, Макс фон дер Грёбен, Лив Лиза Фрис, Марк Лимпах, Маргарете Тизель, Аарон Фриш, Стипе Эрцег, Максимильен Джадин, Тимо ВагнерПеревод: Дублированный (Кинопоиск HD)Субтитры: ОтсутствуютПродолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1502F94587C082EDDFF07A024F65783A496C87C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538463   (657921) от 25.03.2022
+
+Матрица: Воскрешение / The Matrix Resurrections (2021) WEB-DL [H.264/1080p] [Локализованный видеоряд]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657921.jpg" />
+</div>
+
+
+###  Подробнее
+
+В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / Village Roadshow Pictures, NPV Entertainment, Silver PicturesЖанр: фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис,  Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: дублированныйСубтитры: русские (forced, full), английские (SDH), иврит, эстонские, латвийские, литовские, румынские, украинскиеПродолжительность: 02:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FDAF1F13DCB30E0251805024FAFE4E228E838B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ FastStone Image Viewer 6.2 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874944.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DevID Agent 4.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874885.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Volume2 1.1.5.397 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874883.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Orbit Downloader 4.0.0.7 [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874859.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIMP 4.13 Build 1887 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874831.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Magic Photo Recovery 4.5 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874830.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Security Eye 3.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874828.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FastStone Image Viewer 6.2 Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874822.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ HamMultiPlayer 0.116.37905.792 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874816.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Insofta Document Backup 5.2.0.124 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874803.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AVG PC Tuneup 16.22.1.58906 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874748.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ LonerD System Disc 2010.4 (28.03.2010) 2010.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874697.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Ashampoo Fhoto Optimizer[portable] v3.3.10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874649.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Privacy Eraser Free 5.15.4 Build 4012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874643.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Wise Disk Cleaner 10.6.2.797 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874630.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Pale Moon 29.4.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874629.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Slimjet 32.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874628.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Defraggler 2.21.993 Professional | Technician Edition RePack (& Portable) by D!a
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874591.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Nero Burning ROM 2016 17.0.8000 Portable by PortableWares (15.03.2016) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874590.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Chromium 81.0.4044.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874576.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Zoner Photo Studio X 19.2003.2.239 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874567.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mirillis Action! 4.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874564.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ SamDrivers 17.2.2 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874510.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ AVG AntiVirus Free 2017 17.1.3006 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874506.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Foxit Reader 4.3.1.0218 [Multi/Rus] RePack by Wadimus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874497.jpg" />
 </div>
 
 

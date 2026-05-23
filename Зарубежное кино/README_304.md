@@ -1,56 +1,3 @@
-###  Публикация: 1362090   (950752) от 22.02.2020
-
-Ибица / Ibiza (2019) BDRip [H.265/720p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Консервативный доктор-ортопед Филипп пытается расположить к себе двух детей-подростков своей новой возлюбленной. Он решает провести вместе с ними семейный отпуск у моря, и молодежь выбирает Ибицу, где любителю тихого отдыха придется непросто.Производство: Франция, Бельгия / Atelier de Production, Gaumont, France 2 CinémaЖанр: КомедияРежиссер: Арно ЛеморАктеры: Кристиан Клавье, Матильда Сенье, Леопольд Бухсбаум, Пили Груан, Джои Старр, Оливье Маршаль, Фредерик Бель, Луи-До де Ланкесэ, Lola Aubrière, Marie de DinechinПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35C1FCA5A5406F3F9F415204C1BE03442A5809E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362111   (950750) от 22.02.2020
-
-Форс-мажор (Возвращение в рай) / Return to Paradise (1998) BDRemux [H.264/1080p] [GER Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Джон, Тони и Льюис проводят отпуск в Малайзии. Экзотический остров, женщины, выпивка, немного наркотиков — райская жизнь! Когда Джон и Тони возвращаются домой, в Штаты, Льюис остаётся, чтобы посвятить себя изучению тропической фауны. Однако в бунгало, которое снимали приятели, местная полиция находит оставленные наркотики.
-Льюис арестован и, по малазийским законам, (   Читать дальше...   )Производство: США / Polygram Filmed Entertainment, Propaganda Films, TetragramЖанр: Триллер, драма, мелодрамаРежиссер: Джозеф РубинАктеры: Винс Вон, Энн Хеч, Хоакин Феникс, Дэвид Конрад, Вера Фармига, Ник Сэндоу, Джада Пинкетт Смит, Минг Ли, Джоэль де ла Фуэнте, Ричард ЧангПеревод: Многоголосый профессиональный (Пифагор)Субтитры: Русские, английскиеПродолжительность: 01:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE94FC4933F5EDF0824C45E3CAA4DBC10A8F672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362085   (950737) от 22.02.2020
 
 Ибица / Ibiza (2019) BDRip [H.265] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950737.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950717.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950665.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950655.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950644.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950622.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950580.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950575.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950572.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950571.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950567.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950566.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950507.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950468.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950466.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950461.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950355.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950318.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950233.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950214.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950196.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950191.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950123.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950115.jpg" />
 </div>
 
 
@@ -672,6 +619,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AC1262C9ED6728101203FEA8724C4BC31FE40D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089645   (950103) от 04.01.2017
+
+Рождественские страшилки / A Christmas Horror Story (2015) BDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассники расследуют загадочное убийство, произошедшее перед сезоном новогодних праздников, семейная пара замечает странное поведение младшего сына после совместной поездки в лес за ёлкой, а другую семью преследует рождественский демон Крампус, и всё это в то время, как на Северном полюсе Санта отбивается от зомби-эльфов.Производство: КанадаЖанр: УжасыРежиссер: Грант Харви, Стивен Хобан, Бретт СалливанАктеры: Уильям Шэтнер, Джордж Бьюза, Роб Арчер, Зои Де Гранд Мезон, Алекс Озеров, Шэннон Кук-Чун, Эми Форсайт, Джефф Кларк, Мишель Нолден, Адриан ХолмсПеревод: Авторский (Юрий Немахов)Субтитры: ОтсутствуютПродолжительность: 01:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A39F71B10C3BD300FAA4A69922DA865C1774A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 173606   (950089) от 07.02.2010
+
+Могучие утята / The Mighty Ducks (1992) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда — то в юности адвокат Гордон Бомбей играл в хоккей. Через много лет судьба снова дает ему шанс вернуться в большой спорт. За правонарушение он приговорен городскими властями к общественным работам в качестве тренера детской хоккейной команды, самойхудшей в лиге.
+
+Подопечные Гордона не умеют кататься на коньках, все время промахиваются мимо ворот и созданы только (   Читать дальше...   )Жанр: Комедия, Семейный, СпортРежиссер: Стивен ХерекАктеры: Эмилио Эстевес /Emilio Estevez/, Джосс Эклэнд /Joss Ackland/, Лэйн Смит /Lane Smith/, Хайди Клинг /Heidi Kling/, Джозеф Соммер /Josef Sommer/, Джошуа Джексон /Joshua Jackson/, Элден Рэтлифф /Elden Ratliff/, Шон Уайсс /Shaun Weiss/, Мэтт Дохерти /Matt Doherty/, Брэндон Эдамс /Brandon Adams/, Дж. Д. Дэниэлс /J. D. Daniels/, Эрон Шварц /Aaron Schwartz/, М. С. Гэйни (   Читать дальше...   )Перевод: Одноголосый закадровыйПродолжительность: 1:43:34
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

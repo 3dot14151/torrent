@@ -1,58 +1,3 @@
-###  Публикация: 1837607   (257951) от 17.11.2025
-
-TapScanner v3.0.89 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-TapScanner — сканер документов, это простой сканер с камеры с высоким качеством вывода в PDF. Упростите сканирование и подпись документов, добавив пользовательские поля в документы.
-1. Сканирование документов, квитанций и визиток.
-2. Сканер документов автоматически определяет границы!
-3. Точная настройка изображения с множеством фильтров для улучшения(   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.11.2025Разработчик: Tap-MobileПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BE36AED5A354B04D493AB5212EEC9F051D2DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837606   (257950) от 17.11.2025
-
-Коммуналочка v2.5.17 Mod by Alex.Strannik [Ru/En/Pl/Ua]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Программа позволяет вести статистику за показаниями счетчиков воды, электроэнергии, газа и любыми другими коммунальными расходами, отслеживать и анализировать динамику расходов по счётчикам.Тип издания: ProРелиз состоялся: 17.11.2025Разработчик: Artem KrutПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Польский, Украинский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E16849CF2B7ECFF01FDB74D31B022336382C507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838101   (257926) от 20.11.2025
 
 Auto Reply: автоответчик v6.1 Mod by Alex.Strannik [Ru/Multi]
@@ -61,7 +6,7 @@ Auto Reply: автоответчик v6.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257926.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by Viktor24
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257925.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257907.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ LazyMedia Deluxe v3.413 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257905.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257900.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ Rock Identifier - Stone ID v2.3.56 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257571.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ FacePic - AI Face App v3.2.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257570.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ WiFi Analyzer v6.8 (b106) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257569.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257066.jpg" />
 </div>
 
 
@@ -295,7 +240,7 @@ Screenshot touch v2.5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256869.jpg" />
 </div>
 
 
@@ -321,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256857.jpg" />
 </div>
 
 
@@ -347,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256856.jpg" />
 </div>
 
 
@@ -373,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256854.jpg" />
 </div>
 
 
@@ -399,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256839.jpg" />
 </div>
 
 
@@ -425,7 +370,7 @@ Listen Audiobook Player v5.3.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256838.jpg" />
 </div>
 
 
@@ -451,7 +396,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.7 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256829.jpg" />
 </div>
 
 
@@ -477,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256828.jpg" />
 </div>
 
 
@@ -503,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256827.jpg" />
 </div>
 
 
@@ -529,7 +474,7 @@ Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256815.jpg" />
 </div>
 
 
@@ -555,7 +500,7 @@ Sense V2 Flip Clock & Weather v8.91.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256814.jpg" />
 </div>
 
 
@@ -582,7 +527,7 @@ Smart Tools v2.1.16 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256810.jpg" />
 </div>
 
 
@@ -608,7 +553,7 @@ ProShot v8.32.1.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256809.jpg" />
 </div>
 
 
@@ -634,7 +579,7 @@ DRM-Play v1.45 / v1.56.2 Lite Mod by ajrys [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256808.jpg" />
 </div>
 
 
@@ -660,7 +605,7 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256754.jpg" />
 </div>
 
 
@@ -671,6 +616,58 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97FD63AD57CD0C29EBA3513D2213D57DD75E8E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837199   (256753) от 16.11.2025
+
+Electrical Calculations Pro / Электрические расчеты v11.0.3.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электрические расчеты являются лучшим приложением в секторе электроэнергии, он имеет много вычислений, которые могут помочь вам в вашей работе. Он не может пропустить в вашем смартфоне!Тип издания: ProРелиз состоялся: 14.11.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B8E89DFB79C8E064CF4401F82FA30671109F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837238   (256740) от 16.11.2025
+
+Лайм HD STB v1.12.18 Mod by vadj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровое ТВ (ЦТВ) для Android телевизора и приставок. Телеканалы для всей семьи! Смотрите  фильмы, сериалы и ТВ-каналы онлайн на большом экране телевизора вместе с Лайм HD TV онлайн! Лайм HD TV online — это приложение c трансляцией более 330 телеканалов для современных телевизионных приставок, которое предоставляет пользователям доступ к широкому спектру мультимедийного (   Читать дальше...   )Тип издания: Mod / AdFreeРелиз состоялся: 14.11.2025Разработчик: ООО Лайм Эйч ДиПоддерживаемая ОС: Android TV 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9DDECD27B885CF90C14C0CE51AE623BA59D8BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

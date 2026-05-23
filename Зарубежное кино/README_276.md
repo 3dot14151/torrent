@@ -1,55 +1,3 @@
-###  Публикация: 976575   (968583) от 18.01.2016
-
-Дневник девочки-подростка / The Diary of a Teenage Girl (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-История девочки-подростка, живущей в Сан-Франциско в 70-е годы, которая завела интрижку с бойфрендом своей мамы.Производство: США / Archer Gray Productions, Caviar, Caviar Films, Cold Iron PicturesЖанр: Драма, мелодрамаРежиссер: Мариэль ХеллерАктеры: Бел Паули, Кристен Уиг, Эбби Уэйт, Александр Скарсгард, Миранда Бэйли, Карсон Д. Мелл, Джон Парсонс, Остин ЛионПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28CC2755B4F73B7B1B608E00C46160F4A3F0A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358546   (968576) от 08.02.2020
-
-Дело Коллини / Der Fall Collini (2019) BDRip [H.265/720p] [10-bit] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Каспару Лайнену предстоит расследовать запутанное дело непримечательного механика, Фабрицио Коллини, который на первый взгляд безо всяких мотивов убил немецкого бизнесмена Ханса Майера, после чего сам сдался полиции. Положение вещей осложняется не только молчанием Коллини, но и его личным причастием к делу: внучка жертвы Йоханна была его юношеской любовью...Производство: Германия | Constantin Film, Mythos Film, SevenPictures FilmЖанр: триллер, драма, криминалРежиссер: Марко КройцпайнтнерАктеры: Элиас ЭмБарек, Хайнер Лаутербах, Александра Мария Лара, Франко Неро, Манфред Цапатка, Яннис Нивёнер, Райнер Бок, Катрин Штрибек, Пиа Стутценштайн, Петер ПрагерПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37956C3E4CBBC458F6CE48E904A9D6108D8E93F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358211   (968563) от 08.02.2020
 
 Рома / Roma (2018) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968563.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968561.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968559.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968537.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.265] [10-bit] [PR
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968515.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968514.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.265/720p] [10-bit
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968512.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968511.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968509.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968499.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.265] [10-bit]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968498.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968476.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968471.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968462.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968448.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968443.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968442.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968441.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968433.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968363.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968351.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968349.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968336.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968282.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55BF5872B87D4BF1E4961E8D08B9D7FB27D79689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976372   (968256) от 18.01.2016
+
+Химик / The Chemist (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стил - немолодой убийца, который подводит своего работодателя, когда отказывается убить только что встреченную им женщину. Убегая, Стил становится следующей жертвой дуэли между наёмниками - до тех пор, пока не узнает информацию, которая заставляет подвергнуть сомнению все то, что он знал раньше. Запутывая все еще больше, он влюбляется в свою потенциальную мишень.Производство: СШАЖанр: БоевикРежиссер: Арт КамачоАктеры: Саша Митчелл, Ричард Грико, Мартин Коув, Патрик Килпатрик, Роберт Миано, Оливье Грюнер, Маршал Хилтон, Нина Бергман, Эшли Этвуд, Стефани ГерардПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787E3B9F4B6276655580A348B49BF7FED6A6F1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976730   (968250) от 18.01.2016
+
+007: Спектр / Spectre (2015) HDRip [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зашифрованное послание из неизвестного источника выводит Бонда на след зловещей глобальной организации под кодовым названием СПЕКТР, в то время как М пытается спасти секретную разведывательную службу от ликвидации.Производство: Великобритания, США \ B24, Columbia Pictures, Danjaq, Eon Productions Ltd., Metro-Goldwyn-Mayer (MGM), SonyЖанр: Боевик, Триллер, ПриключенияРежиссер: Сэм МендесАктеры: Дэниэл Крэйг, Кристоф Вальц, Леа Сейду, Рэйф Файнс, Моника Беллуччи, Бен Уишоу, Наоми Харрис, Дэйв Батиста, Эндрю Скотт, Рори КиннерПеревод: Дублированный Чистый звукСубтитры: ОтсутствуютПродолжительность: 02:28:07Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637ECAB80C5E3BFB5C280C7DF245B37E8CAE927F
 ```
 
 https://mybot314.ru/tekegram_catalog/

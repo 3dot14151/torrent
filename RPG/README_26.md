@@ -6,7 +6,7 @@ Fairy Fencer F (2015) [En/Jp] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529390.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Underhero (2018) [En] (4.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528957.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pyre (2017) [Ru/Multi] (1.50427) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528470.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acting Lessons (2018) [En] (1.0.2.1) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528433.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Avadon 3: The Warborn (2016) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527713.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6421.30108/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527525.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kyn (2015) [En/De] (4.6.6.11209528/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527043.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Envy the Dead (2016) [Ru/En] (1.0b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527036.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526490.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Guild of Dungeoneering (2015) [En] (1.02) Repack CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523819.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Royal Bounty HD (2015) [Ru/Multi] (1.0.0.210) Repack MasterDarkness
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523048.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523047.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522992.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) SteamRip 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522283.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522208.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Fallen A2P Protocol (2015) [Multi] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521256.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) Repack R.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520200.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Might and Magic / Меч и Магия (1998-2002) [Ru/En] Repack nelex [Classic
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520188.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Final Fantasy Type-0 HD (2015) [En/Multi] (1.0/upd1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515790.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Risen 3 Titan Lords (2014) [Ru/Multi] (1.?0/dlc) SteamRip Let'sPlay [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515787.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Overlord: Fellowship of Evil (2015) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515758.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Torchlight II (2012) [Ru/Multi] (1.25.9.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514728.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08a HotFix 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514723.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Iron Danger (2020) [Ru/Multi] (1.03.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513305.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513226.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Gothic 3 (2006) [Ru/Multi] (1.75.14L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512233.jpg" />
 </div>
 
 

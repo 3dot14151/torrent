@@ -6,7 +6,7 @@ PointerStick 3.41 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745229.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745215.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cent Browser 1.9.12.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745214.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Lane 8 - Winter 2021 Mixtape (2022-01-04) [MP3|320 Kbps] <Progressive House, Dee
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745205.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Firefox Browser 96.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745204.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ K-Lite Codec Pack Update 16.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745200.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CrystalDiskInfo 8.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745196.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PrivaZer 4.0.39 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745189.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Microsoft Edge 97.0.1072.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745188.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ HiBit Uninstaller 2.7.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745187.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wise Care 365 Pro 5.2.6.521 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745166.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mozilla Firefox Quantum 65.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745157.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ eM Client Pro 7.2.34666.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745156.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VideoInspector 2.15.0.144 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745148.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Google Chrome 51.0.2704.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745141.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745140.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Google Chrome 51.0.2704.63 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745132.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Mozilla Thunderbird 91.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745098.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ IK Multimedia - T-RackS 5 Complete 5.8.0 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745089.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Opera 82.0.4227.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745077.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ IK Multimedia - AmpliTube 5 Complete 5.3.0B STANDALONE, VST, VST3, AAX (x64) [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745068.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ CodeLobster IDE 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745067.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wise Game Booster 1.37.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745052.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ GIMP 2.10.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745050.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Blackmagic Design DaVinci Resolve Studio 15.2.3.015 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745048.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Adobe Flash Player 32.0.0.142 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745038.jpg" />
 </div>
 
 

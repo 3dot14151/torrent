@@ -6,7 +6,7 @@ Windows 11 21Н2 (Build 22000.434) (20in1) (x64) by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743181.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Acrobat Pro DC 2019.010.20091 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743171.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Reg Organizer 8.26 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743170.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mozilla Firefox 37.0.2 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743135.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ XnViewMP 0.90 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743126.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Avast Internet Security 18.3.2333 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743117.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Windows Firewall Control 4.7.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743107.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Freemake Video Converter 4.1.9.12 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743092.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SoftColor PhotoEQ 1.2.6.0 RePack (& Portable) by Dinis124-78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743077.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Alcohol 52% 2.0.3 Build 7612 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743075.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe components: Flash Player 17.0.0.169 + AIR 17.0.0.144 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743060.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Media Encoder CC 2018 12.1.0.171 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743059.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Avast Premier 18.3.2333 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743049.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Audition CC 2018 11.1.0.184 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743048.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Avira Phantom VPN Free / Pro 2.12.8.21350 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743045.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Avast! Free Antivirus 2015 10.2.2218 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742990.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Alcohol 120% 2.0.3 Build 7612 Free Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742988.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mozilla Firefox 37.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742985.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Maxthon Cloud Browser 4.4.5.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742984.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe After Effects CC 2018 15.1.0.166 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742970.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Adobe Photoshop CC 2018 19.1.3.49649 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742959.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Adobe Photoshop CC 2018 v19.1.3.49649  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742956.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ R-Studio 8.0 Build 164571 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742925.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Alcohol 120% 2.0.3 Build 7612 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742907.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Alcohol 120% 2.0.3 Build 7612 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742905.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Daz Studio 4.9.2.70 Pro Edition + Extra Addons [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742860.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Bat! Professional 9.3.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150446.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150443.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Driver Booster Pro 8.2.0.306 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150439.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Icecream PDF Editor Pro 3.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150437.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Short Menu 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150436.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150435.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Wondershare PDFelement 10.1.7.2541 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150427.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Rainbow - Ансамбль Rainbow (1990) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Ha
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150420.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Deep Six (1986) Reissue, 1994, A&M Records [FLAC|Lossless|tracks + .cue] <G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150417.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150406.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Maxon Cinema 4D Studio R25.115 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150400.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150392.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Fourfit EP05 (2015) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150389.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150386.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Radiant Photo 1.1.2.346 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150380.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Movavi Video Suite 22.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150379.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ ReviverSoft Driver Reviver 4.0.1.44 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150377.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Azusa Plane - America Is Dreaming Of Universal String Theory (1998) 2CD [FLAC|Lo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150372.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ iShowU Studio 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150364.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Marked 2 v2.5.9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150351.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Comedy Woman. Лучшее  (2015.12.25) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150340.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Athentech Perfectly Clear Complete 3.6.3.1392 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150338.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Windows Update MiniTool 24.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150335.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Vince Staples - FM! (2018) Mixtape [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150319.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Unchecky 0.4.2 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150314.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150309.jpg" />
 </div>
 
 

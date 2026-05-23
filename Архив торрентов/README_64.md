@@ -6,7 +6,7 @@ Adobe Animate 2021 v21.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NINA - The Beginning (2021) [MP3|320 Kbps] <Synthpop, Synthwave, New Wave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036318.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Adobe XD v36.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036305.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Athentech Perfectly Clear Complete 3.11.2.1905 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036299.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adobe Premiere Rush v1.5.44 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036297.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Athentech Perfectly Clear WorkBench 3.11.2.1906 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036294.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ DirPrintOK 4.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036292.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ PanoramaStudio 3.5.5 Pro RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036287.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ActivePresenter Pro Edition 8.3.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036286.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ScrollNavigator 5.13.7 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036281.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Master PDF Editor 5.7.10 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036280.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adobe InDesign 2021 v16.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036277.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CherryTree 0.99.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036270.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ K-Lite Codec Pack Update 15.9.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036269.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Adobe Media Encoder 2020 v14.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036261.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ CherryPlayer 3.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036259.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Auslogics Duplicate File Finder 9.0.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036254.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Adobe Dreamweaver 2021 v21.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036252.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Apache OpenOffice 4.1.9 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036246.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ CrystalDiskInfo 8.10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036239.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ HWiNFO 6.42 Build 4360 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036232.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Adobe Audition 2020 v13.0.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036229.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adobe After Effects 2020 v17.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036220.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036215.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Adobe Illustrator 2021 v25.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036206.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ BELOFF [dp] 2021.02.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036205.jpg" />
 </div>
 
 

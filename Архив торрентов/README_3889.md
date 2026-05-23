@@ -6,7 +6,7 @@ CPUID HWMonitor Pro 1.50 (x64) Portable by conservator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209158.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Just Color Picker 5.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209149.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209146.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Disk Defrag Pro 11.0.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209141.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NVIDIA GeForce Desktop Game Ready 528.24 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209139.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hallo northern sky 4.2.15d + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209138.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FreeCAD 0.20.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209137.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IceCream Ebook Reader Pro 6.25 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209136.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Fort Firewall 3.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209134.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VirtualBox 6.1.38 Build 153438 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209133.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Draw.io 21.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209131.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Firefox Browser ESR 115.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209130.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Calcpad 6.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209127.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ qBittorrent 4.4.5 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209122.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Spotify 1.2.3.1115 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209117.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Office 2013-2021 C2R Install + Lite 7.4.4 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209116.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Auslogics Registry Cleaner Pro 10.0.0.3 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209115.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Auslogics Registry Cleaner Pro 10.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209114.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Microsoft .NET 6.0.20 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209108.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ ShareX 15.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209106.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Uninstall Tool 3.7.1 Build 5700 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209103.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Slimjet 40.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209101.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MuseScore 4.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209099.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Brave Browser 1.52.130 Portable by Cento8 + ext [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209092.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ DesktopDigitalClock 4.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209091.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Exif Pilot 6.21.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209090.jpg" />
 </div>
 
 

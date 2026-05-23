@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510198.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 41.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510196.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mega Dead Agitator - Rising Terror (2015) [MP3|320 кб/с]<Electronic, Darkwave
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510186.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Zohar - Onethreeseven (2001) [FLAC|tracks +.cue]<World Music, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510184.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Vivaldi 1.0.258.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510183.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510155.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru/En] (RePack/1.0
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510147.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Counter-Strike: Global Offensive [Ru/En/Multi24] (Steam-Rip/1.17.3.0) 2012 | RG 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510140.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510127.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ NonCompressibleFiles 2.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510113.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Angel Dust Dealers - Euthanasia Broadcast Network (2015) [MP3|320 кб/с]<Dark 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510104.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wise Folder Hider Free 3.22.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510100.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wise System Monitor 1.3.5.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510099.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Wise Disk Cleaner 8.81.617 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510098.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510097.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Lost Horizon  [Ger] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510093.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Comedy Баттл. Последний сезон. Лучшее  / Комеди �
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510055.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cyberfox 40.0.3 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510053.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510052.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Wise Program Uninstaller 1.73.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510051.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Wise Registry Cleaner 8.71.558 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510050.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Wise Memory Optimizer 3.37.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510048.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Display Driver Uninstaller 15.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510047.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Armin van Buuren - A State of Trance: Ibiza 2015 at Ushuaïa (2015) [MP3|32
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510045.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Armin van Buuren - A State of Trance 2015 (Extended Versions) (2015) [MP3|3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510043.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Internet Download Manager 6.23 Build 21 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510040.jpg" />
 </div>
 
 

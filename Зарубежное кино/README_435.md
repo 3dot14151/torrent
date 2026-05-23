@@ -1,56 +1,3 @@
-###  Публикация: 998191   (869405) от 19.03.2016
-
-Ужастики / Goosebumps (2015) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кошмары бывают разные. Вечно голодные оборотни, плохо воспитанные зомби, агрессивные садовые гномы и даже гигантский неуравновешенный снежный человек…
-Все эти фантастические монстры и монстрики многие годы магическим образом удерживались на страницах знаменитых бестселлеров «Ужастики», пока по воле случая их не выпустили на свободу в реальный мир.Производство: США, Австралия / Columbia Pictures, Original Film, Village Roadshow PicturesЖанр: фэнтези, комедия, приключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. БолденПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E409E9EF4BCD24A25FDE4439B922CDADF46F52A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998303   (869400) от 19.03.2016
-
-Кэрол / Carol (2015) BDRemux [H.264 /1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в Нью-Йорке в 50-е годы XX века. Молодая героиня Тереза работает продавщицей в одном из крупных магазинов Манхэттена. Там она знакомится с Кэрол, изысканной и соблазнительной покупательницей, несчастной в браке. За первой искрой, пробежавшей между женщинами, последует более глубокое чувство. Между ними скоро встанет выбор между социальными условностями (   Читать дальше...   )Производство: Великобритания, США, Франция, Film4, Killer Films, Number 9 FilmsЖанр: Драма, мелодрамаРежиссер: Тодд ХейнсАктеры: Кейт Бланшетт, Руни Мара, Кайл Чандлер, Джейк Лэси, Сара Полсон, Джон Магаро, Кори Майкл Смит, Кевин Краули, Ник Паич, Кэрри Браунштейн,Трент Роулэнд, Эми Уорнер, Майкл Хейни, Венди Лардин, Памела Эванс, Кристин А. Дай, Дуглас Скотт Соренсон, Кен Штрунк, Энн Рескин, Линни БондПеревод: Любительский (двухголосый закадровый) Parovoz ProductionПродолжительность: 01:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941873B89A1B5DE5CB789FB9FACF0759B6C0B1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107072   (869395) от 21.02.2017
 
 Джеки / Jackie (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869395.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869383.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869378.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869377.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869374.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869371.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869369.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869367.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869366.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869361.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869268.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869262.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869226.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869225.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869139.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869136.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869135.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869130.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869123.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869068.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869046.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869039.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869031.jpg" />
 </div>
 
 
@@ -658,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869027.jpg" />
 </div>
 
 
@@ -669,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19D48810F30494AFB7A9770BF26AC9A356E4FEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106997   (869012) от 21.02.2017
+
+Союзники / Allied (2016) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869012.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год. Во время опасной миссии в Северной Африке разведчик Макс встречает участницу сопротивления Марианну. Их чувствам суждено подвергнуться тысяче испытаний, главным из которых станет испытание правдой…Производство: США, ВеликобританияЖанр: боевик, триллер, драма, мелодрама, военныйРежиссер: Роберт ЗемекисАктеры: Брэд Питт, Марион Котийяр, Лиззи Каплан, Аугуст Диль, Шарлотта Хоуп, Рэффи Кэссиди, Мэттью Гуд, Дэниэл Беттс, Саймон МакБерни, Джаред ХаррисПеревод: Дублированный (iTunes)Язык субтитров: русскийПродолжительность: 02:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375C28EFA6F9801C3566142045E0CC8623C6CD7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106977   (868999) от 21.02.2017
+
+Ножницы / Scissors (1991) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина Энджи Андерсон становится жертвой психопата, который нападает на неё в лифте. Энджи остаётся живой, но глубочайшая эмоциональная травма изменяет её отношение к миру и со временем не проходит, а трансформируется в паранойю. Её психоаналитик пытается помочь Энджи вернуться к нормальной жизни.
+Вскоре после нападения Энджи знакомится со своими соседями, (   Читать дальше...   )Производство: США / DDM Film CorporationЖанр: Триллер, Драма, ДетективРежиссер: Фрэнк Де ФелиттаАктеры: Шэрон Стоун, Стив Рейлсбэк, Ронни Кокс, Мишель Филлипс, Вики Фредерик, Ларри Мосс, Остин Келли, Джесси Гарсиа, Уилл Лескин, Айви ДжонсПеревод: Профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый), авторский (одноголосый закадровый)Субтитры: Русский, АнглийскийПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7A43F5EB7B879F80B3F0881A3B221443389BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

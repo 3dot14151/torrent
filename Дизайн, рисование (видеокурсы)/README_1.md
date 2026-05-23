@@ -6,7 +6,7 @@ The Gnomon Workshop, Daniel Zeni | Создание модели в Zbrush то�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044266.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Udemy, Creativity Unleashed | Blender Character Creation Megacourse: Beginner to
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044181.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ SideFX, Nikola Damjanov | TheComplete A-Z Terrain Handbook:  ND edition (2022) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044111.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ CG Boost, Kevin Ramirez | Master Grease Pencil in Blender (2022) PCRec [AD] [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044105.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ FlippedNormals | Unreal Engine 5 - How to Create Professional Cinematics (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044099.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Stepik, Evgen Marfel | Веб-дизайн в Figma 2023 (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044095.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Udemy, Vince Petrelli | Unreal Engine 5: One Course Solution For Material (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043989.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Stepik, Evgen Marfel | Создание UI KIT в FIGMA. Делаем и про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043873.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Art-Kustova-school, Анастасия Кустова | Акварельный �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043211.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 04. Creation Technics. Forms (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043022.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Michael Pavlovich | Zbrush for Ideation Unit 01 The Basics (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042977.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Steven Knipping | Applied Houdini Rigids VI (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042764.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Steven Knipping | Applied Houdini Rigids V (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042746.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 05. Creation Techniques. Details (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042738.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 03. Exploration (2018) PCRec [En, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042736.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ioannis Karathomas | Military Mech Design (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042719.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 06. Creation Techniques. Surface (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042717.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Michael Pavlovich | Zbrush for Ideation Unit 07 Presentation (2018) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042710.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042640.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Photofox, Ростислав Литвицкий | Illustrator Beginner (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042579.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Skillshare, Jake Bartlett | Texturing in Adobe After Effects (2022) WEB-DL [EN /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042574.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Photofox, Ростислав Литвицкий | Illustrator PRO (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042322.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Udemy, CG Masters, Chris Plush, Lee Salvemini | The Blender 2.8 Encyclopedia [Ch
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042318.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Carlo Sansonetti | Character Rigging Production Techniques (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042225.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Simon Fuchs | Military Radio Tutorial Part 1-3 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042145.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042142.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780576.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Snap 10.0.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780543.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780534.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vidiot 0.3.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780529.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Room Arranger 9.5.2.608 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780525.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6785.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780480.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro  15.0.5007
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780463.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office 2007 Standard SP3 12.0.6785.5000 RePack by KpoJIuK (2018.02)  [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780455.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Office 2010 Professional Plus + Visio Premium + Project Pro 14.0.7194.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780454.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AOMEI Backupper Technician Plus 4.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780452.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SMPlayer 18.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780406.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ FastStone Capture 8.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780384.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ YouTube By Click Premium 2.2.79 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780375.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ IsMyLcdOK 3.03 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780370.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ mp3DirectCut 2.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780361.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Easy GIF Animator Pro 7.2.0.60 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780349.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Office Professional 2003 SP3 (2018.02) RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780340.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Windows 10 Pro 1709 x86/x64 by kuloymin v12.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780321.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Windows 7 SP1 Ultimate (x86&x64) [Updates V.11] by YelloSOFT [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780317.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ GoodSync Enterprise 10.7.8.8 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780237.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ FastStone Capture 8.8 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780217.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Soft4Boost Document Converter 5.2.5.735 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780211.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Movavi Screen Capture Studio 9.2.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780206.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ CrystalDiskInfo 7.5.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780203.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rainlendar Pro 2.14 Build 155 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780200.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ The Bat! Professional 8.2.8 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780164.jpg" />
 </div>
 
 

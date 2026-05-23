@@ -6,7 +6,7 @@ Wondershare Video Converter Ultimate 10.2.5 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642771.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DriverX v.2.1 beta (2012 год) [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_642743.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TweakPower 2.015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642739.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aiseesoft Screen Recorder 2.2.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642737.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kamiari no Kodomo | Child of Kamiari Month | Дитя месяца Камьяр�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642727.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ TG Pro (Temperature Gauge Pro) 2.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642721.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Zoner Photo Studio X 19.1706.2.29 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642713.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe components: Flash Player 26.0.0.126 + AIR 26.0.0.118 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642706.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642691.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ummy Video Downloader 1.10.3.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642690.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ CleanMyPC 1.10.2.1999 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642684.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Alastis - Unity (2001) [FLAC|image + .cue]<Dark Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_642661.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642655.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PGWARE SuperRam 7.5.28.2018 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642629.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ WinCatalog 2021.2.0.404 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642609.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642605.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ASUS M2N motherboard support CD NVIDIA nForce 430 Chipset Support CD Rev.272.06 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_642601.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_642586.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Wise Care 365 Pro 4.66.450 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642580.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ viber 6.8.2.878 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642577.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ MediaHuman Audio Converter 1.9.6.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642569.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kaspersky Lab Products Remover 1.0.1372 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642561.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ SamDrivers 19.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642547.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Go-Toubun no Hanayome / The Quintessential Quintuplets / Пять невест [
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642535.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Serial Box & SerialSeeker 2022 - 04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642472.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Transcend SSD Scope 4.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642470.jpg" />
 </div>
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1402321   (694025) от 18.08.2020
-
-Страх.сом / Feardotcom (2002) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Четыре тела обнаружены среди индустриального распада и городской грязи Нью-Йорка. Команда молодого детектива Майка Рейлли с честолюбивым исследователем из Министерства здравоохранения Терри Хьюстон пытаются раскрыть причину этих необъяснимых смертельных случаев.
-Единственный фактор, объединяющий жертв, каждый умер точно через 48 часов после логина на Feardot.com. (   Читать дальше...   )Производство: Великобритания, Германия, Люксембург / MDP Worldwide, ApolloMedia Distribution, Fear.Com Productions LtdЖанр: ужасы, триллер, криминалРежиссер: Уильям МэлоунАктеры: Стивен Дорфф, Наташа МакЭлхоун, Стивен Ри, Удо Кир, Амелия Кёртис, Джеффри Комбс, Найджел Терри, Гезина Кукровски, Майкл Саразин, Яна ГюттгеманнсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E783A9E0BCE5FE1D31BE4D9C93C8E716E4F456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402814   (694022) от 18.08.2020
-
-Кот в мешке / Buying the Cow (2000) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жениться или нет? - Вот в чем вопрос! Для героя этого фильма гамлетовская проблема звучит именно так. Чем настойчивей его подружка подталкивает его в направлении алтаря, тем меньше ему хочется идти с ней под венец. Парню кажется, что он не готов к браку.
-Свадьба ужасно напоминает ему покупку кота в мешке. И он решает для начала пойти за советом к друзьям и обратить (   Читать дальше...   )Производство: США / Destination FilmsЖанр: Мелодрама, КомедияРежиссер: Уолт БекерАктеры: Джерри О’Коннелл, Бриджит Уилсон, Райан Рейнольдс, Билл Беллами, Алисса Милано, Джон Тенни, Аннабет Гиш, Рон Ливингстон, Эринн Бартлетт, Скарлет ЧорватПеревод: Многоголосый профессиональный, Первый каналСубтитры: Русские, английскиеПродолжительность: 01:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9742BDFBF2756D9AE718C63F16E5E6BAEF932DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403091   (694018) от 18.08.2020
 
 Подлодка / The Hunley (1999) DVDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694018.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694015.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694011.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694005.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693999.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693995.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693959.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693913.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693909.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693903.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693868.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693867.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693865.jpg" />
 </div>
 
 
@@ -402,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693864.jpg" />
 </div>
 
 
@@ -428,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693863.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693859.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693835.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693818.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693785.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693772.jpg" />
 </div>
 
 
@@ -585,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693761.jpg" />
 </div>
 
 
@@ -611,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693756.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693753.jpg" />
 </div>
 
 
@@ -663,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693745.jpg" />
 </div>
 
 
@@ -674,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0309C4BC4CB2302B5C027228B19D86A8AFE6050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534419   (693744) от 02.03.2022
+
+Любовь как искупление / Redeeming Love (2022) BDRip [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проданная в проституцию в детстве, Энжел не знает ничего, кроме предательства. Можно ли когда-нибудь вылечить ее сердце? По мотивам романа Франсин Риверс.Производство: США / Mission Pictures International, Nthibah Pictures, Advantage Entertainment, Pinnacle Peak Pictures, Pure Flix EntertainmentЖанр: драма, мелодрама, историяРежиссер: Ди Джей КарузоАктеры: Эбигейл Ф. Коуэн, Том Льюис, Эрик Дэйн, Фамке Янссен, Логан Маршалл-Грин, Нина Добрев, Ливи Бирч, Джеми-Ли О’Доннелл, Уилли Уотсон, Джош ТейлорПеревод: Двуголосый любительский (Pazl Voice)Субтитры: Русские, Английские (full, SDH)Продолжительность: 02:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80BFD6BD1D378499196AEFA3A437AA06442BFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534188   (693740) от 02.03.2022
+
+Вестсайдская история / West Side Story (2021) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая драма в жанре мюзикла, поставленный режиссёром Стивеном Спилбергом по сценарию Тони Кушнера. Фильм является адаптацией одноимённого бродвейского мюзикла 1957 года Артура Лорана, Леонарда Бернстайна и Стивена Сондхейма, основанного на пьесе Шекспира "Ромео и Джульетта". Главные роли исполнили Энсел Эльгорт, Рэйчел Зеглер, Ариана Дебоуз, Дэвид (   Читать дальше...   )Производство: США, 20th Century Studios, Amblin Entertainment, Amblin PartnersЖанр: Мюзикл, драма, мелодрама, криминалРежиссер: Стивен СпилбергАктеры: Рэйчел Зеглер, Энсел Элгорт, Майк Фейст, Ариана ДеБос, Дэвид Альварез, Кори Столл, Брайан Д`Арси Джеймс, Рита Морено, Джош Андрес Ривера, Эзра МинасПеревод: Многоголосый профессиональный (Jaskier)Субтитры: АнглийскиеПродолжительность: 02:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFA38C4DCBC6F744716E28B74F4E6E5FF7DFB58
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 612762   (985288) от 02.02.2013
-
-Шизополис / Schizopolis (1996) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе, что окружающий вас мир — всего лишь мираж, скрывающий толпы подозрительных личностей, которые могут в любой момент занять ваше место на работе, в машине и даже в собственной постели. Стоит вам лишь на секунду поверить в правдивость нелепой теории одного безумного ученого, не успеете вы и глазом моргнуть, как окажетесь в чужом теле, заговорите на незнакомых вам языках и заведете интрижку с собственной женой.
- Вам предстоит стать звеном таинственного заговора промышленных шпионов и истребителей насекомых, познакомиться с Привлекательной Женщиной Номер Два и во всей полноте осознать пагубные последствия вредных привычек. Пережив за один день уйму невероятных событий, вы, наконец, поймете, что живете не в тихом и уютном мире, а в сумасбродном городе Шизополис, ставшим центром безумной вселенной.Жанр: Фэнтези, Комедия, ДетективРежиссер: Стивен СодербергАктеры: Бетси Брэнтли, Дэвид Дженсен, Майк Мэлоун, Эдвард Джемисон, Скотт Аллен, Дэррин ДикерсонПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: Английские, русскиеПродолжительность: 01:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF3F185C4CDC1FB373FEBED96A09CD2FAAEB2A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612398   (985268) от 02.02.2013
-
-007: Координаты «Скайфолл» / Skyfall (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Лояльность Бонда своей начальнице М под угрозой со стороны ее прошлого, которое внезапно даст о себе знать. MI6 подвергается нападению, и агент 007 должен ликвидировать угрозу, несмотря на цену, которую придется заплатить.Жанр: Боевик, Триллер, Криминал, ПриключенияРежиссер: Сэм МендесПродюсер: Барбара Брокколи, Майкл Дж. Уилсон, Чи Ва ЛиАктеры: Дэниэл Крэйг, Рэйф Файнс, Хавьер Бардем, Хелен МакКрори, Бен Уишоу, Джуди Денч, Альберт ФинниПеревод: ДублированныйПродолжительность: 02:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40936332E0E1765F357760466FA9752184F4A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 164591   (985212) от 08.01.2010
 
 Псы воины / Dog Soldiers (2002) DVDRip [H.264] [VO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985212.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985172.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985147.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985109.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985053.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984909.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984863.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984840.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984835.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984764.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984613.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984606.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984605.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984501.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984491.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984483.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984482.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984478.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984458.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984395.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984388.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984381.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984313.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984307.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA6344B34CD75EB5F8E7B062F14531D801B282DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971801   (984290) от 04.01.2016
+
+Порочные связи / Conversations with Other Women (2005) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случайная встреча двух людей, неожиданное знакомство, приятные воспоминания, всепоглащающая страсть, горячая ночь в объятиях друг друга, и утреннее раскаяние... Это история двух близких людей, страдающих душевным одиночеством. Вроде бы прошёл десяток лет - но это громадная пропасть времени, которая разделила их за такой, казалось бы, небольшой срок. Время безжалостно (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Драма, мелодрама, комедияРежиссер: Ганс КанозаАктеры: Аарон Экхарт, Хелена Бонем Картер, Юрий Цыкин, Брайан Джерати, Брайанна Браун, Томас Леннон, Эрик Эйдем, Нора Зеетнер, Дэвид Франклин, Оливия Уайлд, Серина Винсент, Филип Литтелл, Розанна Шер, Эмили Фернандез, Ной Абрамс, Уилл Картер, Мэдисон Девенпорт, Хэдли Дион, Харрисон Хелд, Дженнифер ХерцогПеревод: Профессиональный двухголосый (Videogram)Субтитры: ОтсутствуютПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547D80FDA71C4B8C4DA7A585AB4D45D6F1C022C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971921   (984279) от 04.01.2016
+
+Как заработать 20 миллионов баксов / The First $20 Million Is Always the Hardest (2002) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984279.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сфере высоких технологий переполох — создан уникальный компьютер. Монитора нет, клавиатуры нет. Выглядит очень странно, но стоит совсем недорого и, главное, работает. Транснациональные корпорации в панике. А виноват во всём Энди, который бросил свою удачную карьеру и вместе с командой — тремя своеобразными и психически неуравновешенными программистами создаёт это (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Мик ДжексонАктеры: Адам Гарсиа, Розарио Доусон, Джейк Бьюзи, Энрико Колантони, Итэн Сапли, Анжул Нигам, Грегори Джбара, Дэн Батлер, Линда Харт, Шива Роуз, Чандра Уэст, Роберт Патрик Бенедикт, Хезер Дубров, Стоуни Вэстмолэнд, Джон Ротмен, Энди Берман, Регги Ли, Брент Хинкли, Эми Ван Хорн, Дагни Керр, Джерри Халева, Виктория Гарсия-Келлехер, Джонатан КлейнПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26D6A0DDC5141AFFC3A935B0A976D2188931F55
 ```
 
 https://mybot314.ru/tekegram_catalog/

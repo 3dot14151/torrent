@@ -6,7 +6,7 @@ NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646874.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646437.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_645566.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643031.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG. Фри-соло / Free Solo (2018) HDTV [H.264/1080i-LQ] [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642693.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG. Тайны истории. Человек в железной маске / M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641652.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG. Тайны истории. Леонардо да Винчи / Mystery Files.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641596.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641069.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640934.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG. Фри-соло / Free Solo (2018) HDTVRip [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640639.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ National Geographic. Смертельный бой динозавров / Dino D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639533.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG. Тираннозавр: чемпион по выживанию / T.Rex: Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639023.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: С точки зрения науки. Экспедиция "Виски" / N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638985.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638833.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG. В поисках правды / The Truth Behind (2011) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637433.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Крупные рыбы Зэба: огромный сом / Monster Fish. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637380.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637266.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG. Фри-соло / Free Solo (2018) BDRemux [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636970.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Испытайте свой мозг / Test Your Brain (Brain Games, Teste d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636693.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Нефтяное загрязнение столетия / Oil Spill of the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635371.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG: Осушить океан: глубокое погружение. Шторм
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635360.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NGW: Прирождённые монстры. Тигровая змея / Natura
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634016.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Прирождённые монстры. Бразильский паук / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633923.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ National Geographic: Острова. Исландия / Islands. Island (2011) S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632163.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ National Geographic: Острова. Занзибар / Islands. Zanzibar (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632158.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ National Geographic: Острова. Куба / Islands. Cuba (2011) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632155.jpg" />
 </div>
 
 

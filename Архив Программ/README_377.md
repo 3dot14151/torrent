@@ -6,7 +6,7 @@ Mozilla Thunderbird 91.1.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854288.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wavesfactory - TrackSpacer 2.5.9 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854282.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 79.0.4143.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854278.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GPU-Z 2.43.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854190.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Futuremark 3DMark 2.20.7274 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854186.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TechSmith Camtasia 2021.0.11 (Build 32979) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854183.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.16 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854175.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.33.5700 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854074.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ StartIsBack++ 2.9.16 StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854070.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ventoy 1.0.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854001.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Total Commander 10.00 LitePack & PowerPack + Portable 2021.9 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853999.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Total Commander 10.0 Final Titan v.26 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853990.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Maxthon Cloud Browser 4.9.2.500 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853862.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Tipard Blu-ray Converter 7.3.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853856.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Registry Life 3.25 DC 28.03.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853853.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AdwCleaner 5.107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853793.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Reg Organizer  7.35 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853783.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Tipard Total Media Converter 8.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853782.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tipard PDF Converter Platinum 3.2.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853780.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Tipard DVD Creator 3.5.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853757.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Cent Browser 1.8.9.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853743.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Download Master 6.8.2.1511 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853709.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Xilisoft Video Converter Ultimate 7.8.14 Build 20160322 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853708.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Google Chrome 49.0.2623.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853706.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Advanced SystemCare Ultimate 9.0.1.637 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853614.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Beautune for Windows v.1.0.5.100 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853613.jpg" />
 </div>
 
 

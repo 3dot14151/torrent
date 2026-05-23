@@ -6,7 +6,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388887.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Mordheim: City of the Damned (2015) [Ru/Multi] (1.4.4.1/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388416.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Battlevoid: Harbinger (2016) [Ru/Multi] (2.0.6) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386913.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Dungeons 3 (2017) [Ru/En] (1.2) Repack Covfefe
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386543.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386243.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Dungeons 3 (2017) [En] (1.2.1/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384680.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Overland (2019) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384505.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384046.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Conan Unconquered (2019) [Ru/Multi] (1.143 build 703634) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382627.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Stronghold HD (2012) [Ru/Multi] (1.3) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381806.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802.28549/dlc) Repack R.G. Меха�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378921.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376753.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Endless Legend (2014) [Ru/Multi] (1.6.10 S3/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372242.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Overland (2019) [Ru/Multi] (840) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369005.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Myth Anthology (1997-2001) [Ru/En] (1.5/1.8/1.3.1/dlc) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368243.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Gears Tactics (2020) [Ru/Multi] (1.0/dlc) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366840.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Age of Empires III (3): Definitive Edition (2020) [Ru/Multi] (1.0/dlc) License C
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366836.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362431.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Imperial Glory [En/Ru] (RePack/1.1) 2005 | R.G. Origami
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362172.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Age of Wonders Anthology (1999-2014) [Ru/En] Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360587.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Rise Of Nations Anthology [En/Ru] (Repack) 2003 - 2006 | R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359462.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355219.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352710.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Stronghold: Crusader II (2014) [Ru] (1.0.22365/upd17/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333192.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Earth 2150. Moon Project / Земля 2150. Дети Селены (L) [Ru] (2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_332792.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Supreme Ruler 2020 (2008) [Multi] (2.0.0.1/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320247.jpg" />
 </div>
 
 

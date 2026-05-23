@@ -1,84 +1,3 @@
-###  Публикация: 1385754   (796663) от 26.05.2020
-
-Татьяна Гармаш-Роффе | Ягоды страсти, ягоды смерти (2012) [MP3, Наталья Гуревич]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он приблизился к бочкам. Здесь ягоды винограда, по его разумению, отдавали душу. Отдавали в сок, которому вскоре суждено стать вином. Превращение солнечных ягод в солнечный напиток по имени вино ему казалось великим чудом и таинством, и сейчас у него впервые появилась возможность присутствовать при чуде и таинстве.
-Взяв в руки шест, Коля медленно начал круговорот (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCE7802D1D50B46560524832B021EC817A3B356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385761   (796661) от 26.05.2020
-
-Арчибалд Джозеф Кронин | Древо Иуды (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полуголодное детство и юность Дэвида Мори нельзя назвать счастливыми... Зато теперь, в зрелые годы, он может наслаждаться роскошной жизнью в Швейцарии, посещать престижные приемы в высшем обществе во Франции или оперные премьеры в Италии. Он может позволить себе коллекционировать работы импрессионистов.
-Но все это плата. Те тридцать сребреников, которые он, подобно (   Читать дальше...   )Жанр: РеализмПродолжительность: 12:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6AFEB6783D53F3CA8B471EE536FC181C4FCFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385760   (796654) от 26.05.2020
-
-Тана Френч | Тень за спиной (2020) [MP3, Юлия Яблонская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Тень за спиной» – новый роман из Дублинского цикла королевы ирландского детектива.
-Антуанетта Конвей и Стивен Моран, блестяще раскрывшие убийство в романе «Тайное место», теперь официальные напарники. В отделе убийств их держат в черном теле, поручают лишь заурядные случаи бытового насилия да бумажную волокиту. Но однажды их отправляют на банальный, на первый взгляд, (   Читать дальше...   )Жанр: ДетективПродолжительность: 18:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26ACDF0E7ED635A8B7EC9C194A2695979CDFCF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385723   (796494) от 26.05.2020
 
 Алексей Губарев | Игра на выживание (2020) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796494.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796419.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796408.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796393.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796367.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796290.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796267.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796249.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796164.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796155.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796149.jpg" />
 </div>
 
 
@@ -376,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796148.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796079.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796050.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795989.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795980.jpg" />
 </div>
 
 
@@ -508,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795872.jpg" />
 </div>
 
 
@@ -534,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795857.jpg" />
 </div>
 
 
@@ -560,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795848.jpg" />
 </div>
 
 
@@ -586,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795799.jpg" />
 </div>
 
 
@@ -612,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795774.jpg" />
 </div>
 
 
@@ -638,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795773.jpg" />
 </div>
 
 
@@ -664,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795754.jpg" />
 </div>
 
 
@@ -675,6 +594,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6F8430473DFE396F95311DEA2F240B3430EA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 94552   (795753) от 27.05.2020
+
+Терри Пратчетт | Цвет волшебства [2008] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Терри Пратчетт - самый популярный британский писатель, непревзойденный мастер юмористически-фэнтезийного жанра, любимец английских читателей, общий тираж книг автора превышает 40 миллионов.
+Роман "Цвет волшебства" - первый, с которого начался грандиозный цикл бестселлеров "Плоский мир", насчитывающий сейчас более 20 книг.
+Итак, знакомьтесь: Ринсвинд (   Читать дальше...   )Жанр: фэнтези, юмор
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871CAB000D1818FA74DFBD543C96DDFCBE384C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200543   (795650) от 21.01.2018
+
+Барбара Картленд | Флирт (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеряв сначала мать, а затем отца, умершего от тяжелой болезни, Анцелла Уинтон осталась одна, без средств к существованию. Выбор у девушки невелик: либо ехать приживалкой к теткам, суровым незамужним дамам, которым везде и во всем чудится порок, либо попытаться устроиться в жизни самостоятельно… И она принимает предложение отправиться на юг Франции и стать сиделкой (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442555D73F7590A1129DC29481B7C88E1D275D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012049   (795622) от 29.04.2016
+
+Борис Екимов | За теплым хлебом (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы Бориса Екимова, составившие этот сборник, населены людьми разными и по возрасту и по характерам. Писатель создал свой художественный мир современной Задонщины, увековечив имена ее рек, курганов, балок, уходящих в небытие хуторов и казачьих родов. Проза его пластична, в ней нет аффектации, хотя она социально заострена, серьезность волнующих писателя вопросов (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 18:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB2274489D70018D5BC3EA15D214F002269D4BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

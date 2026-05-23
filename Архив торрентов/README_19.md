@@ -6,7 +6,7 @@ Vidmore Player 1.0.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043351.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EssentialPIM Pro 11.2.4 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043346.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aiseesoft Video Converter Ultimate 10.6.18 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043345.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ R-Studio Network 9.2 Build 191126 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043344.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Visual Studio Code 1.74.3 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043342.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ QuickTextPaste 8.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043339.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ ExtraDisks 23.0.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043337.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PrivaZer Pro 4.0.63 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043334.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wise Care 365 Pro 6.4.4.622 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043332.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ GPU Shark 0.29.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043330.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ HomeBank 5.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043329.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ MediaHuman YouTube Downloader 3.9.9.79 (3101) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043325.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AIMP 5.11 Build 2421 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043323.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Nox App Player 7.0.5.2001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043321.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AIMP 5.11 Build 2421 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043319.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Ashampoo Burning Studio 24.0.1.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043318.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ RAR for Linux 6.20 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043317.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Vidmore Video Converter 2.3.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043315.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AIMP 5.11 Build 2421 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043313.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ R-Studio Technician 9.2 Build 191126 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043311.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Ashampoo Photo Optimizer 9.0.4.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043310.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Microsoft PowerToys 0.67.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043309.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ant Download Manager Pro 2.9.2 Build 84176 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043306.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ uTorrent Pro 3.6.0 Build 46672 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043304.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Uninstall Tool 3.7.2 Build 5701 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043300.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ iStat Menus 6 v.6.70 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043293.jpg" />
 </div>
 
 

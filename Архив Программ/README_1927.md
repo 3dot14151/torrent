@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154343.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FileZilla 3.46.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KeepStreams 1.1.9.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154327.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Video AI 4.0.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154323.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Firefox Browser 84.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154316.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AIMP 4.12 Build 1877 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154289.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Topaz Video AI 4.0.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154286.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Flip PDF Professional 2.4.9.43 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154283.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FreeCommander XE 2021 Build 840 donor x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154265.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Bat! Professional Edition 7.4.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154255.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Maxthon Browser 5.2.7.100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154247.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft .NET 8.0.0 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154236.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Google Chrome 119.0.6045.160 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154229.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PicPick Free+Pro 7.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154222.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PDF-XChange Editor Plus 10.1.3.383 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154212.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ FreeCommander XE 2021 Build 840 public x32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154206.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ePageCreator 5.9.9.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154200.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AIMP 4.12 Build 1877 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154187.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ONLYOFFICE 7.5.1.23 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154171.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154163.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ AIMP 4.70 Build 2239 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154159.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Google Chrome 119.0.6045.160 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154125.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Mozilla Thunderbird 91.4.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154105.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ The Bat! Voyager 7.4.0.1 Final Portable by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154102.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AIMP 4.70.2239 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154085.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ AVS Audio Software 10.0.4.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154070.jpg" />
 </div>
 
 

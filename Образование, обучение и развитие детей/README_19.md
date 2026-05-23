@@ -1,57 +1,3 @@
-###  Публикация: 1098105   (910402) от 29.01.2017
-
-Л.Я. Гальперштейн | Забавная физика (1994) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга рассчитана на школьников, еще не изучающих физику. Она содержит описание доступных для ребят занимательных опытов и всевозможных самоделок, связанных с физическими явлениями.Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8205765BD6612A2043C566B99FB53920EAAC75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098411   (910121) от 29.01.2017
-
-Томас Армстронг | Ты можешь больше, чем ты думаешь (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Что означает быть умным? Томас Армстронг утверждает: интеллект – это не только отличные оценки, высокие результаты в тестах и хорошая память. Интеллект проявляется во многом – в творчестве, в музыке, в спорте, в умении видеть красоту природы, в эмоциях и способности находить общий язык с окружающими.
-
-Эта книга поможет подростку узнать, что он из себя представляет (   Читать дальше...   )Жанр: Обучение, развитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3106BA7C1E93001E1076E064061B8F07458C35BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990893   (909359) от 26.02.2016
 
 Антон Брежестовский | Ван Гог и хомячки, и еще 38 вкусных ломтиков английского на каждый день (2015) [PDF]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909359.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909355.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909080.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907423.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907415.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906966.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905984.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905772.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905568.jpg" />
 </div>
 
 
@@ -296,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905055.jpg" />
 </div>
 
 
@@ -322,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904803.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904209.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902370.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901923.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899304.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899207.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899045.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898442.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897992.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897537.jpg" />
 </div>
 
 
@@ -587,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896964.jpg" />
 </div>
 
 
@@ -614,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895832.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895342.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894015.jpg" />
 </div>
 
 
@@ -680,6 +626,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6253F2F932BF427E2405EAD2F1859AEA1DA51B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493757   (893690) от 04.09.2021
+
+И. Егорова, М. Поркшеева, З. Таракшеева | Лучшая книга малышам (2014) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга расскажет ребенку в стихотворной форме о правилах этикета, о хороших манерах, о том, как нужно себя вести дома, на улице, в общественном транспорте и других местах. Очень важно, что благодаря ей малыш также узнает основные правила безопасности. Большие яркие иллюстрации с милыми зверушками - еще одно достоинство сборника. Глядя на них, малыш легче будет (   Читать дальше...   )Жанр: Книги для детей, Первые книги малыша. Развитие ребенка, Стихи и загадки для малышейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B26B9B61B63F439F99DFB9D4038C268C38A2601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370912   (893659) от 29.03.2020
+
+Евгений Мюллер | Юность знаменитых людей (1897) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирная история. Великие люди мира.
+Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейПеревод: Владимир ВладимировФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590B8B7F6878D2E1EDA05DA090053D614D1A67B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

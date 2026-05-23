@@ -1,57 +1,3 @@
-###  Публикация: 1032947   (641793) от 09.07.2016
-
-Давид Златопольский | Удивительные превращения. Детям о секретах земного притяжения (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Автор комплекта пособий кандидат технических наук Д.С.Злато-польский дает возможность родителям и воспитателям ответить на сот­ни "почему" детей старшего дошкольного возраста, открыв им дорогу в загадочный и удивительный мир науки и техники.
-Работая с тетрадью под руководством взрослых, ребенок получит первоначальные знания о физических явлениях и технических (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3C4798F20B0FA1534234150846EEED4E4AB2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 347188   (641715) от 07.06.2011
-
-Коти Т.Ю. | Английская азбука. Считалочки [2007] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Замечальное пособие для изучения английского алфавита: на каждой странице яркие иллюстрации, новые слова с транскрипцией и переводом, а также коротенькие легкозапоминаемые считалочки.
-Азбука оживает на страницах этой книги и из скучного запоминания букв превращается в веселую игру.Жанр: Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65544A88C42880A7497760DE7EF6D8095BC0E4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 347187   (641447) от 07.06.2011
 
 Беженова М. А. | Азбука. Уникальная методика: учимся за 45 дней! [2009] [PDF]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_641447.jpg" />
 </div>
 
 
@@ -91,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641028.jpg" />
 </div>
 
 
@@ -117,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640886.jpg" />
 </div>
 
 
@@ -143,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640877.jpg" />
 </div>
 
 
@@ -172,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_639610.jpg" />
 </div>
 
 
@@ -202,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639547.jpg" />
 </div>
 
 
@@ -230,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639182.jpg" />
 </div>
 
 
@@ -258,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637877.jpg" />
 </div>
 
 
@@ -284,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637408.jpg" />
 </div>
 
 
@@ -311,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636132.jpg" />
 </div>
 
 
@@ -339,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636033.jpg" />
 </div>
 
 
@@ -365,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635970.jpg" />
 </div>
 
 
@@ -392,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635813.jpg" />
 </div>
 
 
@@ -418,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635749.jpg" />
 </div>
 
 
@@ -445,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635728.jpg" />
 </div>
 
 
@@ -471,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635220.jpg" />
 </div>
 
 
@@ -498,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634847.jpg" />
 </div>
 
 
@@ -524,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633595.jpg" />
 </div>
 
 
@@ -550,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633438.jpg" />
 </div>
 
 
@@ -576,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633437.jpg" />
 </div>
 
 
@@ -602,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632407.jpg" />
 </div>
 
 
@@ -629,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631976.jpg" />
 </div>
 
 
@@ -655,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631887.jpg" />
 </div>
 
 
@@ -681,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631883.jpg" />
 </div>
 
 
@@ -692,6 +638,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCB07B5C3C6AE8FB0794DDD2884796F9441CC06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543308   (631829) от 10.04.2022
+
+Мария Тихонова | Мой первый орфографический словарь русского языка (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631829.jpg" />
+</div>
+
+
+###  Подробнее
+
+В словаре для младших школьников доступно раскрываются правила написания более 500 слов, которые входят в школьную программу 1-4 классов. Приводятся сведения о правильном ударении. При каждом слове полностью указаны его грамматические формы.
+Яркие, веселые картинки, стихотворения, загадки, скороговорки, ребусы, пословицы и поговорки помогут ребенку легко запомнить (   Читать дальше...   )Жанр: Книги для школы,  Словари русского языка для школьниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBD2980E74397B1B78315EE2C244AB774422FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349450   (631748) от 12.06.2011
+
+Егупова В.А. | Ломоносовская школа. Изучаю мир вокруг. Для детей 5-6 лет. Часть 1 [2009] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_631748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные задачи пособия-расширение и детализация представления детей о предметах, явлениях природы,человеке, общественной жизни и формирование новых навыков правильного поведения в социальной среде, бережного отношения к богатствам приоды и общества.
+Разноообразные практические задания ориентированы на обогащения словарного запаса ребенка, совершенствования навыков (   Читать дальше...   )Жанр: Развивающая литература для дошкольниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D58C8BBD6E917FCD6BFE1347FACAA7AB30C674D
 ```
 
 https://mybot314.ru/tekegram_catalog/

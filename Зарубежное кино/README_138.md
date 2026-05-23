@@ -1,55 +1,3 @@
-###  Публикация: 1456770   (1024819) от 23.03.2021
-
-Смертельные иллюзии / Deadly Illusions (2021) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Популярная писательница-романистка, страдающая профессиональным кризисом, нанимает невинную молодую женщину, чтобы она присматривала за её детьми-близнецами. По мере того как главная героиня опасно предается своему новому бестселлеру, грань между жизнью, которую она пишет, и той, которой она живет, стирается.Производство: США / Kiss and Tale ProductionsЖанр: Триллер, драмаРежиссер: Анна Элизабет ДжеймсАктеры: Дермот Малруни, Кристин Дэвис, Шанола Хэмптон, Грир Грэммер, Лора Каннингэм, Грэйсон Берри, Эллен Хэмпфри, Александра Фаббри, Оливия Тейлор, Мари УэйдженманПеревод: Дублированный (Netflix)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 01:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DAE1D51756A18EBF0E35CD42A416EEF30A4F0EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456363   (1024812) от 23.03.2021
-
-Звёздные войны: Скайуокер. Восход / Star Wars: Episode IX - The Rise of Skywalker (2019) WEB-DL [H.264/1080p-LQ] [Локализованная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм завершает невероятную историю семьи Скайуокеров, длящуюся уже более сорока лет, и обещает дать ответы на все загадки из предыдущих серий. Зрителя ожидают старые и новые герои, уникальные миры, увлекательные путешествия на край Галактики и грандиозный финал фантастической саги.Производство: США / Walt Disney Pictures, Lucasfilm, Bad RobotЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Дэйзи Ридли, Адам Драйвер, Кэрри Фишер, Марк Хэмилл, Джон Бойега, Оскар Айзек, Энтони Дэниелс, Наоми Аки, Донал Глисон, Ричард Э. ГрантПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full, SDH), английские (Full, SDH)Продолжительность: 02:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03849254C89A4A7EC751006461C15B7137E5B272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456367   (1024811) от 23.03.2021
 
 Амнезия (Последние три дня) / Last Three Days (2020) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024811.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024810.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024801.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024741.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024722.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024702.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024701.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024699.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024698.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024693.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024687.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024684.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024683.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024671.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024666.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024593.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024528.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024524.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024520.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024505.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024500.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024493.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024485.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024483.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4999E7A32A9827BE6DC289C3A04F758BC4ED3099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326689   (1024480) от 25.03.2021
+
+Другая сторона ветра / The Other Side of the Wind (2018) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановленная версия незавершенного фильма Орсона Уэллса о режиссере старой закалки Джейке Хэннафорде, который возвращается из Европы в Голливуд, надеясь изменить кинематограф и вернуть себе былую славу благодаря новому провокационному кинохиту.Производство: Франция, Иран, США, Royal Road Entertainment, Les Films de l'Astrophore, SACIЖанр: Драма, комедияРежиссер: Орсон УэллсАктеры: Джон Хьюстон, Ойа Кодар, Питер Богданович, Сьюзен Страсберг, Норман Фостер, Роберт Рэндом, Лилли Пальмер, Эдмонд О’Брайен, Мерседес МакКэмбридж, Кэмерон МитчеллПеревод: Многоголосый профессиональныйСубтитры: Русские, английские, французские и другиеПродолжительность: 02:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0102BB291B69F7E6D5615BB1E0CB2B08CABCD75A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456906   (1024473) от 25.03.2021
+
+Аэронавты / The Aeronauts (2019) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1862 год. Она – очаровательная богатая молодая женщина, увлечённая управлением воздушных шаров. Он – исследователь-метеоролог, готовый на всё, чтобы совершить научный прорыв, и ему позарез нужно подняться как можно выше. Вдвоем они отправляются в отчаянное путешествие на аэростате, через бури и грозы на край неизведанного мира, о котором человечество может (   Читать дальше...   )Производство: Великобритания, США / Amazon Studios, Mandeville Films, One Shoe FilmsЖанр: Приключения, биография, драма, мелодрамаРежиссер: Том ХарперАктеры: Эдди Редмэйн, Фелисити Джонс, Химеш Патель, Том Кортни, Венсан Перес, Фиби Фокс, Левин Ллойд, Роберт Гленистер, Тим Макиннерни, Томас АрнольдПеревод: Многоголосый профессиональный, Авторский, Любительский многоголосыйЯзык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42D9CADC16DF08D061A0369BB001F8E82D4FA6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

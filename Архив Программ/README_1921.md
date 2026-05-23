@@ -6,7 +6,7 @@ Wise Care 365 Pro 4.51.423 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156154.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wallpaper Engine 1.4.140 RePack by Komoliddin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156134.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Pro DC 2019.021.20061 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156121.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Act-3D Lumion Pro 8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156114.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comodo IceDragon 50.0.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156046.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat Pro 2023.006.20380 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156037.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LibreOffice 5.2.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156016.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cacheman 10.0.3.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156006.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AVS Video Software 12.9.6.25 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155940.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AdFender 2.01 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155924.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Auto PowerOFF 6.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155897.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ K-Lite Codec Pack Update 16.6.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155889.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WifiInfoView 2.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155853.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Comodo Internet Security Premium 10.0.0.6086 Final [Multi/Ru] [Web Installer]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155839.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ WinTools.net Premium 13.0.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155838.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ AMD Radeon Software Crimson ReLive Edition 16.12.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155823.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Kid3 3.9.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155784.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Brave Browser 0.57.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155773.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Sleipnir 6.3.3.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155731.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AV Uninstall Tools Pack 2020.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155728.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ n-Track Studio Suite 10.0.0.8212 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155724.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Comodo IceDragon 63.0.4.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155719.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wise Disk Cleaner 9.6.1.684 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155715.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Topaz Video AI 4.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155712.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ GeoGebra 6.0.752.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155710.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Change MAC Address 2.9.0 Build 107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155679.jpg" />
 </div>
 
 

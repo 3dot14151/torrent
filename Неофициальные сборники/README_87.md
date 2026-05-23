@@ -1,32 +1,3 @@
-###  Публикация: 1366101   (925831) от 10.03.2020
-
-VA - Beatport Deep House: Electro Sound Pack #20 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Stile - Some Time
-002. Leo Lacker - Behind
-003. Jay Cee Morgan - En Deux Heures
-004. P.Oker - Perfect(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384998411AE02A8A1874284406D85EFB267127B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366221   (925684) от 10.03.2020
 
 VA - не Громкие новинки недели 58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -35,7 +6,7 @@ VA - не Громкие новинки недели 58 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925684.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Beatport Tech House: Electro Sound Pack #21 (2020) [MP3|320 Kbps] <Tech Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925658.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Beatport Progressive House: Electro Sound Pack #22 (2020) [MP3|320 Kbps] <P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925654.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Cosmic House (2020) [MP3|320 Kbps] <House, Future, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925528.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Record Russian mix (2016) [MP3|320 kbps] <Dance, club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925481.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Music News vol.123 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925394.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - David Lynch Recommend (1958-2019) Compilation Album [MP3|192-320 Kbps] <Roc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925302.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - 80s Rock Hits (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925173.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Nazareth - The Platinum Collection (2021) 2CD [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925167.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924913.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Снежный популярный отрыв (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924637.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Зимняя сотка хитовая Выпуск № 2 (2017) [MP3|256 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924634.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Зимний музобоз русский Выпуск № 3 (2017) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924550.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Я слушаю шансон. Зимние хиты Часть № 2 (2017)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924548.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Танцевальная зима. Сборник № 5 (2017) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924545.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924499.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - За рулем по дороге домой часть 2 (2016) [MP3|256 �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924492.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Романтика шансона (2016) [MP3|256 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924478.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Блатной шансон на любимой волне. Часть № 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924470.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - German Top 100 Single Charts 20.01.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924468.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Музыкальный плен. Часть № 8 (2017) [MP3|256 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924465.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Снегопад новинок. Часть № 6 (2017) [MP3|256 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924462.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Снежный хит-парад. 100 русских хитов. Сборн
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924458.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Neon Lights Dance Club (2017) [MP3|224-320 Kbps] <Dance, Club, Electro Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924457.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Супер хит зимний от Европы Плюс. Часть 9 (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924399.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Супер хит зимний от Европы Плюс. Часть 9 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CABE8C48D002BCEB71B2E6216E61BE235640F20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095410   (924391) от 21.01.2017
+
+VA - Лучшие блатные хиты года на радио Шансон Выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924391.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Орельский - Та Хата Необычная 3:41
+002. Вячеслав Белько - Ты Меня Любишь 4:47
+003. Стас Михайлов - Я Столько Не Выпью 3:21
+004. Михаил Княжевич - Ты Моя Судьба 3:48(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC6305D951C881469755AC8A64FF5584D91D539
 ```
 
 https://mybot314.ru/tekegram_catalog/

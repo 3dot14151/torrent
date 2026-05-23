@@ -6,7 +6,7 @@ RogueKiller Anti-Malware 15.1.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798448.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WizTree 4.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798433.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NIUBI Partition Editor 7.6.5 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798431.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PrivaZer 4.0.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798429.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Firefox Browser 94.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798428.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PC Cleaner Pro 8.1.0.18 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798417.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2189 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798416.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Opera 81.0.4196.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798410.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Whale Browser 2.11.126.23 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798409.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ O&O DiskImage Professional Edition 17.0 Build 424 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798387.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Macrorit Partition Expert 5.8.5 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798377.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CPUID HWMonitor 1.45 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798372.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ESET NOD32 Internet Security 15.0.18.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798335.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Edge 95.0.1020.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798277.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Firefox Browser 94.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798276.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Opera GX 80.0.4170.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798268.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Opera 81.0.4196.31 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798266.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PDFsam Basic 4.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798263.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ reaConverter Pro 7.683 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798261.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Acoustica Premium Edition 7.3.22 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798260.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Telegram Desktop 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798251.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Mozilla FireFox 94.0.1.7977 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798250.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ FinePrint Software (FinePrint 11.04 / pdfFactory Pro 8.04) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798241.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Visual Studio Code 1.62.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798234.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ PowerISO 8.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798222.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Total Commander 10.00 Extended 21.11 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798198.jpg" />
 </div>
 
 

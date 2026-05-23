@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288122.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CoolUtils Total Audio Converter 5.2.0.158 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288113.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288110.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ iMazing 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288109.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Submerge 3 v3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288017.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Athentech Perfectly Clear Complete 3.6.3.1345 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288014.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Enolsoft PDF Creator 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288013.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ BetterTouchTool 2.660 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288006.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Rae Sremmurd - Collection 3 Releases (2015-2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287998.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Didier Marouani & Space - Paris • France (1982) Remastered, 2002, BMG [FLAC|Lo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287987.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287984.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Remotix VNC & RDP 4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287983.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Ashampoo Photo Commander 15.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287981.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ qBittorrent 4.0.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287968.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Comedy Woman (2017.11.24) SATRip (Дайджест)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287963.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287958.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mozilla Thunderbird 52.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287954.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ SnapNDrag Pro - organize and edit screenshot 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287909.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Milan Lieskovsky - Live @ CS Boat Party, United Kingdom 2019-10-19 [MP3|320 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287908.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Mellel 4 v4.2.4r5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287902.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ TextSoap 8 v8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287899.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ r84d - So Verand Apart (2019) The 1056 [FLAC|Lossless|WEB-DL|tracks] <IDM, Downt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287887.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ iA Writer 5.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287884.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ JixiPix Premium Pack 1.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287875.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ John Beltran - Hallo Androiden (2019) Blue Arts Music [FLAC|Lossless|tracks+.cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287872.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Skey - Detalized Forms (2CD) (2009) [MP3|320 kbps]<IDM, Breaks, Experimental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287844.jpg" />
 </div>
 
 

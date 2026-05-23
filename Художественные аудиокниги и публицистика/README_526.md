@@ -1,81 +1,3 @@
-###  Публикация: 1243896   (488042) от 29.08.2018
-
-Дэн Симмонс | Мерзость (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 1924-м году гонка за то, чтобы подняться на самую высокую гору в мире, была приостановлена из-за шокирующего исчезновения Джорджа Мэллори и Сенди (Эндрю) Ирвина на склонах Эвереста. К следующему году трое альпинистов – британский поэт и ветеран войны, молодой французский гид и молодая американка-идеалистка – нашли способ добраться до вершины благодаря финансированию (   Читать дальше...   )Жанр: Приключения, путешествия, драмаПродолжительность: 22:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C252A97E29D798DB23815E8D017E693478C5AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821479   (487927) от 14.09.2014
-
-Юрий Никулин | Почти серьезно (2014) [MP3, Евгений Покрамович]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"В действительности все выглядит иначе, чем на самом деле". С этой фразы Станислава Ежи Леца начинается аудиокнига Юрия Никулина "Почти серьезно...". Это чуть ироничный рассказ о себе и серьезный о других: родных и близких, знаменитых и незнаменитых, но невероятно интересных личностях цирка и кино. Аудиокнига полна юмора. В ней нет неправды. В (   Читать дальше...   )Жанр: Биографии, МемуарыИздательство: Аудиокнига
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A40868314B3A2D245804BE33ECFA3E8195D87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158906   (487893) от 18.08.2017
-
-Михаил Азаров. и др. | Тайны канцлера Горчакова. Всеобщая история (2005) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На диске представлены веселая историческая повесть Михаила Азарова "Тайны канцлера Горчакова" и юмористическая версия истории человечества ("Всеобщая история"), изложенная блистательными писателями-сатириками - Тэффи (Надежда Лохвицкая), Осипом Дымовым и Аркадием Аверченко. "Всеобщая история", впервые вышедшая в 1910 году, не переиздавалась (   Читать дальше...   )Жанр: Классика, юмор, историяПродолжительность: 08:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7C56EE38FDA883D026C224B901B2771D02B8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159021   (487885) от 18.08.2017
 
 Любовь Штаний | Небо в подарок (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487885.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487748.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487688.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487248.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487135.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487127.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487018.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486810.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486770.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486682.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486589.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486587.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486521.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486424.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486407.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486404.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486401.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486399.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486398.jpg" />
 </div>
 
 
@@ -584,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486393.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486392.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486389.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486284.jpg" />
 </div>
 
 
@@ -675,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB4DAA8FFBD3DA08C14568BAF21CECA73B72BA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159193   (486245) от 19.08.2017
+
+Итало Кальвино | Если однажды зимней ночью путник... (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486245.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Если однажды зимней ночью путник» (Se una notte d'inverno un viaggiatore) — один из наиболее знаменитых романов итальянского писателя Итало Кальвино, впервые опубликованный в 1979 году.
+Культовый постмодернистский роман. Знаковое произведение в истории мировой литературы ХХ века. Изумительная проза и действительно оригинальная идея. Сложная, завораживающая структура (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE27BE7C8E0312CC3FB64DB7D74D6197039D4D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055810   (485993) от 23.09.2016
+
+Аркадий Кошко | Миллион на монаха (2005) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминания начальника сыскной полиции Царской России. Описываются реальные случаи из практики: похищения знаменитых драгоценностей, крупные разбойные нападения, убийство Распутина, убийства известных чиновников и купцов, брачные аферисты, проституция, организация сыскной полиции, борьба со взятками в среде полиции.Жанр: ДетективПродолжительность: 03:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E30001AC4CA87A03D66BDB22AFA2C01088FB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159236   (485923) от 19.08.2017
+
+Ихара Сайкаку | История любовных похождений одинокой женщины (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию аудиокнигу «История любовных похождений одинокой женщины», созданную на студии АРДИС. Это повесть известного японского писателя XVII века Ихара Сайкаку, которого часто называют японским Бокаччо. Наибольшей известностью пользуются повести и новеллы Сайкаку, получившие название косёку-моно – рассказы о любви.
+…Старуха-отшельница, уединённо (   Читать дальше...   )Жанр: Древневосточная литератураПродолжительность: 04:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEB984E6B1A0F80579EA80312E855BF63804902
 ```
 
 https://mybot314.ru/tekegram_catalog/

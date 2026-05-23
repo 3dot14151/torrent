@@ -1,35 +1,3 @@
-###  Публикация: 567702   (377397) от 11.11.2012
-
-Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Игра Deadlight, — это альтернативный 1986-й, когда мир столкнулся с новой апокалиптической угрозой — загадочной вирусной инфекцией, обращающей людей в «тени», или попросту в зомби. При этом, в отличие от подавляющего большинства подобных проектов, Deadlight, вы не поверите, — пазл-платформер. То есть придётся не столько стрелять, сколько думать.
-
-«1986-й выбран не случайно, — поясняет исполнительный директор студии Рауль Рубио (Raul Rubio). — Это время запомнилось активным освоением космоса и выходом таких фильмов, как Rambo: First Blood и Day of the Dead. Смешайте всё это — и получите уникальную визуальную стилистику».
-
-Перемещаясь по полумёртвому северо-западному побережью Британской Колумбии (Канада) и США, Рэндэлл Уэйн будет искать оружие и других выживших. «Вам не нужно биться за правду или спасать мир, — продолжает г-н Рубио. — Это история Рэндэлла, его проблем, чувств и желаний». Сценарий написан испанским драматургом Антонио Роджано (Antonio Rojano), который вдохновлялся произведениями Стивена Кинга, Джеймса Балларда и Кормака Маккарти.
-
-«Вы поймёте, что в этом мире даже простое действие вроде перехода улицы становится невероятно сложным и опасным», — продолжают девелоперы. Обещана достоверная физическая модель, на которой и будут базироваться головоломки. Созданием «альтернативного мира паранойи и хаоса» занимается команда из 22 человек, прежде работавших в таких компаниях, как Blizzard, Pyro Studios, Sony..(   Читать дальше...   )Тип издания: RepackРазработчик: Tequila WorksЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA68E6877793D468E190E10BC6C607FC3F844D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254184   (377158) от 12.10.2018
 
 Lost Lands 6: Mistakes of the Past / Затерянные земли 6: Ошибки прошлого (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -38,7 +6,7 @@ Lost Lands 6: Mistakes of the Past / Затерянные земли 6: Ошиб
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377158.jpg" />
 </div>
 
 
@@ -64,7 +32,7 @@ The Hunt for Red Panda / Охота за Красной Пандой (2015) [Ru/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377025.jpg" />
 </div>
 
 
@@ -90,7 +58,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376761.jpg" />
 </div>
 
 
@@ -116,7 +84,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/Multi] (3.6.30.9
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376759.jpg" />
 </div>
 
 
@@ -142,7 +110,7 @@ Chimeras 8: Heavenfall Secrets / Химеры 8: Секреты Хэвенфол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376612.jpg" />
 </div>
 
 
@@ -168,7 +136,7 @@ The Keeper of Antiques: The Revived Book / Антиквар: Книга кошм
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376601.jpg" />
 </div>
 
 
@@ -194,7 +162,7 @@ Coast Guard (2015) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376404.jpg" />
 </div>
 
 
@@ -220,7 +188,7 @@ Palmyra Orphanage (2019) [Ru/En/Ch] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376065.jpg" />
 </div>
 
 
@@ -246,7 +214,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376050.jpg" />
 </div>
 
 
@@ -272,7 +240,7 @@ The First Tree (2017) [Ru/Multi] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375853.jpg" />
 </div>
 
 
@@ -298,7 +266,7 @@ The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375719.jpg" />
 </div>
 
 
@@ -324,7 +292,7 @@ Professional Farmer: American Dream (2017) [Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375717.jpg" />
 </div>
 
 
@@ -350,7 +318,7 @@ South Park: Stick of Truth (2014) [Ru] (1.0.138083) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375711.jpg" />
 </div>
 
 
@@ -376,7 +344,7 @@ Bayonetta (2017) [Ru/En/Jp] (1.01) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375707.jpg" />
 </div>
 
 
@@ -402,7 +370,7 @@ Glacier / Ледниковый патруль (L) [Ru] 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375524.jpg" />
 </div>
 
 
@@ -428,7 +396,7 @@ Tom Clancy's Splinter Cell: Conviction [Ru/En] (RePack/1.04) 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374770.jpg" />
 </div>
 
 
@@ -458,7 +426,7 @@ Surface 6: Game of Gods / За гранью: Игра богов (2014) [Ru] Uno
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374533.jpg" />
 </div>
 
 
@@ -484,7 +452,7 @@ Lucid Dream (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374495.jpg" />
 </div>
 
 
@@ -510,7 +478,7 @@ Fatal Evidence: Cursed Island / Роковое доказательство. П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374366.jpg" />
 </div>
 
 
@@ -536,7 +504,7 @@ Magnetic: Cage Closed (2015) [Ru/Multi] (1.09-p2/dlc) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374131.jpg" />
 </div>
 
 
@@ -562,7 +530,7 @@ The Dwarf Run (2015) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374125.jpg" />
 </div>
 
 
@@ -588,7 +556,7 @@ Legends of Dawn Reborn (2015) [Ru/Multi] (2.01s) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374123.jpg" />
 </div>
 
 
@@ -614,7 +582,7 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374114.jpg" />
 </div>
 
 
@@ -640,7 +608,7 @@ Modern Tales: Age of Invention / Сказки Нашего Времени: Эр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373803.jpg" />
 </div>
 
 
@@ -666,7 +634,7 @@ Shadow Warrior (2013) [Ru/Multi] (1.1.2/1.5.0/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373695.jpg" />
 </div>
 
 
@@ -677,6 +645,33 @@ Shadow Warrior - ремейк шутера от первого лица от с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F203DB530068C89C5FCD1F585F31420E4697717E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251402   (373304) от 31.10.2010
+
+Sprill: The Mystery of The Bermuda Triangle / Сприлл: Тайна Бермудского треугольника (L) [Ru] (2008)
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_373304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочная игра в жанре найди объект в зоне Бермудского треугольника. Вам предстоят нелёгкие поиски жемчужены, которая спасет планету от катастрофы. Исследуйте каждую локацию досконально, решайте головоломки и раскройте тайну Бермудского треугольника!
+Однажды лисёнок Сприлл отправился в плавание, и всё было хорошо... до Бермудского треугольника. Его кораблик вмиг оказался на дне океана, где он встретился с инопланетянами. Теперь он должен найти необычную жемчужину, которя якобы спасёт их планету...Тип издания: ЛицензияЖанр: Аркада, Поиск предметовЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1170412   (399410) от 01.10.2017
-
-VA - Record Super Chart #505 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo - Momentum  3:28
-02.  KSHMR feat. JDG & Mariana Bo - Kolkata  3:26
-03.  Firebeatz vs. Lucas & Steve - Show Me Your Love  3:56
-04.  Martin Garrix - Pizza  4:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9C4733D25E139BCA0F6F6051760785CE72745A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170427   (399353) от 01.10.2017
 
 VA - New Age Music For Meditation (2017) [MP3|256-320 Kbps] <New Age, Relax, Downtempo>
@@ -35,7 +6,7 @@ VA - New Age Music For Meditation (2017) [MP3|256-320 Kbps] <New Age, Relax, Dow
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399353.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Hypomania: Original Techno Mix (2017) [MP3|320 Kbps] <Techno, Minimal, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398678.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398310.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ VA - XXXL Party Non-Stop (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398302.jpg" />
 </div>
 
 
@@ -163,7 +134,7 @@ VA - Дискотека Осенний Хит (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398246.jpg" />
 </div>
 
 
@@ -198,7 +169,7 @@ VA - Новое на Europa Plus (2012) [MP3|256 кб/с]<pop, dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398197.jpg" />
 </div>
 
 
@@ -233,7 +204,7 @@ VA - Новые Хиты Дискотек Vol. 2 (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398196.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ VA - Студенческая Вечеринка. Зарубежный (2012) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398172.jpg" />
 </div>
 
 
@@ -303,7 +274,7 @@ VA - Mirror Of Illusion: 100 Psychedelic Trance (2017) [MP3|320 Kbps] <Psychedel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397775.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ VA - The Best Of EDM And House (2017) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397698.jpg" />
 </div>
 
 
@@ -361,7 +332,7 @@ VA - Deep House Collection Vol.138 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397683.jpg" />
 </div>
 
 
@@ -390,7 +361,7 @@ VA - Ритмы Попсового Отрыва (2012) [MP3|256 кб/с]<Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397185.jpg" />
 </div>
 
 
@@ -425,7 +396,7 @@ VA - Громче музыку. 100 Пудовый хит (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397180.jpg" />
 </div>
 
 
@@ -460,7 +431,7 @@ VA - Убойные хиты на Европе плюс 50/50 Осень (2012) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397174.jpg" />
 </div>
 
 
@@ -495,7 +466,7 @@ VA - MAXI. Осенний Best Hit (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397159.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ VA - Шансон года Праздничный (2012) [MP3|320 кб/с]<Ша�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397126.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ VA - Discofunk Lounge Deluxe (2012) [MP3|320 кб/с]<Disco, Funk, Jazz, Soul, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397053.jpg" />
 </div>
 
 
@@ -600,7 +571,7 @@ VA - Creative Music Box 4 (2012) [MP3|320 кб/с]<Dub Step/Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396930.jpg" />
 </div>
 
 
@@ -635,7 +606,7 @@ VA - Trombone Jazz (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396671.jpg" />
 </div>
 
 
@@ -664,7 +635,7 @@ VA - Новая Жажда Скорости (2017) [MP3|320 Kbps] <Dance , Hans 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396623.jpg" />
 </div>
 
 
@@ -693,7 +664,7 @@ VA - Jazz Dance (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396622.jpg" />
 </div>
 
 
@@ -722,7 +693,7 @@ VA - Над Запреткой Туман (2011) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396374.jpg" />
 </div>
 
 
@@ -757,7 +728,7 @@ VA - Модная Русская Осень (2012) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396214.jpg" />
 </div>
 
 
@@ -792,7 +763,7 @@ VA - Best-of-ka Хит сезона (2012) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396213.jpg" />
 </div>
 
 
@@ -827,7 +798,7 @@ VA - Осенний ТОП 100 50+50 (2012) [MP3|256 кб/с]<pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396210.jpg" />
 </div>
 
 
@@ -847,6 +818,41 @@ VA - Осенний ТОП 100 50+50 (2012) [MP3|256 кб/с]<pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA89B8EE5AE3111A30EDC06E1D38C88BAD987B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567641   (396157) от 30.10.2012
+
+VA - Лучшая 100ка Super новинок Выпуск 3 Осень (2012) [MP3|256 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горячий Шоколад - За Тобой
+02. Алексей Кабанов feat. Max Hohlunov & DJ HaLF - Я Думаю О Том
+03. Tori Joy - Сумасшедшая Любовь
+04. Митя Фомин - Наглый Ангел
+05. Dzham - Без Тебя
+06. Иракли - Осень
+07. Горячие Головы - Нам С Тобою (Radio Edit)
+08. Тимати и Григорий Лепс - Лондон
+09. Натали - О Боже Какой Мужчина
+10. Аника - Не Звони(   Читать дальше...   )Жанр: popПродолжительность: 05:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D99381E193EE1203CD342952F19B36F424AB2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

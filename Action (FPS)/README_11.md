@@ -6,7 +6,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788810.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788717.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Apartment (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788446.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blue Estate The Game / Viktor Kalvachev's - Blue Estate: The Game (2015) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787484.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786624.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Roots of Insanity (2017) [Ru/Multi] (1.1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786435.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blackwood Crossing (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786254.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Star Wars: Battlefront 2 / Star Wars: Battlefront II (2005) [Multi] (1.1) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785997.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Blackwood Crossing (2017) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785710.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chernobyl Terrorist Attack (2017) [En] (1.15) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785688.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Arma 2: Combined Operations (2010) [Multi] (1.62.95248.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785499.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785284.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785240.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1094/dlc) SteamRip =nemos= [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784691.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784524.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Silent Descent (2018) [En] (1.03) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784312.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784231.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Conarium (2017) [Ru/Multi] (1.0.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783952.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783713.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783708.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783279.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Borderlands: Trilogy (2009-2014) [Ru/Multi] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783074.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Observer / >observer_ (2017) [Ru/Multi] (1.0.0.3) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781546.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781170.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Tropical Escape (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780445.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.9) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780161.jpg" />
 </div>
 
 

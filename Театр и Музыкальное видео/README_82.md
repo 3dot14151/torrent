@@ -1,118 +1,3 @@
-###  Публикация: 547498   (473727) от 15.09.2012
-
-Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Wacken Open Air – крупнейший в мире летний фестиваль тяжелой музыки, проходящий под открытым небом. Это грандиозное трехдневное событие проходит ежегодно в первые выходные августа в местечке Вакен (Германия, район Гамбурга). Свою историю Wacken Open Air ведет с 1990 года. За время своего существования фестиваль прошел путь от любительского концерта под открытым небом до одного из самых профессиональных по организации и качественных по составу участников мероприятия среди себе подобных. Сегодня Wacken Open Air - это не просто несколько единомышленников. Это целая организация (полное название: ICS Festival Service GmbH), которая занимается исключительно фестивалем, и в которой работает весьма многочисленный штат. Главной задачей всех этих людей является создание коммерчески успешного фестиваля, и это удается последние несколько лет. В 21 веке практически все фестивали проходили с аншлагом. Организаторы фестиваля заботятся об имидже фестиваля, ежегодно создавая настоящий праздник для металлистов всего мира. Как правило (   Читать дальше...   )Kvelertak - MjodЖанр: Концерт, Heavy, power, gothic, thrash, progressive, death metalПродолжительность: 03:18:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160574   (473647) от 25.08.2017
-
-Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Запись выступления группы Status Quo в London O2 Arena 11 декабря 2016 года. История команды началась с бит-группы The Spectres, где играли Фрэнсис Росси (гитара, вокал) и Алан Ланкастер (бас), к которым в конце 1967-го присоединился Рик Парфитт. Середина 70-х стала самым успешным периодом в карьере Status Quo. Каждый из альбомов того времени присутствовал в топ-5. (   Читать дальше...   )1 Caroline
-2 The Wanderer
-3 Something Bout You Baby I Like
-4 Rain(   Читать дальше...   )Производство: Германия | EarmusicЖанр: RockПродолжительность: 01:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26D3F5E6C66556C7AD3B12261BEF00BB56C874E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939630   (473086) от 22.09.2015
-
-VA - Осенний марафон № 192 /  Видеоклипы (Сборник Зарубежной Хорошей Музыки) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Осенние (21.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 9Muses - Hurt Locker (Official Video) (00:03:25)
-2. Ask Embla - Fathers Eyes (Official Video) (00:04:11)
-3. B-Brave ft. Cho, Frenna - Verleiden (Remix) (Official Video) (00:03:12)
-4. Big Data ft. White Sea - The Business of Emotion (Official Video) (00:04:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, Drum&BassПродолжительность: 01:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC8D7C1FDEA01B9A9052BF73AE16250FD262EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239594   (472811) от 25.09.2010
-
-Uriah Heep-The Magician's Birthday Party (2001) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт 7 декабря 2001 в Лондоне. На редкость удачная программа
-для нынешнего состава группы. Во многом благодаря идее привлечь "на одну ночь"
-бывших коллег Джона Лоутона и Кена Хенсли.01. Stealin'
-02. Return to Fantasy
-03. Tales
-04. Sweet Pretender(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939703   (472795) от 22.09.2015
 
 Metallica - Live at Rock in Rio (2015) HDTV [1080i]
@@ -121,7 +6,7 @@ Metallica - Live at Rock in Rio (2015) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472795.jpg" />
 </div>
 
 
@@ -150,7 +35,7 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472731.jpg" />
 </div>
 
 
@@ -179,7 +64,7 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472726.jpg" />
 </div>
 
 
@@ -208,7 +93,7 @@ Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472536.jpg" />
 </div>
 
 
@@ -234,7 +119,7 @@ Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471962.jpg" />
 </div>
 
 
@@ -260,7 +145,7 @@ Deadmau5 - Live @ Earl's Court (2011) [Progressive House / Minimal Trance / Tech
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471949.jpg" />
 </div>
 
 
@@ -289,7 +174,7 @@ Scorpions - Life In Wacken (2012) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471732.jpg" />
 </div>
 
 
@@ -319,7 +204,7 @@ Graham Bonnet Band - Live...Here Comes the Night (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471675.jpg" />
 </div>
 
 
@@ -348,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471594.jpg" />
 </div>
 
 
@@ -375,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471536.jpg" />
 </div>
 
 
@@ -401,7 +286,7 @@ ZAZ - Sans Tsu Tsou (Live) (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471095.jpg" />
 </div>
 
 
@@ -429,7 +314,7 @@ Aerosmith - Rocks Donington (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470597.jpg" />
 </div>
 
 
@@ -455,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469518.jpg" />
 </div>
 
 
@@ -481,7 +366,7 @@ Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469420.jpg" />
 </div>
 
 
@@ -507,7 +392,7 @@ Procol Harum - Live At The Union Chapel (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469255.jpg" />
 </div>
 
 
@@ -537,7 +422,7 @@ Lara Fabian - Un regard 9 (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469058.jpg" />
 </div>
 
 
@@ -566,7 +451,7 @@ Red Hot Chili Peppers — Live At Bonnaroo Festival (2012)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468866.jpg" />
 </div>
 
 
@@ -601,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468581.jpg" />
 </div>
 
 
@@ -627,7 +512,7 @@ Sade - Bring Me Home - Live 2011 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468547.jpg" />
 </div>
 
 
@@ -656,7 +541,7 @@ Metallica - The Global Citizen Festival (2016) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468118.jpg" />
 </div>
 
 
@@ -685,7 +570,7 @@ Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467982.jpg" />
 </div>
 
 
@@ -714,7 +599,7 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467961.jpg" />
 </div>
 
 
@@ -728,6 +613,116 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65FC468F4A1718F52E61081731EFB6FA4FAC9406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548590   (467683) от 18.09.2012
+
+Secret - Poison (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5B27756C5716CCD2675A95E804DDDA3FBDDBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548587   (467674) от 18.09.2012
+
+MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEB27F771F800363F459902DB3342CCFB8988ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245760   (467662) от 08.09.2018
+
+R-Evolution Band Live - The Dark Side of the Wall (2013) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская группа R-Evolution Band выступают в стиле группы Pink Floyd! На это стоит посмотреть!01. In the Flesh? Pt. 1
+02. The Thin Ice
+03. Another Brick in the Wall (Pt.1)
+04. The Baddest Days of Your Life(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BA29BC51E52DF3C66674068CFA52090DBD304A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548409   (467225) от 18.09.2012
+
+Крематорий - 20 лет  (2002) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы «Крематорий» в Горбушке, 2002 года. Группа «Крематорий» - одна из культовых групп середины 80-х – начала 90-х годов прошлого столетия. Песни «Крематория» точно отражали все, что происходило и в развалившейся стране под названием Советский Союз, и в душах людей, которые понятия не имели, что будет дальше. Песни «Мусорный ветер», «Безобразная Эльза», (   Читать дальше...   )01. Маша
+02. Звероящер
+03. Брат во Христе
+04. Белые Столбы(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356CA1DDA578196B73F083D2E83F66C26BAE97E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

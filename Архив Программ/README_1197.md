@@ -6,7 +6,7 @@ Trojan Killer 2.0.67 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437510.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ qBittorrent 4.1.3 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437500.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop Lightroom Classic 11.5.0.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437483.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HWiNFO x32/x64 5.88-3510 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437332.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Norton Internet Security 22.5.4.24 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437300.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Movavi Video Converter 16.0.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437298.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Phase One Capture One Pro 12.1.2.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437175.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Acronis BootDVD 2015 Grub4Dos Edition v.33 (10/8/2015) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437137.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ QTranslate 6.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437133.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Anvide Таймер выключения 2.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437131.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Process Lasso Pro 8.9.8.50 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437076.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Everything 1.4.1.771 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437074.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Cumulative Update KB3192441 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437071.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.98.4800 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436990.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adguard Premium 6.3.1399.4073 (2018.09.21) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436980.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Reg Organizer 8.20 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436978.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Process Lasso Pro 6.0.1.42 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436963.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CoolUtils Total HTML Converter 5.1.0.132 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436917.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Mirillis Action! v2.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436724.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PTC Mathcad Prime 3.0 F000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436679.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436486.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The Foundry MODO 10.2v1 Build 126693 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436481.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ AVS Video Converter 9.4.1.594 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436475.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AVS Video Editor 7.4.1.281 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436469.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Windows 10 Manager 2.1.5 Final RePack (& portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436463.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Daum PotPlayer 1.7.3795 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436406.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1736959   (2535) от 16.09.2025
-
-Эквилибриум / Equilibrium (2002) BDRip [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в будущем, когда люди лишены возможности выражать какие-то эмоции, потому, что они… запрещены. Это - та цена, которую человечество платит за устранение из своей жизни войны. Теперь книги, искусство и музыка находятся вне закона. А любое чувство — уже преступление, наказуемое смертью.Производство: США / Dimension Films, Blue Tulip ProductionsЖанр: фантастика, боевик, триллер, драмаРежиссер: Курт УиммерАктеры: Кристиан Бэйл, Шон Бин, Эмили Уотсон, Тэй Диггз, Энгус Макфадьен, Шон Пертуи, Уильям Фихтнер, Джон Кеог, Дэвид Барраш, Дирк Мартенс, Кристиан КарманнПеревод: Дублированный, многоголосый, двухголосый, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английские (full, SDH, SDH Colored)Продолжительность: 01:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B340024FA6B98906FA77FBC740F0EADC9DA04A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818344   (2530) от 16.09.2025
-
-Падение замка / Castle Falls (2021) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Соперничающие банды готовятся забрать миллионы долларов, спрятанные в предназначенном под снос здании. Планам гангстеров мешает обычный уборщик, случайно нашедший заначку.Производство: США / BondIt Media Capital, Buffalo 8 Productions, VMI WorldwideЖанр: боевик, триллер, драмаРежиссер: Дольф ЛундгренАктеры: Скотт Эдкинс, Дольф Лундгрен, Джим И Чандлер, Ким ДеЛонги, Кевин Уэйн, Дэйв Холлс, Скотт Хантер, Билли Калбертсон, Ида Лундгрен, Орен ХоксхертПеревод: МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BE246E8F1CC1071F5E251F007454EC853C5AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818325   (2524) от 16.09.2025
 
 Ниндзя 2 / Ninja: Shadow of a Tear (2013) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2524.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2515.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2506.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2502.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2374.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2273.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2253.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2249.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2198.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2195.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2193.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2191.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2167.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2094.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2079.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2059.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2050.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2043.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2037.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2036.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2035.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2012.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1931.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1929.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6F1A5B7513C4BCBEC12227AFB0A37D9C74A4D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639860   (1912) от 20.09.2025
+
+Шазам! Ярость богов / Shazam! Fury of the Gods (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1912.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летний Билли Бэтсон, получивший дар превращаться в супергероя лет сорока, охраняет покой жителей Филадельфии вместе со своими приёмными братьями и сестрами, с которыми он поделился суперспособностями. В силу юности и недостатка дисциплины не всё у них получается идеально, и пресса называет команду супергероев «Филадельфийскими фиаско». Тем временем две женщины, (   Читать дальше...   )Производство: США / DC Entertainment, New Line Cinema, Warner Bros.Жанр: фэнтези, боевик, триллер, комедия, криминал, приключенияРежиссер: Дэвид Ф. СандбергАктеры: Закари Ливай, Эшер Энджел, Джек Дилан Грейзер, Рэйчел Зеглер, Адам Броди, Росс Батлер, Д.Дж. Котрона, Грейс Кэролайн Карри, Миган Гуд, Люси ЛьюПеревод: Дублированный, Профессиональный многоголосый, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (Full, SDH), украинские (Forced)Продолжительность: 02:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD2B4F068B96B2BB248DB12E463061CBF828276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819033   (1888) от 20.09.2025
+
+Падение Луны / Moonfall (2022) UHD BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1888.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2011 году во время рядового ремонта спутника на находившихся в открытом космосе астронавтов напал странный рой, вылетевший из лунного кратера. Один космонавт погиб, а второй — Брайан Харпер — несколько лет после происшествия пытался убедить НАСА, что в случившемся виноват необъяснимый феномен. 10 лет спустя Луна внезапно сходит с орбиты и идёт на столкновение с (   Читать дальше...   )Производство: США, Китай, Канада / AGC Studios, Centropolis Entertainment, H Brothers, Huayi Brothers Media, Karno's Film, Street Entertainment, UK MoonfallЖанр: фантастика, боевикРежиссер: Роланд ЭммерихАктеры: Патрик Уилсон, Холли Берри, Джон Брэдли, Майкл Пенья, Чарли Пламмер, Юй Вэньвэнь, Дональд Сазерленд, Эме Иквуакор, Каролина Бартчак, Максим РуаПеревод: дублированный (СинеЛаб СаундМикс, Cinemaker Laboratory), профессиональный многоголосый (Jaskier)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские, английские (full, SDH)Продолжительность: 02:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE6593456128C931C7374A8EF7E7AFFFE84C0E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

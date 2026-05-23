@@ -1,32 +1,3 @@
-###  Публикация: 959371   (317396) от 24.11.2015
-
-VA - Trance Box: Progressive And Vocal Party (2015) [MP3|320 кб/с]<Progressive Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Sylvermay - Prometheus (Chill Mix) 00:46
-002. Simon O'Shine feat Eskova - You May Love (Denis Sender Remix) 06:04
-003. Abstract Vision - Rocket (Photographer Remix) 07:00
-004. Artra & Holland - Don't Say Goodbye 07:05(   Читать дальше...   )Жанр: Progressive Trance, Vocal TranceПродолжительность: 13:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40D34678C27E6866F9B75C9C0134D741A8C5CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182485   (317253) от 10.11.2017
 
 VA - Superordinate Electro House (2017) [MP3|320 Kbps] <Electro House, Dance, Club>
@@ -35,7 +6,7 @@ VA - Superordinate Electro House (2017) [MP3|320 Kbps] <Electro House, Dance, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317253.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Dubstep Classic Hits Top 100 (2015) [MP3|320 кб/с]<Drumstep, Dubstyle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317212.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Музыкальное свежье русский выпуск 6 (2015) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317199.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Уголовочка на радио Шансон (2015) [MP3|256-320 кб/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317198.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317196.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317194.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317171.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Progressive House: Beach Dance Classic Radio (2017) [MP3|320 Kbps] <Progres
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317152.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Charming Bourgeois Vol 2  (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317087.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - crazyДвиж number tri (2020) [MP3|320 Kbps] <Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317015.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Всё сразу. 200 хитов. Выпуск 11 (2015) [MP3|64-320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316806.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Spiritual Liberation: Psychedelic Healing (2018) [MP3|320 Kbps] <Psy, Goa T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316777.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - October Hotzone (2018) [MP3|320 Kbps] <Dance, Pop, Dance House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316776.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316772.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Полночный Разговор Сборник Русского Шан�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316625.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - EDM Pro Chord Fast Life 001 (2016) [MP3|241~320 Kbps] <House, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316572.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Dance Meteor Fitness Hits (2016) [MP3|241~320 Kbps] <House, Beat, Bass, Big
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316566.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316398.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Love Radio: Big Love 20 04.11.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316166.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - In Da Club Vol.68 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316160.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ VA - Зайцев.Нет: Лучшие новинки ноября (2017) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316149.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ Steve Aoki - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316000.jpg" />
 </div>
 
 
@@ -684,7 +655,7 @@ VA - Acoustic Pop Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumenta
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315982.jpg" />
 </div>
 
 
@@ -713,7 +684,7 @@ VA - Dj Compressor Relax Mix 2012-11 (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315816.jpg" />
 </div>
 
 
@@ -748,7 +719,7 @@ VA - DeepEmotions - Car Dubstep Vol.9 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315814.jpg" />
 </div>
 
 
@@ -768,6 +739,41 @@ VA - DeepEmotions - Car Dubstep Vol.9 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D4067C3280C4D321166A4EEBCD532F3D9AA1C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583070   (315690) от 01.12.2012
+
+ICON-CELENTANO - mixed by dj Pitkin (2012) [MP3|320 кб/с]<progressive dance / vocal house / club house / house>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_315690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-DJ PitkiN -  Bright Autumn Mix 12 (ICON Celentano)
+   02-DJ PitkiN -   Bright Autumn Mix 12 (ICON Celentano)
+   03-DJ PitkiN -  Bright Autumn Mix 12 (ICON Celentano)
+   04-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   05-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   06-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   07-DJ PitkiN- Bright Autumn Mix 12 (ICON Celentano)
+   08-DJ PitkiN  - Bright Autumn Mix 12 (ICON Celentano)
+   09-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)
+   10-DJ PitkiN - Bright Autumn Mix 12 (ICON Celentano)(   Читать дальше...   )Жанр: progressive dance / vocal house / club house / houseПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

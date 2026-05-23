@@ -6,7 +6,7 @@ BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947840.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939712.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Katsu Ohta - Micronist (2003) [WavPack|Lossless|image + .cue] <Neoclassical Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939274.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Kazuki Tomokawa - Дискография (1975-2008) [MP3|128-256]<Acid Folk>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939267.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Hyuna (4minute) - Дискография (6 Альбомов) (2011-2015) [FLAC|
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933689.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Zhaoze - 1911 (2011) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Psychede
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920680.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Sally - 11 альбомов (2011-2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <J
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919514.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Thousand Excaliver - Sailing your dream (2014) KanColle Vocal /Doujin/ [FLAC|Los
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911560.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Kyokutou Kaizoku-dan StrikerS - 1 альбом (2014) Touhou Vocal /Doujin/ [FLA
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909785.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Tiger Huang(Huang Xiao Hu) - 6 альбомов (1992-2009) [FLAC|Lossless]<Chin
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908793.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Masterpieces For Our Struggle - 2 альбома (2013-2014) Touhou Vocal /Douji
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908405.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Touhou Gensoukyou UROBOROS Vol.2 ~fAIRYtAILoVERdRIVE~ (2014) Touhou Vocal /Douji
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908129.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kinema 106 - Gun (2014) KanColle Vocal /Doujin/ [MP3|320 kbps] <J-Rock>
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906040.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Okui Masami - 20 альбомов, 4 Best Albums, 13 компиляций, 2 Liv
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901603.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Onmyo-Za - Karyo-Binga (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892527.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Foxtail-Grass Studio - 22 альбома (2010-2015) Touhou Instrumental /Doujin
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882414.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Touhou Gensoukyou UROBOROS Vol.4 ~dEATHtINYoVERdRIVE~ (2015) Touhou Vocal /Douji
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882405.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Touhou Gensoukyou UROBOROS Vol.5 ~eNDoFtHEuLTIMATEoVERdRIVE~ (2015) Touhou Vocal
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882404.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Loudness - Rise To Glory -8118- (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877440.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876948.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Loudness - Sаmsаrа Flight (2016) 2xCD, Compilation, 35th Anniversary [FLAC|Lo
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875970.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Concerto Moon - Rain Fire (2020) 2xCD, Japanese Edition [WavPack|Lossless|image 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868135.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Ignus-Fatuus — Through Darkened Days (2016) /Doujin/ [FLAC|Lossless|tracks]<Me
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866254.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ LiLA'c Records - 31 альбом (2009-2016) Touhou Vocal /Doujin/ [FLAC|Lossles
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864032.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Halozy - 37 альбомов (2009-2016) Touhou Vocal, Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863798.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ ArsMagnA: Ariabl'eyeS | -LostFairy- | Seraph - 22 альбома (2011-2016) [FL
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861906.jpg" />
 </div>
 
 

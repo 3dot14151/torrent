@@ -1,56 +1,3 @@
-###  Публикация: 629759   (928495) от 15.03.2013
-
-Интервью с вампиром / Interview with the Vampire: The Vampire Chronicles (1994) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-К падкому на сенсации журналисту приходит вампир, чтобы поведать историю своей жизни. Все началось в 1791 году, когда молодой плантатор Луи, потеряв жену и ребенка, захотел умереть, но «родился для мрака». Выслушав рассказ вампира, журналист пожелал стать таким же, как он…Производство: США, Geffen PicturesЖанр: Ужасы, фэнтези, драмаРежиссер: Нил ДжорданАктеры: Том Круз, Брэд Питт, Кирстен Данст, Стивен Ри, Антонио Бандерас, Кристиан Слэйтер, Вирджиния МакКоллэм, Джон МакКоннелл, Майк Силиг, Беллина Логан, Марсель Юрес, Тэнди Ньютон, Хелен МакКрори, Джордж КеллиПеревод: Профессиональный (двухголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EEE5705AD2D391B4DBC725CAE62DE4A3BF58C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588424   (928448) от 15.02.2016
-
-Секретарша / Secretary (2002) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В семью из психолечебницы возвращается привлекательная девушка Ли Холловэй. Она страдает заметными отклонениями в поведении, однако эти странности почему-то не стали препятствием для местного эксцентричного юриста мистера Грэя принять ее на работу на место только что уволенной секретарши.
-Для начала работа казалась вполне обычной: печатать, оформлять документы, приносить (   Читать дальше...   )Производство: СШАЖанр: Комедия, МелодрамаРежиссер: Стивен ШейнбергАктеры: Джеймс Спэйдер, Мэгги Джилленхал, Джереми Дэвис, Лесли Энн Уоррен, Стивен МакХэтти, Патрик Бошо, Джессика Так, Оз Перкинс, Эми Локейн, Мэри ДжойПеревод: ДубляжСубтитры: Русские, Английские (SRT)Продолжительность: 01:51:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986858   (928444) от 15.02.2016
 
 Дипан / Dheepan (2015) HDRip [Line]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928444.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928439.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928437.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928423.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928414.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928412.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928315.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928235.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928229.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928222.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928179.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928156.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928152.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928132.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928129.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928117.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928115.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928005.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928001.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927993.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927856.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927755.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927652.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927650.jpg" />
 </div>
 
 
@@ -670,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71E2C7BDC0F1B372D532768AC172375187BA314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095012   (927648) от 19.01.2017
+
+Волки / Les loups (2014) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927648.jpg" />
+</div>
+
+
+###  Подробнее
+
+В северной части Атлантики, вдали от большой земли, на небольшом острове живут люди, чей уклад давно сложился в соответствии со здешним климатом и единственным промыслом - охотой на морских волков. Жители острова знают друг друга. Поэтому появление молодой незнакомки сразу же привлекло к ней внимание и одновременно насторожило местное население. Кто она и с какой (   Читать дальше...   )Производство: Франция, КанадаЖанр: ДрамаРежиссер: Софи ДераспАктеры: Синди-Мэй Арсено, Эвелин Брошу, Бенуа Гуэн, Огустен Легран, Луиза Порталь, Жильбер СикоттПеревод: Одноголосый закадровый, любительский (Cmert)Продолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B989525A491DBC177B6ACF935D53E55F929ADBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094331   (927619) от 19.01.2017
+
+Королева Катве / Queen of Katwe (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка из Уганды тренируется, чтобы стать чемпионкой мира по шахматам. Ей приходится преодолевать тяжесть условий, неодобрение окружающих, и достигать результатов - шаг за шагом. В результате она добивается того, к чему стремилась, и прославляет свою Родину.
+В фильме красочно показана природа и быт Африканского континента, а знакомство местных детей с миром (   Читать дальше...   )Производство: США (Walt Disney Pictures), ЮАРЖанр: ДрамаРежиссер: Мира НаирАктеры: Лупита Нионго, Дэвид Ойелоуо, Нтаре Мвине, Рассел Савадье, Мадина Налванга, Морис Кирйа, Чарити Роуз Пимер, Тэрин Кйазе, Эстер Табандеке, Питер ОдекеПеревод: Многоголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 02:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3146FA25F61153B9A2282C7735A335194022A8B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

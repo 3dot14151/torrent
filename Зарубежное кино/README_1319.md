@@ -1,55 +1,3 @@
-###  Публикация: 1328078   (367516) от 28.09.2019
-
-Долгий день уходит в ночь / Di qiu zui hou de ye wan (Long Day's Journey Into Night) (2018) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ло Иву возвращается в родной город на похороны отца. 12 лет назад у него здесь был роман с девушкой друга, и с тех пор она поселилась в его воспоминаниях, желаниях и даже кошмарах. Теперь для Иву в поисках той женщины прошлое смешивается с настоящим, а реальность — с вымыслом.Производство: Китай, Франция / CG Cinéma, Dangmai Films (Shanghai)Жанр: Драма, детектив, мелодрама, фильм-нуарРежиссер: Би ГаньАктеры: Тан Вэй, Хуан Цзюэ, Сильвия Чан, Ли Хунчи, Чэнь Юнчжун, Ло Фэйян, Цзэн Мэйхуэйцзы, Чун-хао Туан, Yanmin Bi, Се ЛисюньПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские, английские, французские (отдельно)Продолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55476F61FBD89CD824D3DD4021982AB6DAB7FB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328072   (367511) от 28.09.2019
-
-Долгий день уходит в ночь / Di qiu zui hou de ye wan (Long Day's Journey Into Night) (2018) WEBRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ло Иву возвращается в родной город на похороны отца. 12 лет назад у него здесь был роман с девушкой друга, и с тех пор она поселилась в его воспоминаниях, желаниях и даже кошмарах. Теперь для Иву в поисках той женщины прошлое смешивается с настоящим, а реальность — с вымыслом.Производство: Китай, Франция / CG Cinéma, Dangmai Films (Shanghai)Жанр: Драма, детектив, мелодрама, фильм-нуарРежиссер: Би ГаньАктеры: Тан Вэй, Хуан Цзюэ, Сильвия Чан, Ли Хунчи, Чэнь Юнчжун, Ло Фэйян, Цзэн Мэйхуэйцзы, Чун-хао Туан, Yanmin Bi, Се ЛисюньПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Китайский, английский (хардсаб)Продолжительность: 02:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0B7B49E03D13B8E691480D1C8874ECFEF39D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416381   (367495) от 16.10.2020
 
 Жако из Нанта / Jacquot de Nantes (1991) BDRip [H.264/1080p] [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367495.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367457.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367398.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367397.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367394.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367388.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367385.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Bitchkram / Взрыв мозга (2012) DVDRip [VO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367320.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367277.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367194.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367163.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367135.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367131.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367128.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367078.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367067.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367063.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367060.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367057.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367054.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367045.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367044.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367043.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366945.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD6653FE6E3220DD3D542AEF9911CC83A1B3CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416616   (366944) от 16.10.2020
+
+Тебе стоило уйти / You Should Have Left (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тео Конрой - обеспеченный бывший банкир на пенсии, чей брак с намного более молодой женой-актрисой, Сюзанной, трещит по швам из-за его ревности и мрачных теней в его прошлом. Стремясь наладить отношения, Тео и Сюзанна отправляются вместе с шестилетней дочкой Эллой отдохнуть в съемном загородном доме в Уэльсе. Однако вскоре после приезда Тео начинает подозревать, (   Читать дальше...   )Производство: США, Великобритания / Blumhouse ProductionsЖанр: Триллер, ужасыРежиссер: Дэвид КеппАктеры: Кевин Бейкон, Аманда Сайфред, Эйвери Тиу Эссекс, Колин Блюмено, Лоури Энн Ричардс, Джошуа Си Джексон, Эли ПауэрсПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced х2, full), английскиеПродолжительность: 01:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268105F9CCED45F3702BAB6DAA08D2EA5AC187B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416474   (366942) от 16.10.2020
+
+Господин Дьявол / Il signor Diavolo (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой полицейский Фурио Моменте отправляется в регион Венето, чтобы расследовать загадочное и шокирующее преступления: подросток убил одного из своих сверстников, утверждая, что он убил самого дьявола.Производство: Италия / Direzione Generale per il Cinema, 	Duea Film, Radiotelevisione Italiana (RAI), 	Rai Cinema, Ruggente FilmЖанр: Ужасы, триллер, детективРежиссер: Пупи АватиАктеры: Габриэль Ло Джудиче, Филиппо Франкини, Чезаре Кремонини, Массимо Бонетти, Лино Каполиккьо, Кьяра Казелли, Джанни Кавина, Алессандро Абер, Андреа Ронкато, Эва Антония ГримальдиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91BE278A80415BFC717FB7BFCA74A309F68963A
 ```
 
 https://mybot314.ru/tekegram_catalog/

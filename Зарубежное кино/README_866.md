@@ -1,55 +1,3 @@
-###  Публикация: 905310   (650772) от 05.06.2015
-
-Женщина в черном 2: Ангел смерти / The Woman in Black 2: Angel of Death (2014) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Во время Второй мировой войны группу школьников и их юную учительницу Еву эвакуируют из подвергшегося бомбардировкам Лондона в заброшенное поместье, расположенное в деревенской глуши. Вскоре в деревне начинают происходить странные события. Ева с помощью начальника местного гарнизона Гарри обнаруживает, что приезд детей пробудил темные силы, внушающие больший ужас, (   Читать дальше...   )Производство: Великобритания, США, КанадаЖанр: Ужасы, Триллер, ДрамаРежиссер: Том ХарперАктеры: Фиби Фокс, Джереми Ирвин, Хелен МакКрориПеревод: Дублированный (лицензия)Продолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE084517D330E164ECD96741082AAE70598812B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516835   (650740) от 29.06.2012
-
-Убойные каникулы / Taker and Dale vs Evil (2010) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Нeoбычнaя кoмeдия-пepeвёpтыш, пapoдия нa фильмы ужacoв пpo пoдpocткoв, в чaстнocти, cepиaл «Пятница 13-e». Гpуппa cтудeнтoв-пoдpocткoв пpиeзжaeт oтдoxнуть нa oзepo, гдe двaдцaть лeт нaзaд пpoизoшлo Ужaснoe Убийcтвo. Нa тo жe oзepo пpиeзжaeт пaрa нeзaдaчливыx ceльcких paбoтяг ocмoтpeть куплeнную дaчу и пpoвecти oтпуcк. Пo oшибкe пoдpocтки пpинимaют сeльcких пapнeй зa мaньякoв.Жанр: Ужасы, КомедияРежиссер: Єли Kpєйr / Еlі СгаіgАктеры: Taйлeр Лєбaйн, Aлaн Tьюдик, Джecси Mоcс, Филип Гpєйнджep, Брєндoн Джєй МaкЛaрeн и др.Перевод: Одноголосый закадровый /А. Киреев по переводу Дмитрия Goblin'a ПучковаПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B130DBFC344B86CC520C5A24A95C456B775D203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516720   (650733) от 29.06.2012
 
 Между / Twixt (2011) [H.264/720p-LQ] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650733.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650700.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650676.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650669.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650666.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650661.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650659.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650657.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650656.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650362.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650356.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650354.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650351.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650304.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650262.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650222.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650209.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650205.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650164.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650138.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650132.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650130.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650093.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650052.jpg" />
 </div>
 
 
@@ -672,6 +620,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFFB4171AE6E48785FAE2CA17ADCB062AAD767AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227122   (650050) от 24.05.2018
+
+Парк Юрского периода 2: Затерянный мир / The Lost World: Jurassic Park (1997) UHD Blu-ray [H.265/2160p] [4K, HDR, 10-bit] [EUR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650050.jpg" />
+</div>
+
+
+###  Подробнее
+
+События этого фильма разворачиваются через четыре года после того, что произошло в «Парке Юрского периода». На близлежащем острове динозавры выжили и адаптировались к дикой природе. Но вот находится Некто, кто хочет перевезти их на материк и заработать на этом, не понимая, какими могут быть последствия, и посылает на остров своих людей.
+Джон Хэммонд, который потерял (   Читать дальше...   )Производство: США / Amblin EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Стивен СпилбергАктеры: Джефф Голдблюм, Джулианна Мур, Винс Вон, Ванесса Ли Честер, Пит Постлетуэйт, Арлисс Ховард, Ричард Аттенборо, Ричард Шифф, Петер Стормаре, Харви ДжейсонПеревод: Профессиональный (многоголосый, закадровый) (Лицензия EUR)Субтитры: Английские, французские, голландские, датские, финские, норвежские, шведские, чешские, польские, китайские, корейские, греческие, румынскиеПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC3429380614E0FECFA92E4FCC50379D47024AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292066   (650021) от 27.03.2019
+
+Хардкор / Hardcore Henry (2015) BDRip [H.264] [Uncensored Version]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная супружеская жизнь рядом с очаровательной Эстель — это все, что помнит главный герой после того, как просыпается в неизвестной научной лаборатории, где в чувства его приводит собственная жена. Но супруга тут же оказывается похищенной, и ничего не понимающий главный герой Генри уже вынужден преследовать монстра Акана, который украл его жену.
+Теперь ради (   Читать дальше...   )Производство: Россия, США / Bazelevs Production, Versus Pictures, Huayi Brothers MediaЖанр: Боевик, ФантастикаРежиссер: Илья НайшуллерАктеры: Шарлто Копли, Данила Козловский, Хейли Беннетт, Андрей Дементьев, Сергей Шнуров, Кирилл Серебренников, Александр Паль, Светлана Устинова, Даша Чаруша, Равшана КурковаПеревод: Дублированный, АвторскийСубтитры: нетПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFCB0D8B4D5F93FE0C15B93032628B6E240A46E
 ```
 
 https://mybot314.ru/tekegram_catalog/

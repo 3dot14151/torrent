@@ -1,109 +1,3 @@
-###  Публикация: 1589641   (189867) от 10.11.2022
-
-Fullmetal Alchemist 2: Curse of the Crimson Elixir (2005) [PS2] [NTSC] [Unofficial] [Ru/En]
-
->>Консольные Игры
->>PS2
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение ролевой игры Fullmetal Alchemist, основанное на известном аниме сериале. Вместе с двумя главными героями вы попадаете в волшебный мир алхимии. История начинается в городе пустыни Lior, который два брата Эдвард и Альфонс посещают в первой части серии. После раскрытия тайн культа Leto братья подвергаются нападению странных существ. Тем временем, ужас охватывает (   Читать дальше...   )Тип издания: UnofficialРазработчик: RacjinЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6677B7AB4AFCB5177FE34D04E45D534977FBDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589964   (189546) от 11.11.2022
-
-The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3] [EUR] 4.55 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Очистить Нью-Йорк от преступников оказалось не так легко, как представлял себе Питер Паркер. Несмотря на все способности и умения Человека-паука битва со злом никак не закончится победой правосудия. Но в тенях кроется тот, кому наплевать на закон и порядок. Безжалостный убийца открыл сезон охоты на самых известных преступников города. Бросить ему вызов, остановить (   Читать дальше...   )Тип издания: LicenseРазработчик: BeenoxЖанр: Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641B33B3C9F7C7C9FB4F013AED4F052EBE5353FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590955   (182793) от 23.11.2022
-
-Gal Gun (2012) [PS3] [JAP] 3.55 [License] [Jp] [MOVE]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Невероятный состав: больше семидесяти девушек!
-Главные героини, ангелы и все студентки и сотрудницы академии — в сумме получается больше семидесяти персонажей!
-На своем пути вы встретите не только студенток и сотрудниц академии, но и дам, которых можно увидеть не так уж часто!Тип издания: LicenseРазработчик: Inti CreatesЖанр: Rail shooterЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F039FE46F1D34ACC36F17508668E54AFE342771A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413683   (179137) от 04.10.2023
-
-The Elder Scrolls V: Skyrim (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Империя Тамриэла находится на грани падения. Король Скайрима убит. Претенденты на трон объединяются в союзы. В разгар конфликта пробуждается гораздо более опасное, древнее зло. Драконы, долгое время не появлявшиеся в летописях, вернулись в Тамриэл. Будущее Скайрима и всей Империи висит на волоске, все ждут предсказанного Драконорожденного, героя с силой Голоса, единственного, (   Читать дальше...   )Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Adventure, RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4FC70553FD808724FAF48D858757252941298A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666457   (178647) от 05.10.2023
 
 Street Fighter 6 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
@@ -112,7 +6,7 @@ Street Fighter 6 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178647.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ The Witcher 3: Wild Hunt - Complete Edition (2019) [Switch] [EUR] 16.0.0 [NSZ] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178471.jpg" />
 </div>
 
 
@@ -164,7 +58,7 @@ Sonic Frontiers (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.40 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177208.jpg" />
 </div>
 
 
@@ -190,7 +84,7 @@ Sam & Max Save the World (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.2] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176202.jpg" />
 </div>
 
 
@@ -217,7 +111,7 @@ Clubhouse Games: 51 Worldwide Classics (2020) [Switch] [USA] 10.2.0 [NSP] [Licen
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175450.jpg" />
 </div>
 
 
@@ -244,7 +138,7 @@ DOOM Eternal (2020) [Switch] [EUR] 10.2.0 [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174015.jpg" />
 </div>
 
 
@@ -272,7 +166,7 @@ Scars Above (2023) [PS4] [USA] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173306.jpg" />
 </div>
 
 
@@ -298,7 +192,7 @@ Mortal Kombat 1 Premium Edition (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173268.jpg" />
 </div>
 
 
@@ -324,7 +218,7 @@ DC League of Super-Pets: The Adventures of Krypto and Ace (2022) [PS4] [USA] 9.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173153.jpg" />
 </div>
 
 
@@ -350,7 +244,7 @@ ELDEN RING (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.15] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173077.jpg" />
 </div>
 
 
@@ -376,7 +270,7 @@ Minecraft Legends (2023) [PS4] [USA] 5.05 [HEN] [License / 1.06] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172934.jpg" />
 </div>
 
 
@@ -402,7 +296,7 @@ EA SPORTS UFC 4 (2020) [PS4] [EUR] 5.05 [HEN] [License / 24.00] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172899.jpg" />
 </div>
 
 
@@ -428,7 +322,7 @@ Atomic Heart (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.16 / DLC] [Ru/Multi] [Pr
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172699.jpg" />
 </div>
 
 
@@ -454,7 +348,7 @@ EA Sports FC 24 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171982.jpg" />
 </div>
 
 
@@ -480,7 +374,7 @@ Red Dead Redemption (2023) [PS4] [EUR] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171813.jpg" />
 </div>
 
 
@@ -506,7 +400,7 @@ The Long Dark (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.89.69528] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170213.jpg" />
 </div>
 
 
@@ -532,7 +426,7 @@ Crash Time 4: The Syndicate (2010) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170088.jpg" />
 </div>
 
 
@@ -558,7 +452,7 @@ Spider-Man 2 (2004) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168100.jpg" />
 </div>
 
 
@@ -584,7 +478,7 @@ Ultimate Spider-Man (2005) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168085.jpg" />
 </div>
 
 
@@ -610,7 +504,7 @@ LEGO CITY Undercover (2017) [Switch] [EUR] [NSZ] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167767.jpg" />
 </div>
 
 
@@ -636,7 +530,7 @@ G-Force / Миссия Дарвина (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166037.jpg" />
 </div>
 
 
@@ -662,7 +556,7 @@ Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165471.jpg" />
 </div>
 
 
@@ -673,6 +567,111 @@ Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287544D76AB059B9A0E77343A25A1850F9B1E527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346066   (164743) от 17.12.2019
+
+Final Fantasy X | X-2 HD Remaster (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник Final Fantasy X/X-2 HD Remaster на PS3 собрал самые новые версии двух эпизодов культовой серии Final Fantasy, которая в эпоху PS2 была жанровым образцом, как относительно геймплея, так и относительно графической части.
+Время золотого века наступило тогда, когда просвещенной цивилизации, населявшей Спиру, удалось открыть устройство Machina. Но всё это далекое (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: JRPGЯзык озвучки: АнглийскийЯзык субтитров: Русский (X), Английский (X-2)Язык интерфейса: Русский (X), Английский (X-2)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3C9AF2E7A3CA06F6534FA82FA43590A07099DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516004   (163218) от 14.12.2021
+
+Manhunt (2003) [PS2] [NTSC] [Unofficial] [Ru]
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка полна мрачных индустриальных городков, где царит вседозволенность. В Карцер-Сити ценят только острые ощущения, самое сильное из которых – игра с человеческой жизнью. Нет ничего более захватывающего, чем желание подарить и отнять жизнь ради забавы. На сей раз стал жертвой ты, Джеймс Эрл Кэш. Они подарили тебе жизнь. Теперь они снова начнут на тебя охоту. Ты (   Читать дальше...   )Тип издания: UnofficialРазработчик: Rockstar NorthЖанр: Stealth, Survival horrorЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC909571C3A37EBF618F5CE8498A04098FA6C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967344   (158559) от 20.12.2015
+
+Gray Matter / Gray Matter. Призраки подсознания (2011) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gray Matter - приключенческая игра, в которой рассказывается о нейробиологе, докторе Дэвиде Стайлосе, потерявшем жену в ужасной аварии несколько лет назад. После случившейся трагедии он стал вести уединенный образ жизни, проводя свои дни в английском имении Dread Hill House.Тип издания: LicenseРазработчик: WizarboxЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF1C9E94BD559ACE14186EE87CDB2EF95D691AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967451   (158315) от 21.12.2015
+
+Double Dragon Neon (2012) [Xbox360] [RegionFree] FreeBoot [XBLA] [En]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная Double Dragon снова в деле. Это та самая ночь. Пора уложить волосы гелем, натянуть рваную джинсу, зарядить кассету в бобинник и — на улицу. Потому как на нашу любовь снова посягнули...Тип издания: XBLAРазработчик: WayForward Technologies и Abstraction GamesЖанр: Arcade, Beat em upЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98DCF5518ACC85327C4FC137154201ED80A7E5A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

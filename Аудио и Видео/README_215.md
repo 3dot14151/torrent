@@ -1,368 +1,3 @@
-###  Публикация: 845711   (306811) от 30.11.2014
-
-Факап, или Хуже не бывает (Не мой день) / Nicht mein Tag (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Тилль Райнер — банковский клерк, чья жизнь довольно обычна, если не сказать скучна. Брак, работа, жизнь в небольшом городке. Огонь страсти в отношениях с женой Мириам давно утих, поглощенный повседневной рутиной. Разве это именно то, о чем он так мечтал? Герой фильма сокрушается и не знает, как изменить свою жизнь. Как вдруг, она меняется сама. В один прекрасный (   Читать дальше...   )Производство: ГерманияЖанр: Боевик, комедия, криминал, приключенияРежиссер: Петер ТорвартАктеры: Мориц Бляйбтрой, Аксель Штайн, Жасмин Герат, Анна Мария Мюэ, Неля Кипер, Бен Рюдингер, Касэм Ходжа, Беким Гури, Тобиас Нид, Максвелл РихтерПеревод: Любительский (многоголосый закадровый) (ViruseProject & Jimmy J)Продолжительность: 01:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27BDC785626BFCC7AB75E3B51BE74FF7BFACA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332340   (306755) от 23.10.2019
-
-Одесса (2019) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Одесса, август 1970 года. Самая жара. Город забит курортниками. В гости к тестю с тёщей, Григорию Иосифовичу и Раисе Ировне Давыдовым, прилетают из Москвы их зять Борис, журналист-международник, и его восьмилетний сын Валерик. Но именно в день их прилета в Одессе объявляют холерный карантин, город закрывают. Так приехавший на пару дней московский зять погружается (   Читать дальше...   )Производство: Россия / Мармот-фильм, МосфильмЖанр: ДрамаРежиссер: Валерий ТодоровскийАктеры: Ирина Розанова, Евгений Цыганов, Леонид Ярмольник, Ксения Раппопорт, Евгения Брик, Степан Середа, Станислав Эвентов, Вероника Устимова, Сергей Сосновский, Сергей МуравьёвПеревод: Не требуется (русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41EE6E899EBB6C46B57B8843E7F4AD30C6C9EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332325   (306552) от 23.10.2019
-
-Трое из ада / Three from Hell (2019) BDRip [1080p] ATV (DVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три знаменитых маньяка чудом выжили в зверской перестрелке с полицейскими, и после этого каждый отправился отбывать срок. Капитана Сполдинга казнили, а Отис при помощи родного брата умудрился сбежать и теперь любой ценой постарается вытащить отмороженную сестрицу Бэйби из-за решётки.Производство: США / Capital Arts Entertainment, Spookshow InternationalЖанр: Криминал, ТриллерРежиссер: Роб ЗомбиАктеры: Шери Мун Зомби, Билл Моусли, Ричард Брэйк, Сид Хэйг, Эмилио Ривера, Дэнни Трехо, Клинт Ховард, Дэниэл Робак, Джеффри Дэниэл Филлипс, Дэвид УриПеревод: Любительский двухголосый (LakeFilms)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8463F695BD78C43A7310F72C91C80614B5FA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422796   (306415) от 10.11.2020
-
-VA - The New Spirits Of Jazz (2000) [AAC|~308 Kbps] <Downtempo, Future Jazz, Trip Hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Newman - Dead Already (3:18)
-02. Kinobe - Slip Into Something More Comfortable (4:54)
-03. Ollano - Latitudes (Original Mix) (3:34)
-04. S-Tone Inc. - Colazone Da Tiffany (4:18)(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Trip HopПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4ECE9F3E7F6753BA8112460405FA597527EFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422788   (306414) от 10.11.2020
-
-VA - Electronic Species (1996) [AAC|~311 Kbps] <Dub, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Alec Empire & Ian Pooley - Pulse Code 3 (10:02)
-02. Move D - Nimm 2 (7:45)
-03. PWOG - True (4:46)
-04. Isk - + Tzaziki (7:02)(   Читать дальше...   )Жанр: Dub, Downtempo, AmbientПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B97D2839A2552257B71E344216DCCA22AA902B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422802   (306413) от 10.11.2020
-
-VA - Summer Memories Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol, Nera - Sensuality (Ballad Mix) (4:02)
-02. Triangle Sun - Tonight (Original Mix) (4:24)
-03. Marga Sol - Soulheaven (Original Mix) (5:50)
-04. Gary B - Without You (Original Mix) (4:11)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1866AC4083F463D0E8899F50C288E4BBE5B604E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422798   (306410) от 10.11.2020
-
-VA - By the Lake Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H., Robin Vane - Be My Hero (Gambrita Instrumental Remix) (3:41)
-02. Project Blue Sun - Be with Me (Original Mix) (6:08)
-03. Patiotic - Hold Me (Original Mix) (4:32)
-04. Nacho Sotomayor - Wonderful (Marga Sol Chill Rmx) (6:52)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8546F7B8D92FC735B06C8F3C64ADF8357D857FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422810   (306409) от 10.11.2020
-
-VA - Breathe & Relax Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Cotton Blossom (Original Mix) (5:35)
-02. Dharma Frequency - Mojun Ambient (Original Mix) (4:10)
-03. La Estación Del Mar - La Mecedora Del Porche (4:55)
-04. Lynn Tredeau - One Drop Is an Ocean (3:52)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2D8C4D72E751939E11A47598826498C88D7AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422952   (306408) от 10.11.2020
-
-VA - After Sunset Lounge: Chillout Your Mind (2020) [AAC|~331 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Your Gentle Eyes (Original Mix) (5:40)
-02. Michael e - Lovely as a Summer Day (6:00)
-03. Michael e, Tim Gelo - All That We Are (7:46)
-04. Tigerforest - Azure (4:02)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC9E3F3D2C5EE51AC1FEE96121E253CEA02E32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422945   (306407) от 10.11.2020
-
-VA - City Sunset Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Dellasollounge - Firefly (Original Mix) (5:26)
-02. Gary B - Ripple Effect (Original Mix) (3:32)
-03. Patiotic - Breathing (4:00)
-04. Beamy - Dream Traveler (4:48)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBD66BE2C50F96EDEE2697664BDEB959952DA73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845690   (306335) от 30.11.2014
-
-Черепашки-ниндзя / Teenage Mutant Ninja Turtles (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Город нуждается в героях. Тьма окутала Нью-Йорк в виде Шреддера и его зловещего Клана Футов, у которого имеется железный контроль над всеми, от полицейских до политиков. Будущее выглядит мрачным, пока из канализации не поднимается и не раскрывает своё предназначение четвёрка отверженных братьев — Черепашки-ниндзя. Черепашки должны работать вместе с бесстрашным репортёром Эйприл и её саркастическим оператором Верном Фенвиком, чтобы спасти город и разгадать дьявольский план Шреддера.Жанр: Фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джонатан ЛибесманПродюсер: Майкл Бэй, Йен Брайс, Эндрю ФормАктеры: Меган Фокс, Уилл Арнетт, Уильям Фихтнер, Алан Ричсон, Ноэль Фишер, Пит Пложек, Джонни Ноксвил, Джереми Ховард, Дэнни Вудберн, Тони ШэлубПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский, АнглийскийПродолжительность: 01:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCB4AF25F3780FDC3FDF8A31B6336B71B54AED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422950   (306304) от 10.11.2020
-
-VA - Summer Breeze Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e - Conversations (Chill Mix) (5:50)
-02. Peter Pearson - Move On (Original Mix) (4:17)
-03. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
-04. The Soul Crusaders - The Future (Original Mix) (5:31)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EAE87D912B540A3C624C660A599237C16AC5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422815   (306303) от 10.11.2020
-
-VA - Traveling Lounge: Chillout Your Mind (2020) [AAC|~319 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Eivissarts - No Motion (Original Mix) (5:57)
-02. Magmatunes - Sunset Lovers (Original MIx) (5:23)
-03. Marga Sol - Think About You (Original Mix) (5:36)
-04. Schwarz & Funk - Blue Rose (Eivizzards Mix) (5:55)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9609DD28325B345EFE93DA39561D28C8D62B71B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422799   (306301) от 10.11.2020
 
 VA - Sandwalk Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Lounge, Chillout>
@@ -371,7 +6,7 @@ VA - Sandwalk Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306301.jpg" />
 </div>
 
 
@@ -400,7 +35,7 @@ VA - Deep Voyage Lounge: Chillout Your Mind (2020) [AAC|~312 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306299.jpg" />
 </div>
 
 
@@ -429,7 +64,7 @@ VA - Beach Bar Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306290.jpg" />
 </div>
 
 
@@ -458,7 +93,7 @@ VA - Soothing Relaxation Lounge: Chillout Your Mind (2020) [AAC|~323 Kbps] <Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306164.jpg" />
 </div>
 
 
@@ -487,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305965.jpg" />
 </div>
 
 
@@ -513,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305291.jpg" />
 </div>
 
 
@@ -539,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305170.jpg" />
 </div>
 
 
@@ -565,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304939.jpg" />
 </div>
 
 
@@ -591,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304848.jpg" />
 </div>
 
 
@@ -617,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304847.jpg" />
 </div>
 
 
@@ -643,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304795.jpg" />
 </div>
 
 
@@ -669,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304781.jpg" />
 </div>
 
 
@@ -695,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304653.jpg" />
 </div>
 
 
@@ -707,6 +342,363 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C25C8DCCDA2A34E760A5601985B283F3044382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423057   (304407) от 11.11.2020
+
+VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Blue Rose (Eivizzards Mix) (5:55)
+02. Marga Sol - Around Me (Deep Chill RMX) (4:24)
+03. Dominik Pointvogl - Berlin Rooftop (Original Mix) (7:37)
+04. Patiotic - Late Night Neon (Original Mix) (3:39)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D4BD57AC674E6B8FE0C06F02A7139205D8F031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423063   (304405) от 11.11.2020
+
+VA - Sea Cruising Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - It Feels Like Summer (3:54)
+02. Eivissarts - Stoned Love (Original Mix) (5:29)
+03. Clelia Felix - Under the Moonlight (4:36)
+04. Deeparture - Dambes (Original MIx) (5:26)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D997A9CA07F697F67C4B7A47734282F60AD2BE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423055   (304404) от 11.11.2020
+
+VA - Sunny Day Lounge: Chillout Your Mind (2020) [AAC|~314 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Bossalova (Original Mix) (4:29)
+02. Schwarz & Funk - Fallen (Bossa Mix) (6:03)
+03. Chillson, Marc Hartman - On This Day (5:51)
+04. St Project - Bossaporita (5:33)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3198B3A92A4B8B2CDA7B508716B171638AED67EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423056   (304403) от 11.11.2020
+
+VA - Sea & Sand Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
+02. Chris le Blanc, Miss Luna - Debussy En Es Vedra (Salinas Mix) (4:23)
+03. Gary B - All I Long For (Original Mix) (4:00)
+04. Dellasollounge - And Shine (Original Mix) (5:31)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D353170709044EA9EF383D0A8C9BE4C5DDC902C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423122   (304287) от 11.11.2020
+
+VA - Greatest Hits Instrumental (2020) [AAC|~357 Kbps] <Instrumental, Soundtracks>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlite Orchestra - American Pie (4:26)
+02. Starlite Singers - Big Spender (2:47)
+03. Chateau Pop - O l'amour (3:03)
+04. The New Merseysiders - Ob-La-Di, Ob-La-Da (2:03)(   Читать дальше...   )Жанр: Instrumental, SoundtracksПродолжительность: 02:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85BA57DAF9FA836FC2251524AF1022EFD6FFCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422984   (304162) от 11.11.2020
+
+Silent Circle - Lost In Space (2020) [AAC|~357 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost In Space (3:30)
+02. How Could It Be Right (3:34)
+03. Kaido (3:24)
+04. Who Took My Girl (3:22)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8481F01C09B7DE53420F5052308747CCC68C51D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846211   (303988) от 01.12.2014
+
+Пряности и страсти / The Hundred-Foot Journey (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья индийских эмигрантов, которых судьба забросила в маленький городок в Провансе, решает открыть кафе с восточной кухней… прямо напротив знаменитого на всю округу ресторана «Плакучая ива», бастиона французских кулинарных традиций, хозяйка которого, Мадам Малори, больше всего на свете гордится тем, что её заведение удостоено звезды в каталоге «Мишлен».
+Поначалу Мадам Малори не скрывает своей брезгливости шумными соседями и их экзотическими привычками, но постепенно война за клиентов между двумя ресторанами (   Читать дальше...   )Жанр: Драма, комедияРежиссер: Лассе ХалльстрёмПродюсер: Джульетт Блейк, Стивен Спилберг, Опра УинфриАктеры: Хелен Миррен, Ом Пури, Маниш Дайал, Шарлотта Ле Бон, Амит Шах, Фарзана Дуа Элахе, Диллон Митра, Ариа Пандья, Мишель Блан, Клеман СибониПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567A6ECF9BF6C6C28BDE4142AE34975844BB2B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730447   (303917) от 04.12.2013
+
+Сталинград /  (2013) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942-й год. Сталинград. Советские войска планируют контрнаступление на немецкие части, занявшие правый берег Волги. Наступление сорвано. Лишь разведчикам под командованием капитана Громова удается перебраться на другой берег и закрепиться в одном из домов. Им дан приказ удержать его любой ценой. Кроме нескольких чудом уцелевших советских солдат они находят в доме его последнюю жительницу — 19-летнюю Катю.Жанр: военный, драма, боевикПродюсер: Сергей Мелькумов, Антон Златопольский, Дмитрий РудовскийВ ролях: Мария Смольникова, Янина Студилина, Пётр Фёдоров, Томас Кречман, Сергей Бондарчук, Дмитрий Лысенков, Андрей Смоляков, Алексей Барабаш, Олег Волку, Хайнер ЛаутербахПеревод: Не требуетсяПродолжительность: 02:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EA687FFDA27B419F312781B2324621C47341D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261594   (303123) от 11.11.2018
+
+Кристофер Робин / Christopher Robin (2018) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303123.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни повзрослевшего Кристофера Робина царит повседневная рутина. Однажды он встречает друга детства — медвежонка Винни. Вместе им предстоит вернуться в Стоакровый лес, чтобы не только отыскать потерявшихся друзей, но и вновь обрести счастье.Производство: СШАЖанр: Мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Марк ФорстерАктеры: Юэн МакГрегор, Хейли Этвелл, Бронте Кармайкл, Марк Гейтисс, Оливер Форд Дейвис, Ронки Адеколуэхо, Эдриан Скарборо, Роджер Эштон-Гриффитс, Кен Нвосу, Джон ДаглишПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBDBB8379962DAA0FDF7442106FF64EAED5B88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261586   (303100) от 11.11.2018
+
+Кристофер Робин / Christopher Robin (2018) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303100.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни повзрослевшего Кристофера Робина царит повседневная рутина. Однажды он встречает друга детства — медвежонка Винни. Вместе им предстоит вернуться в Стоакровый лес, чтобы не только отыскать потерявшихся друзей, но и вновь обрести счастье.Производство: СШАЖанр: Мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Марк ФорстерАктеры: Юэн МакГрегор, Хейли Этвелл, Бронте Кармайкл, Марк Гейтисс, Оливер Форд Дейвис, Ронки Адеколуэхо, Эдриан Скарборо, Роджер Эштон-Гриффитс, Кен Нвосу, Джон ДаглишПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F583262DDBD1AD8B0CFA93640F0773A4317785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961014   (303091) от 30.11.2015
+
+Шнайдер против Бакса / Schneider vs. Bax (2015) WEB-DLRip [576p] iPad [Line]
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шнайдер — наемный убийца-профессионал. Даже в день своего рождения он обязан подчиниться заказчику, некоему Мертенсу, и ликвидировать Рамона Бакса, писателя, живущего в домишке на берегу озера, окруженного болотами. Киллеру приходится спешить — ведь дома его ждет праздничный обед в кругу семьи. Однако в этот день все идет наперекосяк. Непредвиденные обстоятельства (   Читать дальше...   )Производство: НидерландыЖанр: Триллер, комедияРежиссер: Алекс ван ВармердамАктеры: Том Де Виспеларе, Алекс ван Вармердам, Мария Краакман, Гене Бервутс, Аннет Мальэрб, Пьер Бокма, Анри Гарсен, Лоэс Хаверкорт, Ева ван де Вийдевен, Ali ZijlstraПеревод: Дублированный (LINE)Субтитры: НетПродолжительность: 01:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBC8052AE672D121FDBF669F0C3C198EAEDFB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184085   (303056) от 16.11.2017
+
+Крым  (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303056.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о любви, вере и чести, о силе духа и настоящей дружбе на фоне реальных событий крымской весны 2014 года. Судьба свела их в Крыму близ древнего города Мангуп-Кале. Это была любовь с первого взгляда… В непростые дни исторических перемен они должны сохранить свою жизнь и любовь.Производство: РоссияЖанр: Драма, боевикРежиссер: Алексей ПимановАктеры: Роман Курцын, Евгения Лапова, Павел Крайнов, Павел Трубинер, Борис Щербаков, Елена Котельникова, Геннадий Яковлев, Алексей Комашко, Никита Зверев, Игорь БуяноверПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530651A0921B31A749901C210C4BA10681D1FA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261461   (302734) от 11.11.2018
+
+Король вне закона / Outlaw King (2018) WEBRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302734.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Роберта Брюса, одного из величайших шотландских монархов, организатора обороны страны в начальный период войны за независимость против Англии.Производство: Великобритания, СШАЖанр: Боевик, драма, биография, историяРежиссер: Дэвид МаккензиАктеры: Крис Пайн, Стивен Диллэйн, Rebecca Robin, Билли Хоул, Пол Блэр, Сэм Спруэлл, Джонатан Филлипс, Ben Clifford, Джэми МакЛахлан, Данкан ЛакруаПеревод: Дублированный (Невафильм)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171A6EC13CC6AFF7B3D8F722B0A81833AC6CF2C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

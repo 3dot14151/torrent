@@ -1,133 +1,3 @@
-###  Публикация: 1131278   (708789) от 05.05.2017
-
-Н. В. Крыленко | Классовая борьба путем вредительства (1930) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Перед широкими массами трудящихся мы хотим показать теперь, как глубоко проникала иной раз в наш аппарат язва контрреволюции, как много скрытых врагов нас окружает и вокруг нас действует, как еще по-детски иной раз доверчивы и по-детски наивны бываем мы в наших отношениях к этим господам, холопски лижущим на словах руки советской власти и продававшим и продающим (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECCE2FE1A5B89CCD3231D260D4A8107A3DA417B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776933   (708729) от 04.03.2019
-
-Юрий Пашолок | Т-60 и машины на его базе (2013) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Малютка» Т-60 — третий по массовости советский танк второй мировой войны. Он был разработан и принят на вооружение в первые, самые тяжёлые месяцы боевых действий, и судьба этой машины оказалась непростой и удивительной. В книге последовательно рассказано об этапах разработки и выпуска непосредственно Т-60; попытках устранить несовершенства танка при помощи различных (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7283249BA2BA47C042685B4B316E39ED1F0275F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702757   (708727) от 04.03.2019
-
-Максим Коломиец | Ленинградские КВ-1 (2012) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-КВ-1 является одним из символов советского танкостроения времён Великой Отечественной войны, когда он считался лучшим тяжёлым танком в мире. Книга не носит развлекательного характера — это серьёзный документальный труд для настоящих ценителей истории. На 160 страницах издания представлен весь цикл производства КВ-1: от первой опытной машины до танков, произведённых (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F473D243F9454A5D799F3F1AF727CE1D1C16A9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533085   (708635) от 22.02.2022
-
-А.Ф. Тузовский | Объектно-ориентированное программирование (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматривается объектно ориентированный подход к разработке приложений для операционной системы Windows с использованием платформы Мiсrоsоft .NET. Поясняются структура платформы выполнения и создания программного обеспечения, принципы объектно-ориентированного подхода, язык программирования С#, разработка приложений с графическим интерфейсом и технология (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E20B6BA9324708BBD17513C46F53BBD545AE554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 97774   (708621) от 04.03.2019
-
-Справочник по микросхемам том 1,2,3,4
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Справочник предназначен для работников телевизионных мастерских, в особенности тех, кто занимается ремонтом телевизионной аппаратуры. Книга представляет собой сборник схем, в основу которого положена документация производителей ИМС. Приведенные схемы содержат всю необходимую практическую информацию: напряжения, токи, формы колебаний, органы подстройки; указываются (   Читать дальше...   )Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C655B7FC89A9456B523CB29A697532B1F530CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131292   (708550) от 05.05.2017
 
 Юлия Бжиская | Английский язык для музыкантов (2017) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708550.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708492.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708363.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708176.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708169.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707902.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707840.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707525.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707404.jpg" />
 </div>
 
 
@@ -374,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707321.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707117.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706979.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706842.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706803.jpg" />
 </div>
 
 
@@ -505,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706795.jpg" />
 </div>
 
 
@@ -532,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706791.jpg" />
 </div>
 
 
@@ -559,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706785.jpg" />
 </div>
 
 
@@ -586,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706705.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706695.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706672.jpg" />
 </div>
 
 
@@ -666,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706614.jpg" />
 </div>
 
 
@@ -677,6 +547,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E1AF0FA8A2E0158C5F8D497D2802A50ED35B9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131473   (706608) от 06.05.2017
+
+Ю.М. Фролов, В.П. Шелякин | Регулируемый асинхронный электропривод (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены сведения об асинхронном электроприводе, включая конструктивные особенности, физические процессы в асинхронном двигателе, его механические и электромеханические характеристики в различных режимах работы. Дана общая характеристика способов регулирования асинхронного электропривода. Значительное внимание уделено законам частотного регулирования и динамическим (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A2596F5E34C4BA79256411CB7961E5C0C9624E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131591   (706464) от 06.05.2017
+
+Додэка | Популярные микросхемы для бытовой радиоаппаратуры. Справочник (2011) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой справочник по микросхемам для современной бытовой радиоаппаратуры и содержит структурные схемы, назначения выводов и цоколевки более трехсот популярных микросхем, нашедших применение в радиоаппаратуре производства стран Европы и Азии.
+Приведены микросхемы таких фирм, как Atmel, Exel, Fairchild, Fujitsu, GEC Plessey, Harris, Hitachi, Hyundai, (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629BE3747FBEF49D09375EF0570E4C69B6EB1695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131067   (706400) от 06.05.2017
+
+А. М. Тер-Крикоров, М. И. Шабунин | Курс математического анализа (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706400.jpg" />
+</div>
+
+
+###  Подробнее
+
+При написании настоящей книги авторы опирались на многолетний опыт чтения курса математического анализа и ведения семинарских занятий в Московском физико-техническом институте. Изложение теоретического материала подкрепляется достаточным числом примеров, помогающих освоению основных идей курса и выработке навыков в решении прикладных задачЖанр: Математический анализ, учебное пособие для вузовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2CFF5AF10ECF6E18F502E59E8FA394E05EF1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131664   (706396) от 06.05.2017
+
+Г.Е. Романов | Современные бюджетные и элитные телевизоры (2011) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит подробное описание как бюджетных (доступных широкому кругу покупателей), так и элитных моделей современных телевизоров ведущих фирм-производителей GRUNDIG, SAMSUNG, SHARP, THOMSON и TOSHIBA, рассмотрены методы их ремонта и регулировки. Впервые описаны цветные проекционные телевизоры «Toshiba 43A9UE/UA».
+В каждой главе приводятся высококачественные (   Читать дальше...   )Жанр: Электроника, телевидениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1090F3E415BCDA53F1B8CCD31271F7A7A5A5961F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131315   (706319) от 06.05.2017
+
+А.В. Родин, Н.А. Тюнин | Электронные модули стиральных машин АТЛАНТ, CANDY, ELECTROLUX/ZANUSSI, SAMSUNG, VESTEL, WHIRPOOL (2016) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706319.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассматриваются электронные модули стиральных машин Атлант, Candy/Hoover, Gorenje, Electrolux/Zanussi/Aeg, Samsung, Vestel, Vico, Whirlpool (всего более 1000 моделей). Помимо описания принципиальных схем модулей, характерных неисправностей и способов их устранения, даны материалы по взаимодействию основных цепей модулей с компонентами и узлами в составе (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771E07802ABE4473308F64B08BBA8AC85B326517
 ```
 
 https://mybot314.ru/tekegram_catalog/

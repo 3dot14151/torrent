@@ -6,7 +6,7 @@ Viber 9.9.6.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785334.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JRiver Media Center 24.0.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785331.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SpeedCommander Pro 17.30.8900 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785313.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JetBrains ReSharper Ultimate 2017.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785304.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785277.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WinUtilities Pro 15.1 RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785270.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PIDKey Lite 1.61 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785264.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Avira Free Antivirus 15.0.34.20 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785263.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ foobar2000 1.3.19 Final DarkOne + DUIFoon Portable by MC Web (19.01.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785259.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ KMS Tools Portable 15.01.2019 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785241.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Windows 10 Manager 2.2.3 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785231.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Unreal Commander 3.57 Build 1285 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785221.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 Manager 2.2.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785213.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ All in One Runtimes 2.4.5 Portable [De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785188.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CyberGhost VPN 6.0.9.3080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785182.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ RE Vision FX Effections Plus 17.0 RePack by Team V.R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785176.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ IObit Driver Booster Pro 7.5.0.750 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785144.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ IObit Smart Defrag Pro 6.5.5.109 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785143.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ ScreenToGif 2.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785141.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Trojan Killer 2.1.28 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785136.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ TinyWall 3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785120.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chasys Draw IES 5.01.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785117.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wondershare Filmora 9.5.0.20 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785098.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ IObit Driver Booster Pro 7.5.0.751 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785087.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BestReminder v2019.01.18.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785004.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ DiskDigger 1.20.9.2707 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785002.jpg" />
 </div>
 
 

@@ -1,38 +1,3 @@
-###  Публикация: 553268   (438827) от 30.09.2012
-
-VA - Simply Dubstep September 2012 (2012) [MP3|320 кб/с]<Dubstep, Bass, Grime, Electronic, Glitch Hop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1. Al3Xtaylor - She Wants Candy (3:22)
-2. Alex Mind And James Edgbert - Ghost Machine (Original Mix) (4:45)
-3. Ali.I.A.N - Fluctuate (Original Mix) (3:36)
-4. Assault Terror & Meatmans Project - Alone In The Dark (Original Mix) (5:32)
-5. Assault Terror & Meatmans Project - Electric Scream (Original Mix) (4:48)
-6. Aylius - Voicemail (Original Mix) (5:06)
-7. Aylius Feat Katie Joy - Lucid (Original Mix) (4:15)
-8. Aylius Feat Mass - Perfecting Technique (Original (4:17)
-9. Captain Panic! - Death March (Rekoil Remix) (3:38)
-10. Dirt Monkey Fet Anna Yvette - Hurt So Good (Metaphase Remix) (4:02)(   Читать дальше...   )Жанр: Dubstep, Bass, Grime, Electronic, Glitch HopПродолжительность: 08:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD010A5D9272C80BF761F30D74E41A47E75CA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553899   (438822) от 30.09.2012
 
 VA - Осенний TOP-лист радио Record №7 50/50 (2012) [MP3|256 кб/с]<Club>
@@ -41,7 +6,7 @@ VA - Осенний TOP-лист радио Record №7 50/50 (2012) [MP3|256 к
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438822.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ Va - Deep+   Vol. 2 (2012) [MP3|320 кб/с]<Deep House,Tech House,Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438757.jpg" />
 </div>
 
 
@@ -111,7 +76,7 @@ VA - Рок в Авто (Symphonic Metal) (2012) [MP3|320 кб/с]<Sympho Metal,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438545.jpg" />
 </div>
 
 
@@ -146,7 +111,7 @@ VA - Сборник медленных хитов Vol.13 (2012) [MP3|96-320 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438499.jpg" />
 </div>
 
 
@@ -181,7 +146,7 @@ VA - TOP 100 Зайцев.нет (04.09.2012) [MP3|128 - 320 кб/с]<Pop, Chans
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438485.jpg" />
 </div>
 
 
@@ -216,7 +181,7 @@ VA - Say Love - Finest Chillout & Lounge Music (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438407.jpg" />
 </div>
 
 
@@ -245,7 +210,7 @@ VA - Deep City Nights Los Angeles 30 Deep House Tunes (2015) [MP3|320 кб/с]<D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438400.jpg" />
 </div>
 
 
@@ -274,7 +239,7 @@ DJ ICE - Summer The End 2014 Mix (2014) [MP3|320 кб/с]<Deep House, Vocal Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438142.jpg" />
 </div>
 
 
@@ -303,7 +268,7 @@ VA - Лучший шансон: Ты кричи, моя душа 4 (2011) [MP3|1
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438124.jpg" />
 </div>
 
 
@@ -338,7 +303,7 @@ VA - Зайцев.нет Лучшие новинки Сентября (2020) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438073.jpg" />
 </div>
 
 
@@ -367,7 +332,7 @@ VA - Italo & Space Disco Vol.1 (2015) [MP3|320 кб/с]<Italo Disco , Syhtnpop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438062.jpg" />
 </div>
 
 
@@ -396,7 +361,7 @@ VA - German Top 50 Official Dance Charts 30.08.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437886.jpg" />
 </div>
 
 
@@ -425,7 +390,7 @@ VA - Super Dance (2014) [MP3|320 кб/с]<Dance, Club, Progressive, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437822.jpg" />
 </div>
 
 
@@ -454,7 +419,7 @@ VA - Всё сразу 200 хитов Выпуск 9 (2015) [MP3|128-320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437721.jpg" />
 </div>
 
 
@@ -483,7 +448,7 @@ VA - не Громкие новинки недели 33 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437697.jpg" />
 </div>
 
 
@@ -512,7 +477,7 @@ VA - German Top 100 Single Charts 21.09.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437507.jpg" />
 </div>
 
 
@@ -541,7 +506,7 @@ VA - Whisper of Consciousness Volume 30 (2012) [MP3|320 кб/с]<Uplifting Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437295.jpg" />
 </div>
 
 
@@ -576,7 +541,7 @@ VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437262.jpg" />
 </div>
 
 
@@ -605,7 +570,7 @@ VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437239.jpg" />
 </div>
 
 
@@ -634,7 +599,7 @@ VA - 100 Soul Jazz (2016) [MP3|320 Kbps] <Jazz, Soul, Vocal Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437078.jpg" />
 </div>
 
 
@@ -663,7 +628,7 @@ VA - Horror Sky: Dub Hardcore Set (2017) [MP3|320 Kbps] <Dub Hardcore, Hard Elec
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437070.jpg" />
 </div>
 
 
@@ -692,7 +657,7 @@ VA - Любимые песни (2014) [MP3|320 кб/с]<Русский рок, �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437029.jpg" />
 </div>
 
 
@@ -721,7 +686,7 @@ VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436970.jpg" />
 </div>
 
 
@@ -756,7 +721,7 @@ VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436822.jpg" />
 </div>
 
 
@@ -791,7 +756,7 @@ VA - Relax FM (29.09.2012) [MP3|320 кб/с]<Relax, Ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436811.jpg" />
 </div>
 
 
@@ -811,6 +776,41 @@ VA - Relax FM (29.09.2012) [MP3|320 кб/с]<Relax, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A357856BC62C831C03C5230712AA356436AFE81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554449   (436810) от 01.10.2012
+
+VA - 100 пудовый хит. Русский выпуск (2012) [MP3|256 кб/с]<Pop. Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вера Брежнева - Бессонница
+ 002. Эд Шульжевский - Ты Все
+ 003. Ян Марти - Леночка
+ 004. Gayana - Ни Слова
+ 005. Soundmaniя - Твоя Вселенная
+ 006. Rj Рамиль Feat. Юлика - Просто Love
+ 007. Алабама - Отпускаю
+ 008. Авиатор - Звезда
+ 009. Вера Каретникова - Vera
+ 010. DJ Sandro Escobar - Бесконечность(   Читать дальше...   )Жанр: Pop. DanceПродолжительность: 06:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E60C56242BE874798E0673A7156651FE73AA03B
 ```
 
 https://mybot314.ru/tekegram_catalog/

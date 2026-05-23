@@ -1,82 +1,3 @@
-###  Публикация: 941874   (457637) от 29.09.2015
-
-Стивен Хантер | Боб Ли Суэггер (Книга 9). Честь снайпера (2015) [MP3, Stix37]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этом произведении от автора бестселлеров Боб Ли Суэггер узнаёт, почему величайший снайпер Второй Мировой Войны был стёрт из истории и почему её исчезновение до сих пор имеет большое значение. Людмила «Милли» Петрова когда-то была самой преследуемой женщиной на Земле, вызвав ярость двух мощнейших лидеров с обеих сторон: Иосифа Сталина и Адольфа Гитлера. Но Кэти (   Читать дальше...   )Жанр: Детектив, боевик, триллерПродолжительность: 11:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A0524F8FD2B30DC38B0B344B7ABE7F22442ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942128   (457635) от 29.09.2015
-
-Патрик Ли | Тайна Бреши (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Аномальное явление под названием Брешь – то ли коридор во времени, то ли туннель в пространстве – самый охраняемый секрет правительства США. Но внутри этого секрета скрыт еще один – о котором знают лишь единицы. И он гораздо опаснее… Во время обращения президента США к нации, по Белому дому был нанесен успешный ракетный удар. Записка, найденная на законсервированном (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C8E5F798066DCACBB7323F411F096E4F272B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060092   (457561) от 06.10.2016
-
-Василий Немирович-Данченко | Скобелев (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена выдающемуся русскому полководцу - генералу М. Д. Скобелеву, особо отличившемуся в освободительной войне болгарского народа против Турции в 1877- 1878 гг.
-В повествовании ярко, достоверно, выразительными литературными средствами отображены события, очевидцем которых был автор - русский писатель, брат известного театрального деятеля Владимира Ивановича (   Читать дальше...   )Жанр: Воспоминания; Военная прозаПродолжительность: 10:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52D7976261DAB350B339A3DC8767FA681765ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568909   (457438) от 10.08.2022
 
 Ли Чайлд | Джек Ричер (Книга 24). Джек Ричер, или Синяя луна (2022) [MP3, Сергей Кирсанов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457438.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457410.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457402.jpg" />
 </div>
 
 
@@ -168,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457278.jpg" />
 </div>
 
 
@@ -195,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457254.jpg" />
 </div>
 
 
@@ -221,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457241.jpg" />
 </div>
 
 
@@ -247,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457237.jpg" />
 </div>
 
 
@@ -273,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457169.jpg" />
 </div>
 
 
@@ -299,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457136.jpg" />
 </div>
 
 
@@ -327,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457011.jpg" />
 </div>
 
 
@@ -353,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456989.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456987.jpg" />
 </div>
 
 
@@ -405,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456913.jpg" />
 </div>
 
 
@@ -432,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456839.jpg" />
 </div>
 
 
@@ -460,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456833.jpg" />
 </div>
 
 
@@ -486,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456823.jpg" />
 </div>
 
 
@@ -512,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456804.jpg" />
 </div>
 
 
@@ -539,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456572.jpg" />
 </div>
 
 
@@ -565,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456564.jpg" />
 </div>
 
 
@@ -591,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456484.jpg" />
 </div>
 
 
@@ -618,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455963.jpg" />
 </div>
 
 
@@ -644,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455900.jpg" />
 </div>
 
 
@@ -670,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455876.jpg" />
 </div>
 
 
@@ -681,6 +602,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8315A80CC3BF5803E944A7A35CA697F2A43413EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941662   (455871) от 30.09.2015
+
+Алексей Чапыгин | Белый скит (1986) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Павлович Чапыгин (1870--1937) - русский советский писатель, один из основоположников советского исторического романа, создатель крупных исторических полотен "Разин Степан" и "Гулящие люди".
+Предлагаемый сборник познакомит читателей с ранним (1900-1920-е годы) творчеством Чапыгина, представленным "петербургскими" рассказами - (   Читать дальше...   )Жанр: Отечественная проза, повести, рассказыПродолжительность: 26:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3566CE04409A468F2EE51F0FBD95E00A8FD51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408372   (455772) от 12.09.2020
+
+Брайан Мерчант | Универсальное устройство. Неизвестная история создания iPhone (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455772.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 января 2007 года Стив Джобс презентовал iPhone, ставший технологическим и экономическим феноменом. Самый успешный продукт Apple, годовые продажи которого достигли миллиарда! Что же стоит за созданием этого технологического «чуда», без которого ни один современный человек уже не может представить свою жизнь? Компания Apple хранит эту информацию в секрете, транслируя (   Читать дальше...   )Жанр: ЖЗЛПродолжительность: 15:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9E62712524D8DEF1800FD4222C006A39F37183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408539   (455770) от 12.09.2020
+
+Николай Полевой | Рассказы русского солдата (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455770.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Рассказы русского солдата» - повесть выдающегося русского писателя Николая Алексеевича Полевого (1796-1846). *** Собеседник главного героя делится воспоминаниями о войне, превратностях службы и собственной жизни. Другими известными произведениями автора являются «Блаженство безумия», «Краковский замок», «Живописец», «Эмма», «Дедушка русского флота», «Елена Глинская», (   Читать дальше...   )Жанр: Повесть, биографияПродолжительность: 02:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590D851AEB2C626D0438BF857921335416D56616
 ```
 
 https://mybot314.ru/tekegram_catalog/

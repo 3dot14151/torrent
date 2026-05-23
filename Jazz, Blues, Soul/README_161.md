@@ -6,7 +6,7 @@ John Verity Band - Routes (2004) [MP3|320 кб/с] <Blues Rock, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742497.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Azar Lawrence - Mystic Journey (2010) Furthermore [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742493.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kevin Brown - Mojave Dust (2002) [FLAC|Lossless|tracks] <Blues, Acoustic Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742450.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Stumble - The Other Side (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742448.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lisa Mann - Hard Times, Bad Decisions (2016) [MP3|320 кб/с] <Modern Electric 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742433.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bud Freeman - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742412.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chet Baker - Stella By Starlight (1964) 1989, West Wind [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742411.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Monday Night At Birdland (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742406.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Edward Hartline - Edward Hartline - Human Nature (2015) [MP3|320 Kbps] <Blues, F
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742393.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dinah Washington - Blue Gardenia (1955 - 1961) 1995, Emarcy [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742358.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ziggy Marley - Ziggy Marley (2016) [FLAC|Lossless|image + .cue] <Blues, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742310.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sam Green and the Midnight Heist - Onsette Return (2018) EP [MP3|320 Kbps] <Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742263.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tommy Smith Sextet - Evolution (2003) [APE|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742182.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - The D-Vine Spirituals Records Story, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742142.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Piano Blues (2018) [MP3|320 Kbps] <Blues, Piano Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742136.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tony Joe White - Rain Crow (2016) [MP3|320 кб/с] <Blues Rock, Country>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742070.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The D-Vine Spirituals Records Story, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742013.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rova Saxophone Quartet - In Transverse Time (2018) Les Disques Victo [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741375.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Saxual Conquest (2020) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741288.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gene Krupa & His Orchestra - Let Me Off Uptown (1949) 2000, Trama [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741242.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Carmen McRae - Black Magic "Live" (1979 - 1981) 1992, Jazz Hour [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741241.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Benny Goodman - Stompin' At The Savoy (1935 - 1938) 1989, Jazz Hour [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741240.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ John Coltrane - Jazz Classics (1959, 1960) 2006, Flashback [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741239.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741238.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741237.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741236.jpg" />
 </div>
 
 

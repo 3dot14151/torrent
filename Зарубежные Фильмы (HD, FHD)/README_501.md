@@ -1,55 +1,3 @@
-###  Публикация: 1301841   (582891) от 13.05.2019
-
-Снегоуборщик / Cold Pursuit (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мистер Коксман — примерный семьянин и уважаемый гражданин, размеренная жизнь которого заканчивается, когда наркоторговцы убивают его сына. В поисках справедливости он с ледяным хладнокровием начинает изощренно убирать бандитов одного за другим.Производство: Великобритания, Норвегия, Канада, США, Франция / Mas Films, Paradox Films, StudioCanalЖанр: Боевик, триллер, драма, криминалРежиссер: Ханс Петтер МуландАктеры: Лиам Нисон, Лора Дерн, Эмми Россам, Том Бейтман, Уильям Форсайт, Джулия Джонс, Майкл Нисон, Майкл Эклунд, Брэдли Страйкер, Уэсли МакИннесПеревод: Дублированный, многоголосый закадровыйСубтитры: Русские (Full), английские (Full)Продолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C2D81EBE7D301DB7A484213863DE22FB54B1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919626   (582697) от 19.07.2015
-
-Игрушечные солдатики / Toy Soldiers (1991) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда учащиеся элитарного колледжа взяты в заложники южноамериканскими террористами, им ничего не остается, как вступить в смертельную схватку. Сержант армии встает во главе отряда студентов в их отчаянной попытке противостоять террору.Производство: США | Island World, TriStar PicturesЖанр: Боевик, Триллер, ДрамаРежиссер: Дэниел Питри мл.Актеры: Шон Эстин, Уил Уитон, Кит Куган, Эндрю Дивофф, Р. Ли Эрми, Мейсон Эдамс, Денхолм Эллиотт, Луис Госсет мл., Джордж Перес, Т. Э. Рассел, Шоун Фелан, Майкл Чэмпион, Трейси Брук Своуп, Макс Мэнвелл, Джо Инскоу, Джерри Лайден, Рене Гатика, Джереми МакЛерран, Джесси Доран, Стэн Келли, Кэрол Шоумэйкер, Адам Бонифант, Марк Ретц, Пол Синкофф, Ричард Трэвис, Жанет Ли Оркутт, (   Читать дальше...   )Перевод: Многоголосый закадровый, профессиональный x 3,  профессиональный двухголосый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FB42AEF9EEFE106125DFDEC8632B1FF5AC208E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919185   (582694) от 19.07.2015
 
 Жизнь и смерть Питера Селлерса / The Life and Death of Peter Sellers (2004) HDTV [H.264/1080i]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582694.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582685.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582672.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582633.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582625.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582622.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582388.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582382.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582355.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582288.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582239.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582234.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582231.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582132.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582048.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581935.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581700.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581603.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581586.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581542.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581422.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581376.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581358.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581346.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B33ED7AD8045CCE9F8892EB874E03EEFEDF92626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041750   (581339) от 10.08.2016
+
+Кровь и кость / Blood and Bone (2009) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581339.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода на волю, бывший заключённый Исай Бон (Майкл Джей Уайт) по кличке "Кость" снимает себе комнату и начинает участвовать в уличных драках, в глухих переулках Лос-Анджелеса, чтобы выполнить обещание данное другу, убитому в тюрьме. Он быстро становится чемпионом в нелегальных боях и бросает вызов местному гангстеру Джеймсу, который намерен использовать (   Читать дальше...   )Производство: США / Remarkable FilmsЖанр: Боевик, ДрамаРежиссер: Бен РэмсиАктеры: Майкл Джей Уайт, Джулиан Сэндс, Имонн Уолкер, Данте Баско, Нона Гэй, Мишель Белергин, Боб Сапп, Дик Энтони Уильямс, Фрэнсис Капра, Рон Йуан, Кевин «Кимбо Слайс» Фергюсон, Джина Карано, Морис Смит, Эрнест Миллер, Кевин ФиллипсПеревод: Двухголосый закадровый, любительскийЯзык субтитров: АнглийскийПродолжительность: 01:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11A6BDCE948331B5EF6B4E52E196ACD303442F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810819   (581327) от 07.08.2014
+
+Восемь баскских фамилий / Ocho apellidos vascos (2014) BDRemux [1080p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина рассказывает о странствиях Рафа, андалузца чистой виноградной лозы, который никогда не покидал своей родной и любимой Севильи, так как она давала ему все, что нужно для жизни — хорошее вино, гель для волос и женщин. В один прекрасный день жизнь Рафа меняется, после того, как он встречает первую женщину, устоявшую перед его обаянием — басконку Амайю. Чтобы (   Читать дальше...   )Производство: Испания / Kowalski Films, Telecinco CinemaЖанр: КомедияРежиссер: Эмилио Мартинес Ласаро / Emilio Martínez LázaroАктеры: Клара Лаго, Дэни Ровира, Кармен Мачи, Карра Элехальде, Альберто Лопес, Альфонсо Санчес, Айтор Масо, Абель Мора, Мириам КабесаПеревод: Одноголосый закадровый (авторский)Озвучка / Автор перевода: А. АлексеевСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанскийПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2722D41FD4DF3B300B0AEF5B58E82B021765E7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

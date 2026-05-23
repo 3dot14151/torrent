@@ -1,55 +1,3 @@
-###  Публикация: 407323   (362619) от 06.11.2011
-
-Призраки Салема / A Haunting in Salem (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда новый шериф штата Массачусетс Салем обнаруживает, что он является жертвой многовекового проклятья, он встает на защиту своей семьи от мстительных призраков, которые теперь преследуют егоПроизводство: США / Global AsylumЖанр: УжасыРежиссер: Шэйн Ван ДайкАктеры: Кортни Аббьяти, Эшли Баррон,Сонни Кинг, Билл Оберст мл, Джошуа Роман, Дженна Стоун, Кэри Ван Дайк, Джералд УэббПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45185DE980B85C1C4DFC516477A5F9A0B708FC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951001   (362613) от 29.10.2015
-
-Арестуйте меня / Arretez-moi (2013) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Однажды вечером женщина приходит в полицейский участок, чтобы признаться в убийстве своего мужа, совершенном десять лет назад, мужа, который издевался над ней и регулярно избивал ее. Несмотря на то, что следствие тогда пришло к выводу, что смерть была либо случайной, либо наступила в результате самоубийства, вдова покойного заявляет, что это все — дело ее рук.Производство: Франция / Artémis Productions, B MediaExport, Canal+Жанр: Триллер, ДрамаРежиссер: Жан-Поль ЛильенфельдАктеры: Софи Марсо, Миу-Миу, Янн Эбонж, Марк Барбе, Валери Бодсон, Артур Бюиссен, Вадим Гудсмитс, Клодин Пеллетье, Женни Клев, Роже Де МоэрлосПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские, Французские (вшитые отключаемые)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BA12CAA3FA0E2D2C7B5F061AFB1F21AD5CAD10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951379   (362610) от 29.10.2015
 
 Кафе де Флор / Cafe de Flore (2011) HDTV [H.264/1080i]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362610.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362608.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362605.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362599.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362582.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362576.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362568.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362564.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362553.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362502.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362501.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362494.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362485.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362482.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362479.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362477.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362467.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362464.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362457.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362456.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362440.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362438.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362434.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362433.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158CF4327EE758AEB12C8B7A24078D442A8B814C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576714   (362429) от 17.11.2012
+
+Секретарша / Secretary (2002) [H.264] HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362429.jpg" />
+</div>
+
+
+###  Подробнее
+
+В родной городок возвращается привлекательная девушка Ли Холловэй. Она страдает небольшими отклонениями в поведении, однако эти странности не мешают Ли устроиться на работу секретаршей к местному чудаковатому юристу мистеру Грэю.
+Для начала работа казалась вполне обычной: печатать, оформлять документы, приносить кофе и т. д., пока мистер Грей не заметил, что с грамматикой (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Стивен Шейнберг / Steven ShainbergАктеры: Джеймс Спэйдер, Мэгги Джилленхол, Джереми Дэвис, Лесли Энн Уоррен, Стивен МакХэтти, Патрик Бошо, Джессика Так, Оз Перкинс, Эми Локейн, Мэри Джой, Майкл Мэнтелл, Лили Найт, Сабрина Грдевич, Лэйси Кол, Джулин Рени, Лоурен Кон, Эзра Баззингтон, Кайл Колрайдер-Краг, Стивен Фирберг, Рассел Харпер, Дэвид Виатер, Шеннон Конвери, Элисон Татлок, Стивен ШейнбергПеревод: Профессиональный (полное дублирование)Продолжительность: 01:51:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576349   (362427) от 17.11.2012
+
+Том Сойер / Tom Sawyer (2011) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто не знает веселых забияк Тома Сойера и Гекльберри Финна, живущих на берегу реки Миссисипи? Верным друзьям всегда есть чем заняться: будь то игры в пиратов, кража яблок или варенья из чулана, рыбалка, а также подшучивания над взрослыми. Безудержная фантазия приводит Тома и Гека ночью на кладбище, где они становятся свидетелями таинственного преступления, с которого (   Читать дальше...   )Жанр: Приключения, СемейныйРежиссер: Хермине ХунтгебуртАктеры: Луис Хоффман, Леон Зайдель, Хайке Макач, Бенно Фюрманн, Йоахим Круль, Магали Грейф, Петер Ломайер, Хиннерк Шёнеманн, Сильвестр Грот, Томас Шмаузер, Джэймс БатлерПеревод: ДублированныйПродолжительность: 01:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F9D3F6064FA29F9C3C91B47C897879AF6711E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

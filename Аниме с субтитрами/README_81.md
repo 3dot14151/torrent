@@ -6,7 +6,7 @@ Karakai Jouzu no Takagi-san 2 | Озорная Такаги [ТВ-2] [2019, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371749.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? | Влюбишься ли т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tsukumogami Kashimasu | We Rent Tsukumogami | Цукумогами напрок�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370135.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Granbelm | Гранбелм [2019, TV, 13 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369606.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368006.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367865.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fukumenkei Noise | Anonymous Noise | Не скрывая крик [2017, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367662.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Konbini Kareshi | Convenience Store Boy Friends | Парни из магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367658.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! | High School 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367342.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366495.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366418.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366022.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365545.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365540.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365529.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364619.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Dance In The Vampire Bund | Танец на Вампирском берегу [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364127.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Jouran: The Princess of Snow and Blood | Смута. Принцесса снег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364038.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362655.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Toaru Kagaku no Accelerator / Некий научный Акселератор [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362654.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362653.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? II / Danmachi II / Мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362652.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Macross 7 Dynamite / Макросс 7 Динамит [1997,OVA,4] DVDRip Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361845.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Kingyou Chuuihou! / Goldfish Warning! / Осторожно! Золотая ры�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361708.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361463.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes. | Как госп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361032.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Luminar AI 1.5.3 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211904.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ON1 HDR 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211902.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ON1 Effects 2023.5 v.17.5.1.14028 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211881.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movist Pro 2.8.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211856.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Native Instruments Traktor Pro 3 v3.5.3.302 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211845.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ HitPaw Photo Enhancer for Mac 2.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211636.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ HitPaw Photo Object Remover for Mac 1.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211585.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14051 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211407.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Native Instruments Maschine 2 v.2.17.4[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210810.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ X Lossless Decoder XLD 20230627 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210372.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.1.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210277.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Bridge 2022 12.0.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210144.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Steinberg Cubase Pro for Mac 12 v.12.0.70 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209918.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Movavi Video Editor Plus 2022 v.22.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209855.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Steinberg SpectraLayers Pro for Mac 10.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209524.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe Audition 2022 22.6.0 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209442.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Media Encoder 2022 22.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209432.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Movavi Video Suite for Mac 2022 v.22.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209420.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Remote Desktop Manager Enterprise Edition 2022.2.11.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209388.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Movavi Picverse Photo Editor 1.11.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209353.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Movavi Screen Recorder 22 v.22.5.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209179.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Motion 5.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208442.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Compressor 4.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208389.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ IINA 1.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207830.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NetSpot PRO – Wi-Fi Reporte‪r‬ for Mac 2.16.1067  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207449.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Essential Presets Bundle for Luminar Neo Mac 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207440.jpg" />
 </div>
 
 

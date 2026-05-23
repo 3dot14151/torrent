@@ -1,56 +1,3 @@
-###  Публикация: 1089951   (946938) от 06.01.2017
-
-Война против всех / War on Everyone (2016) WEB-DL [H.264/720p-LQ] [EN / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Двое коррумпированных копов-отморозков из Нью-Мексико прессуют всех, кто попадается им под руку… или под колеса авто. Судьба подкидывает им шанс срубить целый миллион долларов, но на смачный куш также претендует эксцентричный английский лорд не без странных пристрастий. В борьбе за заслуженный улов напарники случайно узнают о стрёмных секретах красавчика-лорда и (   Читать дальше...   )Производство: Великобритания, Head Gear Films, Kreo Films FZ, Metrol TechnologyЖанр: КомедияРежиссер: Джон Майкл МакДонаАктеры: Александр Скарсгард, Майкл Пенья, Тесса Томпсон, Тео Джеймс, Стефани Сигман, Малкольм Баррет, Тейт Флетчер, Калеб Лэндри Джонс, Пол Райзер, Кит ДжардинПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Русский (Full, Forced)Продолжительность: 01:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F67EC68147C26604A7FAE113077A5F4F5070EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260484   (946936) от 06.01.2017
-
-Чудо на 34-й улице / Miracle on 34th Street (1994) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Маленькие дети искренне верят в чудеса и всегда с замиранием сердца ждут самого волшебного праздника в году. А шестилетняя Сюзан, у которой нет папы, не верит, что Санта Клаус — настоящий волшебник. Мама давным-давно открыла девочке его «секрет».
-И хотя Сюзан, как и все ребята, составляет свой Рождественский список для Санты, она не рассчитывает получить самые желанные (   Читать дальше...   )Жанр: Семейный, КомедияРежиссер: Лес МэйфилдАктеры: Ричард Эттенборо, Элизабет Перкинс, Дилан МакДермотт, Дж. Т. Уолш, Джеймс Ремар, Мэра Уилсон, Роберт Проски, Джейн Ливз, Уильям Уиндом, Саймон ДжоунсПеревод: Многоголосый закадровый (ОРТ) + Одноголоcый (Дохалов)Субтитры: EnglishПродолжительность: 1:54:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090461   (946930) от 06.01.2017
 
 Шесть дней, семь ночей / Six Days Seven Nights (1998) WEBRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946930.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946928.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946919.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946795.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946788.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946758.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946657.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946653.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946601.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946589.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946584.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946534.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946503.jpg" />
 </div>
 
 
@@ -403,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946502.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946495.jpg" />
 </div>
 
 
@@ -455,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946482.jpg" />
 </div>
 
 
@@ -481,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946481.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946480.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946474.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946463.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946454.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946452.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946449.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946448.jpg" />
 </div>
 
 
@@ -676,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ED702FBA78BD745FCAE24F0FA385E29B4B2D4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362845   (946445) от 25.02.2020
+
+Три секунды / The Informer (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три секунды — время полета пули, выпущенной из снайперской винтовки с расстояния 1 500 метров. Именно столько времени остается, чтобы принять решение информатору Федерального Бюро Расследований, оказавшемуся в смертельной ловушке между мафией, полицией и ФБР. На кону — его семья, свобода, жизнь.Производство: Великобритания / thefyzz, Thunder Road PicturesЖанр: Триллер, криминал, боевикРежиссер: Андреа Ди СтефаноАктеры: Юэль Киннаман, Розамунд Пайк, Клайв Оуэн, Коммон, Ана де Армас, Джоанна Качиньска, Эдвин Де Ла Рента, Сэм Спруэлл, Айлам Ориан, Карма МейерПеревод: Дублированный (iTunes)Субтитры: Русские  (Full Enigma), Английские (Full, SDH)Продолжительность: 01:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66138C15EC20EAA7C4550AC5A902A71C54E69338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362995   (946444) от 25.02.2020
+
+Перевозчик: Наследие / The Transporter Refueled (2015) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Мартин — самый высококвалифицированный перевозчик, которого только можно нанять за деньги. Ставки выше, технологии поднялись на более высокий уровень, но правила те же: никогда не изменять условия сделки, никаких имен и никогда не открывать груз.Производство: Франция, Китай, Бельгия, Монако / EuropaCorp, TF1 Films Production, Fundamental FilmsЖанр: боевик, триллерРежиссер: Камиль ДеламаррАктеры: Эд Скрейн, Рэй Стивенсон, Лоан Шабаноль, Габриэлла Райт, Татьяна Пайкович, Венься Ю, Радивойе Буквич, Ноэми Ленуар, Юрий Колокольников, Ленн КудрявицкиПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCD552BBC8C9B97C616E264283F56B637D89D4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

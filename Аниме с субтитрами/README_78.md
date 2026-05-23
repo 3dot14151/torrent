@@ -6,7 +6,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403868.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ajin OVA | Полулюди OVA [2016, OVA, 3] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403808.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kyoukai Senjou no Horizon II / Horizon in the Middle of Nowhere II / Гориз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402739.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Fate/Kaleid Liner Prisma Illya / Судьба: Девочка-волшебниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402261.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Abashiri Ikka / The Abashiri Family / Семейка Абасири [1991, OAV, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_401895.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401315.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399305.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399213.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Jikan no Shihaisha | Chronos Ruler | Повелитель хроноса [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399166.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399148.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Teekyuu 9 | Теннис - 9 сезон [2017, TV, 12 из 12] WEBRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398387.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398354.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Kyukioku no Sex Adventure Kamasutra / Камасутра [1992, OAV] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398060.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tokyo Vice / Tokyo Project / Токийский проект [1988, OAV] DVDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397203.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Nobunaga Concerto | Концерт Нобунаги [2014, TV, 10] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394783.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Azumanga Daioh / Адзуманга Дайо [2002, TV, 26 эп. + Omake] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394197.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Centaur no Nayami / A Centaur's Life / Тревоги кентавра [2017, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393827.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Jigoku Shoujo: Yoi no Togi | Адская девочка (четвёртый с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393769.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akad
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391726.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Meitantei Holmes / Sherlock Hound / Famous Detective Holmes / Великий д�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391721.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391712.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Gekijouban Sword Art Online: Ordinal Scale | Мастера меча онлай�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391711.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391704.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391699.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Gamers! / Геймеры! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390285.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390233.jpg" />
 </div>
 
 

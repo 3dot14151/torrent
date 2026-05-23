@@ -1,110 +1,3 @@
-###  Публикация: 183069   (898605) от 14.03.2010
-
-Супердискотека 90-х от MTV (2009) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-28 ноября 2009 в СКК снова гудела на легендарном ретромегадэнсе Радио Рекорд – Супердискотэка! На трех гигантских этажах арены мы окунемся в атмосферу юности и детства. Более 20 интерактивных зон дадут возможность поиграть во вкладыши и резиночку, «продуть2 в наперстки, в видеосалоне «позырить» боевики со Шварцем и Брюсом Ли, поставить челку или сделать полубокс (   Читать дальше...   )01.Р.Рябцев - Странные танцы.
-02.Кай Метов - Position №2.
-03.Вирус - Ты меня не ищи.
-04.Руки В Верх - Крошка моя.(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637430   (898470) от 01.04.2013
-
-Les Enfoires - Attention Au Depart (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1F9F941406444605DD20AE4B8EFABA25E4D152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637496   (898347) от 01.04.2013
-
-Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE87D607FFD3B9C412BD033B45B6D34F5CA8CDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637679   (897988) от 01.04.2013
-
-Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SynthpopПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF157448A30B02318E3265AFBFEE0D81FE01D4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 632614   (897849) от 01.04.2013
 
 Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRip
@@ -113,7 +6,7 @@ Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897849.jpg" />
 </div>
 
 
@@ -143,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897260.jpg" />
 </div>
 
 
@@ -169,7 +62,7 @@ Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896861.jpg" />
 </div>
 
 
@@ -195,7 +88,7 @@ Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896789.jpg" />
 </div>
 
 
@@ -221,7 +114,7 @@ Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896755.jpg" />
 </div>
 
 
@@ -248,7 +141,7 @@ Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896555.jpg" />
 </div>
 
 
@@ -277,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896543.jpg" />
 </div>
 
 
@@ -303,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896146.jpg" />
 </div>
 
 
@@ -329,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895581.jpg" />
 </div>
 
 
@@ -355,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895228.jpg" />
 </div>
 
 
@@ -384,7 +277,7 @@ Depeche mode - Devotional. Live In Barcelona (1993) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895168.jpg" />
 </div>
 
 
@@ -413,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895124.jpg" />
 </div>
 
 
@@ -442,7 +335,7 @@ Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894922.jpg" />
 </div>
 
 
@@ -468,7 +361,7 @@ Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894075.jpg" />
 </div>
 
 
@@ -494,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893489.jpg" />
 </div>
 
 
@@ -521,7 +414,7 @@ Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893417.jpg" />
 </div>
 
 
@@ -548,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893328.jpg" />
 </div>
 
 
@@ -577,7 +470,7 @@ VA - Весенний марафон № 226: Хиты до Утра (2016) WEBR
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893177.jpg" />
 </div>
 
 
@@ -606,7 +499,7 @@ Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892181.jpg" />
 </div>
 
 
@@ -635,7 +528,7 @@ Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892066.jpg" />
 </div>
 
 
@@ -667,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891997.jpg" />
 </div>
 
 
@@ -693,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891528.jpg" />
 </div>
 
 
@@ -707,6 +600,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D8B79DC1A88EA8F8F4F43A7FC76A3005556907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371285   (890090) от 31.03.2020
+
+Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vermicide Violence - Coronaviscerated (feat. Jared Dines) (Chodezilla Records) COVID-19 2020
+CDA Vermicide Violence - The Praxis of ProphylaxisПроизводство: Chodezilla RecordsЖанр: Death CoreПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A71A28FAE2320E8A8251047F4126F2F5AF317D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371231   (889948) от 31.03.2020
+
+Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) (2020) WEBRip [H.264/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889948.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) [2160p]Жанр: Альтернативный РокПродолжительность: 00:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786DBAB82AE68873EDA60CF87772AF2BC50C5A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370708   (889900) от 31.03.2020
+
+Пневмослон - Катастрофический пипец (COVID-19) (2020) WEBRip [H.264/1080p-LQ] <Post-Punk>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоклип Пневмослон - Катастрофический пипец (COVID-19)
+CDA Пневмослон (2019) КонтрэволюцияЖанр: Post-PunkПродолжительность: 00:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125DD1A42F5CEA1B78DC4A4F872E9AEDA3658A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994076   (889533) от 08.03.2016
+
+Сольный концерт певицы Слава: Откровенно (2016.03.06) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889533.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 марта на телеканале СТС смотрите телевизионную версию сольного концерта певицы Славы «Откровенно» в Государственном Кремлевском Дворце!Телекомпания: СТСЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2219F9D1C60ECF0C8DC5AFE81ACA93596260CD6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

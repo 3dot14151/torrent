@@ -1,56 +1,3 @@
-###  Публикация: 1810459   (9381) от 04.08.2025
-
-Разрушитель / Demolition Man (1993) UHD BDRip [H.265/1080p] [10-bit] [Taco Bell Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В 2032 году в крио-тюрьме после 35-летней заморозки пробуждается один из самых опасных преступников Саймон Феникс и решает взять приступом спокойный, свободный от всякого насилия Сан-Анджелес.
-Неспособные справиться с жестокими повадками 1990-х годов, свойственными Фениксу, официальные власти ищут полицейского тех лет, который смог бы одержать верх над преступником (   Читать дальше...   )Производство: США / Silver Pictures, Warner Bros. PicturesЖанр: фантастика, боевик, триллерРежиссер: Марко БрамбиллаАктеры: Сильвестр Сталлоне, Уэсли Снайпс, Сандра Буллок, Найджел Хоторн, Бенджамин Брэтт, Боб Гантон, Гленн Шэдикс, Дэнис Лири, Гранд Л. Буш, Пэт СкипперПеревод: дублированный официальный (Мост-Видео, «Ленфильм»), профессиональный многоголосый (РТР, ОРТ), профессиональный двухголосый (GoodTime Media, TV1000, SDI Media, LNT, НТВ+), авторский (Андрей Гаврилов, Михаил Чадов, Леонид Володарский, Андрей Дольский)Язык озвучки: русский, английскийСубтитры: русские (full, forced), украинские, английские (full, SDH)Продолжительность: 01:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45232F27A6B49822D91EA505D62373D0ECB25348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810440   (9365) от 04.08.2025
-
-Обычный человек / A Common Man (2013) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Справедливость общества, которая должна быть справедливостью и для отдельных людей, часто не является таковой. И тогда любой обычный человек в борьбе за свою справедливость может быть вынужден стать террористом, поставить себя вне закона. Этот фильм об одном из таких частных примеров, когда человек, издевательски хорошо знающий систему, оригинальным способом решил (   Читать дальше...   )Производство: США, Шри-Ланка / Asia Digital Entertainment, Asia Digital Entertainment, Gemini IndustriesЖанр: драма, криминал, детектив, триллерРежиссер: Чандрам РутнамАктеры: Бен Кингсли, Бен Кросс, Нумая Сиривардена, Патрик Рутнам, Джеймс Кох, Джером Де Силва, Душиянтх Вираман, Мохамед Адамали, Киан О’Грэйди, Сьюзэн ЗаринаПеревод: профессиональный многоголосый (студия Кириллица), профессиональный двухголосый (HTB+), любительский одноголосый (den904)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416333C00522A7D50F28310DC9D4F199980BFA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810465   (9343) от 04.08.2025
 
 Бывшие мужья / Men of Divorce / Ex-Husbands (2023) WEB-DL [H.264/1080p] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9343.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9322.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9307.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9280.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9150.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9142.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9134.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8922.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8913.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8850.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8842.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8841.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8827.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8824.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8681.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8641.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8600.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8597.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8564.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8562.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8555.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8554.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8296.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8289.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C08ED34AC6F8D447082EB755B5781A398ABFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667101   (8183) от 13.08.2025
+
+Неспящие в Сиэттле / Sleepless in Seattle (1993) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды ночью в эфир радиостанции дозвонился мальчик, который искал маму для себя и жену для папы. На зов ребенка откликается множество женщин, в том числе и Эни, которая живет на другом конце материка, но после передачи начинает переписку с Джоном, отцом ребенка. Для того, чтобы встретиться, этим двоим придется преодолеть непростые преграды, но любовь все равно (   Читать дальше...   )Производство: СШАЖанр: Драма, Мелодрама, КомедияРежиссер: Нора ЭфронАктеры: Том Хэнкс, Мег Райан, Билл Пуллман, Росс Мэлинджер, Рози О`Доннелл, Гэби Хоффманн, Виктор Гарбер, Рита Уилсон, Барбара Гэррик, Кэри Лоуэлл, Дэвид Хайд ПирсПеревод: дублированный, профессиональный многоголосый (???), Авторский (Михалёв)Субтитры: русские, английскиеПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3480F3D13D27752F77CE094E5FAB0C1BF963C7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450343   (8164) от 13.08.2025
+
+Большая игра / Molly's Game (2017) BDRip [H.264/1080p] [CAN Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молли Блум называли Принцессой покера. Она построила самое дорогое подпольное казино в Голливуде. Каждую минуту здесь шли ва-банк кинозвезды, шейхи, миллиардеры. Большие деньги пахнут кровью. Как выжить, когда за тобой охотится мафия и ФБР?Производство: США, Канада, Китай / STX Entertainment, Huayi Brothers Pictures, The Mark Gordon CompanyЖанр: Драма, криминал, биографияРежиссер: Аарон СоркинАктеры: Джессика Честейн, Идрис Эльба, Кевин Костнер, Майкл Сера, Джереми Стронг, Крис О’Дауд, Дж.С. МакКензи, Брайан Д’Арси Джеймс, Билл Кэмп, Грэм ГринПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 02:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937232C3B616F515D0619A0789DC95E4AAAA0EB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ FreeFileSync 10.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480038.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 30.07.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479967.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 11 Pro x64 3in1 21H2.22000.795 July 2022 by Generation2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479958.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CyberLink PowerDVD Ultra 12.0.1905c.56 RePack by qazwsxe [Английский /
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479907.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Acronis True Image Home 2013 16 Build 5551 + PlusPack RePack by KpoJIuK [Анг�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479893.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ CyberLink PowerDVD Ultra 12.0.1905c.56 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479892.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ SlimBrowser 7.00 Build 126 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479886.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Anvir Task Manager 9.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479833.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Athentech Perfectly Clear + Essentials v3.5.8.1250 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479826.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ JetBrains ReSharper Ultimate 2018.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479820.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Q-Dir 7.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479818.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wise Care 365 Pro 3.86.345 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479782.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Google Earth Pro 7.3.0.3832 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479754.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Google Earth Pro 7.3.0.3832 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479742.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ NIUBI Partition Editor 7.2.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479723.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ NextLimit RealFlow 2.6.4.0092 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479712.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Process Lasso Pro 8.8.8.0 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479687.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ EximiousSoft Logo Designer 3.79 RePack (& portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479675.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Acronis True Image 2018 Build 9202 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479639.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Reg Organizer 8.20 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479594.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ StartIsBack++ 1.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479566.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ AVG AntiVirus 2016 16.0.7134 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479553.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ MKVToolNix 8.4.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479445.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Avira System Speedup 1.6.12.1445 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479442.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ StartIsBack++ 1.1.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479372.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Any Video Converter Ultimate 5.8.4 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479365.jpg" />
 </div>
 
 

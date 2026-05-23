@@ -1,29 +1,3 @@
-###  Публикация: 1661102   (188720) от 14.09.2023
-
-Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Seven Nights Ghost - интригующая и захватывающая игра-исследование, в которой вы оказываетесь на месте главного героя, прикомандированного к жилью компании с привидениями. Отправляясь в это леденящее душу приключение, вы окажетесь в одной комнате с группой озорных призраков, каждый из которых обладает своими особенностями и характером. Эти призраки не причинят вам (   Читать дальше...   )Тип издания: SceneРазработчик: TozukuGamesЖанр: Инди, ХоррорЯзык субтитров: Английский, Японский, Китайский (традиционный)Язык интерфейса: Английский, Японский, Китайский (традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF165B4CFF3DFE632387FC76F4F73E65736C9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661223   (188683) от 14.09.2023
 
 The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
@@ -32,7 +6,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188683.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Zniw Adventure (2020) [Multi] (1.3.4W) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188678.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188660.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188410.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188363.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Shore (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188350.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188328.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188144.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188138.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187983.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187842.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187836.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187654.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187337.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Heart of the Woods (2019) [Multi] (2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185849.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185634.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185043.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184832.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184233.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183850.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183333.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182868.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182713.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182043.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Dark Pictures Anthology: Little Hope (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181746.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Little Hope – вторая игра в антологии The Dark Pictures. �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:028A40B4236C929747CEF111B907CA0B9512FAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665775   (181211) от 01.10.2023
+
+realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181211.jpg" />
+</div>
+
+
+###  Подробнее
+
+realMyst: Masterpiece Edition – это красивая обновлённая версия realMyst для современных компьютеров, приуроченная к 20-летней годовщине Myst. Миры переработаны и улучшены, что обеспечило реалистичное отображение воды, смену погоды, динамическое освещение, шевеление листвы, свечение вместе с другими эффектами камеры и многое другое. Мы даже переработали интерфейс, (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Adventure, Puzzle, MysteryЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

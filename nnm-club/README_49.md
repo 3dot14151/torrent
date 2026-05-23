@@ -1,110 +1,3 @@
-###  Публикация: 1870770   (1068912) от 
-
-Minimal Firewall 2.8.0 Portable [En]
-
->>Безопасность
->>Firewalls
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6EFAF51AD5DEA11FD84F96B6EDE97DB8C2EBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870771   (1068911) от 
-
-Почти смешная история (1977) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-История любви двух уже немолодых людей. Две сестры приезжают в маленький город на Волге отдохнуть. Одной - около пятидесяти, другая чуть моложе. Они знакомятся с самым обычным командировочным, который совершенно не понимает, что младшая из сестер, немного чудаковатая, влюбилась в него с первого взгляда.Производство: CCCP / Т.О. ЭкранЖанр: комедия, мелодрамаРежиссер: Петр ФоменкоАктеры: Ольга Антонова, Людмила Аринина, Михаил Глузский, Михаил Данилов, Мария Великанова, Владимир Пучков, Светлана Харитонова, Валентин Гафт, Людмила Полякова, Мария МироноваПродолжительность: 02:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E64E759D5D4AF7A93623BDA81C42DFAD350889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870444   (1068910) от 
-
-YouTube канал "NoMadU55555" - Музыкальные клипы (1936-2009) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции YouTube канала "NoMadU55555" / UCWO9OCjghM_d8Q5MDKNK7oQ по состоянию на сентябрь 2020 года.
-
-Канал "NoMadU55555" был открыт в 2011 году, удалён 11 октября 2021 года.
-За 10 лет было опубликовано более 380 музыкальных видеоклипов, большую часть из которых удалось сохранить для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 21:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF7C52275029D3AFB96C832A4A21C6B567C6F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870765   (1068908) от 
-
-Бой со зверем / Beast (2026) WEB-DL [H.264/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После долгих лет вдали от октагона бывший чемпион MMA Пэттон Джеймс вынужден вернуться в большой спорт, чтобы отомстить за брата Мэлона. Воссоединившись с тренером Сэмми, который когда-то сделал его легендой, он решается на последний бой — жестокую схватку с действующим чемпионом Ксавьером Грау, готовым на глазах у всего мира уничтожить Стоуна. Доведённый до предела, (   Читать дальше...   )Производство: США / Broken Open Pictures, Storm Alley EntertainmentЖанр: боевик, драма, спортРежиссер: Тайлер ЭткинсАктеры: Дэниэл Макферсон, Рассел Кроу, Брен Фостер, Моджиан Ариа, Люк Хемсворт, Келли Гейл, Джордж Бёрджесс, Сафира Моран, Мэтью Нэйбл, Нэйтан ФиллипсПеревод: Дублированный (Ultradox Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (AI), Английские (SDH)Продолжительность: 01:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB10DCFEE2ADD550D0A1548A04BAEFF68FE391D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870744   (1068907) от 
 
 Outbound (2026) [Ru/Multi] (1.0.5.810/dlc) Repack Let'sРlay [Deluxe Edition]
@@ -113,7 +6,7 @@ Outbound (2026) [Ru/Multi] (1.0.5.810/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068907.jpg" />
 </div>
 
 
@@ -139,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068906.jpg" />
 </div>
 
 
@@ -165,7 +58,7 @@ Meltopia (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068905.jpg" />
 </div>
 
 
@@ -191,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068904.jpg" />
 </div>
 
 
@@ -217,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068903.jpg" />
 </div>
 
 
@@ -243,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068902.jpg" />
 </div>
 
 
@@ -269,7 +162,7 @@ Duriano (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068901.jpg" />
 </div>
 
 
@@ -295,7 +188,7 @@ Windows 11 26H1 24in1 (incl. LTSC 24H2) +/- Office 2024 by SmokieBlahBlah 2026.0
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068900.jpg" />
 </div>
 
 
@@ -322,7 +215,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack FitGirl [Limite
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068899.jpg" />
 </div>
 
 
@@ -348,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068898.jpg" />
 </div>
 
 
@@ -374,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068897.jpg" />
 </div>
 
 
@@ -400,7 +293,7 @@ Dead Rising 4 (2017) [Ru/En] (1.0 upd4/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068896.jpg" />
 </div>
 
 
@@ -426,7 +319,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6 upd6/dlc) Repack FitGirl [Apocalypse Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068895.jpg" />
 </div>
 
 
@@ -452,7 +345,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068894.jpg" />
 </div>
 
 
@@ -478,7 +371,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068893.jpg" />
 </div>
 
 
@@ -504,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068892.jpg" />
 </div>
 
 
@@ -530,7 +423,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.32 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068891.jpg" />
 </div>
 
 
@@ -556,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068890.jpg" />
 </div>
 
 
@@ -582,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068889.jpg" />
 </div>
 
 
@@ -608,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068888.jpg" />
 </div>
 
 
@@ -634,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068887.jpg" />
 </div>
 
 
@@ -660,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068886.jpg" />
 </div>
 
 
@@ -671,6 +564,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AECDA68CB6FCF81133252FF1CA5B6062B1DFE1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870779   (1068885) от 
+
+А.П. Крещанов | Старокостянтинівський укріплений район 1938-1941 (2024) [PDF] [UKR]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное издание серии «История фортификации» рассказывает об истории строительства Староконстантиновского укрепленного района, который являлся частью советской фортификационной системы «Линии Сталина», которая строилась вдоль советской границы в период 1938–1940 годов. На основе собранных автором материалов и документов дано полное описание этой оборонной системы (   Читать дальше...   )Жанр: ИсторияЯзык: УкраинскийИздательство: КиївФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56773CF84ABE158E051AAC8E4E01E35E730579E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870785   (1068884) от 
+
+М. Рейнер | Десять лекций по теоретической реологии (1947) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга М. Рейнера «Десять лекций по теоретической реологии» стала первым учебником по реологии - науке о деформациях и текучести вещества.Жанр: ФизикаИздательство: ГостехиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF23DDBF6A2919A31A11E16DF1844B0B9FDEB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870688   (1068883) от 
+
+Алекс Бредвик | Проект "Погружение" (Книга 5). Поход (2024) [MP3, Олег Кейнз, Алиса Тверская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068883.jpg" />
+</div>
+
+
+###  Подробнее
+
+У нас есть четверо суток. Четверо суток, чтобы найти город на юге. Четверо суток, чтобы пробить туда коридор. Четверо суток, чтобы помочь будущим союзникам, если будет необходимо. На кону стоят жизни не только моего отряда. Всего города. А возможно и всех разумных в этом мире. Демоны на востоке не спят, развиваются и постоянно пытаются нас уничтожить. И одни мы с (   Читать дальше...   )Жанр: фэнтези, боевик, ЛитРПГ, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55299F7A6CA40231079EBAEF82897D8A0086A349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870690   (1068882) от 
+
+Алекс Бредвик | Проект "Погружение" (Книга 6). Отряд (2025) [MP3, Олег Кейнз, Алиса Тверская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миссия выполнена. Город спасен. Мертвецы больше не будут беспокоить город наших союзников, а Пустота больше не будет пытаться захватить разум жителей этого поселения. Но какой ценой? Мертвым уже все равно на это…Но мы не имеем права сдаваться! Впереди еще множество трудностей! Угроза демонов ощущается все сильнее, а Пустота будет преследовать меня везде. Я обязан (   Читать дальше...   )Жанр: фэнтези, боевик, ЛитРПГ, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8E427532A0DF06F17C6CB1127ECCA70D250A37
 ```
 
 https://mybot314.ru/tekegram_catalog/

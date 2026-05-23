@@ -6,7 +6,7 @@ AnyDesk 5.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264190.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Softany WinCHM Pro 5.19 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264132.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 3.0.35 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264131.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264124.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Waterfox 56.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264114.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Display Driver Uninstaller 17.0.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264105.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TurbulenceFD v1.0 build 1425 Repack by soyv4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264103.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ R-Studio 8.5 Build 170097 Network Edition RePack (& portable) by KpoJIuK  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264099.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TreeSize Free 4.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264095.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wondershare Video Converter Ultimate 10.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264090.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AMD Radeon Software Adrenalin Edition 17.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264074.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AutoRuns 13.81 Portable  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264072.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SamDrivers 17.13 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264060.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Bridge CC 2018 v8.0.1.282 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264057.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Adobe Animate CC and Mobile Device Packaging CC 2018 18.0.1.115  RePack by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264047.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Maxon CINEMA 4D Studio R19.024 Portable by soyv4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264033.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Allavsoft Video Downloader Converter 3.21.0.7265 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263996.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Loaris Trojan Remover 3.1.2.240 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263967.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Paint.NET 4.2.6 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263959.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Microsoft Visual Studio 2019 Professional 16.3.8 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263951.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Athentech Perfectly Clear WorkBench 3.9.0.1699 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263947.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Visual Studio 2019 Community 16.3.8 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263931.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Visual Studio 2019 Enterprise 16.3.8 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263910.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Auslogics BoostSpeed 11.2.0.3 RePack (& Portable) by elchupacabra [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263904.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BELOFF [dp] 2019.11.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263871.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Kaspersky Rescue Disk 2018 18.0.11.3(c) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263841.jpg" />
 </div>
 
 

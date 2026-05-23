@@ -1,81 +1,3 @@
-###  Публикация: 1733123   (107349) от 28.06.2024
-
-Тай-гун | Шесть секретных учений (2019) [MP3, Владимир Пы]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Шесть секретных учений» – один из семи классических китайских военных трактатов. Автором наставлений, содержащихся в данном трактате, считается китайский стратег периода Чжоу Тай-гун, который жил в XI веке до нашей эры. Текст построен в виде наставлений, адресованных правителю царства Чжоу Вэню, целью которого является свержение династии Шан.Жанр: Военная история, ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 03:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DA951C65D5FF96A9FFC717320424E005705170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733221   (107348) от 28.06.2024
-
-Алексей Александров | Первый рыцарь (Книга 1) (2024) [MP3, Георгий Федоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Война проиграна. Империя мертва. Техно-колдовство людей сошлось в схватке с Высшей магией альвов и потерпело сокрушительное поражение. Армии империи разбиты, города лежат в руинах, а остатки выживших бегут с материка. Прикрывая эвакуацию выживших, последнее копье паро-магических големов - рыцарей принимает неравный бой, ведомое Первым и последним рыцарем империи... (   Читать дальше...   )Жанр: Городское фэнтези, стимпанкИздательство: ЛитРесПродолжительность: 10:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB1B4D4B9EF754DE20EFBF97FE67C1E9484E94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733236   (107339) от 28.06.2024
-
-Вова Бо | Мастер Снов (Книга 1). Инсомния (2024) [MP3, Вадим Пугачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Разговаривать с незнакомцами в баре опасно: никогда не знаешь, на кого нарвёшься. Главного героя позвали в мир сновидений, а он возьми и согласись. Ну кто же мог подумать, что всё это не хмельные разговоры, а вполне серьёзное предложение?! Теперь он в Магической академии, где ему предстоит с командой совсем неперспективных студентов пройти испытание. У каждого из (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: 1С-ПаблишингПродолжительность: 14:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8672B80E988E9940A63C5DB22A12312F062E026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733253   (107326) от 28.06.2024
 
 Уильям Шекспир | Сонеты (1979) [MP3, Иннокентий Смоктуновский]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107326.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107321.jpg" />
 </div>
 
 
@@ -140,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107295.jpg" />
 </div>
 
 
@@ -167,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107275.jpg" />
 </div>
 
 
@@ -195,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107250.jpg" />
 </div>
 
 
@@ -222,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107145.jpg" />
 </div>
 
 
@@ -248,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107136.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107122.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107022.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106940.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106919.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106912.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106875.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106864.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106862.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106854.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106850.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106839.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106838.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106834.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106833.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106779.jpg" />
 </div>
 
 
@@ -671,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106777.jpg" />
 </div>
 
 
@@ -683,6 +605,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA632A05608A2BED7CC824B29EF3CD695B7BAD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736172   (106751) от 11.07.2024
+
+Чингиз Абдуллаев | Дронго (Книга 66). Кубинское каприччио (2024) [MP3, Маркиза]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед смертью ювелир написал завещание, в котором упомянул о знаменитом алмазе «Аббас-шах». Но когда наследники открыли его личный сейф, алмаза там не оказалось. Не долго думая, они обратились за помощью к сыщику Дронго, который, как всем известно, способен распутать самое загадочное дело. Сыщик сразу же установил круг подозреваемых и начал отсеивать тех, кто имел (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 07:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF846F86D1A82177B444C911EC5384D45C61016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736670   (106665) от 13.07.2024
+
+Тереза Тур | Роннская Академия Магии (Книга 1). Кафедра демонологии (2022) [MP3, Леди Арфа]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир. Мир с Демонами. Мир?! Мир с…Демонами?! Для Роннской Академии Магии мир с демонами означал обмен студентами, закрытие кафедры демоноборцев, открытие кафедры демонологии, а так же гнев самого Алана Ярборро по этому поводу на всех и вся. Но это еще не все… Джен Ярборро, единственная дочь главы гильдии демоноборцев, принцесса и…очень своенравная особа с двумя кинжалами (   Читать дальше...   )Жанр: любовное фэнтези, магические академииИздательство: ИДДКПродолжительность: 12:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7347236C9D60097E939672AAAE3BF61BAB72D1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736650   (106662) от 13.07.2024
+
+Энн Пэтчетт | Голландский дом (2021) [MP3, Станислав Концевич]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый роман американской писательницы Энн Пэтчетт напоминает сказку братьев Гримм, разросшуюся до масштабов семейного эпоса. История главных героев, Дэнни Конроя и его сестры Мэйв, охватывает всю вторую половину ХХ века, а их судьбы оказываются роковым образом переплетены с Голландским домом — особняком на востоке Пенсильвании, когда-то принадлежавшим разорившейся (   Читать дальше...   )Жанр: психологическая проза, современная зарубежная литератураПеревод: Сергей КумышИздательство: СиндбадПродолжительность: 11:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C891D261357AC099CD9F004D038CAD5834D1C089
 ```
 
 https://mybot314.ru/tekegram_catalog/

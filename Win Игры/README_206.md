@@ -1,29 +1,3 @@
-###  Публикация: 918737   (585944) от 16.07.2015
-
-Shadow Wolf Mysteries 5: Tracks of Terror (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр Shadow Wolf Mysteries. Вас ждет расследование во французском городке Gevaudan, где, в последнее время, происходят загадочные и страшные дела: полчища оборотней осаждают улицы и нападают на жителей городка. Из письма графа Де Люпе Вы узнаете, что всё происходящее связано с проклятьем их семьи, которое гласит, что что когда член (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: ERS Game StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBBB45F31A00E7C2FF2AF27AE7B995092021296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086288   (585915) от 10.05.2019
 
 Aragami (2016) [Ru/Multi] (01.09) License GOG [Collector`s Edition]
@@ -32,7 +6,7 @@ Aragami (2016) [Ru/Multi] (01.09) License GOG [Collector`s Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585915.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pinball Yeah (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585904.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Natural Threat 2 / Город оживших лиан (2013) [Ru] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585805.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Goose Gogs (P) [Ru] 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585765.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ AR-K: The Great Escape (2015) [En/Sp] License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585592.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585519.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Colin McRae Rally Remastered (2014) [Multi] (1.0) Repack xGhost
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585170.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585120.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585091.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585027.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Grim Tales 16: The Nomad / Страшные сказки 16: Четыре спо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584960.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catal
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584910.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Fear for Sale: Nightmare Cinema / Страх на продажу. Пленник
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584718.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save t
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584505.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583936.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583887.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Five Dates (2020) [Ru/Multi] (public 10) Repack 3v01ut10n
 >>Песочница Win Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583690.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583688.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Phantasmat 4: The Dread of Oakville / Фантазмат 4: Ужас Оукви�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583679.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Apartment 666 (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583123.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Inked (2018) [Ru/Multi] (20180528-1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583027.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Puyo Puyo Champions (2019) [Multi] (1.0) License CODEX
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582984.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Thea 2: The Shattering (2019) [En] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582890.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582748.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582507.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E309404831CF928C005309D00C2B8696DE67A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041583   (582164) от 09.08.2016
+
+Dead Space (2008) [Ru] (1.0.0.222) Portable PortGamPС
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Space - по-настоящему жуткая штука. Она не терзает уродцами, стоящими за дверью. Не раздражает бесконечными толпами «мяса». Не топит в литрах кетчупа. Нас осторожно теребят за нервы, ясно давая понять - безопасных мест нет. Куда бы ни ступил инженер Айзек Кларк, его ждут одиночество и неизвестность, пронизанные холодным шепотом и биением сердца. Зачем стращать (   Читать дальше...   )Тип издания: PortableРазработчик: EA Redwood ShoresЖанр: Action (Shooter, Survival horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B617CA63A9E3B33183DB59797D3FCE1A9E40022F
 ```
 
 https://mybot314.ru/tekegram_catalog/

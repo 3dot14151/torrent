@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224299.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Lasso Pro 6.0.2.2 [Rus|Eng] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224296.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CherryPlayer 3.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224295.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Skype 8.36.0.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224294.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mozilla Thunderbird 78.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224289.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ New year wallpapers 2013 (09.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224287.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ RAM Saver Professional 22.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224267.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Easy Data Transform 1.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224259.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224257.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wondershare Filmora Х v10.1.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224237.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Viper FTP 5.4 (build 54066) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224219.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Marked 2 v2.5.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224211.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Eatbrain Pres. Mirror Universe 2 (2015) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224205.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Find Any File (FAF) 2.3.2 b11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224201.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224197.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224192.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ SiSoftware Sandra Lite 20/21 R17 (версия 31.109) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224190.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ SiteSucker 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224188.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ SE - TEPHRA (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224187.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Inboard 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224180.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ iBoostUp Premium 9.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224172.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ AutoRuns 13.93 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224171.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ BurnAware Professional / Premium 13.9 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224167.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ R-Studio Technician 9.1 Build 191060 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224145.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ John’s Background Switcher 4.10.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224142.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ New year wallpapers 2013 (07.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224139.jpg" />
 </div>
 
 

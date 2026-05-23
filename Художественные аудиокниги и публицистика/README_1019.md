@@ -1,83 +1,3 @@
-###  Публикация: 1735353   (50784) от 07.07.2024
-
-Дэниел Мейсон | Настройщик (2023) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая современная Одиссея — интеллектуальный триллер Дэниела Мейсона «Настройщик», книга года по версиям New York Times, San Francisco Chronicle, San Jose Mercury News и Los Angeles Times.
-
-Одним туманным лондонским днём 1886 года настройщик пианино Эдгар Дрейк получает необычное задание от Министерства обороны Великобритании: он должен оставить свою жену (   Читать дальше...   )Жанр: захватывающие приключения, остросюжетные романы, современная зарубежная литератураПеревод: Мария КульневаИздательство: ВимбоПродолжительность: 14:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCD1F04D2802DA06F17435C6835EECCAB78BC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735361   (50766) от 07.07.2024
-
-Дина Рубина | Больно только когда смеюсь (2023) [MP3, Дина Рубина]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Больно только когда смеюсь» —  не только россыпь «анекдотов», в том значении этого слова, которое придавал ему А. С. Пушкин: история, случай, конфуз, странная или драматическая ситуация. Это и живой стремительный разговор с самыми разными людьми на самые разные темы. Во всегда эмоциональной беседе Дина Рубина не признает границ; реплики, истории, персонажи ее жизни (   Читать дальше...   )Жанр: современная русская литератураИздательство: ВимбоПродолжительность: 10:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8D00CABF6D3C5DC68A37D76BE8821CC46CE1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735547   (50691) от 08.07.2024
-
-Дмитрий Найдёнов | Ушедшие (Книга 5). Криминальный клан (2024) [MP3, Андрей Гребенщиков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Чудес не бывает, но если их искать, то и перчатка латная может оказаться билетом в далеко не счастливое будущее, где есть чокнутые профессора, роботы-убийцы размером с микроб и крохотный шанс на жизнь и на любовь в мире космических Империй и далёких звёзд.Продолжение серии про Наследие древних. Время после создания Содружества и до падения Человечества.Жанр: Героическая фантастика, Космическая фантастика, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 07:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43765A6DD62E26C3C7E8D9F35BE01A35C99CE561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735520   (50667) от 08.07.2024
 
 Владимир Поселягин | Магик (Книга 1) (2024) [MP3, Владислав Горбылев]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50667.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50666.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50565.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50553.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50541.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50536.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50533.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50487.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50468.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50437.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50393.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50276.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50273.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50265.jpg" />
 </div>
 
 
@@ -457,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50259.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50243.jpg" />
 </div>
 
 
@@ -511,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50124.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50033.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50005.jpg" />
 </div>
 
 
@@ -589,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49854.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49845.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49832.jpg" />
 </div>
 
 
@@ -668,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49826.jpg" />
 </div>
 
 
@@ -679,6 +599,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B74D475F8983745FEF3B71E4BAE7E574BA5A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443284   (49762) от 17.07.2024
+
+Артур Конан Дойль | Собака Баскервилей (Радиоспектакль) (2008) [MP3, Ростислав Плятт и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Артур Конан Дойль (1859–1930) – знаменитый английский писатель, один из основателей детективного жанра, автор всеми любимых произведений о высокоинтеллектуальном и ироничном аристократе Шерлоке Холмсе и его друге докторе Ватсоне, блестяще раскрывающих любые самые запутанные преступления.
+«Собака Баскервилей» – самый знаменитый (   Читать дальше...   )Жанр: Зарубежная литература, классика, детективВ ролях: Ростислав Плятт, Евгений Велихов, Всеволод Ларионов и др.Продолжительность: 01:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B081224A181144B6A09A1CC00A30E2D5CE911B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735761   (49758) от 17.07.2024
+
+Максим Петров | Модификант (Книга 3). Антимаг его величества. Том III (2024) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не успел я толком избавиться от турнира, как пришла другая напасть. Шведы сначала похитили принцессу, а после решили развязать войну. И вот теперь я попал в лагерь прославленного полководца, где и начинается мой путь в имперской армии. И что-то мне подсказывает, меня ждет незабываемое времяпрепровождение.Жанр: Бояръ-Аниме, Боевое фэнтези, ПопаданцыИздательство: Author TodayПродолжительность: 08:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAF60353EBAE3EFE4B6264F42A9CBFC140F1189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461884   (49748) от 17.07.2024
+
+Артур Конан Дойль | Жёлтое лицо (2009) [MP3, Пётр Василевский]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Записки Шерлока Холмса.
+Артур Конан Дойль (1859–1930) – всемирно известный английский писатель, один из создателей детективного жанра, автор знаменитых повестей и рассказов о Шерлоке Холмсе.
+Холмс – многогранная личность. Одновременно талантливый скрипач, хороший боксер, искусный актёр, химик, он посвятил свою жизнь карьере частного детектива. С его именем (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, рассказИздательство: Стольный градъПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D821EB51AD5F9327A32C804CE55450362E40755
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1118661   (810738) от 26.03.2017
-
-Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Две группы из 9 невольных участников похищены и вынуждены принять участие в дьявольской игре Nonary Game. Одна группа находится на тонущем корабле, и у нее есть 9 часов для спасения, другая заперта в здании и вынуждена либо доверять, либо предавать друг друга. Если они нарушат правила или не успеют выбраться… они погибнут. Почему они были избраны для этой игры? Кто (   Читать дальше...   )Тип издания: LicenseРазработчик: Spike ChunsoftЖанр: Adventure, ViolentЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7640B45775C3C37F52C4AD67586526CAF66CCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498056   (809496) от 24.10.2021
 
 The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
@@ -32,7 +6,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809496.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mutazione (2019) [Ru/Multi] (1.84) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807813.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Corpse Party (2021) (2021) [Multi] (2021-10-20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807679.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ DYING: Reborn (2018) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807633.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (1.8/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807414.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bottle (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807187.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Lost Souls (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805240.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Has-Been Heroes (2017) [Multi] (1.00.9762) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804893.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ TheNightfall (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804223.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ TheNightfall (2018) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803990.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ The Talos Principle (2014) [Ru/Multi] (326589/dlc) Repack R.G. Механики 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803975.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ The Wolf Among Us (2013-2014) [Multi] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802378.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Life Is Strange Dilogy (2015-2017) [Ru/Multi] (1.0.0.397609/1.2.0.7.1712051016) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802370.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Dagon: by H. P. Lovecraft (2021) [Ru/Multi] (2021.10.23:028) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802304.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Observer: System Redux (2020) [Ru/Multi] (r24065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802192.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Return to Mysterious Island / Возвращение на таинственны
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801418.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Gomo (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801002.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Live Or Die (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800821.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ DYING: Reborn (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800818.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Observation (2019) [Ru/Multi] (1.16) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800780.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Indicted (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800772.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Horror Story: Hallowseed (2021) [Ru/Multi] (1.0.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800721.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Observation (2019) [Ru/Multi] (1.16) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800691.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Dreamfall Chapters (2014) [Multi] (5.4.1.1) License PROPHET [Complete]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800160.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800021.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7381E28F7B85B69A36C4AF71025B709A52D5299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506440   (799871) от 31.10.2021
+
+Grotto (2021) [En] (1.1.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grotto - это игра с таинственной атмосферой и фокусом на сюжете. Вы Прорицатель. Вы способны читать по звёздам и расшифровывать их послания. Настали неспокойные времена. Племя долины обращается к Вашим силам предсказывать будущее и просит совета. Судьба племени зависит от Ваших пророчеств. Поразмыслите над каждым созвездием или позвольте звёздам войти в Ваше сознание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Brainwash GangЖанр: Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF17FEAC78E500F35FCA5A78A019DCE82D01AB98
 ```
 
 https://mybot314.ru/tekegram_catalog/

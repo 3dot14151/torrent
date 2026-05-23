@@ -1,56 +1,3 @@
-###  Публикация: 1292645   (644568) от 30.03.2019
-
-Чистилище / Purgatory (1999) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Между небом и землей, посреди пустыни на Диком Западе находится маленький городок Тихая Гавань. Шериф здесь не носит оружия. Здесь нет тюрьмы. Здесь живут тихие мирные люди. Но присмотритесь к ним поближе, и вы сможете опознать многих из его жителей.
-Дикий Билл Хикок, Док Холидэй, Джесси Джеймс, Билли-Кид. Всех их давным-давно убили. И всем им предоставили последний (   Читать дальше...   )Производство: США / Rosemont Productions LimitedЖанр: Фэнтези, вестернРежиссер: Ули ЭдельАктеры: Сэм Шепард, Эрик Робертс, Рэнди Куэйд, Петер Стормаре, Брэд Роу, Донни Уолберг, Дж. Д. Саузер, Амелия Хайнл, Шеннон Кенни, Джон Деннис ДжонстонПеревод: Профессиональный (многоголосый, закадровый), Авторский (одноголосый, закадровый)Субтитры: Английские (full, SDH)Продолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBCEEF961AA4DACFEA266A2E26DAB1D7DE151F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227673   (644498) от 27.05.2018
-
-Враг у ворот / Enemy at the Gates (2001) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1942 год, разгар Сталинградской битвы. Немецкое командование направляет на передовую своего лучшего стрелка, майора Кенига, с особым заданием. Этот опытный и терпеливый профессионал — единственный, кто может попытаться справиться с русским «ангелом смерти» — неуловимым снайпером Василием Зайцевым.Производство: Великобритания, Франция, Германия, Ирландия, СШАЖанр: Драма, ВоенныйРежиссер: Жан-Жак АнноАктеры: Джуд Лоу, Эд Харрис, Рейчел Вайс, Джозеф Файнc, Боб Хоскинс, Рон Перлман, Ева Маттес, Гэбриел Томсон, Маттиас Хабих, Софи РоизПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 02:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6AEF285F5670F7BEC076384557897768227E7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227690   (644488) от 27.05.2018
 
 Горы и камни / The Ottoman Lieutenant (2017) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644488.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644456.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644455.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644444.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644405.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644375.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644332.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644329.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644259.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644225.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_644178.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644176.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644171.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643677.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643649.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643569.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643546.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643431.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643362.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643355.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643351.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643253.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643102.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642947.jpg" />
 </div>
 
 
@@ -674,6 +621,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47855A57DB317E092A941455554073C04277C3DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142536   (642707) от 14.06.2017
+
+Плохая компания / Bad Company (1995) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший агент ЦРУ Нельсон Кроу становится сотрудником подпольной компании, которая осуществляет незаконные операции. Его первое задание — подкупить судью верховного суда.
+
+Получив деньги, служитель закона нарушает договор. С этого момента закручивается кровавый клубок, где все нити странным образом переплетаются и где главная роль отведена жестокой и соблазнительной (   Читать дальше...   )Производство: США / Touchstone Pictures, Tool Shed ProductionsЖанр: Триллер, Драма, КриминалРежиссер: Дэмиэн ХаррисАктеры: Эллен Баркин, Лоренс Фишбёрн, Фрэнк Ланджелла, Майкл Бич, Джиа Каридес, Дэвид Огден Стайерз, Дэниэл Хью Келли, Сполдинг Грей, Джеймс Хонг, Теган УэстПеревод: Одноголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BE9FF182B1153F42454B9C3EF391CC5A5D4266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541751   (642610) от 04.04.2022
+
+Чуткий сон / Light Sleeper (1992) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Летур - немолодой наркодилер, который работает на гламурную пару, планирующую со временем вложить свой капитал в косметический бизнес. Сам Летур мечтает бросить свое дело. К этому его подталкивает и полицейское расследование убийства его клиентки. Возвращаясь с очередной встречи, он внезапно сталкивается со своей бывшей девушкой. Возможно, судьба даст ему еще (   Читать дальше...   )Производство: США / Carolco Pictures, Grain of Sand Productions, Live Entertainment, Seven ArtsЖанр: драма, криминалРежиссер: Пол ШредерАктеры: Уиллем Дефо, Сьюзен Сарандон, Дана Дилэйни, Дэвид Кленнон, Мэри Бет Хёрт, Виктор Гарбер, Джейн Адамс, Пол Джабара, Роберт Чиккини, Сэм РокуэллПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87EEC501CF3B1B304830178002D8E009E20F051
 ```
 
 https://mybot314.ru/tekegram_catalog/

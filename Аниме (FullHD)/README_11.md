@@ -6,7 +6,7 @@ Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906730.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905577.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905557.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905375.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905246.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903817.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903660.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903377.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903373.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901922.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901204.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900772.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898802.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка А�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898752.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896872.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896373.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Wasteful Days of High School Girl | Бездельные дни старшекл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893554.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892036.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Musekinin Kanchou Tylor | The Irresponsible Captain Tylor | Безответст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891911.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891769.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Golden Time / Золотая пора [2013, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890752.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890536.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Denpa Onna to Seishun Otoko | Радиосигнал от чудачки, Юно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890514.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890419.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Ijiranaide, Nagatoro-san | Don't Toy With Me, Miss Nagatoro | Не издева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890411.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890406.jpg" />
 </div>
 
 

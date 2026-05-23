@@ -6,7 +6,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191929.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediBang Paint Pro 29.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191477.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Lite RePack by MKN [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191175.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Capture One Pro 22 16.0.0.143 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190135.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Stepok Recomposit Pro 8.0.0.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187417.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ON1 HDR 2023 17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187027.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ON1 NoNoise AI 2023 17.0.1.12976 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187026.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ON1 Effects 2023 17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187001.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ON1 Portrait AI 2023 v17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186978.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Adobe Photoshop 2023 24.0.1.112 RePack by PooShock [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186642.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe Illustrator 2023 (27.0.1.620) Portable by XpucT [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186636.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Upscayl 2.8.6 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186178.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ON1 Photo RAW MAX 2026 20.0.5.17637 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186116.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Capture One 23 Enterprise 16.0.1.20 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183527.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ SNS-HDR Pro 2.7.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182972.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Cyotek Palette Editor 1.7.0.411 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181399.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Baby Paint | Детская рисовалка 3.50 Portable [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180284.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Portable by NNM [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180128.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Imagenomic Portraiture 4.0.3 Build 4033 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179459.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ IcoFX 3.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179412.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ IcoFX 3.9 Home, Business, Site [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_179385.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ IcoFX 3.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178877.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Pixia 6.5.0ne [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178164.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Exposure X7 7.1.8.9 (x64) [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176456.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ IcoFX 3.9.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175933.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Image Tuner Pro 9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175889.jpg" />
 </div>
 
 

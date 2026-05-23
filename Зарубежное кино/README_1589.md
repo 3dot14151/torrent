@@ -1,55 +1,3 @@
-###  Публикация: 1555160   (231557) от 02.06.2022
-
-Отчаянные мстители / Freaks Out (2021) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Каждому из четырёх артистов маленького бродячего цирка достался от природы особый дар — суперспособность, которая является их силой и проклятьем одновременно. Когда в их жизни врывается война, этой четверке приходится искать новое место для выступлений. Они пока не знают, что кое-кто уже имеет виды на них и их суперспособности, чтобы осуществить свой план и изменить (   Читать дальше...   )Производство: Италия, Бельгия / Goon Films, Lucky Red, Rai CinemaЖанр: Фэнтези, драма, приключения, военныйРежиссер: Габриэле МайнеттиАктеры: Клаудио Сантамария, Аврора Джовинаццо, Пьетро Кастеллитто, Джанкарло Мартини, Джорджо Тирабасси, Макс Маццотта, Франц Роговский, Оливье БониПеревод: Дублированный (Vox Records), Авторский (BadBajo)Язык озвучки: Русский, итальянскийСубтитры: Английские, итальянскиеПродолжительность: 02:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E989BC353C85A2D428F00087475B6BC56F221578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555028   (231550) от 02.06.2022
-
-Отчаянные мстители / Freaks Out (2021) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Каждому из четырёх артистов маленького бродячего цирка достался от природы особый дар — суперспособность, которая является их силой и проклятьем одновременно. Когда в их жизни врывается война, этой четверке приходится искать новое место для выступлений. Они пока не знают, что кое-кто уже имеет виды на них и их суперспособности, чтобы осуществить свой план и изменить (   Читать дальше...   )Производство: Италия, Бельгия / Goon Films, Lucky Red, Rai CinemaЖанр: Фэнтези, драма, приключения, военныйРежиссер: Габриэле МайнеттиАктеры: Клаудио Сантамария, Аврора Джовинаццо, Пьетро Кастеллитто, Джанкарло Мартини, Джорджо Тирабасси, Макс Маццотта, Франц Роговский, Франческа Анна Белуччи, Микеланджело Дализи, Оливье БониПеревод: Дублированный (KION)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69E3039D4343741E0115B4C8B73CA3E740E2C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636657   (231549) от 31.05.2023
 
 Возвращение в Сеул / Retour a Seoul (2022) BDRip [H.264] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231549.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231543.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231534.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231526.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231524.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231496.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231473.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231472.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231468.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231459.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231456.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231445.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231443.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231431.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231422.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231380.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231374.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231358.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231295.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231289.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231279.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231275.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231263.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231258.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56E66C3C98221FFF86F7B4ED9F5E3EB89EEF5B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636927   (231251) от 01.06.2023
+
+Спасительный рассвет / Rescue Dawn (2006) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм поставлен по реальным событиям и рассказывает о жизни немца Дитера Денглера, который мечтал стать лётчиком. Начало войны во Вьетнаме, группа американских бомбардировщиков отправляется на секретную миссию. Самолет Дитера Денглера сбивают, Дитер оказывается в плену в небольшом лагере, затерянном где-то в джунглях Лаоса. Однако Дитер не собирается сидеть на месте (   Читать дальше...   )Производство: США, Люксембург / Blue Rider Pictures, Bruin Grip Services, Gibraltar Films, Metro-Goldwyn-Mayer (MGM), Thema Production, Top Gun ProductionsЖанр: биография, военный, драма, триллерРежиссер: Вернер ХерцогАктеры: Кристиан Бэйл, Стив Зан, Зэк Гренье, Маршалл Белл, Тоби Хасс, Пэт Хили, ДжиКью, Джеймс Оливер, Брэдли Хансен Карр, Саишия ВонгвиройПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60513DF7C8CC37EB939873EE4A84D0A7A93BC3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581450   (231245) от 05.10.2022
+
+Эон Флакс / Æon Flux (2005) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 25-ом веке свирепый вирус уничтожил большую часть человечества, а оставшихся в живых заставил изолироваться в одном-единственном городе, защищенном специальным куполом. Именно там действует таинственный агент Иэн Флакс, мотивы которой необъяснимы, а главной целью является видный политический деятель…Производство: США, Германия, Бразилия, Италия / Colossal Pictures, Lakeshore Entertainment, MTV Films, MTV Productions, Papillon Productions, Paramount Pictures, Valhalla Motion PicturesЖанр: фантастика, боевик, триллер, приключенияРежиссер: Карин КусамаАктеры: Шарлиз Терон, Мартон Чокаш, Джонни Ли Миллер, Софи Оконедо, Фрэнсис МакДорманд, Пит Постлетуэйт, Амелия Уорнер, Кэролайн Чикези, Николай КинскиПеревод: Дублированный (Пифагор)Субтитры: Русские, английскиеПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4384FA3666C1729CC042045EFA2F1B2E89C9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

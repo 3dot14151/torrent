@@ -1,55 +1,3 @@
-###  Публикация: 681774   (635639) от 20.07.2013
-
-Я очень возбужден / Los amantes pasajeros (2013) BDRemux [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рейс лайнера, совершающего перелет в Мексику, начался как обычно: пассажиры пристегнули ремни, а командир корабля, включив автопилот, спокойно уснул. Но прямо над океаном оказалось, что самолет неисправен, исчезает интернет, и все гаджеты разом выходят из строя. Всех охватывает страх, ужас, отчаяние. Беспомощные пассажиры и экипаж, оказавшись пред лицом гибели, наконец-то (   Читать дальше...   )Производство: ИспанияЖанр: КомедияРежиссер: Педро АльмодоварАктеры: Пенелопа Крус, Антонио Бандерас, Паз Вега, Бланка Суарес, Уго Силва, Хавьер Камара, Хосе Мария Язпик, Лола Дуэньяс, Сесилия Рот, Мигель Анхель СилвестриПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908155   (635580) от 13.06.2015
-
-Голодные сердца / Hungry Hearts  (2014) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Волею судеб молодые люди Джуди и Мина оказались в одном месте в одно время. Каждый из них приехал в самый удивительный район Нью-Йорка, Бруклин. Он вдохновил их красотой своих каменных джунглей. Чтобы отдохнуть, а затем вновь продолжить путешествие, они зашли в небольшое кафе, где и познакомились. Они влюбились друг в друга с первого взгляда и больше не захотели (   Читать дальше...   )Производство: Италия, США, Wildside, Rai Cinema, Ministero per i Beni e le Attività Culturali (MiBAC)Жанр: триллер, драмаРежиссер: Саверио КостанзоАктеры: Адам Драйвер, Альба Рорвахер, Роберта Максвелл, Аль Роффе, Гейша Отеро,  Джейк Уэбер, Дэвид Аарон Бэйкер, Натали Голд, Виктор Уильямс, Кристина Дж. Хюи, Джинджер КернсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D98FF8F71A53883190DE2ED31514B9D6622243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033805   (635550) от 12.07.2016
 
 По следам призраков / Ghosthunters (2016) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635550.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635548.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635547.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635543.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635537.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635529.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635525.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635520.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635481.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635406.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635288.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.264/720p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635276.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635268.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635265.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635262.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635185.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635154.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635153.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635148.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635140.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635135.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635134.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635131.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635115.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFA0C5EE6B065957827CD5BF66F4BA2F1790C17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228588   (635099) от 01.06.2018
+
+Чистокровные / Thoroughbreds (2017) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дороги двух подруг из пригорода Коннектикута разошлись, и девушки не виделись несколько лет. Когда они снова встречаются, то решают восстановить свою былую дружбу. При более тесном общении девушки замечают, что они обе очень изменились, и даже стали способными на убийство.Производство: США / B Story, Big Indie Pictures, June PicturesЖанр: Драма, ТриллерРежиссер: Кори ФинлиАктеры: Аня Тейлор-Джой, Оливия Кук, Антон Ельчин, Пол Спаркс, Кайли Вернофф, Фрэнси Свифт, Леа Просито, Макс Рипли, Шанти СпиллейнПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: HDrezka StudioСубтитры: РусскиеПродолжительность: 01:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D7499EE0C949A8A4522672023B70C6958CCB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293600   (635092) от 04.04.2019
+
+Пророк / Next (2007) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635092.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Криса Джонсона есть секрет, отравляющий его жизнь: он может предсказывать ближайшее будущее. Устав от бесконечного внимания правительства и медицинских центров, пытающихся разгадать природу его удивительных способностей, Крис ложится на дно. Под вымышленным именем он работает в Лас-Вегасе, где развлекает публику дешевыми фокусами. Но когда группа террористов угрожает (   Читать дальше...   )Производство: США / Broken Road ProductionsЖанр: Фантастика, Боевик, ТриллерРежиссер: Ли ТамахориАктеры: Николас Кейдж, Джулианна Мур, Джессика Бил, Томас Кречманн, Тори Киттлз, Хосе Зунига, Джим Бивер, Jason Butler Harner, Майкл Тракко, Энзо СилентиПеревод: Дублированный, профессиональный (многоголосый, закадровый, профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: русские, английскиеПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD7C80933E72A7CC03FB1B7155619FCD57E6A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

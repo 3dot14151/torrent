@@ -1,81 +1,3 @@
-###  Публикация: 1174232   (386946) от 14.10.2017
-
-Другая дверь (2017) WEBRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Михаил — психиатр областной больницы уже много лет. Он повидал немало интересных случаев и удивить его чем-то очень сложно. Но однажды после приёма последнего пациента к нему закрались странные и тревожные мысли.Производство: РоссияЖанр: Короткометражный, драма, триллерРежиссер: Дмитрий АлексеевАктеры: Данила Сайфуллин, Андрей Иванов, Александр Федоров, Сергей Козлов, Дмитрий Толкунов, Дмитрий Алексеев, Семен Бебенин, Николай Журавлев, Надежда Черепова, Александра БражниковаСубтитры: ОтсутствуютПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3189174D175048D803A2C21C035E0C682B8A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413747   (386692) от 07.10.2020
-
-Номер один (2020) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Артем, молодой авантюрист, встречает Феликса — некогда легендарного похитителя предметов искусства, которого называли «Номер один». «Старая школа» и новичок решают провернуть аферу века – украсть одну из самых дорогих картин современности – «№ 1» Марка Ротко из галереи, принадлежащей бывшей жене Феликса и ее нового мужа. Волей случая Артем знакомится с Мариной и (   Читать дальше...   )Производство: Россия / М. Продакшн, MEGOGO, Renovatio ent.Жанр: КомедияРежиссер: Михаил РасходниковАктеры: Филипп Янковский, Дмитрий Власкин, Ксения Собчак, Рина Гришина, Николай Шрайбер, Мария Лобанова, Андрей Федорцов, Игорь Миркурбанов, Марина ЕрмошкинаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECD50C7BAEEFA83DC454B1E6ED7785FE5257050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174225   (386424) от 14.10.2017
-
-Яма. Наши дни (2017) WEB-DLRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Основное действие фильма происходит в одном из многочисленных московских борделей. Наряду со всевозможными интригами, зритель увидит проявления любви, предательства и ненависти одновременно. Фильм о глубочайшем нравственном кризисе, который царит в нашем обществе. Со дна «Ямы» на поверхность поднимаются проблемы, которые не решаются столетиями. О них попросту не (   Читать дальше...   )Производство: Россия / Кинокомпания "Артель"Жанр: ДрамаРежиссер: Виталий МанюковАктеры: Алексей Дьячков, Андрей Лихачёв, Виталий Манюков, Георгий Олейник, Дина Белоусова, Дмитрий Ушаков, Евгений Шмелев, Екатерина Макарова, Екатерина Малахит, Игнат Костровский ...Перевод: Не требуется (язык русский)Субтитры: ОтсутствуютПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC8C27DA5CC9E8ADAD7D4FA24D198473EE41775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 832913   (386244) от 21.10.2014
 
 Красавец и чудовище (2014) HDTV [1080i]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386244.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385192.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385051.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ Generation П (2011) BDRip [H.265/1080p] [10-bit]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385022.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384659.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383659.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382836.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382441.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382303.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380765.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380665.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ Generation П (2011) BDRip [H.264/1080p] [PR]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380332.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379430.jpg" />
 </div>
 
 
@@ -423,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379232.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379231.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379087.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378728.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378578.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378117.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376368.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375851.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374995.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374733.jpg" />
 </div>
 
 
@@ -668,6 +590,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B1226027B24E943A3EEEB8B371AF9D54BA5542D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254284   (374727) от 13.10.2018
+
+Московские тайны. Гостья из прошлого (2018) WEB-DL [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374727.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Московские тайны" – цикл фильмов режиссёра Александра Баршака. "Гостья из прошлого" - первый фильм детективного проекта.
+Молодая москвичка Настя Вяземская после трагической гибели жениха переквалифицировалась из историка в сотрудницу Следственного комитета. Как ни странно, её первое образование очень помогает ей на новой работе. Так, например, (   Читать дальше...   )Производство: Россия / Приор ПродакшнЖанр: ДетективРежиссер: Александр БаршакАктеры: Анна Старшенбаум, Константин Соловьев, Евгений Пронин, Александр Комиссаров, Александр Баршак, Иван Жвакин, Владислав Ветров, Александр Робак, Екатерина Семенова, Алексей Лонгин и др.Субтитры: ОтсутствуютПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F7607D006BD2B6BB7EAFE7F03BBE8928741A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254312   (374608) от 13.10.2018
+
+Счастья! Здоровья! (2018) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три влюблённые пары — татарская, армянская и русская — готовятся сыграть свадьбы. Но выясняется, что для Рината и Гузельки свадьба — это способ добыть деньги, чтобы вернуть дорогую скрипку, для отца Артура важнее всего, чтобы свадьба его сына и москвички-Юли прошла в Армении, а у Светы есть «скелет в шкафу» — её «бывший» Андрей в день свадьбы с Олегом вышел из тюрьмы. (   Читать дальше...   )Производство: Россия, Fresh FilmЖанр: КомедияРежиссер: Марк Горобец, Арман Марутян, Леонид МарголинАктеры: Зоя Бербер, Камиль Ларин, Марина Федункив, Сергей Аброскин, Наталья Рудова, Грант Тохатян, Даниил Вахрушев, Олег Верещагин, Дарья Пынзарь, Стася МилославскаяПеревод: не требуется, русский (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C746C170C5D61152B9648EA9FC2FEECADAE09F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254319   (374597) от 13.10.2018
+
+Временные трудности (2017) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374597.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Саши Ковалёва была врожденная болезнь. Отец мальчика выбрал, как ему казалось, единственно правильный способ поставить сына на ноги — относиться к нему как к здоровому человеку. «Ты не больной — у тебя временные трудности». Поесть, одеться, спуститься и подняться по лестнице подъезда — каждый день у ребенка уходили часы на то, чтобы справиться с простыми бытовыми (   Читать дальше...   )Производство: Россия, Enjoy MoviesЖанр: Драма, МелодрамаРежиссер: Михаил РасходниковАктеры: Иван Охлобыстин, Риналь Мухаметов, Виктория Соловьёва, Ян Цапник, Илья Рязанов, Ирина Пегова, Ирина Маликова, Николай КовбасПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF793A68BE6A7E331500781AF121D7114DE86A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

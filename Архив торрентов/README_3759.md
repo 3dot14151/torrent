@@ -6,7 +6,7 @@ Wondershare UniConverter Ultimate 14.1.19.209 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231265.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft PowerToys 0.70.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231259.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FontLab 8 v.8.2.0.8533 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231255.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ XnViewMP 1.5.1 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231254.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NIUBI Partition Editor 9.7.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231253.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Magic Disk Cleaner 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231249.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AI Transcription 1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231243.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NetLimiter Pro 4.1.14.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231231.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Speedtest от Ookla 5.0.7 Mod by youarefinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231224.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WinToHDD Professional 6.0.1 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231223.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Windows 11 PE x64 by Xemom1 (30.05.23) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231220.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ashampoo WinOptimizer 26.00.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231214.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Total Commander 11.00 beta5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231210.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MetaImage  2.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231206.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ System Toolkit 6.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231202.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MetaVideo 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231198.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AI Photo for Mac 1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231192.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MEmu 9.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231181.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп.] WebRip HEVC 108
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231178.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ MacMagic 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231174.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VN - Video Editor / VN - Видеоредактор 2.1.3 Mod by PieMods [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231170.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Speedtest от Ookla 5.0.7 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231167.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Wondershare UniConverter for Mac 15.0.0 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231160.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231154.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Node Video - Pro Video Editor 6.3.5 Mod by ImanAlien [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231150.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Data Guardian 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231149.jpg" />
 </div>
 
 

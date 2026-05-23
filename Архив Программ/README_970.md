@@ -6,7 +6,7 @@ Telegram Desktop 1.1.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558069.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastStone Image Viewer v7.1 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FastStone Image Viewer 7.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558061.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YouTube By Click Premium 2.2.103 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558060.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinToUSB Technician 4.9.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558049.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Kinza Browser 4.0.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557981.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wise Registry Cleaner 9.24.597 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557940.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WinUtilities Professional Edition 13.11 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557937.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Native Instruments - Kontakt 6.1.1 STANDALONE, VSTi, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557860.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Nvidia DriverPack v.430.86 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557849.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ oCam 311.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557838.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TeamViewer 11.0.65280 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557831.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Display Driver Uninstaller 17.0.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557819.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Opera 46.0.2597.61 DC 24.07.2017 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557812.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ jv16 PowerTools 2017 4.1.0.1738 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557808.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Avira System Speedup 2.6.1.2751 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557735.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ WinToUSB Enterprise 3.1 Release 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557734.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Slimjet 11.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557727.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Skype 7.27.0.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557721.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ ReviverSoft Driver Reviver 5.21.0.2  RePack (& Portable) by elchupacabra  [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557711.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VirtualBox 5.1.26.117224 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557702.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ WifiInfoView 2.27 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557698.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ SRWare Iron 52.0.2750.0 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557661.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557652.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Clipdiary 5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557638.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Java SE Runtime Environment 8.0 Update 144 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557631.jpg" />
 </div>
 
 

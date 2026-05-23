@@ -1,55 +1,3 @@
-###  Публикация: 1542137   (640373) от 05.04.2022
-
-Порочное удовольствие / Vicious Fun (2020) BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Миннесота. 1983 год. Молодой кинокритик Джоэл, работающий в хоррор-журнале, решил проследить за ухажёром своей соседки, с которой он снимает дом и в которую безответно влюблён. В результате, парень напился и уснул в подсобке бара, а когда пришёл в себя, случайно оказался на групповой терапии для героев своих любимых фильмов ужасов — серийных убийц...Производство: Канада, Particular Crowd, Black Fawn Films, Breakthrough EntertainmentЖанр: ужасы, комедияРежиссер: Коуди КэлаханАктеры: Ивэн Марш, Эмбер Гольдфарб, Ари Миллен, Джулиан Ричингс, Роберт Мэйллет, Шон Баек, Дэвид Кёкнер, Алекс Стил, Кристофер Боуман, Марк ГибсонПеревод: Профессиональный многоголосый (СВ Дубль)Субтитры: Английские (full, SDH)Продолжительность: 01:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0162A6AF1F13673C5AF54BD70EB65245AAC5597D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541900   (640368) от 05.04.2022
-
-История моей жены / A felesegem tortenete / The Story of My Wife (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История несчастливого брака капитана военно-морского флота Якоба Сторра с Лиззи, француженкой, на которой он женился после того, как поспорил с другом, что первая женщина, вошедшая в кафе, станет его женой. «История моей жены» — экранизация одноименного романа венгерского писателя Милана Фюста.Производство: Германия, Венгрия, Франция, Италия / arte France Cinеma, Dorje Film, Inforg-M&M Film Kft.Жанр: Драма, мелодрамаРежиссер: Ильдико ЭньедиАктеры: Леа Сейду, Гийс Нейбр, Луи Гаррель, Серджо Рубини, Жазмин Тринка, Луна Ведлер, Йозеф Хадер, Ульрих Маттес, Удо Замель, Тулиан АцельПеревод: Дублированный (iTunes)Субтитры: немецкиеПродолжительность: 02:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3888B25D70EE6463DEE4DD31A508C89B315C166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542015   (640367) от 05.04.2022
 
 Варвары / Barbarians (2021) WEBRip [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640367.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640363.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640323.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640264.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640179.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640148.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639871.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639852.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639841.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639824.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639754.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639752.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639750.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639748.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639693.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639673.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639587.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639579.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639572.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639492.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639491.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639475.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639461.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639443.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D292C9AFF5D52D844FEF6F1F7ADD6E815C4B69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033091   (639368) от 10.07.2016
+
+Защитник / Concussion (2015) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка потрясена чередой неожиданных и необъяснимых смертей знаменитых спортсменов. Разгадать загадку предстоит талантливому молодому нейрохирургу, но, как оказалось, не все готовы услышать жестокую правду…Производство: Великобритания, Австралия, США / Cantillon Company, The, LStar Capital, Scott Free ProductionsЖанр: драма, биография, спортРежиссер: Питер ЛандесманАктеры: Уилл Смит, Алек Болдуин, Альберт Брукс, Гугу Эмбата-Ро, Дэвид Морс, Арлисс Ховард, Майк О’Мэлли, Эдди Марсан, Хилл Харпер, Адевале Акиннуойе-Агбадже, Стивен Мойер, Ричард Т. Джонс, Пол Райзер, Люк Уилсон, Сара Линдсей, Мэттью Уиллиг, Битси Таллок, Кевин Джиггеттс, Гэри Граббс, Рэнди КовицПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, английский, арабский, болгарский, хорватский, чешский, эстонский, греческий, хинди, венгерский, исландский, латвийский, литовский, польский, португальский, румынский, сербский, словакский, словенский, турецкий, украинскийПродолжительность: 02:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2125F061A6CB3DAEDE2EECD02EA49BEA6DCD41F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033214   (639365) от 10.07.2016
+
+Высотка / High-Rise (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элитная высотка — идеальная модель мира будущего. Здесь есть все для комфортной и роскошной жизни. Но зависть, соперничество, жажда острых ощущений постепенно разжигают открытую вражду между жителями высотки, заставляя забыть о законах морали даже лучших из них.Производство: Великобритания, Ирландия, БельгияЖанр: ДрамаРежиссер: Бен УитлиАктеры: Том Хиддлстон, Джереми Айронс, Сиенна Миллер, Люк Эванс, Элизабет Мосс, Джеймс Пьюрфой, Кили Хоуз, Питер Фердинандо, Сиенна Гиллори, Рис ШерсмитПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9AC640F991E9E6E360A0514F2240F2A9AEE5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

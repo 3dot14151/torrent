@@ -6,7 +6,7 @@ WhatsApp 2.2039.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425288.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WhatsApp 2.2039.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425282.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Bat! Voyager Pro 9.2.4 Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425277.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ The Bat! Voyager 9.2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425274.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ CCleaner 5.23.5808 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425235.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ashampoo Photo Optimizer 8.2.3.24 (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425187.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Run-Command 4.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425181.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Icecream Image Resizer 1.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425158.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Icecream PDF Split and Merge PRO 2.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425151.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Polarity 7.1.1 Build 647 [En] (Online-Installer)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425150.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Icecream Slideshow Maker 1.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425149.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Icecream Screen Recorder 2.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425147.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FastStone Image Viewer 7.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425118.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Psiphon 3 build 175 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425113.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2057.0 RePack by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425111.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2057.0 (25.08.2022) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425106.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VueScan Pro 9.7.35 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425079.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ foobar2000 1.6.1 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425066.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Icecream PDF Converter PRO 1.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425059.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ PointerStick 2.67 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425058.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ K-Lite Codec Pack Update 11.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425055.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wise Disk Cleaner 8.84.621 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425051.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VSO Blu-ray Converter Ultimate 3.6.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425048.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Vivaldi 1.0.298.15 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425047.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ FlylinkDC++ r503 build 19148 Stable Portable (x86) + Хаблист [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425046.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ qBittorrent 3.2.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425043.jpg" />
 </div>
 
 

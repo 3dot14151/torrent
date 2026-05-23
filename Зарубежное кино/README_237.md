@@ -1,57 +1,3 @@
-###  Публикация: 1353680   (990692) от 19.01.2020
-
-Смертельный удар / Kill Switch (2008) BDRemux [H.264/1080p] [GER Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Детектив Джейкоб Кинг — один из детективов города Мемфиса. Благодаря своим зверским методам правосудия он заслужил репутацию жестокого человека среди коллег.
-На этот раз ему предстоит поймать опасного преступника, который оставляет на месте преступления подсказки, связанные с астрологией.Производство: Канада, США / Millennium Films, Insight Film Studios, Cinetel FilmsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Джефф КингАктеры: Стивен Сигал, Айзек Хейз, Холли Элисса, Майкл Филиппович, Крис Томас Кинг, Марк Колли, Керин Мишель Бальтцер, Филип Грэйнджер, Райли Янг, Коннор ЯнгПеревод: Двухголосый профессиональный, АвторскийСубтитры: отсутствуютПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2065590EFE327CC5BDE0008A5AD93913EEDC339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353747   (990658) от 19.01.2020
-
-Зловещая луна / Bad Moon (1996) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-На северо-западе Канады, среди дремучих лесов, ночами, когда восходит зловеще — багровая луна, наступает ужас… Свирепое чудовище, полузверь — получеловек, выходит на охоту за своими жертвами…
-В тех же краях в живописном и уединенном месте проживают в своем семейном особняке Джанет, взрослая женщина, со своим десятилетним сыном Бреттом и овчаркой Тором. Их навешает (   Читать дальше...   )Производство: США / Morgan Creek ProductionsЖанр: Ужасы, Фэнтези, Боевик, Триллер, Драма, Детектив, ПриключенияРежиссер: Эрик РедАктеры: Мэриэл Хемингуэй, Майкл Паре, Мейсон Гэмбл, Кен Поуг, Хротгар Мэтьюз, Джоанна Лебовиц, Гэвин Бур, Джулия Монтгомери Браун, ПримоПеревод: Дублированный, профессиональный (двухголосый закадровый), авторский (одноголосый закадровый)Субтитры: Английские (Full, SDH)Продолжительность: 01:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6526B5640B569CD526EBF64FD1F3C9BC1986787D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352232   (990654) от 19.01.2020
 
 Принцесса Ян Гуй Фэй / Yokihi / Princess Yang Kwei Fei (1955) BDRip [H.264/720p] [VO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990654.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990530.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990488.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990486.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990485.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990482.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990457.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990439.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990430.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990424.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990365.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990154.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990138.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989964.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989959.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989911.jpg" />
 </div>
 
 
@@ -479,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989905.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989729.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989717.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989679.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989677.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989642.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989639.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989601.jpg" />
 </div>
 
 
@@ -675,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD4176B319D774E85572488E7708B8D1BBF69F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354015   (989600) от 20.01.2020
+
+Грехопадение / A Fall from Grace (2020) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адвокат Жасмин Браянт должна заключить сделку с прокуратурой в нашумевшем деле. Грейс Уотерс, обвиняемая в убийстве мужа, уже призналась во всем, но Жасмин решает добиться оправдательного приговора путём обоснованного сомнения.Производство: США, Tyler Perry Studios, NetflixЖанр: триллерРежиссер: Тайлер ПерриАктеры: Адриан Пасдар, Тайлер Перри, Сисели Тайсон, Филисия Рашад, Бреша Уэбб, Мехкад Брукс, Кристал Р. Фокс, Сандра Эллис Лэфферти, Нэйтан Андерсон, Майкл Эдвард РоузПеревод: Авторский (Вячеслав Замез aka zamez)Субтитры: ОтсутствуютПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719ED231A1C18DE38EE90B7DE2CD91E05C1E2755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353929   (989599) от 20.01.2020
+
+Черное и синее / Black and Blue (2019) BDRip [H.265/720p] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о молодой сотруднице полиции Детройта, которая оказывается очевидицей того, как коррумпированные офицеры убивают наркодилера, а произошедшее остается записанным на ее камеру. Копы охотятся за ней, чтобы уничтожить запись, но вскоре все становится еще хуже. Они убеждают криминальную банду, что именно девушка виновна в смерти дилера.Производство: США / Hidden Empire Film Group, Royal Viking Entertainment, Screen GemsЖанр: Боевик, триллер, драма, криминалРежиссер: Деон ТейлорАктеры: Наоми Харрис, Тайриз Гибсон, Фрэнк Грилло, Майк Колтер, Бо Напп, Рейд Скотт, Нафиса Уильямс, Карсин Тейлор, Кевин Джонсон, Фрэнки СмитПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B806F94A7186FCAE642D8F839F5E35BF5814AE20
 ```
 
 https://mybot314.ru/tekegram_catalog/

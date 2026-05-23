@@ -1,112 +1,3 @@
-###  Публикация: 1088538   (138329) от 31.12.2016
-
-Лучшие песни-2016 (2016.12.31) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Праздничный концерт из Государственного Кремлевского дворца.
-На главной сцене страны собрались самые талантливые певцы и артисты, которые в течение всего года радовали нас своими песнями и выступлениями.Телекомпания: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED4E7F349C85B71B76021BBCE939AE3709C9AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088566   (138265) от 31.12.2016
-
-Все звезды в Новый год (2016.12.31) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Любимые новогодние песни в исполнении самых лучших и народных артистов! В Кремле на проведении главной Елки страны выступят: группировка «Ленинград», Филипп Киркоров, Надежда Кадышева и ансамбль «Золотое кольцо», Эмин, Лайма Вайкуле, Лолита, Иосиф Кобзон, Валерия, Лев Лещенко, Кристина Орбакайте, Валерий Леонтьев, Ани Лорак, Стас Пьеха, Слава, «А’Студио», «ВИА Гра», (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63578BDBE4BA01CF8598474FC3358DCEE3D98D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854414   (138164) от 31.12.2014
-
-Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014) HDTVRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Концерт Марка Нопфлера, который проходил в Берлине в 2007 году.
-Марк Нопфлер - британский рок-музыкант, певец и композитор, один из сооснователей группы Dire Straits. Его вокал лучше всего описывается немецким термином Sprechgesang - не совсем пение, но и не разговор. Он использует гитару так, как будто она является его вторым «голосом». Наибольшую популярность приобрёл (   Читать дальше...   )01. Donegan's Gone
-02. Rudiger
-03. Let It All Go
-04. The Fizzy And The Still(   Читать дальше...   )Жанр: Rock, КонцертПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609AC8A1620B4A67B6699F85457F277B293D8DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088704   (138122) от 31.12.2016
-
-Все звезды в Новый год (2016.12.31) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Любимые новогодние песни в исполнении самых лучших и народных артистов! В Кремле на проведении главной Елки страны выступят: группировка «Ленинград», Филипп Киркоров, Надежда Кадышева и ансамбль «Золотое кольцо», Эмин, Лайма Вайкуле, Лолита, Иосиф Кобзон, Валерия, Лев Лещенко, Кристина Орбакайте, Валерий Леонтьев, Ани Лорак, Стас Пьеха, Слава, «А’Студио», «ВИА Гра», (   Читать дальше...   )Телекомпания: НТВ HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBE23773FCE54F96C00E1DA8A2706F43A32450C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970371   (138069) от 31.12.2015
 
 VA - Зимний марафон № 216: Новогодний Фейерверк (2015) WEBRip [H.264/1080p-LQ]
@@ -115,7 +6,7 @@ VA - Зимний марафон № 216: Новогодний Фейервер�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138069.jpg" />
 </div>
 
 
@@ -145,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137878.jpg" />
 </div>
 
 
@@ -171,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137864.jpg" />
 </div>
 
 
@@ -197,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137820.jpg" />
 </div>
 
 
@@ -223,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137771.jpg" />
 </div>
 
 
@@ -249,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137734.jpg" />
 </div>
 
 
@@ -279,7 +170,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137594.jpg" />
 </div>
 
 
@@ -308,7 +199,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137540.jpg" />
 </div>
 
 
@@ -337,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137461.jpg" />
 </div>
 
 
@@ -366,7 +257,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137434.jpg" />
 </div>
 
 
@@ -394,7 +285,7 @@ AC/DC - Live At River Plate (2011) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137324.jpg" />
 </div>
 
 
@@ -426,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136611.jpg" />
 </div>
 
 
@@ -452,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136149.jpg" />
 </div>
 
 
@@ -480,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136078.jpg" />
 </div>
 
 
@@ -506,7 +397,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135403.jpg" />
 </div>
 
 
@@ -532,7 +423,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135370.jpg" />
 </div>
 
 
@@ -558,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135332.jpg" />
 </div>
 
 
@@ -588,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135279.jpg" />
 </div>
 
 
@@ -614,7 +505,7 @@ The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135193.jpg" />
 </div>
 
 
@@ -640,7 +531,7 @@ Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135185.jpg" />
 </div>
 
 
@@ -666,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134887.jpg" />
 </div>
 
 
@@ -695,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134544.jpg" />
 </div>
 
 
@@ -706,6 +597,115 @@ https://mybot314.ru/tekegram_catalog/
 Описание фильма
 Шоу, которое собирает на своей сцене любимых исполнителей отечественной и зарубежной эстрады прошлых лет. Самая большая за всю историю проекта сцена, самая сложная постановка (350 танцоров и музыкантов) и самые яркие звезды Ретро FM, которые поют песни, объединяющие все поколения! Начало этого удивительного фестиваля было взято еще в 2005 году. На этот раз организаторы превзошли самих себя, объединив в "необыкновенном шоу" всех самых ярких звезд 80-х и 90-х: от Тото Кутуньо и Томаса Андерса до Софии Ротару и Юры Шатунова.
 Сандра и Томас Андерс, солист Modern Talking, приготовили небольшой сюрприз для России. Они дуэтом исполнили песню "The Night Is Still Young" с ярко выраженными латиноамериканскими мотивами. Общее творение Томаса и Сандры возникло на жарком испанском острове Ибица, где живет певица. Во время выступления сцена то вспыхивала разноцветными фейерверками, то превращалась в огромный витраж. А под финал выступления сверху опустилось большое алое сердце с девушкой-акробатом (   Читать дальше...   )Режиссер: Орт 1 каналАктеры: София Ротару,Юрий Шатунов,Sandra,Thomas Anders,Виктор Салтыков,Мираж,E-Type,Восток,Технология,Жанна Агузарова,Белый орёл,Toto CutugnoПеревод: ОтсутствуетПродолжительность: 01:50:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592848   (134538) от 24.12.2012
+
+Легенды Ретро FM (2007) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот уже в третий раз стены «Олимпийского» содрогнулись от шоу грандиозного масштаба: «Легенды Ретро FM - 2008» стали ярчайшим музыкальным событием уходящего года! Только в этот вечер гости шоу и зрители концерта могли наблюдать настоящее созвездие артистов на одной сцене: Ольга Зарубина, Андрей Державин, Жанна Рождественская, Сергей Никитин, Олег и Родион Газмановы исполнили лучшие песни из своего репертуара. А необыкновенная энергетика хитов Софии Ротару, Ace of Base и Army of Lovers подняла настоящую бурю эмоций в зрительном зале: гости не просто с удовольствием подпевали любимцам публики, но и устроили настоящую дискотеку на своих местах.Жанр: МузыкаРежиссер: Орт 1 каналАктеры: София Ротару,Aimy of Lovers,Сергей Никитин,Ольга Зарубина,Олег и Родион Газмановы,Марыля Родович,Андрей Державин,Жанна Рождественская,Ace of Base.Перевод: ОтсутствуетПродолжительность: 01:41:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592878   (134532) от 24.12.2012
+
+Легенды Ретро FM (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134532.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 ноября 2008 г. двадцатитысячный зал спорткомплекса «Олимпийский» стоя приветствовал гостей уже четвертого по счёту ежегодного необыкновенного шоу «Легенды Ретро FM». Хэдлайнером концерта стал Юрий Антонов.Жанр: МузыкаРежиссер: Орт 1 каналАктеры: Тодес,Любе,Лайма Вайкуле,Валерий Леонтьев,Валентина Легкоступова,Игорь корнелюк,Верасы,Juline Dassin,Павел Смеян,Ирина Понаровская,Влад Сташевский,Space,Ю.АнтоновПеревод: ОтсутствуетПродолжительность: 02:28:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593063   (134472) от 24.12.2012
+
+Легенды Ретро FM (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134472.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 октября Уже шестой по счету концерт «Легенды Ретро FM» собрал кумиров разных поколений на одной сцене!Впервые на Легендах выступили кумиры 80-х - культовая группа Boney M, короли танцполов Bad Boys Blue, роскошный дуэт секс-дивы десятилетия Sabrina и неотразимой блондинки Samantha Fox. К звездам 80-х присоединились и исполнители мегахитов 90-х - Haddaway и Dr. Alban. Специальным гостем фестиваля стала Ирина Аллегрова. Ведущие - Лариса Вербицкая, Сергей Жигунов.
+30 октября супершоу «Легенды Ретро FM» собрал кумиров разных поколений на одной сцене! В этом году фестиваль расширил границы и объединил кумиров и 80-х, и 90-х!Жанр: МузыкаРежиссер: Орт 1 каналАктеры: Роман Жуков,Joy,Татьяна Буланова,Bad Boys Blue,Олег Газманов, Boney MПеревод: ОтсутствуетПродолжительность: 03:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B489BA6F69381616382145BB96B802058ECAE41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593404   (134412) от 24.12.2012
+
+Легенды Ретро FM (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_134412.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 декабря 2011 года в спорткомплексе «Олимпийский» состоялся седьмой международный фестиваль «Легенды Ретро FM». На этот раз «Легенды» стёрли все музыкальные границы и объединили на одной сцене кумиров трёх десятилетий — 70-х, 80-х и 90-х.
+В «Олимпийском» выступили лучшие из лучших: Валерий Леонтьев и Юрий Шатунов, Bonnie Tyler и Chris Norman, Pupo и Ottawan, Любовь (   Читать дальше...   )01. Ottawan - D.I.S.C.O.
+02. Ottawan - Hands Up
+03. Юрий Шатунов – Белые розы
+04. Юрий Шатунов – Седая ночь(   Читать дальше...   )Жанр: МузыкаРежиссер: Орт 1 каналАктеры: Ottawan,Юрий Шатунов,Bonnie Tyler,Вадим Казаченко,Аида Ведищева,Chris Norman,Любовь Успенская,Алексей Глызин,Pupo,Анне Вески,La Bouche,Екатерина Семенова,Валерий Леонтьев,EruptionПеревод: ОтсутствуетПродолжительность: 01:38:29
 
 ## Скачать торент
 ```bash

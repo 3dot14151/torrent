@@ -1,56 +1,3 @@
-###  Публикация: 1360301   (957846) от 17.02.2020
-
-Тёмный рыцарь / The Dark Knight (2008) BDRip [H.265/1080p-LQ] [IMAX]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен поднимает ставки в войне с криминалом. С помощью лейтенанта Джима Гордона и прокурора Харви Дента он намерен очистить улицы от преступности, отравляющей город. Сотрудничество оказывается эффективным, но скоро они обнаружат себя посреди хаоса, развязанного восходящим криминальным гением, известным испуганным горожанам под именем Джокер.Производство: США, Великобритания / Warner Bros., Legendary EntertainmentЖанр: Фантастика, Боевик, Триллер, Криминал, ДрамаРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Хит Леджер, Аарон Экхарт, Майкл Кейн, Мэгги Джилленхол, Гари Олдман, Морган Фриман, Моника Карнен, Рон Дин, Киллиан МёрфиПеревод: ДублированныйСубтитры: русские (full), английские (full, SDH)Продолжительность: 02:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D8D3F0BD8773A48E2EAAC94E8AD9B3549C2849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360934   (957843) от 17.02.2020
-
-После прочтения cжечь / Burn After Reading (2008) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Оззи, агента ЦРУ, уволили с поста начальника Балканского направления. Пытаясь преодолеть кризис, он берется за мемуары, содержащие в том числе и секретную информацию. И надо же было такому случиться, что диск с этими данными был потерян в раздевалке спортивного клуба.
-Находка попадает в руки легкомысленного тренера Чеда и его не менее легкомысленной подруги Линды. (   Читать дальше...   )Производство: США, Франция, ВеликобританияЖанр: триллер, драма, комедия, криминалРежиссер: Итэн Коэн, Джоэл КоэнАктеры: Джордж Клуни, Фрэнсис МакДорманд, Джон Малкович, Тилда Суинтон, Брэд Питт, Ричард Дженкинс, Дэвид Рэши, Дж.К. Симмонс, Олек Крупа, Майкл КантримэнПеревод: Дублированный, Профессиональный многоголосый, Авторский (Ю.Сербин)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB690F9AA7B262B807D04C6C1835607DCA6CB823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360842   (957842) от 17.02.2020
 
 Зеленее травы / Greener Grass (2019) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957842.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957790.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957778.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957775.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957774.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957773.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957771.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957762.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957653.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957597.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957539.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957387.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957333.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957285.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957284.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957269.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957247.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957226.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957224.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957116.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957113.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957111.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957061.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957030.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A66DA7823B68277F49412CCDA27915BE3AE41DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361250   (956984) от 18.02.2020
+
+Особенная / Mi-ok / Miok / A Special Lady (2017) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая проститутка, а теперь номер два в преступной организации Хён-джон уже по горло сыта подобной жизнью. Она хочет бросить всё и пожить спокойно, но киллер банды Сан-хун не понимает её рвения к тихой жизни, хоть и готов ради Хён-джон на всё. Тем временем коррумпированный прокурор, вынужденный участвовать в незаконном бизнесе, жаждет мести, поэтому с выходом на (   Читать дальше...   )Производство: Южная Корея / Kidari EntertainmentЖанр: боевик, криминал, фильм-нуарРежиссер: Ли Ан-гюАктеры: Ким Хе-су, Ли Сон-гюн, Ли Хи-джун, Чхве Му-сон, Ким Мин-сок, О Ха-ни, Хан Со-ён, Квон Юль, Лим Хак-сун, Ким Тхэ-гёмПеревод: Двуголосый любительский (Ворон и Kesu)Субтитры: Английские (Full, хардсаб), английские (SDH)Продолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC1A5041BF118093E74A7BA1101F2BE671CDF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748858   (956963) от 23.01.2014
+
+Грязь / Filth (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — продажный шотландский полицейский Брюс Робертсон, помешанный на сексе и кокаине. Ему бы надо расследовать убийство, но ему сильно мешают собственные странности, привычка разыгрывать коллег и беготня за девушками. За Робертсоном присматривают его напарник Рэй Леннокс и начальник Боб Тоал.Производство: Великобритания | Steel Mill Pictures, Logie Pictures, Altitude Film EntertainmentЖанр: Криминал, Драма, КомедияРежиссер: Джон С. БейрдАктеры: Джеймс МакЭвой, Джейми Белл, Эдди Марсан, Джим Бродбент, Имоджен Путс, Шона МакДональд, Ширли Хендерсон, Джон Сессионс, Гари Льюис, Иман Эллиотт ...Перевод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH-Colored)Продолжительность: 01:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6846D83E4728EC7A30DD37788287BC3658F927BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424608.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Piano Peace - Spa Piano & Ocean Waves (2018) [FLAC|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424603.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Amb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424428.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flut
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424051.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Steven Price - Gravity: Original Motion Picture Soundtrack (2013) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423279.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422963.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nicolas de Angelis - Grand Concert (1986) [FLAC|Lossless|tracks + .cue] <Classic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422715.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Deosil - A Drop of Eternity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421906.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Amer-Inkas - 3 albums (2010-2012) [MP3|320 кб/с]<Instrumental, Native america
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421797.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Classic Film Music For The Millennium (2000) [MP3|320 Kbps] <Instrumental, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421437.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Leonard Cohen - You Want It Darker (2016) [FLAC|Lossless|image + .cue] <Folk, Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420820.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Fleur (Flёur) - Штормовое предупреждение (2014) [FLAC|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420108.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ The Romantic Strings Orchestra - Night And Day: The Great Songs Of Cole Porter (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420043.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419723.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419719.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419558.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419436.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - The Thomas Crown Affair (1999) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419254.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419042.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guit
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_418852.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418742.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418584.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417967.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417867.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ VA - Autumn Piano Bar Music Emotional Piano Bar Music Collection Liquid and Sens
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417815.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Buddha Lounge Ensemble - Renditions Of Led Zeppelin (2008) [MP3|320 Kbps] <Elect
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417766.jpg" />
 </div>
 
 

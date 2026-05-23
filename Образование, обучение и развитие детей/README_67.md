@@ -1,56 +1,3 @@
-###  Публикация: 1082230   (278297) от 12.12.2016
-
-Л.Г. Петерсон | Математика 4 класс 3 часть (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 3 части изучаются правильные и неправильные дроби. Вводятся смешанные числа и операции над ними (сложение и вычитание).
-В завершение предлагаются задачи на повторение, в которых, с одной стороны, систематизируется весь материал, изученный в течение учебного года, а с другой - намечается перспектива для дальнейших математических исследований.Жанр: УчебникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941F8AB567433D71EB8C56BE748B538A20B648BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187693   (278218) от 29.11.2017
-
-Сергей Матвеев | Быстрый английский для ленивых + CD (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Перед вами самоучитель английского языка, созданный специально для ленивых. С помощью этой книги даже отъявленный лентяй легко получит базовые знания английского языка и с уверенностью сможет совершенствовать свой английский в дальнейшем. Оригинальная авторская методика и увлекательная подача материала непременно помогут всем без особых усилий выучить английский (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A576041096FAAF234A7F8C91FAE9774688721618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082712   (277254) от 13.12.2016
 
 Елена Екимова | Православная азбука в стихах (2007) [PDF]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277254.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276945.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273559.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273087.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272918.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272907.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272142.jpg" />
 </div>
 
 
@@ -247,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272050.jpg" />
 </div>
 
 
@@ -273,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271771.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271669.jpg" />
 </div>
 
 
@@ -326,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271666.jpg" />
 </div>
 
 
@@ -352,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271665.jpg" />
 </div>
 
 
@@ -378,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271519.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271516.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271434.jpg" />
 </div>
 
 
@@ -458,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270033.jpg" />
 </div>
 
 
@@ -484,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270003.jpg" />
 </div>
 
 
@@ -510,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269995.jpg" />
 </div>
 
 
@@ -537,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269942.jpg" />
 </div>
 
 
@@ -563,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269641.jpg" />
 </div>
 
 
@@ -591,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268336.jpg" />
 </div>
 
 
@@ -617,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268259.jpg" />
 </div>
 
 
@@ -643,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267468.jpg" />
 </div>
 
 
@@ -669,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267088.jpg" />
 </div>
 
 
@@ -680,6 +627,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B3E8A3D7E4C43BB5FB8F2FE7A4187F99336F8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340212   (264284) от 22.11.2019
+
+Елена Лункина | Подготовка детей к школе. Программа и методические рекомендации (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предшественниками программы "Предшкольная гимназия" стали книги автора, вышедшие в серии "Растим малыша" с 2-х лет и до школы, в которых приводился развернутый план занятий на каждый день. Итогом этой работы стала программа, которая завершает подготовку ребенка к школьной жизни.
+Рекомендуемые для детей старшего дошкольного возраста увлекательные (   Читать дальше...   )Жанр: Подготовка к школе, методическое пособие, программа подготовки к школеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD63B10518B0FDCC8235F640C1C500B70C35519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340354   (263870) от 23.11.2019
+
+В.А. Державина | Большая энциклопедия по английскому языку для школьников (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на основе базового англо-русского словаря рассматриваются все аспекты английского языка и трудности употребления слов. В энциклопедии представлены: произношение английских звуков, правила грамматики объемом для уровня Upper-Intermediate (выше среднего), употребление слов, в том числе слов со схожими значениями. Все заголовочные слова снабжены современной (   Читать дальше...   )Жанр: Учебное пособие, Энциклопедия, Справочник, СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B5FB7EC80C7215C8FE22FB2408EA8693D8FF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

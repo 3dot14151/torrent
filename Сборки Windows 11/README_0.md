@@ -6,7 +6,7 @@ Windows 11 PRO 25H2 26200.7840 Update 4.2 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057278.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 25H2 RU by OVGorskiy 02.2026
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057215.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Windows 11 2in1 x64 26Н1 (build 28000.1575) by ivandubskoj 13.02.2026 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057035.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Windows 11 LTSC by OneSmiLe 24H2 build 26100.7840 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056994.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Microsoft® Windows® 11 x64 Ru 25H2 4in1 Upd 02.2026 by OVGorskiy
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056579.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7840 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056237.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Windows 11 Pro/Ent by OneSmiLe 26H1 build 28000.1575 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056235.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Windows 11 PRO 25H2 26200.7627 Update 3.2 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055294.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Windows 11 PRO 25H2 26200.7623 Update 3 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053456.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Windows 11 Pro х64 Version 25H2 Build 26200.7627 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053416.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7623 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052492.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Windows 11 25H2 + LTSC (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050628.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Windows 11 25h2 24in1 (incl. LTSC 24H2) +/- Office 2024 by SmokieBlahBlah 2025.1
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050331.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Windows 11 Pro х64 Version 25H2 Build 26200.7462 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049813.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Windows 11 25H2 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2025.12.21 
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049601.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Windows 11 PRO 25H2 26200.7462 Update 2 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049111.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 12.2025
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048578.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows 11 Pro/Ent by OneSmiLe 24H2 build 26100.7462 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047911.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7462 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047838.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Windows 11 (v25h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046611.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Windows 11 (v25h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046610.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Microsoft Windows 11 x64 Release by StartSoft 03-2021 [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811525.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Windows 11 Pro x64 21Н2 (build 10.0.22000.493) by tsd-soft 05.03.2022 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685865.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Windows 11 21H2 Build 22000.613 16in1 Integral Edition 2022.4.14 Ru-Multi38 by R
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609159.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Windows 11 21H2 (22000.675) x64 (6in1) by Brux [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588350.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Windows 11 PRO 25H2 26200.7171 Update 1.2 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260904.jpg" />
 </div>
 
 

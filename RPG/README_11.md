@@ -6,7 +6,7 @@ Fallout 2 (1998) [En/De/Fr] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875860.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875448.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Eastward (2021) [Multi] (1.0.5) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874323.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fallout: A Post Nuclear Role Playing Game (1997) [Ru/Multi] (1.2/1.2.1/1.3.5) Li
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874273.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Iron Danger (2020) [Ru/Multi] (1.00.31) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874026.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/En] (1.4.15.0.8/dlc) Repack xatab [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874022.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tails of Iron (2021) [Ru/Multi] (1.37768) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870820.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.05.75935) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870236.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Razenroth (2015) [Ru/Multi] (1.6) Repack ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867597.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ethereal Legends (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867214.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Portal Knights (2017) [Ru/En] (1.7.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866790.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Delivery from the Pain (2019) [Ru/Multi] (1.0.9194/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866786.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864290.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858531.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857981.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857521.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Torment: Tides of Numenera (2017) [Ru/Multi] (1.0.1) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856684.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855694.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.7) License GOG (обнов
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854466.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NEO: The World Ends with You (2021) [Multi] (1.00) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852324.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Divinity II (2012) [Ru/En] (1.4.700.49) Repack R.G. Origami [Developer's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851611.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851399.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Leap of Fate (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849941.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Guild of Ascension (2021) [Multi] (8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849065.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848226.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Crystal Rift (2016) [En] (1.2.4) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848224.jpg" />
 </div>
 
 

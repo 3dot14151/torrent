@@ -6,7 +6,7 @@ KStars 3.6.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123316.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.11 Stable RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123310.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Care 365 Pro 6.6.4.634 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123307.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FileMenu Tools 8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123306.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Icecream Video Converter Pro 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123302.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123300.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Opera One 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123298.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ EF Commander 2024.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123296.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Icecream Video Editor Pro 3.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123295.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Icecream Photo Editor Pro 1.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123291.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Opera One 106.0.4998.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123289.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IceCream Ebook Reader Pro 6.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123287.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Icecream Slideshow Maker PRO 5.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123282.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HWiNFO 7.69 Build 5330 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123277.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Chromium 120.0.6099.217 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123275.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Vivaldi 6.5.3206.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123274.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Fort Firewall 3.10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123273.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Opera GX 106.0.4998.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123270.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Opera Crypto Browser 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123269.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ ExamDiff Pro Master Edition 14.0.1.20 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123267.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Start11 Version 2.05 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123207.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Windows 10 Debloater 2.6.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123190.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ ImgDrive Pro 2.1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123175.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ CrystalDiskInfo 9.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123156.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123153.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Display Driver Uninstaller 18.0.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123147.jpg" />
 </div>
 
 

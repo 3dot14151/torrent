@@ -1,58 +1,3 @@
-###  Публикация: 1023872   (722251) от 06.06.2016
-
-Елена Озерецкая | Собрание сочинений [6 книг] (1959-1990) [FB2, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Доблесть русского флота.
-Мы любим наш Военно-Морской Флот, мы гордимся его славной историей, помним имена прославленных флотоводцев. Но далеко не все из вас знают, как и когда создавался русский флот.
-Как выросли наши корабли от маленького петровского ботика до могучих гигантов, бороздящих на воде и под водой все моря и океаны Земли? Какие выдающиеся географические (   Читать дальше...   )Жанр: Научно-художественные книги для детейФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8773AC450152CDCEECE1638D59062F5B662146F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129605   (720436) от 29.04.2017
-
-О. В. Александрова | Будущему отличнику. Настольная книга дошкольника (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Уникальный сборник развивающих и обучающих заданий - отличный помощник в комплексной качественной подготовке детей к школе.
- Выполняя увлекательные упражнения, ребенок повторит цвета, формы, размеры, противоположности, познакомится с составом чисел в пределах 20, научится читать, решать несложные примеры и задачи, писать печатные буквы, цифры, различать твердые и (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70116A62767EEAB36D4711A62AB08D7C4710223F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129586   (719974) от 29.04.2017
 
 Джейсон Бриггс | Python для детей. Самоучитель по программированию (2017) [PDF]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719974.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718348.jpg" />
 </div>
 
 
@@ -115,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717496.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717482.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713972.jpg" />
 </div>
 
 
@@ -195,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713800.jpg" />
 </div>
 
 
@@ -221,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713679.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713409.jpg" />
 </div>
 
 
@@ -273,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712988.jpg" />
 </div>
 
 
@@ -299,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712450.jpg" />
 </div>
 
 
@@ -326,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711425.jpg" />
 </div>
 
 
@@ -353,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709314.jpg" />
 </div>
 
 
@@ -379,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707209.jpg" />
 </div>
 
 
@@ -405,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706597.jpg" />
 </div>
 
 
@@ -431,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706462.jpg" />
 </div>
 
 
@@ -460,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705859.jpg" />
 </div>
 
 
@@ -486,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704462.jpg" />
 </div>
 
 
@@ -514,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702665.jpg" />
 </div>
 
 
@@ -541,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702324.jpg" />
 </div>
 
 
@@ -567,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700553.jpg" />
 </div>
 
 
@@ -594,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700536.jpg" />
 </div>
 
 
@@ -621,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700314.jpg" />
 </div>
 
 
@@ -648,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699955.jpg" />
 </div>
 
 
@@ -674,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699757.jpg" />
 </div>
 
 
@@ -685,6 +630,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:602AFF1CBB8D025DBA78236CA47F7D0AE742118B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221417   (694920) от 24.04.2018
+
+Д. Голиков, А. Голиков | Школа капитана Грампа. Scratch и Arduino для школьников (2017) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не обычный учебник программирования. Это дверь в фантастический мир космических приключений. Почти реальных, так как результатом изучения каждой главы станет запрограммированный своими руками симулятор космического корабля. Создавая проекты и управляя космическим кораблем, школьники совместно с героями книги пройдут по опасному пути искателей космических сокровищ (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A306B1A8E5EA6F54C8203E7D9142A5B0209755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221423   (694908) от 24.04.2018
+
+Денис Голиков | Scratch для учителей и родителей. Знакомство с популярной детской средой программирования (2017) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет учителям и родителям школьников младших классов познакомиться с популярным детским языком программирования Scratch. Скретч – это новая бесплатная среда программирования, которая позволяет детям от 7 лет создавать собственные истории, мультфильмы, игры и другие произведения. Эта программа позволяет детям выразить себя в компьютерном творчестве. Скретч (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB5CFCA070BECD94FD51D33B28A330CAEDBDE55
 ```
 
 https://mybot314.ru/tekegram_catalog/

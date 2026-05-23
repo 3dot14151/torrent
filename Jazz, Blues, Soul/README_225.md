@@ -6,7 +6,7 @@ Count Basie - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610775.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marlena - My Heart to Yours (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610774.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Curtis Mayfield - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610773.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charlie Parker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610772.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Curtis King Band - Steam Train Blues (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610767.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Django Reinhardt - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610765.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rickie Lee Jones - The Other Side of Desire (2015) [MP3|320 кб/с]<Folk-Rock, 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610764.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dave Brubeck - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610761.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Airto Moreira & The Gods Of Jazz - Killer Bees (1993) [FLAC|Lossless]<Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610657.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Vanessa Bley - Colors (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Piano>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610584.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ McCoy Tyner Trio With Symphony - What The World Needs Now: The Music of Burt Bac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610582.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Buddy Guy - The Blues Is Alive And Well (2018) [MP3|320 Kbps] <Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610513.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Clark Terry - Combo & Sextet: Free And Oozy (1963) 1998, Blue Moon [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610328.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Stonefield - Stonefield (2013) [MP3|320 Kbps] <Blues Rock, Female Vocal>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610234.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Mick Kolassa - Michissippi Mick (2014) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610219.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ron Carter Trio - Cocktails at the Cotton Club (2013) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610209.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Siggi Schwarz (Feat. Andreas Kummert & Jessy Martens) - Heart & Soul (2016) [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610206.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Clare Fischer - First Time Out + Jazz (1961, 1962) 2013, Poll Winners Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609872.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Harry Allen & Keith Ingham - The Back Room Romp (1995) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609871.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Harry Allen & Joe Cohn Quartet - Guys and Dolls (2007) Arbors Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609870.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ George Masso Sextet - C'est Magnifique (2000) Nagel-Heyer [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609869.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Clare Fischer - The Clare Fischer Voices... and Sometimes Instruments (2011) Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609868.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Abdu Salim - Aladdin's Magic Lamp (2001, 2008) 2011, Crisis Muzon Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609867.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Roscoe Mitchell - Bells For The South Side (2017) 2CD, ECM [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609735.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ JvT Band - Bound (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609733.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Perez Prado - The Best Of Perez Prado - The Original Mambo No.5 (2006) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609731.jpg" />
 </div>
 
 

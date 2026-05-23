@@ -1,250 +1,3 @@
-###  Публикация: 1481387   (1008215) от 03.07.2021
-
-Academind Pro, Maximilian Schwarzmüller | Начало работы с Golang / Getting Started With Golang (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Изучите все ключевые основы Go - одного из самых востребованных и популярных языков программирования, который вы можете выучить в наши дни! Go (или Golang) - это очень современный, производительный и популярный язык программирования, который вы можете использовать для создания приложений, скриптов, автоматизации, веб-серверов, API-интерфейсов и многого другого!
-Изначально (   Читать дальше...   )Производство: Academind ProЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A2DE5CAAFD4AC58D18EB90CF41E6BA070838C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481501   (1008212) от 03.07.2021
-
-A Cloud Guru / LinuxAcademy | Kali Linux Deep Dive (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс Kali Linux Deep Dive! Этот курс предназначен для людей, которые уже обладают общими знаниями в области ИТ, поэтому обязательно ознакомьтесь со списком предварительных требований, прежде чем начать. На протяжении всего курса мы углубимся в суть взлома на аппаратном уровне. Так были обнаружены практически все уязвимости - люди, просматривающие (   Читать дальше...   )Производство: A Cloud Guru / LinuxAcademyЖанр: Программирование, администрированиеЯзык озвучки: АнглийскийПродолжительность: 19:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894A98C604C63FA66724C90835E528DDAB6336F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481674   (1008129) от 04.07.2021
-
-Udemy, Prateek Narang и др. | Graph Theory Algorithms for Competitive Programming (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Graph Algorithms for Competitive Coding - самую подробную специализацию по теории графов для конкурентоспособных программистов, инженеров-программистов и студентов, изучающих информатику!
-Графики - довольно важная тема для инженеров-программистов, как для академиков и онлайн-соревнований, так и для решения реальных жизненных задач. Алгоритмы графиков (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 20:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10467FF1B4529283C5D7DCED1482E93802C23D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481717   (1008094) от 04.07.2021
-
-Udemy, Catalin Stefan | Complete Kotlin development masterclass (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Этот курс - уникальный опыт на Udemy.
-В Интернете есть множество ресурсов Kotlin, но это единственный курс, который поможет вам стать настоящим новичком в разработке программного обеспечения, научит основам, продвинутым темам и сделает вас экспертом в этой области.
-Кроме того, у вас есть множество практических упражнений, задач и проектов, над которыми нужно работать. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 30:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0696CE9A4B8304D64604601D1CD840719EC3AC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482084   (1007826) от 06.07.2021
-
-Udemy, Cristian Calinescu | Windows Server 2019 Hyper-V, Storage, Clustering and NLB (2019) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе исследуется ряд технологий высокой доступности, доступных в Windows Server 2019 для Hyper-V, а также другие распространенные службы Windows. Вы изучите подготовку, настройку и управление отказоустойчивой кластеризацией Windows как с локальными дисковыми пространствами, так и без них. Позже вы погрузитесь в реплики хранилища, реплики Hyper-V, балансировку (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 07:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88525572C7763E26479AB65228B1926C07DBD739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482397   (1007507) от 08.07.2021
-
-Udemy, Sergey Shmatovskiy | Laravel 8 (PHP). Выполнение реального тестового задания  (2021) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Данный курс основан на реальном тестовом задании, которое дает один из работодателей претендентам на должность разработчик php на фреймворке Laravel. Данный курс показывает как выглядит работа современного fullstack разработчика. Мы будем создавать небольшой сайт на самом популярном веб фреймворке, а также с середины курса будем использовать VueJS. Одна из главных (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 03:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D941B46D17BC55E07AFAE5A395741A7FDF93F53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482638   (1007374) от 09.07.2021
-
-Udemy, Josh Werner, Learn Tech Plus | Front End Web Development Ultimate Course 2021 (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Привет и добро пожаловать на курс Front End Web Development Ultimate 2021
-Я ваш инструктор Джош Вернер, и я проведу вас по этому курсу
-Вы всегда хотели научиться программировать, но не знаете, с чего начать?
-Хотели бы вы создавать потрясающие веб-сайты и воплощать свои идеи в жизнь?(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 98:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F718D253CB1B3CBDD74CA5977B7C1A42CAE752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482868   (1007205) от 10.07.2021
-
-Skillbox, Александр Кузнецов  и др. | JavaScript-фреймворк React.js (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Расширьте свои профессиональные знания и навыки разработчика, научившись использовать в работе фреймворк React.js
-
-Чему вы научитесь:
-Создавать приложения с нуля. Конфигурировать их с помощью Webpack или использовать готовые решения.(   Читать дальше...   )Производство: SkillboxЖанр: ПрограммированиеПродолжительность: 20:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22720A3A9B5F3F146C2AEB0DE889716878E80E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483228   (1006958) от 12.07.2021
-
-Coding With Mitch, Mitch Tabian | Kotlin Multiplatform Mobile  (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как использовать Kotlin Multiplatform Mobile (KMM) для создания клиента Android и клиента iOS с общей базой кода Kotlin.
-Общие компоненты
-Ktor (сетевой клиент)
-SQL Delight (клиент кэширования)(   Читать дальше...   )Производство: CodingWithMitchЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB243F90E67C91710F49DE6793A04391A63C0963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483384   (1006814) от 13.07.2021
 
 Udemy, Trevor Sawler | Building Modern Web Applications with Go (Golang)  (2021) PCRec [En / En Sub]
@@ -253,7 +6,7 @@ Udemy, Trevor Sawler | Building Modern Web Applications with Go (Golang)  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006814.jpg" />
 </div>
 
 
@@ -280,7 +33,7 @@ Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006723.jpg" />
 </div>
 
 
@@ -308,7 +61,7 @@ software-testing.ru, О. Назина | Автоматизация тестов 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006687.jpg" />
 </div>
 
 
@@ -336,7 +89,7 @@ Udemy, Justin Mitchel | DjangoFlix - Build a Netflix-Like Service in Django & Py
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006593.jpg" />
 </div>
 
 
@@ -363,7 +116,7 @@ Udemy, Артем Баданов| Изучение Java с нуля (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006561.jpg" />
 </div>
 
 
@@ -392,7 +145,7 @@ Udemy, Marek Gryszkiewicz | WebRTC 2021 Practical Course. Create Video Chat Appl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006495.jpg" />
 </div>
 
 
@@ -418,7 +171,7 @@ Udemy, Codestars by Rob Percival, Atil Samancioglu |The Complete Quantum Computi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006129.jpg" />
 </div>
 
 
@@ -446,7 +199,7 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006080.jpg" />
 </div>
 
 
@@ -473,7 +226,7 @@ Udemy, Tom Phillips | Gatsby JS и Shopify: Интернет-магазин с G
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006078.jpg" />
 </div>
 
 
@@ -500,7 +253,7 @@ Udemy, Alexander Hagmann | Complete 2-in-1 Python for Business and Finance Bootc
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006069.jpg" />
 </div>
 
 
@@ -528,7 +281,7 @@ Udemy, Imran Afzal | Complete VMWare vSphere ESXi and vCenter Administration (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006061.jpg" />
 </div>
 
 
@@ -555,7 +308,7 @@ Udemy, Angular University | Angular Core Deep Dive (with FREE E-Book) (2021) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005985.jpg" />
 </div>
 
 
@@ -583,7 +336,7 @@ Udemy, Trevor Sawler | Working with React and Go (Golang) (2021) PCRec [En / En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005983.jpg" />
 </div>
 
 
@@ -610,7 +363,7 @@ Profit, Степанцев Альберт |  PHP Parallel - новое расш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005981.jpg" />
 </div>
 
 
@@ -639,7 +392,7 @@ Genius Courses, Александр Сокирка | Разработка Пла�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005977.jpg" />
 </div>
 
 
@@ -665,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005968.jpg" />
 </div>
 
 
@@ -691,7 +444,7 @@ Rebrain, Fevlake, Дмитрий Гордеев и др. | Golang-разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005959.jpg" />
 </div>
 
 
@@ -705,6 +458,253 @@ Rebrain, Fevlake, Дмитрий Гордеев и др. | Golang-разрабо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD1959C355809D32E07DB3B41818F244A1DC0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484663   (1005898) от 21.07.2021
+
+Udemy, Andrei Neagoie, Daniel Bourke | TensorFlow Developer Certificate in 2021: Zero to Mastery [Update 07.2021] (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Just launched with all modern best practices for working with TensorFlow and passing the TensorFlow Developer Certificate exam! Join a live online community of over 500,000+ students and a course taught by a TensorFlow certified expert. This course will take you from absolute beginner with TensorFlow, to becoming part of Google's TensorFlow Certification Network. (   Читать дальше...   )Производство: Udemy, ZTMЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 62:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EA203E70A54D9C6DEACF0555B866D29429157E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485480   (1005414) от 25.07.2021
+
+Udemy, Laurence Svekis | Google Apps Script Complete Course New IDE 100+ Examples (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, что вы можете создать и как реализовать функциональность в своих приложениях G Suite - Помогите повысить продуктивность, объедините службы Google, чтобы ДЕЛАТЬ ЕЩЕ БОЛЬШЕ !!!! Основанный на JavaScript, ES6 + теперь обладает большей мощностью с более простым в использовании редактором, что делает кодирование увлекательным.
+Скрипт приложений Google работает (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 22:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA8670FD478E495358A188EB7CD9D40BE01887A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485459   (1005366) от 25.07.2021
+
+Udemy, Jonas Schmedtmann | Build Responsive Real-World Websites with HTML and CSS (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что ж, я здесь, чтобы научить вас HTML, CSS и веб-дизайну, шаг за шагом создавая потрясающий веб-сайт, который вы только что видели.
+
+Итак, после прохождения этого курса вы будете точно знать, как создать красивый, профессиональный и готовый к запуску веб-сайт, такой же, как Omnifood, следуя 7-ступенчатому процессу. И он даже будет отлично смотреться на любом компьютере, (   Читать дальше...   )Производство: UdemyЖанр: Программирование, вёрсткаЯзык озвучки: АнглийскийПродолжительность: 49:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CCB3EF50232519DE53B3E678367A8C1D724735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485441   (1005364) от 25.07.2021
+
+Swiftbook, Алексей Ефимов  и др. | Профессия iOS-разработчик с нуля за 20 недель (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро развивающийся рынок смартфонов обеспечивает растущий спрос на iOS-разработчиков. Освойте профессию Swift-разработчика для iOS с нуля до трудоустройства за 4-5 месяцев.
+Этот курс вам подходит, если вы
+Если вы никогда не занимались программированием – этот курс идеален для старта. Под пристальным присмотром кураторов вы освоите азы и прокачаетесь до настоящего (   Читать дальше...   )Производство: SwiftbookЖанр: ПрограммированиеПродолжительность: 103:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C10A0600531781A9597339D29BCCA2AB2699EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486772   (1004524) от 01.08.2021
+
+Udemy, Scott Barrett | JavaScript Algorithms and Data Structures Masterclass (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро подготовьтесь к собеседованию по программированию с помощью анимированных примеров. После каждой строки кода обновляется анимация структуры данных или алгоритма, чтобы точно показать, что именно сделала эта строка кода.
+Анимация дает студентам огромные преимущества:
+    Лучшее понимание концепций;
+    Более высокий уровень удержания посетителей;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62FD3178D9195A74665D6605A80DC5F1432E40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486802   (1004477) от 01.08.2021
+
+Udemy, Apiko Academy | Frontend React JS Web Development Course (2021) PCRec [UKR]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебный интенсив посвященный веб-разработке и направления фронтенд используя технологии React. История Apiko берет свое начало в 2014 году. Все начиналось с JSSolutions - небольшого круга единомышленников, которые восхищались JavaScript разработкой. В декабря 2017 года состоялся ребрендинг и название было изменено на "Apiko". За время существования компании (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: УкраинскийПродолжительность: 18:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5EA0B4137BD8919E09973B161CAC943BA39900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486664   (1004464) от 01.08.2021
+
+Udemy, Kati Frantz | Advanced React For Enterprise: React for senior engineers (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс React для опытных разработчиков !! Для этого курса требуется 100% знание React. Я работаю с React.js более 5 лет и очень рад поделиться с вами навыками, необходимыми для преуспевания в качестве старшего разработчика React.
+Мы создадим нашу собственную дизайн-систему с нуля. Это даст нам возможность затронуть такие важные темы, как:
+    Архитектура (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 06:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419F64AD784728A8A9D0A4AADA0AF4D8453F6EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487241   (1003745) от 04.08.2021
+
+Udemy, Jason Cannon | Linux Shell Scripting: A Project-Based Approach to Learning (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы пытались самостоятельно изучить сценарии оболочки, но у вас отсутствует структура, необходимая для улучшения ваших навыков?
+Вы устали собирать обрывки информации, которую вы не можете просто собрать воедино?
+Вы лучше всего учитесь на практике?
+Если так, вам понравится этот курс.(   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 11:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E67BBA311807301963DEB911E56A3873BC220E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350066   (1003631) от 04.01.2020
+
+OTUS | Web-разработчик на Python (2019) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для подготовки специалиста, который сможет не только решать рядовые задачи бекенд-разработки, но и сделать с нуля современную фронтенд часть.Жанр: Программироание, PythonПродолжительность: 62:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A316DAD4A4D0A5A93E8EE9FF95D5A70D52C2408
 ```
 
 https://mybot314.ru/tekegram_catalog/

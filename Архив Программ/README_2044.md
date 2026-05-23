@@ -6,7 +6,7 @@ OneCommander Pro 3.70.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114370.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LibreOffice 7.6.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114366.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Viber 22.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114359.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FinePrint 11.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114342.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ EarthView 7.9.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114340.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fort Firewall 3.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114339.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ USB Device Tree Viewer 4.0.5.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114338.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ K-Lite Codec Pack Update 18.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114336.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Adobe Photoshop 2024 25.5.1.408 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114265.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ KMS Tools Portable by Ratiborus 05.03.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114263.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ableton - Live 12 Suite 12.0 (x64) (R2R) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114261.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Total Commander 11.03 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114251.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NVIDIA GeForce Desktop Game Ready 551.76 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114241.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Aiseesoft Data Recovery 1.8.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114240.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ PotPlayer 240305 (1.7.22124) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114238.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Ableton - Live 12 Suite 12.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114229.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ EZ CD Audio Converter 11.5.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114226.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Glary Utilities Pro 6.7.0.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114214.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BitComet 2.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114213.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Total Commander 11.03 (05.03.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114210.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Psiphon 3 build 181 (04.03.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114203.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Glarysoft Malware Hunter PRO 1.180.0.800 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114201.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Firefox Browser 123.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114198.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Freeplane 1.11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114197.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114196.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ WizTree Enterprise 4.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114193.jpg" />
 </div>
 
 

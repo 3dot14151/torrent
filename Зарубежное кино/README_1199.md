@@ -1,56 +1,3 @@
-###  Публикация: 1248020   (448068) от 17.09.2018
-
-Выжившая / Месть / Revenge (2017) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодая американка Дженифер проводит выходные с женатым французским бойфрендом в уединенном комфортабельном доме с бассейном. Внезапно раньше времени туда заявляются двое его друзей, с которыми он договорился поохотиться в уик-энд. Девушке стоило бы вести себя поскромнее в присутствии незнакомых мужчин, но желая разжечь страсть любовника, Дженифер слегка заигрывает (   Читать дальше...   )Производство: Франция, Бельгия / M.E.S. Productions, Monkey Pack Films, CharadesЖанр: Ужасы, боевик, триллерРежиссер: Корали ФаржеаАктеры: Матильда Анна Ингрид Лутс, Кевин Дженссенс, Винсент Колумб, Гийом Бушед, Эвант СтрангелПеревод: Многоголосый закадровый, профессиональный (iTunes),
-Многоголосый закадровый, профессиональный (HDRezka studio),Субтитры: Русские, АнглийскиеПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BE321AAB380353EED756DB6594444A8FD96544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247737   (448066) от 17.09.2018
-
-Дюнкерк / Dunkirk (2017) BDRip [H.264/1080p] [IMAX]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет историю чудесного спасения более трехсот тысяч солдат в ходе Дюнкеркской операции, имевшей место в начале Второй мировой войны. События начинаются с окружения сотен тысяч британских и союзных войск силами противника. Пойманные в ловушку на пляже, и находясь спиной к морю, они сталкиваются лицом к лицу с неразрешимой ситуацией, тем временем как тиски (   Читать дальше...   )Производство: Великобритания, Нидерланды, Франция, США / Syncopy,Warner Bros.,Dombey Street ProductionsЖанр: Военный, ДрамаРежиссер: Кристофер НоланАктеры: Финн Уайтхед, Том Глинн-Карни, Том Харди, Джек Лауден, Гарри Стайлс, Анейрин Барнард, Джеймс Д`Арси, Барри Кеоган, Кеннет Брана, Киллиан Мёрфи, Марк РайлэнсПеревод: Дублированный, АвторскийСубтитры: Русские, Английские, УкраинскиеПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81BF9F7D1EDAC60041E1ECC164769970C1AB15C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247886   (448065) от 17.09.2018
 
 Выжившая / Месть / Revenge (2017) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448065.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448058.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448056.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448055.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448052.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448027.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448025.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448023.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448020.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447973.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447967.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447956.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447953.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447951.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447949.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447926.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447915.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447908.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447891.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447882.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447870.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447831.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447820.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447812.jpg" />
 </div>
 
 
@@ -676,6 +623,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34FD884EC2F74EF43E82834241EEC3D0B93AE635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163631   (447779) от 06.09.2017
+
+Стартрек: Возмездие / Star Trek Into Darkness (2013) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись на Землю, команда корабля «Энтерпрайз» обнаруживает, что деятельность и принципы их организации подорваны изнутри. Флот скован необъяснимым ужасом и бездействует, пока мир все глубже погружается в бездну.
+Капитан Кирк берет на себя руководство операцией по поимке злодея, ответственного за этот хаос и способного уничтожить все человечество.
+В запутанной (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Крис Пайн, Закари Куинто, Бенедикт Камбербатч, Саймон Пегг, Карл Урбан, Зои Салдана, Элис Ив, Джон Чо, Антон Ельчин, Питер УэллерПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (форс.+полные), украинские (полные), Английские (full+SHD)Продолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1831CD28FE8E71ADFA423E0FA4364B2959972ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163549   (447770) от 06.09.2017
+
+Спасатели Малибу / Baywatch (2017) BDRip [H.264/720p-LQ] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа пляжных спасателей работает на побережье Тихого океана. Они всегда находятся на своем посту и охраняют отдыхающих от несчастных случаев на воде. Главный герой, опытный спасатель Митч Бьюкеннон, и его молодой коллега Мэтт Броди случайно узнают, что их пляж находится под угрозой исчезновения. Большая нефтяная компания собирается разрушить побережье, преследуя (   Читать дальше...   )Производство: СШАЖанр: Комедия, Боевик, ДрамаРежиссер: Сет ГордонАктеры: Дуэйн Джонсон, Зак Эфрон, Приянка Чопра, Александра Даддарио, Келли Рорбах, Ильфенеш Хадера, Джон Басс, Яхья Абдул-Марин II, Хэннибал Бёресс, Роб ХюбельПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full)Продолжительность: 02:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80870E9E274A92A6CD410D23E3E3138510CEFE60
 ```
 
 https://mybot314.ru/tekegram_catalog/

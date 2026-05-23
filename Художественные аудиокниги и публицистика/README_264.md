@@ -1,81 +1,3 @@
-###  Публикация: 1379830   (837681) от 30.04.2020
-
-Николай Гейнце | Тайны Петербурга. Дело сыщика Перелетова (2020) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В роскошном особняке короля хлебной биржи Онуфрия Александровича Торгушина совершено страшное преступление. Убита младшая дочь Торгушина – прелестная Ната. Убита жестоко и изощренно, прямо во время свадебного бала, на котором Ната, только что получившая статус жены кружилась в вихре танца с молодым супругом бароном фон Ренгольмом, не сводящим влюбленных глаз с юной (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8C392D8F92E1DADC4F2DC0ECAEF02FBAB7B5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379825   (837585) от 30.04.2020
-
-Лада Кутузова | Мертвый месяц (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мистический триллер о ценности человеческой жизни. Группа студентов приезжает в заброшенную деревню, чтобы встретить Хэллоуин. Они не знают, что давным-давно в этом месте существовал культ бога, исполняющего желания. А несколько лет назад на старом кладбище погибло несколько человек. Теперь студенты стремятся выбраться из проклятой деревни, а мертвые просто хотят (   Читать дальше...   )Жанр: Мистика, Триллеры, УжасыПродолжительность: 07:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B0663BA975D06B473348CD8719B5F25FD7DE9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379610   (837570) от 30.04.2020
-
-Зоя Чернышова | Быть человеком (Сборник спектаклей) (1966 - 1985) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чернышева, Зоя Владимировна, известная советская писатель- драматург. Кроме очень хороших спектаклей об окружающих людях, создала знаменитую своеобразную драматическую театральную серию ЖЗЛЖанр: ИсторияВ ролях: Олег Ефремов, Всеволод Ларионов, Евгений Киндинов, Алла Покровская, Евгений Евстигнеев, Элина Быстрицкая, Георгий Менглет, Алексей Грибов, Анатолий Папанов, Михаил Глузский, Любовь ЦеликовскаяПродолжительность: ~ 24:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6CBB744E4B9003E1849A7DC91167816B2F6D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379714   (837553) от 30.04.2020
 
 Варлам Шаламов | Перчатка, или КР-2 [Сборник] (2020) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837553.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837410.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836783.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836707.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836659.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836375.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836343.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836337.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836279.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836271.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836261.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836095.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836094.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ Robert Conquest | The Harvest of Sorrow / Роберт  Конквест | Жа�
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836088.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835993.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835985.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835978.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835906.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835883.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835808.jpg" />
 </div>
 
 
@@ -607,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835782.jpg" />
 </div>
 
 
@@ -633,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835699.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835565.jpg" />
 </div>
 
 
@@ -670,6 +592,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EADE9ACDE5606E73D18F54A6269BEDB911D4850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879678   (835496) от 19.03.2015
+
+Анна Литвинова, Сергей Литвинов | Сердце Бога (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория Спесивцева поняла – она не сможет жить дальше, пока не переломит несчастливую карму своей семьи. Ее мама никогда не выходила замуж, такая же судьба постигла и бабушку… С бабушкой вообще случилась трагическая история: едва родив, Жанна Спесивцева оставила ребенка родственникам и отправилась в Москву. Там она активно искала будущего мужа, пока ее поиски не (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14FB4E79ED9F3CA02904EAC81893381D1ACA3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879640   (835430) от 19.03.2015
+
+Булат Окуджава | Избранное (2013) [MP3, Валерия Лебедева]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_835430.jpg" />
+</div>
+
+
+###  Подробнее
+
+В годы оттепели его песни растопили лед слишком ненадежных истин. Его искусное, изысканное слово было внятно современнику и потому казалось доступным и простым. Он запечатлел чувство времени, тайну сердца, загадку искусства. Он был гражданином и приглашал поразмышлять о достоинстве и чести, о минувшем и нынешнем дне. Уходя, он напомнил, что есть надежды нас предостеречь.Жанр: Аудиокнига, поэзияИздательство: Нигде не купишьПродолжительность: 05:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C236900C594E67D7B976B4566CCBBE34D292F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879703   (835426) от 19.03.2015
+
+Татьяна Полякова | Девушка, Джокер, Поэт и Воин (Книга 1). Миссия свыше (2015) [MP3, Ксения Бржезовская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835426.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Четверо людей в прежней жизни дали клятву встретиться в другой жизни. Страшную клятву, кровавую. Трое уже встретились. Ждут вас». Эти слова сказал мне как-то заезжий гуру в буддийском центре, куда я забрела от нечего делать. Надо признать, слова гуру произвели впечатление, как ни старалась я отнестись к ним с юмором. Теперь я то и дело ловила себя на мысли, что (   Читать дальше...   )Жанр: ДетективИздательство: АудиокнигаПродолжительность: 09:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA23FF9B48A8A868AD0E49CD4505AB0C17541CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

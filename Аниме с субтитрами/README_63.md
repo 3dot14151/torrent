@@ -6,7 +6,7 @@ Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576338.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ New Game! OVA | Новая игра! OVA [2017, OVA, 1] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575920.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hantsu x Trash / Охотник и корзина / Трэш и Угар [2015, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575838.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575457.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574409.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574323.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Fumikiri Jikan | Crossing Time | Ожидание на железнодорож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574089.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573990.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Dorei-ku The Animation | Doreiku the Animation | Я и 23 раба [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573964.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573815.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572727.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572620.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ginga Tetsudou no Yoru / Night on the Galactic Railroad / Ночь на Гала
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572400.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572307.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka Gaiden: Sword Oratoria |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571819.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Guilty Crown / Корона греха [2011, TV, 22] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571367.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Rokuhoudou Yotsuiro Biyori | Чайная «Рокуходо» [2018, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570617.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Last Period: Owarinaki Rasen no Monogatari | Last Period: The Journey to the End
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570465.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Piano no Mori (2018) | Рояль в лесу [ТВ] [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569088.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Hisone to Masotan | Dragon Pilot: Hisone and Masotan | Хисонэ и Масо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569072.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566987.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566868.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565418.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565390.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565047.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Reply Hamatora | Re: Hamatora | Re: Хаматора [2014, TV, 12] BDrip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565031.jpg" />
 </div>
 
 

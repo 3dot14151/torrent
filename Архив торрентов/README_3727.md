@@ -6,7 +6,7 @@ VideoSolo Video Converter Ultimate 2.3.10 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235240.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Permute 3 v3.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235239.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skype 8.97.0.404 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235234.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ GarageSale 8 v8.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235232.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ XnViewMP 1.4.5 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235230.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Wise Care 365 Pro 6.5.4.626 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235228.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Dato 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235225.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ HWiNFO 7.46 Build 5110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235224.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235222.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ GoodNotes 5 v5.6.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235219.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ IObit Smart Defrag Pro 8.4.0.274 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235218.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235215.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DxO PhotoLab Elite 5.5.0 build 4770 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235214.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mozilla Thunderbird 102.11.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235213.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Default Folder X 5.5.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235207.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Aura (Аура леса) 2.8.10k.216 RePack (& Portable) by elchupacabra + MP3 �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235205.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PreSonus Studio One 6 Professional 6.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235203.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Skype 8.97.0.404 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235202.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ myTracks 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235200.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Dropzone 4 Pro v4.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235197.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Yate 6.9.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235189.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FastScripts 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235183.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ InShot - Фото и видеоредактор 1.902.1407 Mod by Mixroot, maxi1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235180.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ K-Lite Codec Pack Update 17.5.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235176.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Smooze Pro 2.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235174.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ WinSnap 6.0.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235166.jpg" />
 </div>
 
 

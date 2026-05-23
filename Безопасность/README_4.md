@@ -6,7 +6,7 @@ MinerSearch 1.4.8.2 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250924.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Safety Scanner 1.375.1031.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233004.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AutoLogger [26.11.2021] Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228790.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MSD Passwords 1.6 [En] (промо SharewareOnSale до конца 2018 года
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215402.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Antivirus Removal Tool 2025.10 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213546.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Evorim Free Firewall 2.6.2 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208197.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Firewall App Blocker (Fab) 1.9 Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206793.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ USB Raptor 0.19.88.727 (Fig) Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206117.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kaspersky Update Utility 4.1.0.474 Portable [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205749.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ESET NOD32 Internet Security 19.0.11.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205715.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Norton Power Eraser 6.6.0.2153 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203842.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Minimal Firewall 2.5.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202450.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ FinalCrypt 6.8.0 + Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201717.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ConfigureDefender 3.1.1.1 Portable [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201328.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Dns Angel 1.7 Portable  [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199839.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kaspersky Plus Web installer 21.13.5.506 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196647.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ P12FromGostCSP 1.0.0.1287 Repack by LxDm [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195860.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ IObit Malware Fighter PRO 10.4.0.1104 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193966.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ultra Adware Killer 10.7.9.1 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190866.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Kaspersky Free 21.23.6.614 Repack by LcHNextGen (22.10.2025) [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187862.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Faronics Deep Freeze Enterprise 8.60.220.5582 [Multi]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182833.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Faronics Deep Freeze SERVER Enterprise 8.38.270.5256 [Multi]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181918.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Abelssoft Win10PrivacyFix 2023 5.0.42337 Portable by zeka.k [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180805.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VeraCrypt 1.26.7 + Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179859.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Emsisoft Emergency Kit 2023.10.0.12134 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177984.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Auslogics Anti-Malware Pro 1.23.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175106.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Gary Rex Tanner - Feel The Heat (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614592.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Art Blakey And The Jazz Messengers - Roots & Herbs (1961) /2014, Universal/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614500.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ McCoy Tyner - Suddenly (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614114.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Michael Franks - The Music In My Head (2018) [FLAC|Lossless|image + .cue] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614057.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ George Adams & Don Pullen - Melodic Excursions (1982) Remaster, 2015, Solid Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614039.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Modern Jazz Disciples - Right Down Front (1960) Remaster, 2013, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613985.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eddie Harris - People Get Funny… (1987) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613984.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sadao Watanabe - Sadao Watanabe (1972) Remaster, 2014, Sony Music[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613982.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nicki Parrott - Yesterday Once More: The Carpenters Song Book (2016) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613866.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dave Stewart & Thomas Lindsey - Spitballin' (2016) [MP3|320 Kbps] <Blues, Gospel
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613778.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kid Ory - Ory's Creole Trombone (1930-e - 1950-e) 1998, Giant Of Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613582.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lester Young - Portrait: 24 Carat Gold Edition (1936 - 1952) 10CD, 2001, Past Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613286.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mississippi Heat - Let's Live It Up! (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_613094.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Ben Perowsky, Frank Perowsky, Sam Yahel - Bop On Pop (2002) JazzKey Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613085.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Red Garland Trio - Rojo (1958) 1993, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613081.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Billy Mitchell - This Is Billy Mitchell (1962) 2003, Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613080.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Dianne Reeves - Palo Alto Sessions 1981-1985 (1996) Blue Note [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613078.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Mic Gillette Band - Turning Two (2014) [MP3|320 кб/с]<Blues & Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612989.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Big Joe William - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612920.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Wisemans Circus - Lonely Traveller (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612918.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Billy Price & Otis Clay (ft. Duke Robillard) - This Time For Real (2015) [MP3|32
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612900.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612897.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612895.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Lonnie Smith - Drives (1970) /2009, EMI Music/[FLAC|tracks+.cue]<Jazz, Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612893.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Illinois Jacquet - The King! (1968) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612812.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Jimmie Lunceford - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612343.jpg" />
 </div>
 
 

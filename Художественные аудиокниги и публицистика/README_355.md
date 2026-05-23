@@ -1,81 +1,3 @@
-###  Публикация: 1021845   (730952) от 31.05.2016
-
-Геннадий Прашкевич | Костры миров (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После многих лет, проведенных в Крайнем секторе, в нетипичной зоне, за изучением расы протозид — огромных, массой с планетоид существ, игнорирующих любую попытку контакта, — Хенк прилетает на Симму, чтобы отдохнуть и получить расчет курса к Земле сквозь время и пространство...Жанр: Научно-фантастическая повестьПродолжительность: 02:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E7DCB1B705BE8F4030FD77CB9E7BEABD3EC0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529998   (730890) от 09.02.2022
-
-Джонатан Троппер | Дальше живите сами (2022) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Известие о смерти отца застает Джада Фоксмана в тяжелый момент: он потерял работу и переживает измену жены. Теперь ему предстоит еще одно испытание -провести траурную неделю под одной крышей со своим любящим еврейским семейством. То, что Фоксманы собрались по печальному поводу, не мешает им упражняться в остроумии, попадать в нелепейшие ситуации и выяснять отношения. (   Читать дальше...   )Жанр: Cовременная зарубежная литератураПродолжительность: 12:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5608A014B678A15907688FEFD2D85311474EAE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021786   (730825) от 31.05.2016
-
-Гарольд Лэмб | Ганнибал. Один против Рима (2013) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное беллетризованное жизнеописание одного из величайших полководцев в мировой военной истории. О Карфагене, этом извечном враге Древнего Рима, в истории осталось не так много сведений. Тем интересней книга Гарольда Лэмба - уникальная по своей достоверности и оригинальности биография Ганнибала, легендарного предводителя карфагенской армии, жившего в III-II (   Читать дальше...   )Жанр: Историческая прозаИздательство: Нигде не купишьПродолжительность: 11:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A37C36CD114BE38769C9A1FAD362429794DB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021695   (730819) от 31.05.2016
 
 Том Клэнси | Без жалости (2013) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730819.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730817.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730816.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730813.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730781.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730728.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730719.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730692.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730674.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730652.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730584.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730545.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730507.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730451.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730368.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730334.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730046.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730018.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730009.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730008.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729998.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729994.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729993.jpg" />
 </div>
 
 
@@ -672,6 +594,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A0FC88F134693104EE77622E0BB9EBEDA80F318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022096   (729992) от 01.06.2016
+
+Джонатан Гримвуд | Последний пир (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, XVIII век. Удивительная судьба ждет сироту Жан-Мари Шарль д’Эмота после случайной встречи, которая переворачивает его жизнь с ног на голову. Сегодня он — бездомный мальчишка, завтра – отважный солдат, а затем – дипломат и шпион, вращающийся в высших кругах версальского общества.
+Но неистовая любовь, политические интриги и захватывающее преддверие Великой (   Читать дальше...   )Жанр: Авантюрный романПродолжительность: 10:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52BEE789FA22FF42EF8A6B382C5D20350CBD9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022105   (729985) от 01.06.2016
+
+Жак Ив Кусто , Джеймс Даген | Живое море (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1942 году французский исследователь Жак-Ив Кусто вместе с инженером Э. Ганьяном изобрел акваланг. О своей работе до этого изобретения и об исследованиях, выполненных с аквалангом, Ж.-И. Кусто и Ф. Даген рассказывают в книге «В мире безмолвия». Новые конструкции, осуществленные под руководством Ж.-И. Кусто, — «ныряющие блюдца», подводные дома — последующий этап (   Читать дальше...   )Жанр: Путешествия и географияПродолжительность: 12:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B321525417DD75B2EC8697B993873890AB72E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127899   (729974) от 23.04.2017
+
+Уильям Айриш | Ровно в три часа (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подозревая в измене, часовщик Стэпп решил убить свою жену Френ. Взрывное устройство, помещённое в коробку в подвале их дома, должно сработать ровно в три часа по полудню...Жанр: Детектив, мистикаПродолжительность: 01:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCE6D34ABA3158210E28270868F43B13783894D
 ```
 
 https://mybot314.ru/tekegram_catalog/

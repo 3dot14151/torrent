@@ -6,7 +6,7 @@ TV Yarou Nanana: Kaibutsu Kraken o Oe! | Wacky TV Nanana: Hunt the Legendary Kra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429209.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Fruits Basket 2nd Season | Корзинка фруктов [ТВ-2, сезон I
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429066.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Ench
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428821.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Phantom in the Twilight | Фантом в сумерках [2018, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428232.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Sankarea | Санка Рэа [2012, TV 12 эп. + 1 SP + OVA 2 эп.] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428094.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Gundam Build Divers | Гандам: Сконструированные дайв�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428078.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Go!Go!575 | Давай-давай! 5-7-5 [2014, TV, 4 + 1] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426088.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424954.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Appare Ranman! | Аппарэ-Ранман | Небо в цвету! [2020, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424638.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Zetsuen no Tempest: The Civilization Blaster | Буря Потерь [2012, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423651.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Classroom Crisis / Кризис в классе [2015, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422931.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Houkago Teibou Nisshi / Дневник послешкольного пирса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422431.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Deca-Dence / Дека-Данс [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422294.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Rifle is Beautiful | Chidori RSC | Винтовка прекрасна [2019, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420448.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Saint Seiya: The Lost Canvas - Meiou Shinwa | Рыцари Зодиака: Ут�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420224.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420223.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Lapis Re:Lights | Лазурные огни [2020, TV, 12 из 12 эп.] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420085.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420078.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420077.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Owari no Seraph | Seraph of the End | Последний Серафим [2015, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420047.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mitsuwano [2014, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420040.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Shikioriori | Flavors of Youth | Ароматы юности [2018, Movie] WEB-D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420038.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, MV, 4] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419858.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 14 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419702.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ongaku Shoujo (2018) / Музыкальные Девчонки [2018, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419701.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] WEB-DL 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419497.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Logic Pro X 10.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238852.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Squeezer 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238849.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ djay - DJ App & AI Mixer 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238841.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WinToUSB Technician 7.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238829.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Aiseesoft Mac FoneLab for Android 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238825.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PotPlayer 220420 (1.7.21632) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238824.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Desktop Stickers 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238818.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ PrivaZer 4.0.74 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238817.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ CloudMounter 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238814.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Millumin 4.16.e [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238812.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ TinkerTool System 6 v6.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238810.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Live Wallpaper & Themes 4K Pro 16.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238809.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FSNotes 4 v4.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238808.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ A Better Finder Attributes 7 v7.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238798.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Nova 11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238797.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Loaris Trojan Remover 3.2.48.1813 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238796.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ ZD Soft Screen Recorder 11.6.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238792.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Autorun Organizer 5.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238787.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Dash 6.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238776.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Ablazing Spring Sessions 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238775.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ SecuritySpy 5.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238771.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Blocs 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238756.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ R-Studio Network 9.0 Build 190312 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238755.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ CCleaner 6.11.10435 Technician Edition (x64) + CCEnhancer Portable by FC Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238754.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ FBackup 9.8.770 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238751.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ DesktopOK 10.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238744.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403311.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Slimjet 15.1.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403138.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ BluffTitler Ultimate 13.5.0.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403115.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ WinCatalog 2017 17.2 RePack by вовава DC 27.09.2017 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403069.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Waterfox 55.1.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403057.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ SoftColor PhotoEQ 10.3.0.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403025.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Viber 6.9.6.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403015.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Ashampoo WinOptimizer 15.00.05 DC 25.09.2017 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403012.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ TinyWall 2.0.1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402846.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ad Muncher 4.93 Build 33707 Repack by Andron1975 [Русский / Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402783.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Dr.Web Security Space 8.0.0.10220 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402715.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ HD-D seven Style [Ru/En] [Rainmeter скин]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402665.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Uniblue PowerSuite Pro 2013 4.1.4.0 Final  [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402602.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Process Lasso Pro 6.0.1.74 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402359.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Win7codecs 3.8.1 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402337.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wise Disk Cleaner 7.67 Build 523 + Portable [Multi(RuS)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402328.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ EmEditor Professional 12.0.3 Final [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402324.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Soft Organizer 6.15 RePacK by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402229.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ RadioBOSS Advanced 5.6.2.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402226.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Free Studio 5.7.6.1015 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402205.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ ReviverSoft Driver Reviver 4.0.1.30 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402121.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Registry First Aid Platinum 8.3.0 Build 2054 Portable by Valx [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402119.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ WebcamMax 7.6.7.6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402113.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Windows Repair (All In One) 1.9.1 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402112.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ MediaInfo 0.7.61 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402110.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ AlReader 2.5.090407 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402068.jpg" />
 </div>
 
 

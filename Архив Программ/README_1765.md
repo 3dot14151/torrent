@@ -6,7 +6,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v5 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195031.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ AIMP 5.11 Build 2434 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195015.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ OpenVPN 2.6.5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195010.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ simplewall 3.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195005.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Volume2 1.1.8.464 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194995.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194989.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ FxSound Pro 1.1.19.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194987.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194985.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194983.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Modern Tweaker 1.9.1 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194969.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Rainmeter 4.5.18 Build 3727 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194940.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ nthLink 6.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194938.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Koodo Reader 1.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194928.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Punto Switcher 4.4.5 Build 529 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194924.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Adguard 7.14.0 (7.14.4316.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194922.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Kodi 20.2 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194915.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ WinRAR 6.23 Final [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194905.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Total Commander 11.00 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194887.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ UltraUXThemePatcher 4.4.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194883.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Reg Organizer 9.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194881.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Total Commander 11.00 MAX-Pack 2023.08.03 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194880.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The KMPlayer 4.2.2.79 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194878.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194872.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ StartAllBack 3.6.11 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194868.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Punto Switcher 4.4.5 Build 529 RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194866.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ IObit Uninstaller Pro 13.0.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194864.jpg" />
 </div>
 
 

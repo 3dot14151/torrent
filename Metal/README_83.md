@@ -6,7 +6,7 @@ Luca Turilli's Rhapsody - Prometheus: Cinematic and Live (2016) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284614.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284417.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mortal Infinity - Final Death Denied (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284141.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vorna - Ei Valo Minua Seuraa (2015) [MP3|320 кб/с]<Pagan Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283797.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Edenbridge - 10 альбомов (2000-2013) [MP3|320 кб/с]<Symphonic Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283793.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Accept - Symphonic Terror (Live at Wacken 2017) (2018) [MP3|320 Kbps] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282663.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric B
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281155.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Overdoze - Supreme Dosage (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281058.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Arwen - Memories of a dream (2002) [MP3|320 kbps]<Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279214.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278952.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Virgin Steele - The Book of Burning (2018) [MP3|320 Kbps] <Heavy Metal, Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277712.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Morbid Angel - Kingdoms Disdained (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277141.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Five Finger Death Punch - A Decade of Destruction (2017) [MP3|320 Kbps] <Heavy M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276870.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Pretty Maids - Undress Your Madness (2019) [MP3|320 Kbps] <Melodic Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276217.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Aracner - Nación Tierra (2016) [MP3|320 Kbps] <Progressive, Thrash Metal, Melod
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276020.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Tyron - Rebels Shall Conquer (2016) [MP3|320 Kbps] <Heavy Metal ,Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274972.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Conform - Vol I: Cigarette Lullaby (2016) [MP3|320 Kbps] <Nu Metal, Experimental
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274867.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Silent Descent - Turn To Grey (2017) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274847.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Venom - Hell (2008) [MP3|320 kbps]<Black/Speed/Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274793.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Yngwie J. Malmsteen - Дискография (1983-2009) MP3, 160-320 Kbps (1983
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272791.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Sphinx - 4 альбома (2003-2010) [MP3|320 kbps]<Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271962.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Margenta - Дети Савонаролы (2009) [MP3|320 kbps]<Heavy/Gothic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271803.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Sonata Arctica - Takatalvi (2010) [MP3|320 kbps]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271798.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271677.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Peter Crowley - Conquest of the Seven Seas (2016) [MP3|320 Kbps] <Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271358.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ The Dark Element - Songs the Night Sings (2019) [MP3|320 kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270626.jpg" />
 </div>
 
 

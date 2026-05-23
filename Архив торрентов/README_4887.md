@@ -6,7 +6,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23988.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Brave Browser 1.76.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23968.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23967.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23964.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera One 117.0.5408.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23961.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IPTV Pro v9.0.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23956.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Photo Lab PRO v3.13.52 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23947.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Happy Color® – игра раскраска v2.18.1 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23945.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VK Музыка: песни и подкасты v7.12 Mod by VK Equals [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23938.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ PicWish: AI Photo Editor v2.0.10 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23937.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Infected Sounds - Sphinx 7.0.0 VSTi, VSTi 3 + Expansions [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23936.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VivaCut v4.1.2 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23933.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Calibre 8.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23931.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23930.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ WPS Office + PDF v18.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23927.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.4 Build 11 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23922.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Windows 11, 24H2 [26100.3476] 38in1 (x64) by adguard (v25.03.12) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23915.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MyLanViewer 6.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23904.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adobe Acrobat Pro 2025.001.20435 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23896.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ v2rayN 7.10.5 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23892.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ SoftMaker Office Professional 2024 rev. S1224.0308 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23891.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ iDownerGo Video Downloader 10.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23879.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Topaz Gigapixel AI Pro 8.3.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23869.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Blender 4.2.8 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23866.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.1.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23864.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.9 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23863.jpg" />
 </div>
 
 

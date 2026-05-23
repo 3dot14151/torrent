@@ -7,7 +7,7 @@ BUtil 2026.05.21 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070113.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Iperius Backup Full 8.8.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069911.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Syncovery Premium 11.15.7 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069704.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Hekasoft Backup & Restore 1.1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069405.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ IsoBuster Pro 5.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069146.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Syncovery Premium 11.15.6.206 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068821.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ EaseUS Partition Master Pro / Server / Tech / Unlmited 20.3.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068801.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Lazesoft Recovery Suite Pro / Server / Tech / Unlimited 5.2.0.1 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068554.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Lazesoft Windows Recovery Pro / Server / Unlimited 5.1.1.1 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067979.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ MiniTool Power Data Recovery 12.9 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067742.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Auslogics File Recovery Pro 12.2.0.6 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067731.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Iperius Backup Full 8.8.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067642.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Auslogics File Recovery 12.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067437.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Hasleo Backup Suite 5.8.2.0 Professional | Eterprise | Technician Editions RePac
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067380.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ MiniTool Power Data Recovery 12.9.0 Full (Standard-Deluxe-Enterprise-Technician)
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067305.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Syncovery Premium 11.15.2.202 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067068.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ QILING Disk Master Free / Pro / Server / Tech 8.7.6 Build 20260425 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067041.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ iBeesoft Disk Partition Wizard Professioanl / Server / Technician 3.5.0 [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066888.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ AOMEI Backupper Technician Plus 8.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066708.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ AOMEI Backupper Technician Plus 8.3.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066597.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ AOMEI Backupper Technician Plus 8.3.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066596.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ AOMEI Backupper Technician Plus 8.3.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066421.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Syncovery Premium 11.14.7 build 188 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066369.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ O&O DiskImage Premium 22.6.1231 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066228.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ iBeesoft Data Recovery 5.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066052.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Abelssoft EasyBackup 2026.16.02 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065883.jpg" />
 </div>
 
 

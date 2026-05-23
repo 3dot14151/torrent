@@ -6,7 +6,7 @@ Keisatsu Sensha Tai TANK SWAT 01 | TANK S.W.A.T. 01 | Танковый спец�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026381.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Issho ni Training: Training with Hinako | Утренняя гимнастика 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026355.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Issho ni Sleeping: Sleeping with Hinako | Спим вместе с Хинако 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026348.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Issho ni Training Ofuro: Bathtime with Hinako & Hiyoko | В ванне с Хин
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026342.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bannou Bunka Nekomusume  / All Purpose Cultural Cat Girl Nuku Nuku  / Униве
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026200.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026191.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Skate Leading Stars | Звёзды фигурного катания [2020, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026062.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ D.N.Angel | Код ангела [2003, TV, 26 из 26] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025960.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Boku wa Imouto ni Koi o Suru | Я люблю свою сестрёнку [2005, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025768.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Fight Ippatsu! Juuden-chan!! | С первого удара заряжай-ка!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025762.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Ninja Senshi Tobikage | Ninja Robot Tobikage | Ниндзя-воин Тобик�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025700.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025538.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Otona no Bouguya-san II | Оружейная лавка для леди и дж�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025534.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025465.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Yume kara Samenai | Не пробуждаясь ото сна [1987, OVA] LDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025279.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Fantasia | Girl from Phantasia | Девушка из Фантазии [1993, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025277.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Exper Zenon | Экспер Зенон [1991, OVA] LDRip 480 raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025276.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Megami Paradise | Рай Богинь [1995, OVA, 2 из 2] LDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025272.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mainichi ga Nichiyoubi | Каждый день воскресенье [1990, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025270.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Nozomi Witches | Bewitching Nozomi | Околдованный Нозоми [1992
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025264.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Uchuu no Senshi | Starship Troopers | Звёздный десант [1988, OVA, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025214.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Jikuu Bouken Nuumamonjaa | Приключения сквозь время и р�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025096.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Strike Witches: 501 Butai Hasshin Shimasu!! | Strike Witches: 501st Joint Fighte
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025093.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Neko Neko Fantasia | Кошачья фантазия [1991, OVA] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025088.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Shin Dousei Jidai: Hawaiian Breeze | Новая эпоха сожительст�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025083.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Greed | Жадность [1985, OVA] LDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025081.jpg" />
 </div>
 
 

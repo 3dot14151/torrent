@@ -6,7 +6,7 @@ Fall of Empyrean - Anhedonia (2003) [APE|Lossless]<Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_722215.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Fission - Crater (2004) [FLAC|Lossless]<Thrash metal / Melodic death metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_722211.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ DragonForce - Killer Elite-The Hits, The Highs, The Vids (2016) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722143.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Genocide - Stranded (1994) [style AC/DC] [APE|Lossless]<Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_721993.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Kamelot - The Shadow Theory (2018) 2CD, Limited Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721520.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Dynazty - The Dark Delight (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721407.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kiske / Somerville - City of Heroes (2015) [FLAC|Lossless]<Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721337.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Cirrha Niva - For Moments Never Done (2009) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721198.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Condenados - The Tree Of Death (2016) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721196.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Hybernoid - The Last Day Begins ? (1994) [FLAC|Lossless|tracks + .cue] <Goth Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721192.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Illdisposed - 1-800 Vindication (2004) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721191.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Agatus - The Eternalist (2016) [FLAC|Lossless|image + .cue] <Black Metal, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721190.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Cytotoxin - Gammageddon (2017) [WavPack|Lossless|image + .cue] <Technical Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721189.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Cytotoxin - Radiophobia (2012) [WavPack|Lossless|image + .cue] <Technical Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721088.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Holy Terror - Guardians Of The Netherworld: A Tribute To Keith Deen (2015) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721086.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Teeth Of The Sea - Wraith (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Experimen
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721085.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Dream Theater - Distance Over Time (2019) Special Edition, Digipak [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720951.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ The Doomsday Kingdom - The Doomsday Kingdom (2017) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720794.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Cirith Ungol - Half Past Human (2021) EP [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720769.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Voivod - Synchro Anarchy (2022) 2xCD [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720752.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Amorphis - Halo (2022) [FLAC|Lossless|image + .cue] <Progressive, Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720413.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Hakenkreuz Nocturna - Eternal Introspective Winter (2006) [APE|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719645.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Drowning The Light - 2 альбома (2007 - 2009) [APE|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719644.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Fange - Pudeur (2020) [FLAC|Lossless|tracks + .cue] <Death Metal, Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719536.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Thornbridge - Theatrical Masterpiece (2019) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719160.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Emerald - Reckoning Day (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718840.jpg" />
 </div>
 
 

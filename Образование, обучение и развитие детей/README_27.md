@@ -1,59 +1,3 @@
-###  Публикация: 1209383   (778971) от 01.03.2018
-
-Андрей Цуканов | Нескучная философия (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Философия, как известно, – не самая простая наука. Но в нашей книге о ней рассказано легко и понятно, так, что каждый школьник поймет: кто такой Эпикур, какие бывают добродетели, почему нельзя дважды войти в одну и ту же реку и почему человек есть «мыслящий тростник»…
-
-А.Л. Цуканов | Нескучная философия (2018)Жанр: Философия, познавательная литература для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4D51516EB5C8E4DF6DE7DBAB5ABFA2A93FD420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012846   (778333) от 02.05.2016
-
-Ольга Ушакова | Откуда пришли слова. Этимологический словарик школьника (2008) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Перед вами этимологический словарик, из которого вы узнаете много интересного из жизни самых обычных слов. Этимология – раздел науки о языке, исследующий происхождение слов разных языков. На примерах из нашего словарика вы убедитесь, что часто истории из жизни слов становятся увлекательными путешествиями в наше прошлое.
-
-Словарик будет полезен учащимся не только (   Читать дальше...   )Жанр: Обучение, развитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C3F38E675B6D5EDA705D657B0F0D335459B3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013140   (777940) от 03.05.2016
 
 Николай Сладков | Бюро лесных услуг. С вопросами и ответами для почемучек (2016) [FB2]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777940.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777936.jpg" />
 </div>
 
 
@@ -116,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777909.jpg" />
 </div>
 
 
@@ -142,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777545.jpg" />
 </div>
 
 
@@ -168,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777443.jpg" />
 </div>
 
 
@@ -194,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776952.jpg" />
 </div>
 
 
@@ -221,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776834.jpg" />
 </div>
 
 
@@ -248,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776833.jpg" />
 </div>
 
 
@@ -274,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776829.jpg" />
 </div>
 
 
@@ -300,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776827.jpg" />
 </div>
 
 
@@ -326,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776825.jpg" />
 </div>
 
 
@@ -352,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776817.jpg" />
 </div>
 
 
@@ -380,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776775.jpg" />
 </div>
 
 
@@ -407,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776459.jpg" />
 </div>
 
 
@@ -433,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776425.jpg" />
 </div>
 
 
@@ -459,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776409.jpg" />
 </div>
 
 
@@ -487,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776081.jpg" />
 </div>
 
 
@@ -513,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776080.jpg" />
 </div>
 
 
@@ -539,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776055.jpg" />
 </div>
 
 
@@ -565,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776053.jpg" />
 </div>
 
 
@@ -591,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776047.jpg" />
 </div>
 
 
@@ -617,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776042.jpg" />
 </div>
 
 
@@ -644,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775725.jpg" />
 </div>
 
 
@@ -670,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775112.jpg" />
 </div>
 
 
@@ -681,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C271FDFB1D81B9CD62D59A7CD7FF9F4CD7375253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015435   (774924) от 10.05.2016
+
+Ирина Голуб | Мой любимый букварь (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Букварь рассчитан на дошкольников. Он поможет малышам легко и быстро запомнить буквы, научиться читать. В занимательной форме ребята познакомятся с гласными и согласными звуками, ударением, слогами. Весь материал методически выстроен, снабжен разнообразными упражнениями, веселыми заданиями, красочными иллюстрациями, с книгой легко и удобно работать.Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2952B615E080B3C8F4F4AE7218AB85D83741A7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015313   (774774) от 10.05.2016
+
+Ольга Земцова | Серия "Умные книжки" для детей 4-5 лет [12 книг] (2007-2008) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774774.jpg" />
+</div>
+
+
+###  Подробнее
+
+В возрасте 4-5 лет ребенок впитывает в себя новые знания как губка. Поэтому родители должны не упускать эту уникальную возможность и выбирать, какую информацию кроха получит и в какой форме. Эти пособия преподносят новые знания через систему интересных заданий. Серия "Умные книжки" это тематические ситуации, это сценки из жизни, это игра, которая не только (   Читать дальше...   )Жанр: Обучение, развитиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298ABB6BA077212D99C6F1FA63622E50B67E1C92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Microsoft Office 2007 Standard SP3 12.0.6755.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527045.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Native Instruments - Kontakt 5.6.0 (R46) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527029.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Realtek Ethernet Driver 11.8.0515 / 10.59 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526986.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CCleaner 6.01.9825 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526982.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ YouTube Video Downloader PRO 5.8.6 (20170731) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526976.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cumulative Update KB4038220 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526964.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat Reader DC 2017.012.20093 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526962.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soft Organizer 6.11 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526960.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Acrobat Reader DC 2017.012.20093 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526957.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe After Effects 2022 22.5.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526941.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Air Explorer Pro 1.16.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526911.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Acrobat Pro DC 2017.012.20093 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526908.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Core Temp 1.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526900.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Flash Player 26.0.0.151 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526898.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mozilla Firefox ESR 52.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526866.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Process Lasso Pro 8.9.8.48 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526569.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ UltraUXThemePatcher 3.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526512.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526506.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Foxit Reader 8.0.2.805 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526501.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hotspot Shield Elite 6.20.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526497.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ ACDSee Ultimate 10.0 Build 839 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526495.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Uninstall Tool 3.5.1 Build 5510 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526489.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Viber 6.3.0.1532 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526475.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ AAct 1.9 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526463.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Uninstall Tool 3.5.1 Build 5510 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526440.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ KMSAuto Lite 1.2.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526427.jpg" />
 </div>
 
 

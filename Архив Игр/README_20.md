@@ -6,7 +6,7 @@ Darkest Dungeon (2016) [Ru/Multi] (24787/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775555.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Walk It Out! [Wii] [NTSC] [ENG] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775348.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bioshock Дилогия  [Ru/En] (RePack) 2007-2010 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775053.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TransOcean 2: Rivals (2016) [En] (1.02) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774830.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Among the Sleep (2017) [Ru/Multi] (3.0.1/dlc) Repack Other s [Enhanced Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774792.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] License Reloaded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774415.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Sims 4 (2014) [En] (1.41.38.1020/dlc) License CODEX [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774062.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TransOcean 2: Rivals (2016) [Ru/Multi] (1.02) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773884.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773867.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Witness (2016) [Ru/Multi] (1.02-1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773829.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773186.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ A Rose in the Twilight (2017) [En/Ja] (1.0.0.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773052.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Death's Gambit (2018) [En] (1.2/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772514.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Goliath (2016) [Ru/En] (1.0.1) Repack SpaceX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771108.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Slime Rancher (2016) [Ru] (0.3.1) Repack ours
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770040.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Dark Souls II/2 Scholar of the First Sin (2015) [Ru/Multi] (1.01/dlc) Repack R.G
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769675.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dark Souls II/2 Scholar of the First Sin (2015) [Ru/Multi] (1.01/dlc) SteamRip R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769665.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.0.7c/dlc) Repack R.G. Catalyst [Deluxe Edi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769587.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Surviving Mars (2018) [Ru/Multi] (1.0/dlc) License CODEX [Digital Deluxe Edition
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768745.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.3.3) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768036.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Signal From Toelva (2017) [En] (1.02) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767718.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Street Racer Europe / Street Racer Europe: От Москвы до Барсело
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767060.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Split/Second: Velocity [Multi5] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767012.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766349.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2/upd1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765916.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Shrek Forever After: The Game / Шрэк Навсегда [RePack]  {10+} [En] |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765570.jpg" />
 </div>
 
 

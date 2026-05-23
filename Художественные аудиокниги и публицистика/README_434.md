@@ -1,82 +1,3 @@
-###  Публикация: 1230567   (614056) от 13.06.2018
-
-Александр Макколл Смит | Правильное отношение к дождю (2018) [MP3, Ирина Воробьева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-С шотландским климатом примиряет Правильное отношение к дождю. С жизнью мирит готовность смело принимать ее дары. Это трудно дается Изабелле Дэлхаузи. Слишком много мыслей и слишком мало поступков. Что тут скажешь, философ.
-Она редактирует умный журнал и отчаянно старается не лезть в чужие дела. Не корить племянницу, связавшуюся с маменькиным сынком и рохлей. Не (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD1F3F4CAF251D7C0C62F5E623814198047DEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909672   (613839) от 24.06.2015
-
-Дем Михайлов | Судьба клана (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Захватывающие приключения Роса в волшебном мире Вальдиры продолжаются! Тернист и опасен путь к верщине, но настоящий герой никогда не пасует перед трудностями и добивается цели. Оказавшись втянутым в разборки кланов, Рос старается любым способом выполнить миссию, несмотря на нескончаемые препятствия на своем пути. Предательство и настоящая дружба, любовь и ненависть (   Читать дальше...   )Жанр: Научная фантастика, Боевое фэнтези, LitRPGПродолжительность: 10:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBE4314B1AB2B19776A43A7D03CA4881ACDC772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230494   (613756) от 13.06.2018
-
-Марк Калашников | Меж сном и явью (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда в спину дышит старуха с косой, согласишься на многое, а тут всего-навсего работу предлагают. И не где-нибудь, а в легендарной корпорации «Трансформа»! Да и работенка не пыльная: стать бета-тестером новой компьютерной игры с полным погружением в виртуальную реальность. Подарок судьбы! Разве что раса досталась весьма специфическая и не очень почетная, да болевой (   Читать дальше...   )Жанр: ЛитРПГПродолжительность: 16:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C88DFE244B4FF537CEDE5F42C15CD19E3F0E2E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 352796   (613718) от 21.06.2011
 
 Алексей Фомичёв | Предел невозможного [2011] [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613718.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613716.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613629.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613576.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613458.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613453.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613370.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613298.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613297.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613191.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613189.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613178.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613163.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613044.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613039.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613037.jpg" />
 </div>
 
 
@@ -504,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613028.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612960.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612860.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612859.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612821.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612791.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612727.jpg" />
 </div>
 
 
@@ -678,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFCA7BBA01772B31C47E676166E3641B9DC8AEBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146828   (612620) от 30.06.2017
+
+Роберт М. Вегнер | Сказания Меекханского Пограничья. Восток – Запад (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восток Меекханской империи – край неспокойный. Здесь пролегает граница с побежденным, но не сломленным государством воинственных кочевников, здесь во множестве встречаются Урочища, проклятые места, где можно столкнуться с невероятными чудовищами. Здесь вольный отряд генерала Ласкольника, что когда-то принес империи победу над кочевниками, продолжает нести службу (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 19:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B86335537A4A8C348E0E9A1F88357C8CAE61C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230845   (612266) от 14.06.2018
+
+Лена Обухова, Наталья Тимошенко | Нормальное аномальное (Книга 4). Хозяин гиблого места (2018) [MP3, Ольга Голованова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612266.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз судьба приводит Войтеха Дворжака и его команду исследователей-любителей в Астраханскую область, на берег реки Бузан. Год назад сюда отправились на пикник и бесследно исчезли четверо молодых людей. И только теперь одному из них удалось вернуться, но он не помнит, ни как его зовут, ни где он провел все это время, ни куда делись остальные. Искатели приключений (   Читать дальше...   )Жанр: Современные детективыИздательство: МедиаКнигаПродолжительность: 07:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52570778041829D48FEADB61C9972B31DED8E44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037184   (612227) от 25.07.2016
+
+Борис Зайцев | Золотой узор (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспечная, нравственно надломленная жизнь образованных слоев предреволюционной России сменяется страшной обстановкой расстрелов, лишений, террора. Зайцев обнаруживает истоки национальной трагедии и те силы, которые способны противостоять ей. Этот роман одновременно и суд над революцией, и покаяние. Герои образуют «союз людей», творящих дела любви и смиренно несущих (   Читать дальше...   )Жанр: ПрозаПродолжительность: 10:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CA7F420B46FDFC01AF4B1E689B56E273E44429
 ```
 
 https://mybot314.ru/tekegram_catalog/

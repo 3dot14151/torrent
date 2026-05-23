@@ -6,7 +6,7 @@ Adobe Reader X 10.1.4 Final [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518622.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518612.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518608.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Photodex ProShow Producer 5.0.3280 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518591.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (Steam-Rip) 2012 l R.G. GameWorks [Бе�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518581.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.32.31332.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518569.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Avizura - Crystal EP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518525.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Zombie Cats - Cat Attack (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518520.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ oneBYone - Somebody Else EP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518518.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cyantific - Colour In The Shadows (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518516.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Disparition - Madoc (2013) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Experimental, In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518514.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Encrypted Drum & Bass (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518511.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Costa Cadeu - O (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch, Experiementa
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518510.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518505.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Costa Cadeu - Cadeu (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch, Experiem
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518504.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Airwave - LCD Sessions 001 - 005 (2015) [MP3|320 кб/с|(image + .cue)]<Trance,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518501.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Icecream Slideshow Maker 1.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518499.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Icecream Image Resizer 1.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518498.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Ghost - Meliora (2015) [MP3|320 кб/с]<Heavy Metal, Occult Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518497.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Blank & Jones - Relax Jazzed 2 by Marcus Loeber (2014) [FLAC|tracks + .cue]<Loun
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518493.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Icecream Media Converter 1.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518489.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Miami Horror - All Possible Futures (2015) [MP3|320 кб/с]<New Wave , Synth Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518484.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ IObit Uninstaller 5.0.3.169 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518483.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Privacy Eraser Free 4.2.6 build 1541 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518482.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Ashbury Heights - The Looking Glass Society (2015) [MP3|320 кб/с]<Synthpop, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518475.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Fidelia 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518467.jpg" />
 </div>
 
 

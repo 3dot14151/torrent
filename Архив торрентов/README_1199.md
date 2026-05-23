@@ -6,7 +6,7 @@ ChronoSync 4.8.4 & ChronoAgent 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780603.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Asche - Distorted DJ (2002) Ant-Zen [FLAC|Lossless|tracks+.cue] <Rhythmic Noise,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780595.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ CodeKit 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780586.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Macgo Mac Blu-ray Player Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780577.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780576.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Ashampoo Snap 10.0.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780543.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780534.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Vidiot 0.3.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780529.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Room Arranger 9.5.2.608 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780525.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Carbon Copy Cloner 5.0.9 (5267) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780500.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6785.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780480.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ NGW: Дикое королевство: Восстание / Savage Kingdom (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780466.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro  15.0.5007
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780463.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780458.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Microsoft Office 2007 Standard SP3 12.0.6785.5000 RePack by KpoJIuK (2018.02)  [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780455.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Microsoft Office 2010 Professional Plus + Visio Premium + Project Pro 14.0.7194.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780454.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Adobe Photoshop CC 2018 v19.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780446.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Fuzzy Boombox V.2 (2004) Fuzzy Box [FLAC|Lossless|tracks+.cue] <Leftfield, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780434.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Rhythm Code III (2018) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psydub,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780413.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Circular - Glass Darkly (2004) Origo Sound [FLAC|Lossless|tracks+.cue] <IDM, Amb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780408.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ SMPlayer 18.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780406.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ FastStone Capture 8.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780384.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780380.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ YouTube By Click Premium 2.2.79 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780375.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ IsMyLcdOK 3.03 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780370.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ mp3DirectCut 2.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780361.jpg" />
 </div>
 
 

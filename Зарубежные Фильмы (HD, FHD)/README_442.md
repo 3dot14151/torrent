@@ -1,56 +1,3 @@
-###  Публикация: 799079   (651506) от 23.06.2014
-
-Кровавая вдова / Blood Widow (2014) WEB-DLRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После покупки дома в пригороде, успешная молодая пара, Лори и Хью, устраивают вечеринку для своих друзей.
-Ночью, во время вечеринки, несколько друзей решают осмотреть заброшенную школу, расположенную по соседствуПроизводство: США |  Arcani PicturesЖанр: УжасыРежиссер: Джерими БакхалтАктеры: Даниэль Лиллей, Кристофер де Падуа, Хосе Васкес, Эмили Каттинг, Памела ДугасПеревод: Любительский, одноголосый (R.A.I.M)Продолжительность: 01:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5C5ED65093C55616D3F3FA33F4753D5DA5291F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678636   (651328) от 12.07.2013
-
-G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [1080p] [Расширенная версия / Extended Cut] [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Во второй части отряд «G.I. Joe» вновь объявит вызов группировке «Кобра» и вступит в противостояние с правительством…Производство: СШАЖанр: Фантастика, Триллер, ПриключенияРежиссер: Джон М. Чу / Jon M. ChuАктеры: Дуэйн Джонсон, Эдрианн Палики, Брюс Уиллис, Рэй Парк, Ли Бён Хон, Д.Дж. Котрона, Джонатан Прайс, Элоди Юнг, Ченнинг Татум, Люк БрейсиПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (форсированные на расширенные сцены), английскийПродолжительность: 02:03:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516719   (651162) от 29.06.2012
 
 Таинственный Альберт Ноббс / Albert Nobbs (2011) BDRip [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651162.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651105.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651055.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651021.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651017.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650909.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650901.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650853.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650818.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650808.jpg" />
 </div>
 
 
@@ -326,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_650798.jpg" />
 </div>
 
 
@@ -353,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650733.jpg" />
 </div>
 
 
@@ -379,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650728.jpg" />
 </div>
 
 
@@ -409,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650676.jpg" />
 </div>
 
 
@@ -435,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650666.jpg" />
 </div>
 
 
@@ -461,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650356.jpg" />
 </div>
 
 
@@ -488,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650354.jpg" />
 </div>
 
 
@@ -514,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650351.jpg" />
 </div>
 
 
@@ -540,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650262.jpg" />
 </div>
 
 
@@ -566,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650222.jpg" />
 </div>
 
 
@@ -592,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650205.jpg" />
 </div>
 
 
@@ -618,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650130.jpg" />
 </div>
 
 
@@ -645,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650020.jpg" />
 </div>
 
 
@@ -671,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650016.jpg" />
 </div>
 
 
@@ -682,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5A242B519A189DE8F25FF7CCA44CDE2EFFA49F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 111363   (650008) от 27.03.2019
+
+Вавилон Н.Э. (Расширенная версия) / Babylon A.D. (Extended Cut) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем наемник Туроп из Новой Сербии получает задание отконвоировать девушку из монгольского монастыря в Нью-Йорк. Его путь лежит через Казахстан, Дальний Восток и Берингов пролив.Жанр: Боевик, приключения, фантастика, триллерРежиссер: Матье КассовицВ ролях: Вин Дизель, Мишель Йео, Мелани Тьерри, Жерар Депардье, Шарлотта Рэмплинг, Марк Стронг, Ламберт Уилсон, Жером Ле Баннер, Джоэль КирбиПеревод: Профессиональный (полное дублирование)Субтитры: Русские, английскиеФормат: MKVПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FEBB3BD7DA43C42222A7B568B7DEA40D464EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291649   (650001) от 27.03.2019
+
+Невидимый гость / Contratiempo (2016) BDRip [H.265/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодого бизнесмена Адриана Дориа обвиняют в убийстве любовницы, и он решает воспользоваться услугами Вирджинии Гудман, лучшего в стране специалиста по выходу из самых сложных ситуаций. Адриан содержится под домашним арестом, а завтра состоится судебное заседание, поэтому вечером к нему приходит Вирджиния, чтобы придумать наилучшую стратегию защиты. Для неё это последнее (   Читать дальше...   )Производство: Испания / Atresmedia Cine, Think Studio, Nostromo PicturesЖанр: Триллер, Криминал, ДетективРежиссер: Ориол ПаолоАктеры: Марио Касас, Ана Вахенер, Хосе Коронадо, Барбара Ленни, Франсеск Орелья, Пако Тоус, Давид Сельвас, Сан Еламос, Манель Дуэсо, Сан Еламос, Манель Дуэсо, Бланка МартинесПеревод: ДублированныйСубтитры: русские (forced, full), английские (full), испанские (SDH)Продолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EF1CAA279FFFBB14FED36B6446DECF78BF6E7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

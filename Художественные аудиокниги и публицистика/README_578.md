@@ -1,82 +1,3 @@
-###  Публикация: 1169789   (401123) от 29.09.2017
-
-Антон Емельянов, Сергей Савинов | Первый игрок (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все вокруг погибли, но ты и кучка незнакомцев волею таинственных существ перенеслись в странное место. Мир Карика похож на игру, тут можно получать уровни, развиваться, воскресать в случае неудач. Но стоит допустить ошибку, поверить не тому, и ты легко умрешь по-настоящему. Все знают, где выход из мира, где можно вернуться домой, вот только еще ни один игрок не прошел (   Читать дальше...   )Жанр: Фантастика, Антиутопия, ЛитРПГПродолжительность: 17:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C74781DF205B48713B94E32A7837D2CE328A28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170148   (400609) от 30.09.2017
-
-Владимир Дягилев | Солдаты без оружия (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Читатель, взяв в руки этот том под названием «Солдаты без оружия», поймет, что главное и основное в нем — гуманизм. Эта книга — о подвиге тех, кто вернул к жизни тысячи людей. Эта книга — о советских медиках.
-Для повестей «Змея и чаша», «Медсанбат 0013», «Гвардейцы» и «Доктор Голубев» общим является не только духовное единство героев, острота ситуаций, глубокое знание (   Читать дальше...   )Жанр: ПовестьПродолжительность: 22:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B210F2719956EE7D81D5D4BD64B96CE268106C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170234   (400608) от 30.09.2017
-
-Нора Робертс | Лицо в темноте (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эмма Маккавой, дочь легендарного рок-музыканта, живет в блистательном и сумасшедшем мире шоу-бизнеса. Она знает цену популярности — телохранители за спиной, навязчивое внимание репортеров… А ей так хочется свободы! Вырвавшись из-под опеки, Эмма за два года успела влюбиться, выйти замуж и узнать горечь разочарования. Уход от мужа едва не стоил ей жизни. Но всегда (   Читать дальше...   )Жанр: Остросюжетный любовный романПродолжительность: 17:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0993EF28E39DEBA4243E576E1D0420B4CA407FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170232   (400570) от 30.09.2017
 
 Александр Варго | Морок пробуждается (2017) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400570.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400506.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400428.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400384.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399843.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399828.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399815.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399814.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399471.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399289.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399215.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398981.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398786.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398353.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398347.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398043.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397852.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397767.jpg" />
 </div>
 
 
@@ -558,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397670.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397613.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397447.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397327.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397091.jpg" />
 </div>
 
 
@@ -674,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE75D2EC080C985BFC8FF2DE6CB93EEC53CABA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171448   (396732) от 04.10.2017
+
+Мэри Стюарт | Заколдованный конь (2014) [MP3, Валерия Лебедева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англичанка Ванесса Марч прилетает в Австрию, надеясь встретиться там со своим мужем и уладить возникшие между ними недоразумения, но неожиданно оказывается вовлеченной в мир, где есть убийства, опасные встречи с наркоторговцами, погони при лунном свете... Действие происходит на фоне прекрасной альпийской природы. "Кармел Лейси - самая глупая из всех известных (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 06:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA05B9969BAEE1B31B0241DDB4C6724E3DF74FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171447   (396621) от 04.10.2017
+
+Алексей Лосев, Аза Тахо-Годи | Аристотель. Жизнь и смысл (2010) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аристотель (384 до н. э., Стагир — 322 до н. э., Халкида, о. Эвбея) — древнегреческий философ и учёный. Ученик Платона. С 343 до н. э. — воспитатель Александра Македонского. В 335/4 г. до н. э. основал Ликей (Лицей, или перипатетическую школу). Основоположник формальной логики. Создал понятийный аппарат, который до сих пор пронизывает философский лексикон и сам стиль (   Читать дальше...   )Жанр: БиографияПродолжительность: 08:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AFD628642857D2CA0724D2C9BD7C7490BE9E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567882   (395935) от 30.10.2012
+
+Александр Тихонов | Крепость [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ по вселенной "Кремль 2222". Во время Последней Войны на территории Красногорского гидроузла, неподалеку от Омска, был построен укреплённый военный объект. Именно там укрылись выжившие после кровопролитных боёв жители сибирского мегаполиса. За стенами Красногорской крепости - гарнизон из бывших сотрудников полиции и военных, вдоволь продовольствия и боеприпасов, имеется связь с кремлём. Лишь на горизонте маячит силуэт сломанного боевого робота как напоминание, что война ещё не окончена...Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882B6166BCB6EA192F990B76F9A1CC68EF4B1116
 ```
 
 https://mybot314.ru/tekegram_catalog/

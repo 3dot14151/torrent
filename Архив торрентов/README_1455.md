@@ -6,7 +6,7 @@ IObit Driver Booster Pro 9.2.0.173 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722692.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Allavsoft Video Downloader Converter 3.17.1.6994 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722686.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722679.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Nothing But... Psy Trance Vol.08 (2019) [MP3|320 Kbps] <Psy-Trance, Psyched
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722677.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Two Point Hospital v1.12.27083 [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722673.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ OBS Studio 22.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722671.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Wondershare Filmora 9.5.2.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722640.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MAGIX Vegas Pro 18.0.0.284 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722638.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722633.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ SolveigMM Video Splitter 7.4.2007.29 Business Edition RePack (& Portable) by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722632.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Phillip Island 500. Э
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722630.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722625.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ USDownloader 1.3.5.9 Portable (28.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722618.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722616.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Inner Holographic Reality (2017) [MP3|320 Kbps] <Psy Dub, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722614.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ goPanel 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722611.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Acoustica Premium Edition 7.3.27 (x64) RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722609.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VidCoder 7.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722608.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Opera 83.0.4254.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722605.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wise Registry Cleaner Pro 10.7.1.698 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722604.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ IObit Driver Booster Pro 9.2.0.173 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722597.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Extreme Picture Finder 3.43.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722590.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Macrorit Data Wiper 4.6.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722585.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Glary Utilities Pro 5.114.0.139 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722580.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Macrorit Partition Expert 5.3.9 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722571.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Office 2013-2019 C2R Install + Lite 7.0.6 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722539.jpg" />
 </div>
 
 

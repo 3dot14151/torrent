@@ -1,29 +1,3 @@
-###  Публикация: 1171798   (949016) от 23.02.2020
-
-The Coma: Recut (2017) [Ru/Multi] (2.1.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В перевыпуске классического корейского хоррора вы снова попадете в школу Sehwa High. Вам предстоит вжиться в роль молодого корейца по имени Ёнхо, ученика этой школы. Его преследует убийца. Сможете ли вы продержаться?Тип издания: RepackРазработчик: Devespresso GamesЖанр: Adventure (Horror), 2DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9EC6C614C7E8C95FD11591A0857021B23202DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982464   (947802) от 03.02.2016
 
 Gods Will Be Watching (2014) [Ru/Multi] (1.0.0.11) SteamRip Let'sРlay
@@ -32,7 +6,7 @@ Gods Will Be Watching (2014) [Ru/Multi] (1.0.0.11) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947802.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ D4: Dark Dreams Don't Die (2015) [Ru/En] (02.02.2016/dlc) Repack R.G. Механ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947794.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944000.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943992.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Talos Principle / Принцип Талоса (2014-2015) [Ru/Multi] (1.0.28
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943962.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BEAUTIFUL DESOLATION (2020) [Ru/Multi] (1.0.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943480.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fire (2015) [Ru/Multi] (1.0.6780S) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939554.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Lucius - Dilogy / Lucius - Дилогия (2012-2015) [Ru/En] (1.02.3866/1.0.160
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938136.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru] (1.01) RePack -Ultra-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937715.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Your Toy (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937557.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Detention 返校 (2017) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932999.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Weakless (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932884.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) SteamRip  Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931703.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Subject 13 (2015) [Ru/Multi] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931584.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931507.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ LUNA The Shadow Dust (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929861.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929853.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929832.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Ceville / Ceville. Похождения тирана (2009) [En/Ge] (1.0.2.0) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928882.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Zheros (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928435.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927182.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Life Is Strange™ (2015) [Ru/Multi] (1.0.0.397647/dlc) SteamRip Let'sРlay [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927170.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926750.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Seed of Life (2021) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926642.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Game of Thrones: A Telltale Games Series (2014-2015) [Ru/En] (1.0.0.1) Repack R.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925440.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Game of Thrones: A Telltale Games Series (2014-2015) [Ru/En] (1.0.0.1) Repack R.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBAA2AA206A079DFACA6780DAEA61D94B87E2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489414   (925159) от 16.08.2021
+
+Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год многие дети пропадают без вести и их больше не найти... Это история маленькой девочки, которую похитили и привезли в место, которое можно представить только в кошмаре. Как Вы можете выжить и избежать ада на земле, если Вам всего 10 лет? Что происходит, когда происходящее переходит за границы понимания хрупкого детского разума? Жуткая история, полная неизвестности. (   Читать дальше...   )Тип издания: LicenseРазработчик: Beer Night StudioЖанр: Horror, Adventure, StealthЯзык субтитров: Русский, Английский, Корейский, Китайский (упрощённый)Язык интерфейса: Русский, Английский, Корейский, Китайский (упрощённый)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3D7E61A891D10D62931F1BE0CF84C077FBF129
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1704604   (114159) от 05.03.2024
-
-Лена Обухова | Городские легенды 2. Медвежье озеро (Книга 2). Украденный ключ (2024) [MP3, Екатерина Бранд]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на все трагические события, сопровождавшие подготовку к открытию, гостиница на Медвежьем озере принимает первых гостей. Юля твердо намерена в скором времени наладить работу и заполнить все номера, а Влад больше увлечен поиском объяснений своему внезапному прозрению. Обоим приходится вновь начать собственное расследование, когда в гостинице одна за другой (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 09:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20AFDEFD2E535366CAD27AD618B5548265A273A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704620   (114151) от 05.03.2024
-
-Влада Ольховская | Мастера профайлинга (Книга 1). Зимнее солнце (2024) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Обнаженная девушка обнаружена замерзшей насмерть на вершине старой сосны посреди заснеженного леса. Никаких указаний на убийство нет, и полиция считает произошедшее пусть и очень странным, но все же несчастным случаем. Однако в эту версию не верит судмедэксперт, который обращается за помощью к старому другу – легендарному профайлеру Николаю Форсову. Вот только сам (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 11:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02EA8399FC061AF69BB3A13A8988B631CCB6235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704534   (114147) от 05.03.2024
-
-Дмитрий Володихин | Дети Барса (2023) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Место действия – некогда счастливая страна, раскинувшаяся меж двух великих рек, несущих свои воды через выжженную солнцем пустыню. Могущественное Царство, когда-то обласканное Богом, стоит на пороге гибели. Со всех сторон его осаждают беспощадные враги. Жизнь страны еще теплится лишь благодаря древнему мистическому завету.
-
-Власть над судьбой Царства попадает в руки (   Читать дальше...   )Жанр: Боевое фэнтезиИздательство: Нигде не КупишьПродолжительность: 13:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7527FDE6497B15C8B86D6598CA03A30B3C009FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704679   (114141) от 05.03.2024
 
 Марина Серова | Частный детектив Татьяна Иванова. Темные делишки (2022) [MP3, Святой]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114141.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114133.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114130.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114128.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114105.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114092.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114063.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114061.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114056.jpg" />
 </div>
 
 
@@ -327,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114049.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114047.jpg" />
 </div>
 
 
@@ -382,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114045.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114042.jpg" />
 </div>
 
 
@@ -434,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114001.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113993.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113989.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113977.jpg" />
 </div>
 
 
@@ -545,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113967.jpg" />
 </div>
 
 
@@ -571,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113950.jpg" />
 </div>
 
 
@@ -600,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113907.jpg" />
 </div>
 
 
@@ -626,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113904.jpg" />
 </div>
 
 
@@ -652,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113862.jpg" />
 </div>
 
 
@@ -678,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113848.jpg" />
 </div>
 
 
@@ -692,6 +612,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8388361ADF770ED5863A5F38354B2AEACB8D4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705709   (113801) от 09.03.2024
+
+Генри Каттнер и др. | То, что вам нужно (2022) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113801.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Журналист Кармишел обнаружил в престижном районе странный магазин с очень неприметной вывеской «Мы имеем то, что вам нужно». Когда он начал общаться с хозяином магазина, то выяснились странные подробности, которые чуть не свели Кармишела с ума. Похоже, что магазин продает своим клиентам кота в мешке, причем за весьма солидные деньги." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50215A0F629064429CE1B128DC3BE2DFB9829AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705807   (113755) от 10.03.2024
+
+Васин Александр | Приди и победи (2024) [MP3, Олег Шубин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113755.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тихом провинциальном Владимире происходит неслыханное - внутри знаменитых Золотых ворот обнаруживается труп иностранца. Да не простого, а одного из членов одной из самых влиятельных преступных группировок в мире. За расследование берутся местные полицейские, даже не представляя, куда заведет их поиск...
+Добро пожаловать в мистический мир капитана Бестужева!Жанр: Мистический детективИздательство: Аудиокнига своими рукамиПродолжительность: 10:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A0D3490E3E19C542F53FD373BE4D5E4E75201B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705915   (113753) от 10.03.2024
+
+Даниил Мордовцев | Великий раскол (2015) [MP3, Наталия Литвинова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даниил Лукич Мордовцев (1830–1905) – автор многочисленных популярнейших в XIX веке романов и повестей, посвященных истории России и Украины. «Великий раскол» – это захватывающее повествование о трагических событиях XVII столетия, одной из основных причин которых явилась церковная реформа. Деятельность патриарха Никона вызвала раскол Русской Церкви и привела к возникновению (   Читать дальше...   )Жанр: Русская историческая литература, романИздательство: Нигде не купишьПродолжительность: 22:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F5D63971C0469260B9EEEAC177288CB0047EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

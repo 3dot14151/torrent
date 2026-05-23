@@ -1,84 +1,3 @@
-###  Публикация: 1364526   (373662) от 13.10.2020
-
-Олег Кожевников | Михаил II Великий князь. Государь. Иператор (2019-2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Невероятные события, произошедшие в России после переноса сущностей наших современников в тела великого князя Михаила Александровича и его секретаря Джонсона.Жанр: Боевая фантастика,историческая фантастика,попаданцыПродолжительность: 11:57:15
-Тяжела доля императора. Тем более в России 1917 года. И это в полной мере ощутил наш современник, оказавшись в ходе научного эксперимента, затеянного его другом, в теле Михаила Романова, брата Николая Второго. Так как ребята знали судьбу Михаила и его секретаря Джонсона, тела которых в этой реальности заняли сущности наших современников, то они начали делать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6840785298E581920B951453817BEC3A4CBB4575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415871   (373652) от 13.10.2020
-
-Алексей Пехов | Белый огонь (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Магия, давно забытая, пробуждается. Все, что считалось истиной сотнями лет, покрывается трещинами. Время Шестерых давно прошло, но остались те, кто помнит ту эпоху. И теперь Шерон из Нимада, указывающей, ставшей некромантом, придется использовать белый огонь, чтобы противостоять тьме.Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 13:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A453F72B1DB8A8D4439C1858EC7B4EDD9AC72134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068918   (373450) от 04.11.2016
-
-Владимир Сорокин | Путь Бро (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Путь Бро» – новый роман Владимира Сорокина.
-Полноценное и самостоятельное произведение, эта книга является также «приквелом» (предысторией) событий, описанных в романе «Лёд», вышедшем двумя годами ранее, и составляет первую книгу будущей эпопеи, над завершением которой автор работает в настоящее время.
-"Время Земли разноцветно. Каждый предмет, каждое существо (   Читать дальше...   )Жанр: Современная проза КонтркультураПродолжительность: 10:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E397262480EC0F53D668D5E2F5A2975DCB7977AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254358   (373323) от 14.10.2018
 
 Вирджиния Эндрюс | Лепестки на ветру (2018) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373323.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373273.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373253.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373249.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373247.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373201.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373151.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373053.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373005.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372888.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372768.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372760.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372746.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372654.jpg" />
 </div>
 
 
@@ -455,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372643.jpg" />
 </div>
 
 
@@ -481,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372614.jpg" />
 </div>
 
 
@@ -507,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372590.jpg" />
 </div>
 
 
@@ -533,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372577.jpg" />
 </div>
 
 
@@ -559,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372553.jpg" />
 </div>
 
 
@@ -585,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372517.jpg" />
 </div>
 
 
@@ -611,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372455.jpg" />
 </div>
 
 
@@ -637,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372452.jpg" />
 </div>
 
 
@@ -664,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372436.jpg" />
 </div>
 
 
@@ -675,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FAE1A6A0007BD2A38E4536CD7719818F6CA8336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327563   (372433) от 26.09.2019
+
+Светлана Фалий | Город-Сад (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем дальше от нас времена СССР, тем больше они обретают налёт романтизма и ностальгии, особенно среди людей, которые их помнят. Великие свершения, покорение космоса, ударные комсомольские стройки – как бы то ни было, но "из песни слова не выкинешь". Наши герои, четверо туристов, неожиданно находят в глухой тайге такой вот островок соцреализма. Но кому и (   Читать дальше...   )Жанр: Фантастика, ДрамаПродолжительность: 04:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759C41069D953FEBF1B7B9FBE9F0E2082DC6FEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327567   (372430) от 26.09.2019
+
+Светлана Фалий | Иван Иваныч (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Иваныч Иванов – начальник одной из многочисленных контор непонятного назначения, ни на секунду не сомневающийся в важности своей работы. Служебная необходимость забрасывает его в не совсем привычные места и условия. Ситуации иной раз доходят до полного абсурда. А порой бывают даже чрезвычайно опасны. Однако Иван Иваныч знает - быть руководителем – его призвание, (   Читать дальше...   )Жанр: Фантастика, КомедийныйПродолжительность: 02:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD79AB0B1E5F1ACC173B2A7A89E7520C1F6FF9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327681   (372425) от 26.09.2019
+
+Данила Черезов | Кристалл преткновения (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372425.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2027 году произошло событие вселенского масштаба – пришествие СПАСИТЕЛЯ. Энергетические волны, посланные им, скинули с жителей Земли иго Зла, которое многие века порабощало их тела и души. К 2053 году Земля стала единым государством, исчезло большинство болезней, увеличилась продолжительность жизни, многие люди открыли в себе сверх способности, было сделано множество (   Читать дальше...   )Жанр: Героическая фантастика, Космическая фантастикаПродолжительность: 14:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90EC05E6AB692C399CC7A42BC82CAB6B64646CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

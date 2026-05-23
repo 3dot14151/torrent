@@ -6,7 +6,7 @@ PCRADIO 6.0.0 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788493.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AusLogics Disk Defrag Pro 4.9.0.0 Final RePack (& Portable) by KpoJIuK  [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788490.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ K-Lite Codec Pack 13.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788486.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discord 0.0.300 Portable by soyv4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788485.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788483.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ foobar2000 1.3.15 DarkOne + DUIFoon Portable by MC Web (30.01.2018) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788477.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Audition CC 2018 11.0.1.49 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788471.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The KMPlayer 4.2.2.20 repack by cuta (build 3) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788455.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Photoshop CC 2018 (v19.1.0) x86-x64 Portable by punsh (with Plugins) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788443.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ McNeel Rhinoceros 6 6.1.18023.13161 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788434.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788395.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AAct 3.9.7 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788394.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Balabolka 2.15.0.806 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788364.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ WizFile 3.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788358.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Opera 81.0.4196.54 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788354.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Notepad++ 8.1.9.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788348.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ExamDiff Pro Master Edition 12.0.1.10 RePack & Portable by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788346.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Paint.NET 4.3.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788345.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ NirLauncher Package 1.23.54 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788343.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ WinNTSetup 5.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788336.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Extreme Picture Finder 3.58.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788326.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wondershare UniConverter 13.2.1.89 (х64) Repack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788325.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ StartAllBack 3.1.0 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788315.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SanDisk SSD Dashboard 3.4.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788312.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ BELOFF [dp] 2021.11.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788303.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788298.jpg" />
 </div>
 
 

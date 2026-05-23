@@ -1,57 +1,3 @@
-###  Публикация: 478757   (87029) от 07.04.2012
-
-Без лица / Face/Off (1997) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Чтобы отомстить за жестокое убийство своего сына, агент ФБР Шон Арчер соглашается на сложную хирургическую операцию. Он берет себе новое лицо, лицо террориста Кастора Троя, который находится в коме.
-
-Однако происходит непредвиденное: Трой приходит в себя и исчезает в обличьи Арчера. Жизнь Шона превращается в настоящий кошмар — ему приходится сражаться не только за свою жизнь, но и за жизнь своей жены и дочери.Жанр: Боевик, Триллер, КриминалРежиссер: Джон ВуАктеры: Джон Траволта, Николас Кейдж, Джоан Аллен, Алессандро Нивола, Джина Гершон, Доминик Суэйн, Ник Кассаветис, Харви Преснелл, Колм Фиори, Джон Кэрролл Линч...Перевод: Дублированный, Многоголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русские, Украинские, АнглийскиеПродолжительность: 02:19:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478457   (87026) от 07.04.2012
-
-«Старый» Новый год / New Year's Eve (2011) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма — жители города, который никогда не спит. Нью-Йорк накануне Нового года переплетет жизни нескольких героев: умирающего в больнице пожилого человека, секретаршу, решившую осуществить данные себе обещания, продюсера знаменитого новогоднего шоу на Таймс Сквер, человека, который вообще ненавидит этот праздник.Жанр: Мелодрама, комедияРежиссер: Гэрри МаршаллАктеры: Холли Берри, Джессика Бил, Джон Бон Джови, Эбигейл Бреслин, Лудакрис, Роберт Де Ниро, Джош Дюамель, Зак Эфрон, Гектор Элизондо, Кэтрин Хейгл, Тиль Швайгер, Эштон Катчер, Сара Джессика Паркер, Мишель Пфайффер, Алисса МиланоПеревод: ДублированныйПродолжительность: 01:57:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479553   (87023) от 07.04.2012
 
 Клык / Kynodontas / Canine (2009) [720p] BDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87023.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87010.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87007.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86984.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86955.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86939.jpg" />
 </div>
 
 
@@ -220,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86886.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86858.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86850.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86847.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86845.jpg" />
 </div>
 
 
@@ -351,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86844.jpg" />
 </div>
 
 
@@ -377,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86825.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86799.jpg" />
 </div>
 
 
@@ -431,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86797.jpg" />
 </div>
 
 
@@ -459,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86776.jpg" />
 </div>
 
 
@@ -485,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86775.jpg" />
 </div>
 
 
@@ -511,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86757.jpg" />
 </div>
 
 
@@ -537,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86658.jpg" />
 </div>
 
 
@@ -563,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86654.jpg" />
 </div>
 
 
@@ -589,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86644.jpg" />
 </div>
 
 
@@ -615,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86643.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86626.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86624.jpg" />
 </div>
 
 
@@ -678,6 +624,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:238069DFB0210EBA0E36695B1EA1589E8C816CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478187   (86613) от 05.04.2012
+
+«Старый» Новый год / New Year's Eve (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои фильма — жители города, который никогда не спит. Нью-Йорк накануне Нового года переплетет жизни нескольких героев: умирающего в больнице пожилого человека, секретаршу, решившую осуществить данные себе обещания, продюсера знаменитого новогоднего шоу на Таймс Сквер, человека, который вообще ненавидит этот праздник.Жанр: Мелодрама, КомедияРежиссер: Гэрри МаршаллАктеры: Холли Берри, Джессика Бил, Джон Бон Джови, Эбигейл Бреслин, Лудакрис, Роберт Де Ниро, Джош Дюамель, Зак Эфрон, Гектор Элизондо, Кэтрин Хайгл, Мишель Пфайффер, Сара Джессика Паркер, Тиль Швайгер, Хилари Суэнк, Алисса Милано, Джеймс БелушиПеревод: ДублированныйПродолжительность: 01:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A10C069407A2D322A1DE78ED5CB14E5CE0F38B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478436   (86607) от 05.04.2012
+
+Смерть в горах / Into Thin Air: Death on Everest (1997) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по книге Джона Кракауэра "В разреженном воздухе"
+Подлинная история одного из самых драматических восхождений на Эверест в мае 1996 года, когда на высочайшую вершину мира пытались подняться сразу две группы альпинистов, возглавляемые Скоттом Фишером и Робом Холлом.
+Скотт и Роб вели богатых клиентов, заплативших немыслимые деньги за то, чтобы почувствовать себя настоящими альпинистами, хотя никто из них не имел ни малейшего представления, что такое горы. Проводники были вынуждены выполнять все прихоти и капризы своих подопечных, и это привело к тому, что, несмотря на весь свой опыт, Скотт и Роб начинают совершать одну ошибку за другой.
+В результате амбиции, бессердечие, невезение и плохая погода загнали обе группы в смертельную ловушку…Жанр: Драма, ПриключенияРежиссер: Роберт МарковицАктеры: Питер Хортон, Натаниель Паркер, Ричард Дженкинс, Кристофер МакДональд, Тим Даттон, Питер Дж. Лукас, Лонг Нгуйен, Джефф Перри, Нед ВонПеревод: Двуголосый закадровыйПродолжительность: 01:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A218F2AEA20DB638CFB9760EA7B1A28093F4B27F
 ```
 
 https://mybot314.ru/tekegram_catalog/

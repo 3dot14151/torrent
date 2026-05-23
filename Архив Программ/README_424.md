@@ -6,7 +6,7 @@ Microsoft Windows and Office ISO Download Tool 8.36.0.142 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825925.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tipard DVD Creator 5.1.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825919.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CyberLink MakeupDirector Deluxe 1.0.0721.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825918.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mozilla Firefox 52.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825916.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Replay Video Capture 8.8.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825906.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ant Download Manager PRO 1.7.1 Build 47812 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825887.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4911.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825871.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4911.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825818.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6762.5000 RePack by D!akov (2017.03) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825814.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Marvelous Designer 4 Enterprise 2.1.87.10465 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825760.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ AOMEI Partition Assistant Technician Edition 8.8.0 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825735.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FastStone Capture 8.7 RePack (&Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825694.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WM Capture 8.8.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825688.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BlueStacks App Player 2.6.104.6367 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825677.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ IObit Driver Booster Pro 4.3.0.504 Final RePack (& Portable) by D!akov [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825672.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows Office 2020.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825624.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Windows Word 2020.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825621.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Wise Care 365 Pro 4.14.399 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825394.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Panda Free Antivirus 2016 16.1.2 DC 12.04.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825174.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ USDownloader 1.3.5.9 [12.04.2016] Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825172.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CoolUtils Total Movie Converter 4.1.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825162.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Ant Download Manager 0.3.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824994.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Geek Uninstaller 1.3.6.62 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824990.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ ThunderSoft GIF to Video Converter 3.8.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824955.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Internet Download Manager 6.39 Build 3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824853.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Spotify 1.1.70.610 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824852.jpg" />
 </div>
 
 

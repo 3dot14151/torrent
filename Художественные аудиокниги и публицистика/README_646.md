@@ -1,84 +1,3 @@
-###  Публикация: 1334749   (293177) от 30.10.2019
-
-Рэй Брэдбери | Гринтаун. Мишурный город (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брэдбери всегда был и физиком, и лириком. Он создавал новые миры и предупреждал о последствиях технологического прогресса. Этот сборник откроет новые грани Великого Мастера: как автора пронзительной лирики, художника волшебного детства, демиурга целых городов. Впервые изданные на русском рассказы и стихотворения дополняются редкими дневниковыми записями и воспоминаниями (   Читать дальше...   )Жанр: Публицистика, социальная фантастикаПродолжительность: 06:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8BB46045ECB0FC75C1736C188511E8690FCB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262694   (292976) от 16.11.2018
-
-Евгений Щепетнов | Вожак (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Адруса-Звереныша, Мастера Смерти!
-Волею судьбы он становится армейским дракониром – императорским наездником, управляющим гигантским драконом. Удастся ли удержаться Адрусу в элитном подразделении, ведь у него множество завистников? Он считает себя мечом в руке Создателя, но неожиданно рядом с ним появляется юная красотка Делия по прозвищу (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 12:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA05869ECB541D22D458ECD401D1D66B731BA2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185450   (292952) от 21.11.2017
-
-Александр Прозоров | Череп епископа (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Участники ролевой игры попадают в прошлое, и начинают понемногу там обживаться. Часть из них захватила Ливонский замок, и уютно живёт там под видом рыцарей.
-
-Основная же часть, обживается на северном порубежье России. И не знают они, не ведают, что готовится пройти по их краям епископ Дерптский. И что готов он на всё, чтоб добыть в Новгороде священную реликвию. И (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 12:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7985B7A39E11B13816660F97C9199D2DC37D95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185030   (292940) от 21.11.2017
 
 Мэд Снэйл | Сказания о Демонах и Богах [Глава №1-5] (2017) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292940.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292914.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292910.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292799.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292667.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292196.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292033.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291804.jpg" />
 </div>
 
 
@@ -295,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291724.jpg" />
 </div>
 
 
@@ -321,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291570.jpg" />
 </div>
 
 
@@ -347,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291538.jpg" />
 </div>
 
 
@@ -373,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291315.jpg" />
 </div>
 
 
@@ -399,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291244.jpg" />
 </div>
 
 
@@ -426,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291208.jpg" />
 </div>
 
 
@@ -453,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291206.jpg" />
 </div>
 
 
@@ -479,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291154.jpg" />
 </div>
 
 
@@ -505,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291153.jpg" />
 </div>
 
 
@@ -531,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290966.jpg" />
 </div>
 
 
@@ -557,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290965.jpg" />
 </div>
 
 
@@ -583,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290871.jpg" />
 </div>
 
 
@@ -609,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290869.jpg" />
 </div>
 
 
@@ -635,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290865.jpg" />
 </div>
 
 
@@ -661,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290853.jpg" />
 </div>
 
 
@@ -672,6 +591,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11C7BAF39C36EBB9B7158FCD2D4E00EA37ABEBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732641   (290813) от 10.12.2013
+
+Генри Лайон Олди | Куколка (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лючано Борготта по прозвищу Тарталья - маленький человек. Но судьба и случай бросили его, как песчинку, в шестерни галактических масштабов. Бывший невропаст, бывший палач, бывший раб - нынешний убийца поневоле - будущий.. кто?
+"Ойкумена" Г. Л. Олди — масштабное полотно, к которому авторы готовились много лет, космическая симфония, где судьбы людей представлены (   Читать дальше...   )Жанр: фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251396FDAB98B4BD51F73BD2577EA5EAB97B7A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334919   (290722) от 31.10.2019
+
+Григорий Шаргородский | Видок. Цена жизни (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Евгений Васильевич был обычным офисным служащим, чья жизнь давно устоялась. Но всё поменялось, когда офис подорвали террористы, а герой, оказавшийся в эпицентре взрыва, услышал странный голос, предлагающий поменяться телами. Евгений согласился… И оказался в иной реальности и другом теле. Он стал Игнатом Дормидонтовичем Силаевым, который работает видоком: (   Читать дальше...   )Жанр: Боевое фэнтези, детективное фэнтези, попаданцыПродолжительность: 09:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7479310E7A925A93D3A159A6CDA2B465616D034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732645   (290687) от 10.12.2013
+
+Генри Лайон Олди | Кукольник (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лючано Борготта по прозвищу Тарталья - человек с трудной судьбой.
+Юный изготовитель марионеток с захолустной планеты Борго. Невропаст, мастер контактной имперсонации, исколесивший с гастролями половину Галактики. Сиделец печально известной тюрьмы Мей-Гиле на первобытной Кемчуге; позднее - младший экзекутор. Директор театра "Вертеп", возглавивший группу (   Читать дальше...   )Жанр: фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FC7D7EB6E5A7F3513A20F3882A428B2AE11C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Broken Silence - Shout It Out Loud (1994) [FLAC|Lossless|image + .cue] <Rock, AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029583.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Art Of Illusion - X Marks The Spot (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029567.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ London Symphony Orchestra - Classic Rock Renaissance (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029395.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Louis Michael - Living For The Music (1991) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029393.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lacrimas Profundere - Bleeding The Stars (2019) [FLAC|Lossless|image + .cue] <Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029326.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Black Keys - Brothers (2010) Deluxe Edition, Remastered, 2020, Nonesuch [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029322.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Alice Cooper - Detroit Stories (2021) [FLAC|Lossless|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029321.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Rock Collection: Hot Rock (1992) 2CD Compilation [FLAC|Lossless|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029094.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bad Dreams - Frоzеn Неаrt (2019) Reissue, 2020, Independent Label [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029071.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Aunt Mary - 4 albums, 5 CD (1970-2020) [FLAC|Lossless|image + .cue | tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029046.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Freddie Mercury - Mr. Bad Guy (1985) [FLAC|Lossless|image + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029013.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Saga - Images at Twilight (1979) Reissue, 1984, Polydor [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028929.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sonus Umbra - A Sky Full Of Ghosts (2020) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028922.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Journey - Trial by Fire (1996) Japan [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028920.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Steve Lukather (ex. Toto) - I Found The Sun Again (2021) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028917.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chris Norman - Baby I Miss You (2021) Remastered, Compilation [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028877.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Christopher Cross - Christopher Cross (1979) Target, Gold, Reissue, 1989, WB [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028729.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Freddie Mercury - Remixes (1993) Compilation, 1994 Japan [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028725.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028724.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Fish - Fortunes of War (1994) Promo, CDS, Maxi-Single [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028567.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Nelson - Life (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028566.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Shelter - First Stop (1983) Reissue, 2018, Rock Candy [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028565.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Fish - Change of Heart (1997) CDS, Single [FLAC|Lossless|image + .cue] <Prog Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028560.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028557.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028554.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Freddie Mercury - The Great Pretender (Remix) (1993) CDS, Maxi-Single [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028538.jpg" />
 </div>
 
 

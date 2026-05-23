@@ -1,55 +1,3 @@
-###  Публикация: 1603669   (210353) от 10.01.2023
-
-Пасхальное воскресенье / Easter Sunday (2022) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Действие комедии разворачивается вокруг семейного собрания, посвященного празднованию Пасхального воскресенья, когда актер, отец-одиночка Джо Валенсия, возвращается в свою веселую, шумную, неблагополучную, но любящую филиппино-американскую семью…Производство: США, Канада / Amblin Partners, Dreamworks Pictures, RidebackЖанр: комедияРежиссер: Джей ЧандрашекхарАктеры: Джо Кой, Лидия Гастон, Брэндон Уорделл, Эва Ноблесада, Карли Поуп, Джей Чандрашекхар, Тиа Каррере, Melody Butiu, Джои Жюила, Родни ТоПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C47943C1951105A75E586A5CB997732FA50371B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603770   (210340) от 10.01.2023
-
-Сердце дракона / DragonHeart (1996) BDRip [H.264/1080p] [REMASTERED]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Чёрное сердце бьётся в груди молодого короля Айтона, сеющего вокруг себя беззаконие и зло. Наставник короля, рыцарь Старого Завета Боуин, отправляется в путь, чтобы найти и убить дракона, которого он считает повинным в жестокости Айтона.Производство: США, Universal PicturesЖанр: фэнтези, боевик, приключенияРежиссер: Роб КоэнАктеры: Деннис Куэйд, Шон Коннери, Дэвид Тьюлис, Пит Постлетуэйт, Дина Мейер, Джейсон Айзекс, Брайан Томпсон, Ли Оакс, Вульф Кристиан, Терри О’НилПеревод: многоголосый закадровый, одноголосый авторскийСубтитры: русские (полные), английские (полные)Продолжительность: 01:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D86CDC8F4CA0C367EDAF320DD090A82331F3887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570739   (210336) от 18.08.2022
 
 Стиратель: Возрождение / Eraser: Reborn (2022) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210336.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210330.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210323.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210319.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210316.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210314.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210300.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210294.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210293.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210291.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210289.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210286.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210281.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210273.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210262.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210260.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210255.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210253.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210250.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210245.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210241.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210237.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210229.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210228.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86DEC1644F6A1C34A58E17C7ACAF238B8564F84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570792   (210214) от 19.08.2022
+
+Штурм / Assault (2022) WEBRip [H.264]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школа в Каратасе захвачена группой неизвестных. Они берут детей в заложники, но не предъявляют никаких требований. Местная полиция не может запросить подкрепление из города из-за проблем с коммуникацией, вызванных снежной бурей. Местный учитель Тазши понимает, что помощи ждать придется долго, и собирает штурмовую группу из родителей, чьих детей держат в заложниках. (   Читать дальше...   )Производство: Казахстан, Россия / ООО «Студия ЛукФильм», ООО «Форест-Фильм», Too Short BrothersЖанр: драмаРежиссер: Адильхан ЕржановАктеры: Азамат Нигманов,  Александра Ревенко,  Нурлан Батыров,  Данияр Алшинов,  Берик Айтжанов,  Нурбек Мукушев,  Еркен Губашев,  Теоман Хос,  Нурлан СмаиловПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1708BA5B1BB86690959622C51DEC44F4B6C48A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570688   (210210) от 19.08.2022
+
+Беги и стреляй / The Ray (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставив в прошлом жизнь, полную преступлений и насилия, Рэй остепенился и стал примерным семьянином, живущим в тихом пригороде. Но когда всплывает правда о его прошлом, Рэя шантажом вынуждают провернуть еще одно, последнее, дело — забрать посылку с неизвестным содержимым. В результате смертельно опасной двойной игры раненый Рэй скрывается от безжалостных убийц, которые (   Читать дальше...   )Производство: США / Branch Out Productions, Glass Horse FilmsЖанр: Боевик, триллерРежиссер: Кристофер БорреллиАктеры: Анджела Сарафян, Марк Дакаскос, Ричард Кайнд, Брэд Уильям Хенке, Джанел Пэрриш, Элисон Торнтон, Бен Милликен, Хадсон Янг, Энджел Розарио мл., Мишель Джубили ГонсалесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814E5C9076194D0E2637CB43AE735DD3991324E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

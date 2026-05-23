@@ -1,29 +1,3 @@
-###  Публикация: 1802069   (14671) от 14.06.2025
-
-Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир MindsEye! Действие этого однопользовательского сюжетного боевика происходит в ближайшем будущем в вымышленном городе Редрок, суматошном и жарком пустынном мегаполисе, где правят технологии. Роботы выполняют рутинные задачи, а всевидящие устройства делают Редрок «самым безопасным городом в мире». Это живой эксперимент по исследованию экзистенциального (   Читать дальше...   )Тип издания: SceneРазработчик: Build A Rocket BoyЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAC0C2897E732787738978643D96016C4249B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801944   (14665) от 14.06.2025
 
 The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
@@ -32,7 +6,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14665.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14664.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14661.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14658.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mortal Kombat (2013) [Ru] (1.0.7) Repack EXROW [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14650.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14645.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U56-674504-SCR/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14631.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Geometry Dash (2014) [En] (2.207) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14628.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14576.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14575.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Carrier Command 2 (2021) [Ru/Multi] (1.5.10) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14569.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.109/dlc) Repack Other s [Digital Col
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14560.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Multi] (1.0.20250606) Scene
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14558.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14555.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Downward (2017) [Multi] (2.0.2) Scene Rune [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14552.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fort
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14542.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14522.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14507.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14491.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Heading Out (2024) [Ru/Multi] (1.040) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14488.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14484.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14471.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ An Amazing Wizard (2025) [Ru/Multi] (0.5.195) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14469.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ BallisticNG (2018) [En] (1.4.0.1b/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14468.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14466.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A592098B91E51F1EAEA0FCE702C601225AE275C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796782   (14437) от 16.06.2025
+
+Crow Country (2024) [Multi] (1.0.7) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дрожь пробегает по позвоночнику, когда вы стоите перед заброшенным парком развлечений. Два года назад Эдвард Кроу исчез, а вместе с ним и радостные крики, которые когда-то наполняли воздух. Теперь здесь висит лишь тревожная тишина. Это не обычный визит в парк развлечений. Crow Country - это игра в жанре survival horror, которая подкидывает вам головоломки и загадки, (   Читать дальше...   )Тип издания: LicenseРазработчик: SFB GamesЖанр: Экшены, ИндиЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A3F887ACD03DF9C62EAB87699FCEB52077F3E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

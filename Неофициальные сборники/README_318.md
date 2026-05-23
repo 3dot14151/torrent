@@ -1,32 +1,3 @@
-###  Публикация: 1543110   (631668) от 10.04.2022
-
-VA - Music News vol.179 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. DAASHA - Небо (03:07)
- 002. Adam feat. Mikki - Время (03:44)
- 003. Alex Gaudino & Tobtok feat. Jayover - Talk Talk (02:35)
- 004. Alex Velea feat. Lele - Legenda Mafiei (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165BA69E04C61488BE796C923BDD41B1377C5745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228861   (631651) от 03.06.2018
 
 VA - Best Of New Age (2018) [MP3|256-320 Kbps] <New Age>
@@ -35,7 +6,7 @@ VA - Best Of New Age (2018) [MP3|256-320 Kbps] <New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631651.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Drumsound and Bassline Sampler (2017) [MP3|320 Kbps] <Drum&Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631634.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - A State Of Vocal Trance Volume 1 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631615.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ VA - Muz-сливки хит-парадов (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631611.jpg" />
 </div>
 
 
@@ -163,7 +134,7 @@ VA - Авто Дискотека 50+50 Vol.1 (2012) [MP3|192-256 кб/с]<Pop,Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631603.jpg" />
 </div>
 
 
@@ -198,7 +169,7 @@ VA - Танцевальный клубный заряд (2012) [MP3|256-320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631591.jpg" />
 </div>
 
 
@@ -233,7 +204,7 @@ VA - Отдыхай с хитами Europa Plus (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631588.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ VA - Прохолодильные песни (2012) [MP3|127-320 кб/с]<Punk-R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631586.jpg" />
 </div>
 
 
@@ -303,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631572.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631494.jpg" />
 </div>
 
 
@@ -361,7 +332,7 @@ VA - Top 100: Танцевальная летняя дискотека (2012) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631431.jpg" />
 </div>
 
 
@@ -396,7 +367,7 @@ VA - Шальной блатной музон (2012) [MP3|256 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631420.jpg" />
 </div>
 
 
@@ -431,7 +402,7 @@ Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631352.jpg" />
 </div>
 
 
@@ -460,7 +431,7 @@ VA - DJ Radio Show Latino RnB (2017) [MP3|192-320 Kbps] <RnB, Hip Radioshow>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631337.jpg" />
 </div>
 
 
@@ -489,7 +460,7 @@ VA - Beautiful Songs For You Vol.01-27 (2019) [MP3|320 Kbps] <Pop, Romantic Ball
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631253.jpg" />
 </div>
 
 
@@ -518,7 +489,7 @@ VA - Жаркий Авто Хит от DFM 50+50 (2012) [MP3|256 кб/с]<Pop,Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630970.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ VA - Summer Splash (2016) [MP3|320 Kbps] <Club, House, Funky, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630591.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ VA - Time 85 Sound Giving Master (2016) [MP3|320 Kbps] <House, Progressive, Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630586.jpg" />
 </div>
 
 
@@ -611,7 +582,7 @@ VA - Summer Dance Mix: Adrenaline Party (2016) [MP3|256-320 Kbps] <Club, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630514.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ VA - RnB Really: Soul Mix (2016) [MP3|320 Kbps] <RnB, Soul, Funky>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630501.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ Spawn - In the Demon's Hand (2000) (Yuki Iwai, Takayuki Iwai, Isao Abe, Cranksha
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630427.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630369.jpg" />
 </div>
 
 
@@ -733,7 +704,7 @@ VA - Зайцев.Нет - Лучшие Новинки Июля (2016) [MP3|188-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630057.jpg" />
 </div>
 
 
@@ -762,7 +733,7 @@ VA - American Road Blues (2016) [MP3|192-320 Kbps] <Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630039.jpg" />
 </div>
 
 
@@ -791,7 +762,7 @@ VA - Эх, дороги Новые хиты шансона (2015) [MP3|256 кб/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630021.jpg" />
 </div>
 
 
@@ -805,6 +776,35 @@ VA - Эх, дороги Новые хиты шансона (2015) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07F31547674CD0847292E618FF14D836AC019F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908886   (630009) от 16.06.2015
+
+VA - Лето в кайф. Часть 2 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Lambert - Ghost Town
+002. Виктория Дайнеко - Afterglow
+003. Labrinth - Jealous
+004. Елка - Прохожий(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B6596F613FBB962805496BA62C362B7DD0A152
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29216.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rock Star Life Simulator (2024) [Ru/Multi] (1.0) RePack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29064.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28343.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28339.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28321.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28113.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27990.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27781.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27683.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27515.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27467.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27457.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27333.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27258.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27174.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Galactic Simulator (2025) [Ru/Multi] (0.2.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27159.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27090.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26844.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26828.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26821.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26734.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26707.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Stellar Settlers: Space Base Builder (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26515.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.3) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26484.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26344.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25958.jpg" />
 </div>
 
 

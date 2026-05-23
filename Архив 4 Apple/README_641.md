@@ -6,7 +6,7 @@ ImageRanger Pro Edition 1.8.7.1827 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153115.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Usher 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153062.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ IconFly - Create icons from images 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153028.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PhotosRevive 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153023.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wondershare Filmora 7.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152996.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Final Draft 12 v12.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152957.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ TG Pro (Temperature Gauge Pro) 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152944.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Deliver 2.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152929.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Xojo IDE RAD 2016r4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152880.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ CleanMyMac X 4.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152878.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ FxFactory Pro 7.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152872.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152841.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Wondershare PDFelement Pro 8.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152825.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Geekbench 5 v5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152788.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Find Any File (FAF) 2.4b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152764.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Invisor - Media File Inspector 3.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152753.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Chain Timer 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152734.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ FoneDog Toolkit for Android 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152724.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ System Toolkit 5.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152703.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ NetWorker Pro 8.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152676.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152664.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ DriveDx 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152653.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ FoneDog Toolkit for iOS 2.1.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152625.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Byword 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152580.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Mactracker 7.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152512.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ DjVu Reader Pro 2.6.2 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152506.jpg" />
 </div>
 
 

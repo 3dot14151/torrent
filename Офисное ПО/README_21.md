@@ -6,7 +6,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188415.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Typora 1.12.2 (x64) Portable by IDE`a [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187931.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Infix PDF Editor Pro 7.7.0 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187688.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Notepad++ 8.8.7 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186121.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ PDF-XChange PRO 8.0.343.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181821.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CintaNotes Pro + Portable 3.14 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_179939.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Print Conductor 9.0.2308.32170 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178009.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ PDF-XChange PRO 10.7.3.401 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173481.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Beyond Compare Pro 4.4.7.28397 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172058.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171620.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sumatra PDF 3.5.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171140.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Wondershare PDFelement 12.0.7.3749 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169034.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166371.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Power-user (for MS Office) Premium 1.6.1165.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165694.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ PDF Shaper Professional 13.8 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160595.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5603.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159391.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ASCOMP Secure-PDF Pro 2.004 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152994.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ ASCOMP PDF Imager Pro 2.002 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152848.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ ASCOMP PDF Conversa Pro 3.003 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152661.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ ASCOMP Text-R Pro 2.002 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152633.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Adobe Acrobat Pro 2025.001.20813 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152354.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ PDF-XChange Editor Plus 7.0.328.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151634.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe Acrobat Pro 2025.001.20813 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151290.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Calibre 8.13.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150735.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ PROMT Expert NMT 23.2 +  Dictionaries [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148099.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ CHM Editor 3.0.8 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146337.jpg" />
 </div>
 
 

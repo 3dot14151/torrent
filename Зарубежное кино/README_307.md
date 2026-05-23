@@ -1,55 +1,3 @@
-###  Публикация: 857366   (949060) от 05.01.2017
-
-Требуется папа на Рождество / Ein Vater fur Klette (2003) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Приближается Рождество, и Линда точно знает, что она хочет в подарок. Для начала ей нужен отец. Потом мама. И если совсем размечтаться - маленький братик или сестричка. Линда, которой 9 лет, круглая сирота. Она прекрасно понимает, что никакой Санта-Клаус не сможет выполнить ее желание. И если ей нужен отец, то она должна сама пойти и найти его!..Производство: ГерманияЖанр: СемейныйРежиссер: Питер КахейнАктеры: Мюриэль Баумейстер, Изабель Бонгард, Хейо фон Штеттен, Веспа Васик, Сабрина Уайт, Холгер Дямген, Райнер Фрэнк, Карл Фред МюллерПеревод: Многоголосый закадровыйПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3CAC8950BB8605471A0F5916F042DAB5E8679D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750393   (949037) от 28.01.2014
-
-Голодные игры: И вспыхнет пламя / The Hunger Games: Catching Fire (2013) BDRip [720p] 2D -> 3D [Горизонтальная анаморфная стереопара] [Line]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Сумев выжить на безжалостных Голодных играх, Китнисс Эвердин и Пит Мелларк возвращаются домой. Но теперь они в еще большей опасности, так как своим отказом играть по правилам на Арене бросили вызов Капитолию. По традиции следующие, юбилейные, Голодные игры должны стать особенными, и в этот раз в них участвуют только победители прошлых лет. Китнисс и Пит вынуждены (   Читать дальше...   )Производство: США, Color ForceЖанр: Фантастика, Боевик, ПриключенияРежиссер: Френсис ЛоуренсАктеры: Дженнифер Лоуренс, Джош Хатчерсон, Сэм Клафлин, Джена Мэлоун, Вуди Харрельсон, Элизабет Бэнкс, Лиам Хемсворт, Дональд Сазерленд, Филип Сеймур Хоффман, Стэнли ТуччиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E05BEEBB3EEE7947D9A8D7704E73CE9BEDABAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362508   (949030) от 23.02.2020
 
 Мидуэй / Midway (2019) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949030.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949029.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949028.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949025.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949023.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949022.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949019.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949013.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949008.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948985.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948691.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948684.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948634.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948620.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948605.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948578.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948564.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948537.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948498.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948464.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948461.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948447.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948423.jpg" />
 </div>
 
 
@@ -667,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948403.jpg" />
 </div>
 
 
@@ -678,6 +626,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A76180910F87AFD089C1B103FE3B5F071F555ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089903   (948394) от 05.01.2017
+
+Франц / Frantz (2016) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна и Франц жили в небольшом немецком городе, были молоды, влюблены друг в друга и собирались пожениться. Но в тихое счастье двоих вмешался большой сумасшедший мир — шла Первая мировая война, Франца отправили на фронт во Францию, где он, 23-летний скрипач, обожавший стихи Верлена, погиб. Война закончилась, а жизнь Анны теперь свелась к поддержке пожилых родителей (   Читать дальше...   )Производство: Франция, Германия, Canal+, Centre National de la Cinеmatographie (CNC)Жанр: ДрамаРежиссер: Франсуа ОзонАктеры: Пьер Нинэ, Паула Бир, Эрнст Штёцнер, Мария Грубер, Йохан фон Бюлов, Антон фон Люк, Сирил Клер, Элис де Ланкесэ, Аксель Вандтке, Райнер ЭггерПеревод: Дублированный (iTunes)Продолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CDD433C7B60098352AF4861FC031335F46F154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858545   (948343) от 11.01.2015
+
+Горькая луна / Bitter Moon (1992) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случайная встреча ранним весенним утром в парижском автобусе на всю оставшуюся жизнь определила судьбу Оскара и Мими.
+Их не интересовали романтичность и возвышенная любовь — они хотели исследовать свою страсть. И они исследовали друг друга и себя до полного саморазрушения.Производство: Франция, Великобритания, СШАЖанр: Драма, мелодрама, экранизацияРежиссер: Роман ПоланскиАктеры: Питер Койот, Эмманюэль Сенье, Хью Грант, Кристин Скотт Томас, Виктор Банерджи, Софи Патель, Патрик Альбенк, Смиля Михайлович, Лео Экманн, Люка ВелланиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C70CC6CE3961C81AED03270A375BCFEF739DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

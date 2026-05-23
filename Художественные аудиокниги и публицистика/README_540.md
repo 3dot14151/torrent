@@ -1,81 +1,3 @@
-###  Публикация: 1321086   (463270) от 22.08.2019
-
-Александр Рудазов | Рассказы из правого ботинка (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Существует тема, на которую писатели говорить не любят. А именно – откуда же все-таки берутся идеи и сюжеты? Обычно либо отбрехиваются, что просто выдумывают все сами, либо начинают заливать о некоем вдохновении, приходящем свыше. Но истина состоит в том, что ни один писатель вообще ничего не пишет сам. Тут работают совсем другие существа. Например, мне часть книг (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 16:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD890D1EF3AC9C03D52764E59D5040379BFE8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321082   (463261) от 22.08.2019
-
-Александр Ратнер | Тайны жизни Ники Турбиной ("Я не хочу расти...") (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ника Турбина - знаковая фигура конца 80-начала 90-х годов, поэтесса, известная своими ранними стихотворениями, трагически погибшая в возрасте 27 лет. Многое из ее биографии до сих пор покрыто тайной даже для поклонников ее творчества, в частности, кто был ее отцом, почему порвал с ней отношения Евгений Евтушенко, что делала она в течение года в Швейцарии, действительно (   Читать дальше...   )Жанр: Биография, МемуарыПродолжительность: 32:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C47C42204EB45E11ED4C0ABA31F18227241E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246364   (463202) от 10.09.2018
-
-Михаил Баковец | Игра в кошки-мышки (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Простому городскому водиле Тарасу, заброшенному неведомой силой в Улей, составленный из обломков иных миров, повезло. Он оказался одним из немногих, переживших атаку вируса, превращающего заражённых в живых мертвецов – зомби. А неожиданный Дар Улья – невидимость – выручал его в самых кровавых передрягах. В этой жестокой и странной реальности каждый шаг Тараса и его (   Читать дальше...   )Жанр: фантастикаПродолжительность: 14:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D33530BF126A62D55C9917B2B26BE9A62FCBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321066   (463146) от 22.08.2019
 
 Олег Грач | Метро 2033. Парад-алле (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463146.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463140.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463137.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463043.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462981.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462504.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462502.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462443.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462275.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462188.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462111.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462098.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462094.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462085.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462084.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462083.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461960.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461955.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461946.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461878.jpg" />
 </div>
 
 
@@ -611,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461815.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461542.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461488.jpg" />
 </div>
 
 
@@ -674,6 +596,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:068A70CB4FAB10D546872759FA14F24AFAFBC7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246624   (461483) от 11.09.2018
+
+Филлис Дороти Джеймс | Изощрённое убийство (2018) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подвале дорогой психотерапевтической клиники обнаружен труп жестоко убитой женщины.
+Многоопытный следователь Адам Дэлглиш, ведущий расследование, вскоре понимает: преступление мог совершить практически любой сотрудник клиники, за респектабельным фасадом которой скрывается лабиринт темных страстей, интриг и амбиций.
+Никогда еще не приходилось Дэлглишу проигрывать (   Читать дальше...   )Жанр: Классические детективыИздательство: Нигде не купишьПродолжительность: 08:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB40A21E23BC32675C11DEAC8CC7EF6CF2256688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246568   (461427) от 11.09.2018
+
+Павел Диброва | Лец-та-ски [Сборник] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солянка вышла отменная. В состав сборника вошли рассказы, написанные в разные годы жизни, от 18 и до 32 лет, поэтому стиль их написания несколько разнится. Главной рассказ в нём - "Лец-та-ски", давший название всему сборнику. Озвучил Олег Булдаков, за что ему огромное спасибо. Надеюсь, Вам придутся по душе мои маленькие фантазии.Жанр: ФантастикаПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BA6944FCEA96DA32AA0ABD54793F8DE3730784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246566   (461409) от 11.09.2018
+
+Сергей Алексеев | Мутанты (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Районный центр Братково разделен пополам между Россией и Украиной. Так получилось, что многие жители села, русские по происхождению, оказались на Украине, а украинцы - в России. Посреди села стоит башня - таможня, а вдоль границы идет бетонная стена. Селяне говорят на смеси языков, а занимаются в основном контрабандой. К пану Кушнеру, депутату Верховной Рады, имеющему (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF260D0EAF0B50DBD87A1C572C5FEBAEB1C99092
 ```
 
 https://mybot314.ru/tekegram_catalog/

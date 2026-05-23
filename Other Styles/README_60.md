@@ -6,7 +6,7 @@ Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727189.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726688.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Piano Pianissimo - Breathe In, Breathe Out and Relax (2022) [FLAC|Lossless|WEB-D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726652.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rajendra Teredesai - Moksha - The Path to Inner Peace (2016) [FLAC|Lossless|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726554.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Kari Rueslatten - To The North (2015) [FLAC|Lossless|image + .cue] <Folk, Nordic
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726456.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - 50 Sounds of Tropical Rainforest (2017) [MP3|320 Kbps] <Downtempo, Chillout
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726453.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 к
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726407.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Simply Chillout (2013) Box Set, 10CD [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726385.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726164.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726104.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from t
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726072.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows / Череп�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725727.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725526.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Classical Is Sexy A Rousing Collection Of Homophonic Melodies Vol.1 (2018) 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725089.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Royal Philharmonic Orchestra - ABBA Classic (1991) [FLAC|Lossless|tracks + .
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724996.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724897.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Image d'Amour (2001) [MP3|320 Kbps] <Instrumental, Classical>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724600.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724545.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Loss
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724458.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724371.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724250.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Argishty - Первый ереванский снег (2012) [FLAC|Lossless|trac
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724245.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724241.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Evgeny Khmara (Евгений Хмара) - Fairy Tale (2017) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724225.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724218.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Loung
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722852.jpg" />
 </div>
 
 

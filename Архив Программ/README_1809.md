@@ -6,7 +6,7 @@ Insofta 3D Text Commander 5.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185157.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ LosslessCut 3.26 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185153.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TweakPower 2.029 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185152.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v12 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185132.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ WinToUSB Technician 8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185130.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Teorex Inpaint 10.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185127.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Reg Organizer 9.30 (DC 25.09.2023) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185112.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ EasyUEFI Technician 5.0 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185100.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Everything 1.4.1.999 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185076.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v12 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185069.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ One Commander Pro 3.23.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185064.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v6 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185062.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.0.3568 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185052.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ GPU-Z 2.51.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185046.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Auslogics Windows Slimmer 4.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184943.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 25.11 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184921.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ IK Multimedia - AmpliTube 5 Complete 5.5.2 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184918.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ BELOFF [dp] 2022.11.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184915.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Reg Organizer 8.57 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184890.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Reg Organizer 9.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184867.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Comodo Internet Security Premium 12.2.2.7062 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184843.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184825.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ GeoGebra 6.0.803.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184809.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Firefox Browser 118.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184802.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Firefox Browser ESR 115.3.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184794.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Sandboxie 5.66.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184783.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1848282   (1053479) от 23.01.2026
-
-RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas In Your Heart (feat. Nyox) (3:34)
-02. Winter Wonderland (feat. New Sisters) (3:58)
-03. Christmas Dance (feat. Sterio Dancers) (3:18)
-04. I’m Coming Home For Christmas (feat. Robert Rubin) (4:20)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28635743BFC73D7B9F7BAC520811FB255346D1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848907   (1053322) от 20.01.2026
 
 VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
@@ -35,7 +6,7 @@ VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053322.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053202.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Music News For Forum vol.157 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053157.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Ruby Mae Holloway - Favorites Collection (2026) [MP3|320 Kbps] <Soul Blues, Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053106.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ AI.KA Digital Singer - Collection (2025) [MP3|320 Kbps] <Pop, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052795.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Euro Hits 2025 (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052784.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052783.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Music News For Forum vol.156 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052725.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Tom Media - Blues Every Night (Compilation) (2026) [MP3|320 Kbps] <Blues, Blues 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052407.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052261.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Music News For Forum vol.155 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052229.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - No name compilation part 41 Assorted (2026) [MP3|320 Kbps] <Italodisco, Ita
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052204.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Лучшие песни Радио DFM за 2025 год (2026) [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051735.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051647.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Лучшие песни Европа Плюс за 2025 год (2026) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051534.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Nina Blaze - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051491.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Nina Blaze - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051490.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Music News For Forum vol.154 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051334.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Giza Larue - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad & Soul Son
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051099.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ CYRIE - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051098.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Ai - No name compilation part 40 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051096.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Etta James - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051095.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Song
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051094.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Song
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051093.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051091.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845952   (1051086) от 04.01.2026
+
+Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Hollow in My Soul
+02 - Whispers of the South
+03 - The Hollow in My Chest
+04 - Bitters in My Blood(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E82B41DEB98E87236C40454B60394BBFA20F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

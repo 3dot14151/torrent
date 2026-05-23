@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.1.5.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069196.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Revo Uninstaller Free 2.7.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069046.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows Manager 2.3.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069028.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Duplicate Cleaner Pro 5.27.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069022.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Zentimo xStorage Manager 3.4.1.1304 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069017.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Zentimo xStorage Manager 3.4.1.1304 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069016.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ USB Safely Remove 7.4.1.1336 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069015.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ USB Safely Remove 7.4.1.1336 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069014.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ InstallerClean Standart / Slim 1.8.1 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068929.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PrivaZer Pro 4.0.122 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068867.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Ashampoo WinOptimizer 29.0.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068822.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wise Disk Cleaner 11.3.5.855 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068816.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ USB Safely Remove 7.4.1.1336 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068799.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Zentimo xStorage Manager 3.4.1.1304 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068798.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Process Lasso Pro 18.1.0.44 (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068790.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows Manager 2.3.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068788.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PrivaZer Pro 4.0.121 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068775.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Duplicate Cleaner Pro 5.27.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068553.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Process Lasso Pro 18.1.0.44 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068401.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ UniGetUI 2026.1.8 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068318.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Winhance 26.04.21 & Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068308.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Auslogics Windows Slimmer 5.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068265.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Auslogics Duplicate File Finder 11.2.0.6 RePack (& Portable) by elchupacabra [Mu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068264.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Privacy Eraser Pro 6.29.0 Build 5544 RePack (& Portable) by elchupacabra [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068134.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ RAM Saver Professional 26.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068118.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ ReviverSoft Driver Reviver 5.44.0.8 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068114.jpg" />
 </div>
 
 

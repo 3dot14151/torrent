@@ -6,7 +6,7 @@ Speedtest от Ookla 5.1.1 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188539.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Brave Browser 1.58.124 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188534.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lucky Patcher 10.9.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188531.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ZEDGE 8.17.0-beta Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188529.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Downie 4 v.4.5.11(4455) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188521.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188513.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Icecream Screen Recorder PRO 7.17 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188509.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PDF Extra: сканер и редактор 10.5.2136 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188504.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Opera 92.0.4561.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188503.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ digiKam 7.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188498.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mullvad Browser 12.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188497.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Draw.io 21.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188495.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Universal USB Installer 2.0.1.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188490.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FileMenu Tools 8.2.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188488.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ XY VPN - Security Proxy VPN 4.7.124 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188487.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Firefox Browser ESR 102.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188486.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ LibreWolf 117.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188484.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Icecream Screen Recorder Pro 7.17 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188483.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ D16 Group - Effects Plugins 11.2022 VST, VST3, AAX (X86/X64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188482.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Waterfox Current G5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188479.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ EF Commander 2023.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188474.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sketch 94.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188473.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ RarmaRadio Pro 2.74.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188471.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ AIMP 5.10 Build 2414 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188469.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PDF-XChange Editor Plus 10.1.0.380 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188466.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Extreme Picture Finder 3.63.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188459.jpg" />
 </div>
 
 

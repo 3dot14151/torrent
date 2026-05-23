@@ -7,7 +7,7 @@ Z. Richard Rowling - Gnossiennes Jazz Noir (2025) [MP3|320 Kbps] <Jazz Noir, Pia
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063460.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ludovico Einaudi - In a Time Lapse (2013) [MP3|320 кб/с]<Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992548.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962396.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Helene Grimaud - Water (2016) [MP3|320 кб/с] <Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949715.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938597.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ The Royal Philharmonic Orchestra - Plays The Music Of Rush (2012) [MP3|320 Kbps]
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919047.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Tina Guo - Game On! (2017) [MP3|320 Kbps] <Classical Crossover, Soundtrack>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885334.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872277.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [M
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871463.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Annie Moses Band - The Art Of The Love Song (2016) [MP3|320 кб/с] <Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860711.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Roman Ilyin - Pieces 2 (2020) [MP3|320 Kbps] <Classical, Neo-classical, Encemble
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853273.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832308.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827694.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical,
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820522.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сr
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820518.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Joep Beving - Solipsism (2015) [MP3|320 кб/с] <Modern Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817315.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Edvin Marton & Vienna Strauss Symphony Orchestra - Rock Symphony (2016) [MP3|320
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817162.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Max Richter - Recomposed By Max Richter: Vivaldi - The Four Seasons (2012) [MP3|
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802037.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The Planets - Classical Graffiti (2002) [MP3|320 Kbps] <Pop, Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787832.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Annie Moses Band - American Rhapsody (2015) [MP3|320 кб/с] <Classical Crossov
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777225.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ilyin - EP001. Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748131.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Keaton Henson feat. Ren Ford - Romantic Works (2014) [MP3|320 Kbps] <Neoclassica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747562.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Roman Grau - Silent Pain (2015) [MP3|320 Kbps] <Neoclassical, Orchestral>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745994.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Fabrizio Paterlini - Winter Stories (2018) [MP3|320 Kbps] <Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744516.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Sergey Cheremisinov - The Signals (2017) [MP3|320 Kbps] <Neoclassical, Ambient>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743230.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742224.jpg" />
 </div>
 
 

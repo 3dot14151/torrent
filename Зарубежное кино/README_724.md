@@ -1,55 +1,3 @@
-###  Публикация: 1528577   (734408) от 02.02.2022
-
-Наркокурьер / The Mule (2018) DVD9 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эрл Стоун — одинокий старик. Его частный бизнес находится на грани разорения, отношения с женой не ладятся, а дети, кажется, давно забыли о его существовании. Неожиданно ему предлагают непыльную, но прибыльную работенку — просто водить машину. Стоун соглашается и вскоре обнаруживает, что стал наркокурьером мексиканского картеля.Производство: США, Канада / Warner Brothers, Imperative Entertainment, Bron CreativeЖанр: Триллер, драма, криминалРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Брэдли Купер, Лоренс Фишбёрн, Майкл Пенья, Дайэнн Уист, Энди Гарсиа, Элисон Иствуд, Таисса Фармига, Игнасио Серричио, Лорен ДинПеревод: Дублированный, Многоголосый, АвторскийСубтитры: Русские, английскиеПродолжительность: 01:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A45749FB0E4F908670EA5410941B2CEBF92C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528532   (734406) от 02.02.2022
-
-Онода (Онода. 10000 ночей в джунглях) / Onoda / Onoda. 10000 Nights In The Jungle (2021) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Младший лейтенант Императорской армии Японии Хироо Онода, который во время Второй мировой воевал против союзников на филиппинском острове Лубанг, после окончания войны отказался в это верить и вместе со своим отрядом продолжил партизанить.Производство: Япония, Франция, Германия, Бельгия, Италия, Камбоджа, Agency for Cultural Affairs, Bathysphere Productions, Pandora Filmproduktion, Frakas ProductionsЖанр: Биография, драма, историяРежиссер: Артур ХарариАктеры: Юя Эндо, Кандзи Цуда, Юя Мацуура, Тэцуя Тиба, Синсукэ Като, Каи Иноваки, Иссэй Огата, Тайга Накано, Ацухико Сува, Муцуо ЁсиокаПеревод: RomarylloСубтитры: Русские, английские, французскиеПродолжительность: 02:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954EA3870AECB4FC57C5F1EE74889055FFA58AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528543   (734405) от 02.02.2022
 
 Онода (Онода. 10000 ночей в джунглях) / Onoda / Onoda. 10000 Nights In The Jungle (2021) WEB-DLRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734405.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734400.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734399.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734397.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734389.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734357.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734235.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734231.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734225.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734219.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734193.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_734182.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734149.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734125.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734112.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734103.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734102.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734101.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734077.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_734070.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734047.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_734046.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734043.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733959.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E870D9DB6B3046CCC4C43042B788C727E429B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528576   (733953) от 03.02.2022
+
+Обитель зла: Раккун-Сити / Resident Evil: Welcome to Raccoon City (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733953.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 сентября 1998 года. Клэр Редфилд возвращается в родной Раккун-Сити, откуда сбежала несколько лет назад ещё ребёнком. Тогда, после потери родителей, она с братом жила в местном приюте, который спонсировала градообразующая корпорация Umbrella, но теперь компания переехала, и городок приходит в упадок. Клэр замечает, что местные как будто чем-то заражены, но её брат-полицейский (   Читать дальше...   )Производство: Канада, Германия / Constantin Film, Davis FilmsЖанр: Ужасы, боевик, фантастикаРежиссер: Йоханнес РобертсАктеры: Кая Скоделарио, Ханна Джон-Кэймен, Робби Амелл, Том Хоппер, Эван Джогиа, Донал Лог, Нил МакДонаф, Лили Гао, Чад Рук, Марина МазепаПеревод: Дублированный (СинеЛаб СаундМикс), Авторский (М. Яроцкий / Kyberpunk, В. Назаров)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), французскиеПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D95728F04BDC5F2F491B13DAFE8E35F4B178C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528574   (733950) от 03.02.2022
+
+Обитель зла: Раккун-Сити / Resident Evil: Welcome to Raccoon City (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733950.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 сентября 1998 года. Клэр Редфилд возвращается в родной Раккун-Сити, откуда сбежала несколько лет назад ещё ребёнком. Тогда, после потери родителей, она с братом жила в местном приюте, который спонсировала градообразующая корпорация Umbrella, но теперь компания переехала, и городок приходит в упадок. Клэр замечает, что местные как будто чем-то заражены, но её брат-полицейский (   Читать дальше...   )Производство: Канада, Германия / Constantin Film, Davis FilmsЖанр: Ужасы, боевик, фантастикаРежиссер: Йоханнес РобертсАктеры: Кая Скоделарио, Ханна Джон-Кэймен, Робби Амелл, Том Хоппер, Эван Джогиа, Донал Лог, Нил МакДонаф, Лили Гао, Чад Рук, Марина МазепаПеревод: Дублированный (СинеЛаб СаундМикс), Авторский (М. Яроцкий / Kyberpunk, В. Назаров)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), французскиеПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41ADDB4729ECB3686959D03BE3599E1E8B0776F
 ```
 
 https://mybot314.ru/tekegram_catalog/

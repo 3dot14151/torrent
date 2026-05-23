@@ -1,87 +1,3 @@
-###  Публикация: 1796412   (18542) от 12.05.2025
-
-Алексей Евтушенко | Чужак из ниоткуда (Книга 2). (2025) [MP3, Илья Алёхин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Судьбе было мало, что ты оказался в теле подростка и в другом времени, отстоящим от твоего минимум на двести лет. Это ещё и другая планета! Значит, нужно вернуться домой. Любым способом. Невозможно? Всё возможно, если ты живёшь в лучшей стране на этой планете - Союзе Советских Социалистических Республик.Жанр: Альтернативная история, Попаданцы во времени, Назад в СССРИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEAECDF7356D69BA576C8898E7E088F3EA1787C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796439   (18529) от 12.05.2025
-
-Виктор Гросов | Вежа. Русь (Книга 1). Русь. Строительство империи (2025). [MP3, Sibiryak]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Симулятор князя?
-Антон попал в Древнюю Русь.
-Ресурсы, технологии, оборона – всё по хардкору!
-И он намерен выиграть.(   Читать дальше...   )Жанр: Попаданцы во времени, РеалРПГ, Альтернативная историяИздательство: ИДДКПродолжительность: 09:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5168316E69BE4F6617A5558BA156B49D0F5A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796786   (18522) от 12.05.2025
-
-Юлия Латынина | Сотворение Бога. Краткая история монотеизма (2025) [MP3, Мария Сми]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-От автора книг «Иисус. Историческое расследование» и «Христос с тысячью лиц».
-
-Важность идеи монотеизма трудно переоценить – весь современный мир сформирован монотеизмом.
-Однако монотеизм, если вдуматься – это очень странная идея. Вера в то, что есть один-единственный бог-творец, который всеблаг, но одновременно отвечает за смерти, эпидемии, за рак и инфаркты, за (   Читать дальше...   )Жанр: Историческое расследование, История религии, Популярно об истории, Религиозно-философская проблематикаЯзык озвучки: РусскийИздательство: ЭКСМОПродолжительность: 27:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43ACCAA020D8BBCD6BF41149659596D96B5E51A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796394   (18514) от 12.05.2025
 
 Никита Киров, Рафаэль Дамиров | Опер (Книга 3). Прорвёмся, опера! (2025) [MP3, Иван Златоустов]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18514.jpg" />
 </div>
 
 
@@ -118,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18503.jpg" />
 </div>
 
 
@@ -144,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18496.jpg" />
 </div>
 
 
@@ -172,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18495.jpg" />
 </div>
 
 
@@ -200,7 +116,7 @@ Ice Walker | Прорвёмся! (2025) [MP3, Роман Ефимов]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18447.jpg" />
 </div>
 
 
@@ -226,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18421.jpg" />
 </div>
 
 
@@ -252,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18257.jpg" />
 </div>
 
 
@@ -278,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18252.jpg" />
 </div>
 
 
@@ -305,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18238.jpg" />
 </div>
 
 
@@ -331,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18231.jpg" />
 </div>
 
 
@@ -357,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18228.jpg" />
 </div>
 
 
@@ -383,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18206.jpg" />
 </div>
 
 
@@ -409,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18184.jpg" />
 </div>
 
 
@@ -435,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18181.jpg" />
 </div>
 
 
@@ -461,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18009.jpg" />
 </div>
 
 
@@ -487,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17992.jpg" />
 </div>
 
 
@@ -513,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17899.jpg" />
 </div>
 
 
@@ -539,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17895.jpg" />
 </div>
 
 
@@ -565,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17885.jpg" />
 </div>
 
 
@@ -593,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17881.jpg" />
 </div>
 
 
@@ -619,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17876.jpg" />
 </div>
 
 
@@ -645,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17868.jpg" />
 </div>
 
 
@@ -671,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17787.jpg" />
 </div>
 
 
@@ -683,6 +599,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4427083BD0E7514928E07F2FC96ECD631769F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797968   (17779) от 19.05.2025
+
+Виктор Гросов | Вежа. Русь (Книга 2). Русь. Строительство империи 2 (2025). [MP3, Sibiryak]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симулятор князя?
+Боярин Душан и князь Ярополк идут войной на село Антона, но он не намерен сдаваться. Осада, ночные вылазки, предательство старейшин – Антон сражается не только за землю, но и за право называться князем. А когда «Вежа» сообщает, что рядом есть другой носитель системы, игра становится смертельно опасной.Жанр: Попаданцы во времени, РеалРПГ, Альтернативная историяИздательство: ИДДКПродолжительность: 09:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1184152EBA511264D62F38CEF3E0C0D9CC2B633C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797910   (17775) от 19.05.2025
+
+Робин Хобб | Сын солдата (Книга 2).  Лесной маг (2022) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Невар Бурвиль обязан пойти по стопам отца и избрать своим ремеслом военное ремесло — таков закон. Повинуясь обычаю и воле отца, он отправляется в столицу, чтобы закончить Академию и стать офицером. Однако у судьбы на него другие виды. Три народа, три различных цивилизации противостоят друг другу. Это и королевство Герния, родина Невара, и вольные кочевники равнин (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПеревод: В. Гольдича, И. Оганесовой
+Лесной маг / Forest Mage (2006)Издательство: Нигде не купишьПродолжительность: 29:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F872A2F85E56830B6AE762045B75D1E375BA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798026   (17763) от 19.05.2025
+
+Робин Хобб | Сын солдата (Книга 3). Магия отступника (2022) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Невар Бурвиль, оказавшийся в центре схватки трех могучих противоборствующих сил — магии железа, магии равнин и лесной магии, — вынужден оставить цивилизацию и уйти в лес. Он не знает цели, которую преследуют его незримые повелители, он всего лишь орудие в их руках, и любое сопротивление с его стороны оборачивается болью и поражением. Другая часть души мага-отступника (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПеревод: В. Гольдича, И. Оганесовой
+Магия отступника / Renegade's Magic (2007)Издательство: Нигде не купишьПродолжительность: 28:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F738C060316DBFFAFFEEEC83DE8F8B7E9D92DDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

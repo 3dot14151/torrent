@@ -1,30 +1,3 @@
-###  Публикация: 1247472   (452641) от 15.09.2018
-
-Безумец на войне / Scemo di guerra (1985) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вторая Мировая война полыхает в Северной Африке. Корпус Роммеля совместно с итальянскими союзниками пытаются совладать с британской 8-ой армией. Молодой офицер Марчелло прибывает на новое место службы — милый оазис, куда не долетают снаряды, а иной раз заглядывает даже полевой бордель на колёсах.
-Но безмятежности приходит конец, когда командование в свои руки берёт (   Читать дальше...   )Производство: Италия, Франция / Dean Film, Films A2, Renn ProductionsЖанр: КомедияРежиссер: Дино РизиАктеры: Колюш, Беппе Грилло, Бернар Блие, Фабио Тести, Клаудио Бизио, Джанни Франко, Франко Диоджене, Сандро Гиани, Гуидо Никели, Тициана АлтериПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E699F80E45982A0DB654F800063BA1B834A17303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551209   (452581) от 24.09.2012
 
 Моби Дик / Moby Dick (1956) DVD5
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452581.jpg" />
 </div>
 
 
@@ -61,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452570.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452533.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452463.jpg" />
 </div>
 
 
@@ -141,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452446.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452445.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452409.jpg" />
 </div>
 
 
@@ -219,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452286.jpg" />
 </div>
 
 
@@ -245,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452152.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451901.jpg" />
 </div>
 
 
@@ -300,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451865.jpg" />
 </div>
 
 
@@ -328,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451804.jpg" />
 </div>
 
 
@@ -354,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_451798.jpg" />
 </div>
 
 
@@ -383,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451797.jpg" />
 </div>
 
 
@@ -409,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451726.jpg" />
 </div>
 
 
@@ -435,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451659.jpg" />
 </div>
 
 
@@ -461,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451652.jpg" />
 </div>
 
 
@@ -487,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451650.jpg" />
 </div>
 
 
@@ -513,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451363.jpg" />
 </div>
 
 
@@ -539,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451344.jpg" />
 </div>
 
 
@@ -565,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451314.jpg" />
 </div>
 
 
@@ -593,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451305.jpg" />
 </div>
 
 
@@ -619,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451193.jpg" />
 </div>
 
 
@@ -645,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451187.jpg" />
 </div>
 
 
@@ -672,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451110.jpg" />
 </div>
 
 
@@ -683,6 +656,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5319FCA9F95F2C2E6BE54EF5DAD55D4BDBAE946D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184991   (450972) от 14.09.2020
+
+Танк «Клим Ворошилов-2» (1990) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые дни войны. Курсант обнаруживает брошенный танк "КВ-2". и набирает экипаж. Приведя танк в полную боевую готовность, команда вступает в свой первый и последний бой.
+На самом деле, по этому описанию очень трудно составить правильное представление о фильме. Фильм вовсе не геройский, даже наоборот. В нем нет никакого боя, о нем мы узнаем только со слов (   Читать дальше...   )Производство: СССР / Студия Горького, Госкино, Practic-CenterЖанр: Драма, ВоенныйРежиссер: Игорь ШешуковАктеры: Михаил Никитин, Вадим Гордон, Сергей Дрейден, Артём Тынкасов, Вадим Синицын, Виктор Смирнов (I), Лев Борисов, Ольга Николаева, Иван Агафонов, Валентин БукинПродолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBD3F2B16A108A63DCC1FB9276A068B300E00FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

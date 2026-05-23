@@ -1,55 +1,3 @@
-###  Публикация: 1341840   (226379) от 30.11.2019
-
-Руководство по сексу на втором свидании / A Guide to Second Date Sex (2019) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-У Лоры и Райана много общего: всю жизнь они были неудачниками в любви, а еще они оба обожают Мэрил Стрип. Сегодня у них второе свидание, и на этот раз они постараются сделать все правильно: душ, парфюм, прикид, контрацептивы… Но где гарантия, что романтический вечер пройдет идеально и завершится в горячей постели?Производство: Великобритания / Addington Films, Dignity Film Finance, Shooting Script FilmsЖанр: Мелодрама, комедияРежиссер: Рейчел ХиронсАктеры: Александра Роуч, Джордж Маккэй, Майкл Сока, Наоми Уиллоу, Джиллиан Элиза, Холли Демпси, Каэ Александр, Том Белл, Грегори Скотт, Эмма РигбиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA789D83139280F1E0E662014A3710006E610F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513134   (226377) от 27.11.2021
-
-Боевой робот номер 4 / Монстры, созданные человеком / Monsters of Man (2020) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В далёких джунглях Камбоджи ЦРУ проводит несанкционированные испытания боевых роботов с искусственным интеллектом, созданных частной компанией. Расстреливая банду вооружённых наркоторговцев, андроиды уничтожают и жителей лесной деревни, невольными свидетелями чего становится живущий там же бывший морпех и группа американских студентов-медиков, участвующих в волонтёрской (   Читать дальше...   )Производство: Австралия / MRT Films Pty Ltd, Hanuman Films, 11:11 EntertainmentЖанр: Фантастика, боевикРежиссер: Марк ТойяАктеры: Дэвид Хэверти, Бретт Тутор, Хосе Росете, Райан Хью, Нил МакДонаф, Пол Хаапаниеми, Кайли Чан, Татьяна Марьянович, Дэвид Самартин, Лай ТайПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: 02:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B630448B28C5A7C0F437B6D9ADD79FF17A74AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341875   (226338) от 30.11.2019
 
 Однажды в… Голливуде / Once Upon a Time ... in Hollywood (2019) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226338.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226327.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226306.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226229.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226182.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226172.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226144.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226085.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226012.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226000.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225962.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225955.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225926.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225917.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225905.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225882.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225865.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225854.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225814.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225807.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225802.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225787.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225774.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225764.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C119E3309EBF5D90036F3A20CB358336083875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268475   (225761) от 11.12.2018
+
+Проект-М / Projet-M (2014) BDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в будущем. Канады уже нет, а есть свободный город-государство Квебек, у которого есть свой президент. Мировой экономический кризис, истощение природных ресурсов. Главное богатство - пресная вода. Космический зонд обнаружил на Европе, спутнике Юпитера, огромные запасы пресной воды под ледяной коркой в несколько километров. Квебек решает (   Читать дальше...   )Производство: Канада / Babel filmsЖанр: Фантастика, ДрамаРежиссер: Эрик ПикколиАктеры: Жан-Николя Верро, Джули Перро, Жульен Дешам Джолин, Надя Эссадики, Пьер Вервиль, Мари-Джинетт Гуай, Роберто Мей, Тед Плювьоз, Рафаэль Лакайе, Хьюберт ГаньонПеревод: Авторский (одноголосый закадровый) Юрий ЖивовПродолжительность: 01:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069D8FD104ED9CAD0F8CF75E431DE500CFA33A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265925   (225754) от 11.12.2018
+
+Квадрат / The Square (2017) BDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм Рубена Эстлунда — номинант на «Оскар» и обладатель «Золотой пальмовой ветви». Главный герой, куратор музея Кристиан, богат, разведен, привлекателен и, кажется, воплощает собой европейский средний класс. Но когда средь бела дня у него крадут бумажник и телефон, Кристиан начинает ставить под сомнение свои ценности.Производство: Швеция, Германия, Франция, Дания / Plattform Produktion, Arte France Cinéma, Coproduction Office, Det Danske Filminstitut, Essential Filmproduktion GmbH, Film i Väst, Film i Väst, Imperative EntertainmentЖанр: Драма, КомедияРежиссер: Рубен ЭстлундАктеры: Клас Банг, Элизабет Мосс, Доминик Уэст, Терри Нотари, Кристофер Лессо, Лиза Стефенсон Энгстрём, Лилианн Мардон, Маринв Шипченко, Анника Лильеблад, Элихандро Эдуард, Джон Нордлинг, Софи ХэмилтонПеревод: Многоголосый закадровый Эй Би Видео по заказу Первого каналаПродолжительность: 02:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2F257B16B6FF0253980A832355D7A7CBCCB6DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

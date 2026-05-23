@@ -6,7 +6,7 @@ Dead Rising 4 (2017) [Ru/En] (1.0 upd4/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068896.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6 upd6/dlc) Repack FitGirl [Apocalypse Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068895.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gecko Gods (2026) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068876.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Better Than Dead (2026) [Multi] (0.190) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068861.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dark Dominion (2026) [Ru/Multi] (Build 23191896) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068839.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vultures - Scavengers of Death (2026) [Ru/Multi] (1.0.1/dlc) Repack Let'sРlay [
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068823.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Samsara (2026) [Ru/Multi] (Build 23220073) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068818.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068806.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068795.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack Wanterlude [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068765.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WILL: Follow The Light (2026) [Ru/Multi] (Build 23125391) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068723.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DarkSwitch (2026) [Ru/Multi] (R26.0408.9102) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068720.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Coma 3: Bloodlines (2026) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068717.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Eden Crafters (2024) [Ru/Multi] (1.0i) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068690.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Wanterlude [Gold Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068688.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Wanterlude [Ultimate Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068686.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dishonored (2013) [Ru/Multi] (334700_2022/dlc) Repack Wanterlude [Definitive Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068682.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068666.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ HELLBREAK (2025) [Ru/Multi] (Build 23163584) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068644.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rise of Piracy (2026) [Ru/Multi] (0.501) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068639.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Crimson Oath (2026) [Ru/Multi] (1.4.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068638.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ GYLT (2023) [Ru/Multi] (2026) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068628.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Spell Brigade (2024) [Ru/Multi] (1.0.1.16434/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068588.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068566.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ HELLBREAK (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068559.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Mixtape (2026) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068519.jpg" />
 </div>
 
 

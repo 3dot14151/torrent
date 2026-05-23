@@ -1,30 +1,3 @@
-###  Публикация: 597867   (262780) от 26.11.2019
-
-Три Мушкетера (Мюзикл) (Д'Артаньян - Владимир Зеленский) (2005) DVD5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Авторы новой версии «Трех мушкетеров» рискнули рассказать классический сюжет Александр Дюма совершенно неожиданным образом. Трех мушкетеров сделали женщинами, а мушкетерский полк соответственно женский.
-Атос (А.Свиридова), Портос (Р.Писанка) и Арамис (А.Ардова) - это три бестии, в которых постоянно прорывается наружу женская натура. Д'Артаньяна (В.Зеленский) связывается (   Читать дальше...   )Жанр: Комедия, Музыка, СемейныйРежиссер: Тина БаркалаяАктеры: Владимир Зеленский, Юрий Стоянов, Амалия Мордвинова, Андрей Данилко, Алена Свиридова, Руслана Писанка, Армен Джигарханян, Станислав Садальский, Виллэ Хаапасало, Владимир ЭтушПеревод: ОтсутствуетПродолжительность: 01:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4858D7EDD92389DBA27647327F65B90124C32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 226028   (262517) от 27.11.2019
 
 Майкл Джексон: Лунная походка (Лунный странник) / Michael Jackson: Moonwalker (1988) BDRip [H.264.720p]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262517.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262514.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262512.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262506.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247118.jpg" />
 </div>
 
 
@@ -165,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233471.jpg" />
 </div>
 
 
@@ -191,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214309.jpg" />
 </div>
 
 
@@ -221,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209184.jpg" />
 </div>
 
 
@@ -247,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171282.jpg" />
 </div>
 
 
@@ -277,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155964.jpg" />
 </div>
 
 
@@ -303,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153879.jpg" />
 </div>
 
 
@@ -329,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153820.jpg" />
 </div>
 
 
@@ -355,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151383.jpg" />
 </div>
 
 
@@ -382,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150894.jpg" />
 </div>
 
 
@@ -408,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146044.jpg" />
 </div>
 
 
@@ -435,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141852.jpg" />
 </div>
 
 
@@ -462,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136611.jpg" />
 </div>
 
 
@@ -488,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134101.jpg" />
 </div>
 
 
@@ -517,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133649.jpg" />
 </div>
 
 
@@ -546,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125096.jpg" />
 </div>
 
 
@@ -572,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123209.jpg" />
 </div>
 
 
@@ -598,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84332.jpg" />
 </div>
 
 
@@ -624,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59980.jpg" />
 </div>
 
 
@@ -652,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58948.jpg" />
 </div>
 
 
@@ -678,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58274.jpg" />
 </div>
 
 
@@ -689,6 +662,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC2D2C7CDEC6EDBB9D8B42E572E6898F6C2CC7D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 104987   (47195) от 11.08.2024
+
+Кошки / Cats (1998) DVD5 (Мюзикл)
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Кошки (мюзикл)- 1998 года. Автор музыкальных композиций: Эндрю Ллойд. Cats - явление pop-культуры, заслужившее любовь более 50 миллионов поклонников в 26 странах мира. За 18 лет зарегистрировано более 2 миллиардов долларов кассовых сборов. По отзывам многих критиков, этот диск несомненно заслуживает внимание истинных любителей pop жанра.Жанр: МюзиклРежиссер: Дэвид Малле (David Mallet)Актеры: Илэйн Пэйдж /Elaine Paige/, Джон Миллз /John Mills/, Кен Пэйдж /Ken Page/, Розмари Форд /Rosemarie Ford/, Майкл Грюбер /Michael Gruber/, Джон Пэтридж /John Partridge/, Эива Мэй /Aeva May/, Джеффри Гэррэтт /Geoffrey Garratt/, Джеймс Бэррон /James Barron/Перевод: ОригинальныйЯзык: АнглийскийФормат: DVD VideoКачество: DVD5Продолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CCC122D461678584BD3DED4B4BECC341A462DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

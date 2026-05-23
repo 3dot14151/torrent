@@ -6,7 +6,7 @@ Auslogics BoostSpeed 5.5.1.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995701.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Wise Care 365 Pro 2.19 Build 170 Portable by Invictus [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995626.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adrosoft AD Sound Recorder 5.4.5 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995617.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mozilla Firefox 18.0.1 Final [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995614.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Toolwiz Care 2.0.0.4200 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995610.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WinMPG Video Convert 9.3.3.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995609.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Java SE Runtime Environment 8 Dev. Build b73 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995599.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ qbittorrent 3.0.7 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995596.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ICQ 8.0 Build 5981 Portable by KGS [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995562.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Tracker Software PDF-Tools 4.0 Build 0208 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995524.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Archivarius 3000 4.56 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995512.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VC Redist Installer 1.4.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995493.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Tmib Video Downloader 2.2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995491.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Waterfox 18.0.1 x64 Final RePack/Portable by D!akov [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995473.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Haihaisoft Universal Player 1.5.8.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995466.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ TuneUp Utilities 2013 13.0.3000.138 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995408.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ SQLite Expert Professional 3.4.48.2275 Portable by Baltagy [Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995386.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Phase One Capture One PRO 7.0.2 build 65074 (x64) [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995377.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ FotoSketcher 2.40 beta [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995265.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Liberty Street CoinManage 2013 13.0.3.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995162.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Advanced SystemCare Pro 6.1.9.217 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995150.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ K-Lite Codec Pack Update 9.7.2 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995145.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Take Command 14.03 Build 59 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995143.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Advanced SystemCare Pro 6.1.9.217 Final  RePack by D!akov [Русский/Анг
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995123.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Universal Document Converter 5.5.1212.31170 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995111.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Infix PDF Editor 5.27 Professional [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995099.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Slidepad 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160680.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Privatus 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160670.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FonePaw iOS Transfer for Mac 5.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160659.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Be Focused Pro - Focus Timer 2.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160657.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Barcode 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160651.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Wise Disk Cleaner 11.0.5.819 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160633.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Alt SwitchER 21.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160630.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ K-Lite Codec Pack Update 17.9.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160624.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ IObit Smart Defrag Pro 9.2.0.323 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160621.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ doPDF 11.9.434 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160620.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ NetLimiter 5.3.5.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160618.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ dict.cc+ Wörterbuch 12.0.4 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160616.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Photo Lab 3.12.74 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160611.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ungoogled Chromium 119.0.6045.105-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160605.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ PDFsam Basic 5.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160603.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Topaz Video AI 4.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160599.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Logic Pro X 10.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160597.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ PortableApps.com Platform 26.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160593.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Telegram Desktop 4.11.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160592.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ CareUEyes 2.2.9.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160590.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ PIDKey Lite 1.64.4 b35 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160589.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ DxO PhotoLab Elite  7.1.0 build 94 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160588.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ XYplorer 25.10.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160583.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ MAGIX Samplitude Music Studio X8 19.0.3.23131 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160582.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ashampoo UnInstaller 14.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160581.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Viber 21.3.0.2 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160580.jpg" />
 </div>
 
 

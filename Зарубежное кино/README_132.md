@@ -1,56 +1,3 @@
-###  Публикация: 1453998   (1026321) от 14.03.2021
-
-Птица в клетке. Заражение / Songbird (2020) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году мир все еще находится во власти опасного вируса. Зараженных силой забирают из домов и отправляют в зловещие карантинные лагеря.
-У курьера Нико редкий иммунитет к болезни, и он свободно передвигается по городу. Когда его девушка Сара заражается, Нико понимает, что за ней уже выехали военные и у него есть считанные часы, чтобы спасти возлюбленную.Производство: США / STX Films, Invisible Narratives, Platinum DunesЖанр: Триллер, драма, мелодрамаРежиссер: Адам МэйсонАктеры: Кей Джей Апа, София Карсон, Крэйг Робинсон, Брэдли Уитфорд, Петер Стормаре, Эльпидия Каррильо, Александра Даддарио, Лия МакХью, Пол Уолтер Хаузер, Деми МурПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), английские (SDH)Продолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F413EE04901B39E3197558FABB52BC999D4469D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454235   (1026319) от 14.03.2021
-
-Ты, должно быть, убийца / You Might Be the Killer (2018) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Сэм устроил летний лагерь на участке, который принадлежит его семье много лет. Но что-то пошло не так, и парень обнаруживает себя убегающим от маньяка в маске, который уже зверски покрошил его друзей. Сэм звонит подруге Чак, работнице магазина комиксов и большой специалистке по слэшерам, а та, задав несколько наводящих вопросов, делает ужасающее открытие — Сэм и (   Читать дальше...   )Производство: США / Curmudgeon FilmsЖанр: Ужасы, комедия, детективРежиссер: Бретт СиммонсАктеры: Фрэн Кранц, Элисон Хэннигэн, Бриттани С. Холл, Дженна Харви, Брайан Прайс, Патрик Р. Уокер, Джек Мурильо, Сара Катрин Беллами, Savannah DesOrmeaux, Кэрол Джин УэллсПеревод: Профессиональный (многоголосый закадровый) (HDRezka Studio)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696A160DBBFBA8718D3A38583DEC7E5E1CFC3118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454368   (1026317) от 14.03.2021
 
 Кровь на короне / Just Noise (2021) WEB-DL [H.264/1080p-LQ] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026317.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026306.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026298.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026294.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026291.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026285.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026283.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026243.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026231.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026227.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026221.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026208.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026207.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026205.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026202.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026199.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026196.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026194.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026188.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026185.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026182.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026179.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026175.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026173.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B39F3AA96195FB8E81F4FCC2141BF953400FAF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454599   (1026164) от 15.03.2021
+
+Новости со всех концов света / News of the World (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Джефферсон Кайл Кидд путешествует из города в город, делясь новостями со всех концов света, а также историями о президентах и ​​королевах, великих сражениях и разрушительных катастрофах. На равнинах Техаса его путь пересекается с десятилетней Джоанной, которая была похищена племенем Кайова и последние шесть лет воспитывалась в традициях индейской (   Читать дальше...   )Производство: США / Perfect World Pictures, Playtone, Pretty PicturesЖанр: Вестерн, драма, приключенияРежиссер: Пол ГринграссАктеры: Том Хэнкс, Хелен Зенгель, Том Эстор, Travis Johnson, Энди Кастелич, Рэй Маккиннон, Мэр Уиннингхэм, Джефф Уэр, Крис Билсма, Джастин ТадэПеревод: Дублированный (Netflix), Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57411467D218F51735679EFBD88D147A39C39F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454694   (1026121) от 16.03.2021
+
+Повесть о поздней хризантеме / Zangiku monogatari / The Story of the Last Chrysanthemums (1939) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Токио, 1888 год. Кикуносукэ, актера театра Кабуки, хвалят за его выступления на сцене, однако эта похвала является лишь следствием его имени - он сын знаменитого актера. На самом деле он халтурит и переигрывает. И только Отоку, кормилица его брата, решается сказать ему правду. Между молодыми людьми возникает любовь, однако это вызывает гнев отца Кикуносукэ ... Пройдя (   Читать дальше...   )Производство: Япония, ShochikuЖанр: ДрамаРежиссер: Кэндзи МидзогутиАктеры: Сетаро Ханаяги, Кокичи Такада, Кинноскэ Такаматсу, Джанносуке Хайама, Ичиро Юки, Харуо ИноэПеревод: Авторский (Виктор Рутилов)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EFD8976F71926A9468577C55DE41D29D0D555E
 ```
 
 https://mybot314.ru/tekegram_catalog/

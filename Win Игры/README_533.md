@@ -1,29 +1,3 @@
-###  Публикация: 1788859   (22806) от 01.04.2025
-
-Nature & Life: Drunk On Nectar (2016) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Nature & Life - Drunk On Nectar - это глубокий симулятор природы и жизни, охватывающий несколько жанров, включая Survival, Sandbox, Fantasy и Casual. Почувствуйте природу такой, какой вы ее еще никогда не видели! Созданная как микромасштабная 3D-симуляция (с точностью до миллиметра), эта игра перенесет вас в жизнь на уровне мельчайших форм жизни в нашем мире! (   Читать дальше...   )Тип издания: RepackРазработчик: Venugopalan SreedharanЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1482DD9E25C8CF63A4F50654A38390061D1A3703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788838   (22802) от 01.04.2025
 
 Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
@@ -32,7 +6,7 @@ Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22802.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Star of Providence / Monolith (2017) [Multi] (1.2/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22782.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 17692767) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22760.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tekken 8 (2024) [Ru/Multi] (2.00.01/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22757.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Somber Echoes (2025) [Ru/Multi] (22449) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22754.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Battle Brothers (2017) [Ru/En] (1.5.1.5 HF/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22749.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22748.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22747.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22734.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22728.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22727.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Avowed (2025) [Ru/Multi] (1.3.1.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22712.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Bio Prototype (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22677.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22667.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Galacticare (2024) [Ru/Multi] (1.2.0+4f6f505ec2/dlc) Repack FitGirl [Full Covera
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22640.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22633.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ REYNATIS (2024) [Multi] (1.0.9/dlc) Scene Rune [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22632.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22622.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22617.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Train Yard Builder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22612.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Whispered Secrets 16: In the Cards / Нашептанные секреты 16: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22592.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ MosGhost (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22560.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13195/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22557.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22542.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22540.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A654A2A4189FAB9D32DD1F543A6C4EE434A220FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789459   (22536) от 04.04.2025
+
+Mars Vice (2025) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mars Vice - это приключенческая игра, действие которой разворачивается на далеком и футуристическом Марсе. Следуйте за двумя гражданскими следователями, Даксом и Анайей, пока они не разберутся с глубоко укоренившейся коррупцией в марсианском городе Павонис в этой истории, наполненной биопанкам. 2184 год, марсианский город Павонис: место, где стоит побывать на частично (   Читать дальше...   )Тип издания: RepackРазработчик: Rho Labyrinths GmbHЖанр: Приключенческие игры, ИндиЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88B863D0FE0D3E2F6677347DB13C91F6DBBECFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

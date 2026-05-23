@@ -6,7 +6,7 @@ Delvon Lamarr Organ Trio - Close But No Cigar (2018) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790509.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Beth Hart / Бет Харт - Live At Paradiso (2005) Universal, 987 146-5, Euro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790507.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beth Hart / Бет Харт - 37 Days (2007) Universal Music Group, UMD 174 235 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790495.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Katie Melua / Кэти Мелуа - The Closest Thing To Crazy (2003) Single [MP
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790489.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Beth Hart / Бет Харт - Leave the Light On (2003) Koch Records, KOC-CD-824
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790468.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Carl Verheyen - Essential Blues (2017) [FLAC|Lossless|image + .cue] <Blues, Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790462.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Muddy Waters Tribute Band - Live at Rockpalast (Live, 1996 Loreley Festival) (20
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790453.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Beth Hart & Joe Bonamassa - Don't Explain (2011) J&R Adventures, PRAR931391, US 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790452.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Jimmie Vaughan - 6 альбомов, 7 CD (1994-2011) [FLAC|Lossless|image + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790450.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Patrick Cornelius - Acadia: Way of the Cairns (2020) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790448.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ZAZ - Paris, Encore! (2015) Play On, Warner Music France, 0825646006960, Europe 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790413.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ZAZ - Sur La Route (2016) Warner Music France, Play On, 0190295962739, France [M
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790407.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Dario Congedo Trio - Don't Quit (2020) [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790397.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Herbie Hancock And Friends: Milestones Of Jazz Legends (1957 - 1962) 10CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790343.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Adele - 30 (2021) [FLAC|Lossless|tracks + .cue] <Pop-Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790266.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Ella Fitzgerald - Clap Hands, Here Comes Charlie! 1961 (2012) Analogue Productio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790134.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dizzy Gillespie - Soul Time (2002) Castle Pulse [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790133.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Marvin Gaye - What's Going On 1971 (2009) Limited Edition [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790075.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Duende Libre - Drift (2018) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789937.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dragon's Brew - Cold Brew (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789935.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Nat Adderley - "That's Nat" Adderley (1955) 1991, Savoy Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789921.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Alex Skolnick Trio - Conundrum (2018) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789918.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789916.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789914.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789905.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Franco Ambrosetti Band - Lost Within You (2021) Unit Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789866.jpg" />
 </div>
 
 

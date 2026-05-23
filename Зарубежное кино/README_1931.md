@@ -1,55 +1,3 @@
-###  Публикация: 970023   (145031) от 28.12.2015
-
-Урок выживания / Detention (2003) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сэм Декер, учитель в средней школе Линкольн - гроза своих экстремальных подопечных. Сэм – бывший спецназовец, поэтому он запросто останется после уроков с группой провинившихся студентов, от которых можно ждать чего угодно. Он готов к любым сюрпризам, но он не знает, что скоро гулкие коридоры и классы превратятся в настоящее поле боя. Банда садиста и психопата Честера (   Читать дальше...   )Производство: США, Канада, Nu Image / Millennium Films, GFT Entertainment, GFT Detention Films Inc.Жанр: Боевик, ТриллерРежиссер: Сидни Дж. ФьюриАктеры: Дольф Лундгрен, Алекс Харзи, Ката Добо, Кори Севьер, Дов Тифенбах, К.К. Коллинз, Мфо Коахо, Ларри Дэй, Дженнифер Бэкстер, Даниэль Хэмптон, Николь ДикерПеревод: Профессиональный (двухголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 01:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA8B359D2743D9110CA7970B930DA467B3E4300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271678   (145030) от 26.12.2018
-
-Безумно богатые азиаты / Crazy Rich Asians (2018) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Рэйчел Чу — американка китайского происхождения. Она отправляется вместе с бойфрендом в Сингапур на свадьбу его лучшего друга, где узнаёт, что её спутник на самом деле родом из безумно богатого семейства, и все местные женщины до смерти хотят за него замужПроизводство: США,  Color Force, SK Global, Warner Bros.Жанр: Мелодрама, КомедияРежиссер: Джон М. ЧуАктеры: Констанс Ву, Генри Голдинг, Мишель Йео, Джемма Чан, Лиза Лу, Аквафина, Гарри Шам мл., Кен Жонг, Соноя Мидзуно, Крис ПэнгПеревод: Дублированный (iTunes)Субтитры: Русские (внешние), Английские (внешние)Продолжительность: 02:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D25C9776F965FF2FD86FA5BA8608C65289576E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435136   (145027) от 27.12.2020
 
 Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/720p-LQ] [MVO] [IMAX Edition]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145027.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145023.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145021.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145012.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145007.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145005.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144989.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144960.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144945.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144936.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144931.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144925.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144923.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144914.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144905.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144892.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144857.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144853.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144836.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144833.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144815.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144795.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144785.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ Holes / Клад (2003) WEB-DL [H.264/1080p-LQ]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144776.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ Holes / Клад (2003) WEB-DL [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF5CE2B133E07BD228B0866BECB9E9B945E7C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519876   (144766) от 26.12.2021
+
+Мейер Лански / Lansky (2021) DVD9 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мейер Лански — легенда американской мафии, с которым считались все преступные синдикаты и сам Аль Капоне. Ему, конечно, есть, что рассказать. Тот, кто сумеет разговорить скандально известного главу «корпорации убийств», получит эксклюзив на миллион долларов. Но пойдет ли на это Мейер Лански и чьи головы полетят, если он все-таки заговорит?Производство: США / Universal Pictures, Voltage Pictures, Above the Clouds Media GroupЖанр: Биография, криминал, триллер, драмаРежиссер: Итан РоквейАктеры: Харви Кейтель, Сэм Уортингтон, Джон Магаро, Минка Келли, Дэвид Джеймс Эллиотт, Дэнни А. Абекейзер, Дэвид Кейд, Анна-София Робб, Шэйн МакРей, Джеки КрусПеревод: Дублированный (iTunes), Любительский (двухголосый закадровый)Субтитры: Русские (forced), английскиеПродолжительность: 01:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E232302B3C160DE4983E5CCCB096FCB00680A75A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677653   (144763) от 21.11.2023
+
+Бабник / Spread (2009) BDRip [H.265/1080p] [10-bit] [Dub]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никки молод, неотразим и пользуется безотказным вниманием представительниц противоположного пола. Его роман с Самантой основан исключительно на взаимном интересе. Никки интересует ее кредитная карточка и шикарный особняк, а успешную, но одинокую Саманту — безудержный дикий секс. Но когда Никки встречает Хизер, у циничного жиголо что-то переключается в голове и в (   Читать дальше...   )Производство: США, Barbarian Films, Katalyst Films, Oceana Media FinanceЖанр: драма, мелодрама, комедияРежиссер: Дэвид МаккензиАктеры: Эштон Кутчер, Энн Хеч, Маргарита Левиева, Себастиан Стэн, Эшли Джонсон, Соня Роквэлл, Рейчел Блэнчард, Шэйн Бролли, Эрик Бальфур, Мария Кончита АлонсоПеревод: Дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B60FEC97413DC3B3EF9E4D9DDE8C4A198E32B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

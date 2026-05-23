@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 38 Public Beta 3 RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19190.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PotPlayer 250313 (1.7.22508) RePack (& Portable) by elchupacabra (06.05.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19188.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ USB Safely Remove 7.1.1.1326 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19186.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Imagine 2.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19185.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19183.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vivaldi 7.3.3635.12 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19180.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TechSmith Camtasia  25.1.0 Build 9076 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19175.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Auslogics File Recovery 12.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19170.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Auslogics Duplicate File Finder 11.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19167.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Auslogics Disk Defrag Pro 12.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19159.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Fan Control V224 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19157.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ OCCT 14.0.10 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19150.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Auslogics SSD Optimizer 2.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19099.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Office Installer & Office Installer+ 1.26 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19097.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MemTest86 Pro 11.3 Build 1000  RePack by Taciturn [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19092.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MassTube Ultra 20.1.5.129 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19079.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Auslogics Disk Defrag Pro 12.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19075.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Internet Download Manager 6.42 Build 36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19072.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 38 Public Beta 3 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19064.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19063.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wondershare UniConverter 16.4.7.227 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19062.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Auslogics Windows Slimmer 5.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19061.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ YT Downloader 9.12.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19057.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ MassTube Ultra 20.1.5.129 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19049.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Adobe Illustrator 2025 29.5.1.141 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19013.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Internet Download Manager 6.42 Build 36 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18984.jpg" />
 </div>
 
 

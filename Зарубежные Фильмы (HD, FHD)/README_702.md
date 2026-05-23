@@ -1,55 +1,3 @@
-###  Публикация: 844481   (315936) от 26.11.2014
-
-27 свадеб / 27 Dresses (2008) BDRip [H.264/1080p-LQ] [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У Джейн нет ни минутки свободного времени на личную жизнь, ведь ей нужно забрать платья из химчистки, заказать цветы, выбрать свадебный торт, успокоить невест и так изо дня в день. Да, Джейн обожает свадьбы, она полюбила их ещё с самого детства, ведь торжество любви это так прекрасно, но сумеет ли она найти время и силы на свою собственную?Производство: СШАЖанр: Комедия, Мелодрама, СемейныйРежиссер: Энн ФлетчерАктеры: Кэтрин Хейгл, Джеймс Мэрсден, Малин Акерман, Джуди Грир, Малик Панчоли, Мелора Хардин, Дэвид Кастро, Рональд Гуттман, Брайан КервинПеревод: ДублированныйПродолжительность: 01:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59975C12C732BF20F609650FF04A336640E88F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582886   (315859) от 12.10.2022
-
-Восставший из ада / Hellraiser (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В руки молодой женщины попадает древнее устройство-головоломка, похожее на кубик Рубика. Девушка и не подозревает, что с помощью этой вещицы можно вызвать синобитов — существ с садистскими наклонностями из другого измерения, из-за которых пропал её брат.Производство: США, Сербия / 20th Century Studios, 247Hub, Phantom Four FilmsЖанр: ужасыРежиссер: Дэвид БрукнерАктеры: Одесса Адлон, Джеми Клейтон, Адам Фэйзон, Дрю Старки, Брэндон Флинн, Ифа Хайндс, Джейсон Лилз, Yinka Olorunnife, Селина Ло, Zachary HingПеревод: многоголосый профессиональный (Jaskier), авторский (Д. Есарев, BadBajo / Важенин)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full (18+)), (английские (SDH)Продолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88351DEBF77F7F56B36A1E63DE270F578CCFB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582891   (315857) от 12.10.2022
 
 Самая везучая девушка / Счастливые девочки не умирают / Luckiest Girl Alive (2022) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315857.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315847.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315839.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315825.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315822.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315802.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315794.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315786.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315774.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315705.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315702.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315701.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315700.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315609.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315605.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315604.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315603.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315594.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315553.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315535.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315462.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315458.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315334.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315113.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:179060A8B0B25CF1F5EEE05BA2F00E27139AB3C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421924   (315065) от 06.11.2020
+
+Бомж с дробовиком / Hobo with a Shotgun (2011) BDRip [H.265/1080p] [10-bit] [RUS Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315065.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий бомж, которому надоело наблюдать беспредел творящийся на улицах. В один прекрасный момент чаша его терпения переполняется, он хватает с витрины магазина дробовик и идет наводить справедливость, отстреливая бандитов, коррумпированных копов, педофилов и прочих уродов.Производство: Канада / Rhombus Media, Whizbang Films, Yer Dead ProductionsЖанр: боевик, триллер, криминалРежиссер: Джейсон АйзенерАктеры: Рутгер Хауэр, Паша Эбрахими, Робб Уэллс, Брайан Дауни, Грегори Смит, Ник Бейтман, Дрю О’Хара, Молли Дансуорт, Джереми Акерман, Андре ХайнсПеревод: Многоголосый профессиональный, профессиональный двухголосый, авторский, любительский одноголосыйСубтитры: Русские (полные x5), украинские (форсированные, полные), английские (полные, SDH)Продолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023C091438F0B99EB6CBFFF450218BC726D73863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421648   (315055) от 06.11.2020
+
+Ассистентка / The Assistant (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн мечтает о карьере продюсера. Она устраивается на работу в преуспевающую кинокомпанию в качестве помощницы владельца. Однако вместо радужных перспектив ее ждет мучительная офисная рутина, плохо скрываемая враждебность коллег и постоянные упреки шефа. Джейн закрывает глаза на все, что творится за закрытыми дверями начальственного кабинета. Ей приходится быть (   Читать дальше...   )Производство: США / 3311 Productions, Bellmer Pictures, CinereachЖанр: ДрамаРежиссер: Китти ГринАктеры: Джулия Гарнер, Оуэн Холланд, Джонатан Орсини, Рори Кульц, Мигель Говеа, Дауд Хейдами, Бен Мэтерс, Ной Роббинс, Тони Торн, Дагмара ДоминчикПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46FD974BD2B8A2C2EE82315EEE2CCE2FB15BA5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

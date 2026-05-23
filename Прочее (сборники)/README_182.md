@@ -6,7 +6,7 @@ VA - Gold Arabian Hits (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85546.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Русский Рэп 9 (2012) [MP3|256 кб/с]<Рэп>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85475.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ VA - TOP 100 Зайцев.нет (29.03.2012) (2012) [MP3|126-320 kbps]<Pop|Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85459.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Сборник медленных хитов Vol.4 (2012) [MP3|320 kbps]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85289.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - DJ Клуб (Vol. 1-7) (1997 - 1999) [MP3|320 кб/с]<Club/House/Trance/Pr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85231.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Мега Танцевальный Сборник (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85064.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Dj Club Radio Record. Vol. 1 (2012) [MP3|256 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85034.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Жажда Скорости - Полный Драйв (2012) [MP3|192 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84883.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Лучшая Клубная Музыка Марта (2012) [MP3|192 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84706.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Gagauz Relax Station I (2012) [MP3|~205-320 кб/с]<Chillout, Ambient, Lou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84654.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Горячая 70-ка в Машину (2012) [MP3|256-320 кб/с]<Electro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84651.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - 500 величайших песен всех времён по версии
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84626.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - XXXL Лучшая музыка для секса (2012) [MP3|224 kbps]<Pop|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84620.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - The Complete 90's Music Collection (10CD) (2012) [MP3|128 kbps]<Pop|Rock|Me
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84563.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84531.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ KeyGen Music(MP3) - 3139 треков (2000-2012) [MP3|192 кб/с]<8bit>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84426.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ KeyGen Music (origins) - 3139 треков (2000-2012) [xm, .it, .mod, .mo3, .s3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84415.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Лучшие хиты дискотек 2000-х (Vol. 1,2) (2012) Refresh[MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84206.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Фоновая музыка для дня рождения (2012) [MP3|128-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83608.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA- Для Юбилея, Дня Рождения Русский (2012) [MP3|128 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83595.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Romantic Collection - Ballads about love (2012) [MP3|256 kbps]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83494.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA- Для Юбилея, Дня Рождения Иностранный (2012) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83450.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ VA -  Chill & Relax. 133 Tracks Positive Music Vol.5 (2012) [MP3|320 kbps]<Chill
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83433.jpg" />
 </div>
 
 
@@ -798,7 +798,7 @@ VA - 100 Взрывных Хитов в Авто (2012) [MP3|192-320 kbps]<Pop |
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83421.jpg" />
 </div>
 
 
@@ -833,7 +833,7 @@ VA - Ночной Клуб Radio Record (2012) [MP3|160-192 kbps]<Uplifting Tran
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83232.jpg" />
 </div>
 
 
@@ -868,7 +868,7 @@ Best Of 538 Dance Smash - Summer Edition (2011) 5CD [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83223.jpg" />
 </div>
 
 

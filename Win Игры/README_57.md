@@ -6,7 +6,7 @@ Rite of Passage 10: Embrace of Ember Lake (2021) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033736.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробу�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033695.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Contraband Police (2023) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033581.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GRIME (2021) [Ru/Multi] (1.11.11/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033576.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (6102784-6278995) License GOG [Patches]
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033359.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Barotrauma (2023) [Ru/Multi] (1.0.70/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033326.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bridge to Another World 5: Through the Looking Glass / Мост в Другой 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033227.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.0.1) Repack xatab [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033129.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Crossroads Inn (2019) [Ru/Multi] (2.38-3.0.5/dlc) Repack xatab [Anniversary Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033103.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Jump Force (2019) [Ru/Multi] (2.05/dlc) Repack xatab [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033099.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Bit.Trip Runner (2010) [En] (2.0.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032938.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Blue Fire (2021) [Ru/Multi] (3.0.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032812.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.10.0/dlc) License GOG [Omnis
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032634.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Uncertain: Last Quiet Day (2016) [Ru/Multi] (1.0.1.004) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032612.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Empire of Sin (2020) [Ru/Multi] (1.03/dlc) Repack xatab [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032605.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Call of the Sea (2020) [Ru/Multi] (1.1.105) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032603.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Late Shift (2017) [Ru/Multi] (20200107) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032373.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Immortal Love 8: Sparkle of Talent (2021) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032046.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031943.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ My Summer Car (2016) [En] (22.02.23) Repack Nouhelgod [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031740.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031704.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Werewolf The Apocalypse Earthblood (2021) [Ru/Multi] (49091/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031702.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Potentia (2021) [Multi] (1.0.5.2) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031694.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dwarf Fortress (2022) [En] (50.07) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031520.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031517.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Her Story (2015) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031490.jpg" />
 </div>
 
 

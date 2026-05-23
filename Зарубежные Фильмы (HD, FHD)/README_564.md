@@ -1,56 +1,3 @@
-###  Публикация: 542911   (494876) от 05.09.2012
-
-Терминатор: Да придёт спаситель  / Terminator Salvation  (2009)  Blu-ray [H.264/1080p] [Custom] [Режиссерская версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2018 год от рождества Христова. Джон Коннор - человек, чья судьба - возглавить Сопротивление электронному мозгу Скайнет и армии Терминаторов. Но в будущее, с верой в которое он возвращен, вклинивается таинственный Маркус Райт: незнакомец, чьи последние воспоминания рисуют камеру смертников.
-Коннор должен понять, кто такой Маркус - посланник будущего или спасшийся (   Читать дальше...   )Жанр: фантастика, боевик, триллер, драмаАктеры: Кристиан Бэйл, Сэм Уортингтон, Антон Ельчин, Мун Бладгуд, Брайс Даллас Ховард, Коммон, Джейн Александр, Майкл Айронсайд, Иван Г’Вера, Крис БраунингПеревод: русский дубляж (с врезками англ. звука на непереведенные места) и русские субтитры (на непереведенные места)Субтитры: (PGS): РусскийПродолжительность: 01:57:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401610   (494719) от 24.08.2020
-
-Сквозь снег / Snowpiercer (2013) BDRemux [H.264/1080p] [KOR Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. 17 лет назад на планете произошла техногенная катастрофа. Там, где раньше росли леса и цвели сады, теперь лежат снег и лёд, и жизнь сохранилась лишь в гигантском поезде, без остановки мчащемся по трансевразийской магистрали. В первых вагонах состава живёт правящая элита, в последних — простые люди. Жизнь в хвосте поезда напоминает концлагерь — (   Читать дальше...   )Производство: Корея Южная, Чехия / SnowPiercer, Moho Film, Opus PicturesЖанр: Фантастика, Боевик, ДрамаРежиссер: Пон Джун-хоАктеры: Крис Эванс, Сон Кан-хо, Тильда Суинтон, Джейми Белл, Октавия СпенсерПеревод: Многоголосый профессиональный, Двухголосый, АвторскийСубтитры: Русские (Full, Forced), Украинские, АнглийскиеПродолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CBBDDCC6463CDEDD443673E2DCBC02CCEDD3970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318396   (494403) от 06.08.2019
 
 Положитесь на Пита / Lean on Pete (2017) BDRip  [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494403.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494399.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494392.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494316.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494315.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494313.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494312.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494303.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494281.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494146.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493993.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493884.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493879.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493747.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493686.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493634.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493628.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493609.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493608.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493566.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493562.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493557.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493533.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493530.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE32C51AA7D41F2DEBB05D5349D5803178F56A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054177   (493483) от 19.09.2016
+
+Дедушка легкого поведения / Dirty Grandpa (2016) BDRemux [H.264/1080p] [Расширенная версия] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейсон, покладистый правильный парень, накануне свадьбы вляпывается в увеселительную поездку к морю со своим дедом, отставным генералом с легким нравом, бурной фантазией и вполне определенными потребностями… И, похоже, дедские каникулы изменят жизнь Джейсона навсегда!Производство: США / BillBlock Media, Covert Media, Josephson EntertainmentЖанр: комедияРежиссер: Дэн МазерАктеры: Роберт Де Ниро, Зак Эфрон, Зои Дойч, Обри Плаза, Джейсон Манцукас, Дермот Малруни, Джулианна Хаф, Джеффри Бауэр-Чепман, Брэндон Майкал Смит, Джейк Пикинг, Майкл Хадсон, Адам Палли, Мо Коллинз, Генри Жебровский, Катрин Дайер, Дина Дилл, Лэйн Кэрлок, Кристофер Сеттикейс, Эрик Гойнс, Гэвин МуннПеревод: Авторский (одноголосый, закадровый) (Михаил Яроцкий)Язык субтитров: АнглийскийПродолжительность: 01:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C10402B5BD69D62A0D3716A819AF21CE8FC3B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053991   (493477) от 19.09.2016
+
+Неоновый демон / The Neon Demon (2016) BDRemux [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Провинциалка Джесси, мечтающая стать супермоделью, едва окончив школу, отправляется покорять Лос-Анджелес. Через тернии (одна, без денег, чужой город, дешевый мотель), но и через нужные знакомства, фотосессии, вечеринки — к звездам. И вот это сладкое слово «слава» становится былью для юной красавицы. Но за стремительный карьерный взлет придется расплатиться — конкурентки (   Читать дальше...   )Производство: Франция, Дания, СШАЖанр: ТриллерРежиссер: Николас Виндинг РефнАктеры: Киану Ривз, Элль Фэннинг, Карл Глусман, Джена Мэлоун, Белла Хиткот, Эбби Ли, Десмонд Хэррингтон, Кристина Хендрикс, Чарльз Бэйкер, Джеми КлейтонПеревод: Многоголосый закадровый, профессиональный, ОдноголосыйЯзык субтитров: АнглийскийПродолжительность: 01:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5919810DFD3307C2ED388F215D5C0753CED965C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

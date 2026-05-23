@@ -1,56 +1,3 @@
-###  Публикация: 919185   (582694) от 19.07.2015
-
-Жизнь и смерть Питера Селлерса / The Life and Death of Peter Sellers (2004) HDTV [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Забавный на экране, в жизни актер доставлял массу хлопот близким своим эгоцентризмом и инфантилизмом, которые никак не вязались с его внешностью солидного очкарика. Персонажи и ситуации, с которыми сталкивается Селлерс основаны на действительных фактах.
-Питер Селлерс — один из самых прославленных комедийных актеров в истории кино. Необыкновенный талант к перевоплощению, (   Читать дальше...   )Производство: США, Великобритания, HBO Films, BBC Films, De Mann Entertainment CompanyЖанр: Драма, Мелодрама, Комедия, БиографияРежиссер: Стивен ХопкинсАктеры: Джеффри Раш, Шарлиз Терон, Эмили Уотсон, Джон Литгоу, Мириам Маргулис, Питер Вон, Соня Акино, Стэнли Туччи, Стивен Фрай, Генри ГудманПеревод: Многоголосый закадровыйПродолжительность: 01:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44E00312E1E3F74C583CF67B48CF084F533469B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919607   (582685) от 19.07.2015
-
-Белая мгла / Whiteout (2009) Blu-ray [VC-1/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Персонал американской полярной станции, затерявшейся на просторах Антарктики, готовится к отдыху на океанском побережье, завершив долгую вахту. Не является исключением и Кэрри Стетко, федеральный маршал, отвечающий за безопасность полярников. Проверка базы «Амундсен-Скотт», на которой стажируются новички – ее последнее задание. Планы нарушает найденный труп, в буквальном (   Читать дальше...   )Производство: США, Канада, Франция, Турция / Dark Castle Entertainment, Warner Bros. Pictures Co.Жанр: боевик, триллер, криминал, детективРежиссер: Доминик СенаАктеры: Кейт Бекинсэйл, Гэбриел Махт, Том Скерритт, Коламбус Шорт, Алекс О`Лахлан, Шоун Дойл, Джоэль С. Келлер, Джесси Тодд, Артур Холден, Эрин Хиккок, Башар Рахаль, Джулиан Кэйн, Дэннис Кейффер, Andrei Runtso, Роман Варшавский, Стив Люческу, Паула Жан Хиксон, Craig A. Pinckes, Шон Таккер, Марк Джеймс Бошан, Ник ВилларинПеревод: Дублированный (Лицензия EUR)Язык субтитров: Русский, английский, испанский, немецкий, португальский, китайский, датский, нидерландский, финский, итальянский, японский, корейский, норвежский, польский, шведский, тайскийПродолжительность: 01:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C59674019545FD67CF19BC9335326F866EB411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359298   (582672) от 05.07.2011
 
 Стрелок / Shooter (2007) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582672.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582667.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582653.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582649.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582633.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582625.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582622.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582607.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582569.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582568.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582392.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582388.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582382.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582355.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582288.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582239.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582234.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582231.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582229.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582195.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582176.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582140.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582064.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582063.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC94906C4E5655B9FC70D49D9E689A4A373AFA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302251   (582061) от 14.05.2019
+
+Чудо доброй ведьмы / The Good Witch's Wonder (2014) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда «добрая ведьма» Касси Найтингейл ловит себя на мысли, что хотела бы обладать даром предвидения — например, в ситуации, когда ее пасынок Брендон неожиданно решает передвинуть день своей свадьбы, оставив Касси всего пару дней для ее организации. Однако помощь всегда приходит вовремя, и вот, в магазин Касси входит молодая женщина приятной внешности по имени Одри, (   Читать дальше...   )Производство: Канада / Whizbang FilmsЖанр: Фэнтези, драма, семейныйРежиссер: Крэйг ПрайсАктеры: Кэтрин Белл, Крис Поттер, Катрин Дишер, Питер МакНейл. Аллан Ройал, Мэттью Найт. Паула Бодро, Ханна Эндикотт-Дуглас, Джесси Бостик, Ной КэппиПеревод: Многоголосый закадровый, профессиональный (Fox)Субтитры: ОтсутствуютПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D625574B348F437B6829D71719A3C93A8C78D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942126   (582049) от 14.05.2019
+
+Обычный день ангелов / Andele (2014) DVDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об ангелах невысокого ранга, занятых на обыденной работе — скрашивать последний день людям, у которых не удалась жизнь. Чтобы хоть после смерти о них вспоминали с теплом. Исполнять их сокровенные желания, порой такие, что мало не покажется. Работа трудная, но она окупается, меняя к лучшему как участь живых, так и мертвых.Производство: ЧехияЖанр: Фэнтези, Драма, КомедияРежиссер: Элис НеллисАктеры: Мариан Лабуда, Владимир Яворски, Войтех Дык, Элишка Крекова, Болек Поливка, Сюзана Быджовска, Вацлав Неужил, Клара Мелишкова, Зузана Крёнерова, Ондрей СоколПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240DEF21CF24A6FF80B739FCD0D9064C6B4E53EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

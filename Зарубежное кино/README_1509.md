@@ -1,55 +1,3 @@
-###  Публикация: 1341443   (262313) от 28.11.2019
-
-226 / 226 / Four days of snow and blood (1989) BDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о мятеже националистически настроенных офицеров японской армии, произошедшем 26-29 февраля 1936 года. Мятеж организовали молодые офицеры-националисты, которые были убеждены в том, что побороть в стране политическую коррупцию и крайнюю бедность в сельской местности можно лишь путём устранения нескольких высших политиков.Производство: Япония, Fuji Film, Feature Film EnterpriseЖанр: Боевик, драма, военныйРежиссер: Хидэо ГосяАктеры: Кэнъити Хагивара, Томокадзу Миура, Масахиро Мотоки, Кацутоси Арата, Нарими Аримори, Синсукэ Асида, Мивако Фудзитани, Тамоцу Исибаси, Гуц Исимацу, Тикако КакуПеревод: Одноголосый любительскийСубтитры: Русские (enoeno), английские - отдельными файламиПродолжительность: 01:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C522DBCF3746BA6310817DDA1078E15F3C8DEBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341430   (262305) от 28.11.2019
-
-Жестокие истории об отважных / Showa zankyo-den / Brutal tales of chivalry (1965) BDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-После второй мировой войны один из городов Японии представляет из себя печальное зрелище. Геносуки, второй босс группировки якудза держит чёрный рынок товаров в своих руках. Пользуясь послевоенным беспорядком Иваса и его бригада якудза захватывают то, что осталось после американских военных, контролируют чёрный рынок и хотят стать самой влиятельной бригадой в области (   Читать дальше...   )Производство: Япония, Toei TokyoЖанр: Боевик, криминалРежиссер: Киёси СаекиАктеры: Кэн Такакура, Рё Икэбэ, Ёсико Мита, Синдзиро Эхара, Хироки Мацуката, Мититаро Мидзусима, Нобуо Яна, Рюйти Фудзияма, Фусаторо Исидзима, Кэйко Ито, Тацуя Китаяма, Токио КодзукаПеревод: Авторский (Сергей Кузнецов)Субтитры: английские - отдельным файломПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A455108411F0A1D88F1F6605AED5510259118D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341432   (262304) от 28.11.2019
 
 Река грусти / Bei shang ni liu cheng he / Cry Me a Sad River (2018) WEB-DLRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262304.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262303.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262298.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_262279.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262183.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262181.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262175.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262174.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262169.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262166.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262153.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262101.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262079.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262071.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262070.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262029.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262028.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262027.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262020.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262019.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262018.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262016.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262015.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262013.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08E7A9503AB41D76982BBD3F55F62D6269731F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193445   (262012) от 21.12.2017
+
+Двуличный любовник / L'amant double (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая женщина Хлоя страдает эмоциональным расстройством, неврозами, личной холодностью к любви и обращается за советом к психоаналитику. Вскоре он отказывает ей в помощи, мотивируя своё решение возникшими к ней чувствами. Хлоя ничего не знает из прошлого психоаналитика и пытается узнать, попадая в хоррор настоящего.Производство: Франция, Бельгия / A Plus Image 7, Canal+, Films Distribution, FOZ, France 2 Cinema, France Televisions, Mandarin Films, Mars Films, Scope PicturesЖанр: Триллер, драма, мелодрамаРежиссер: Франсуа ОзонАктеры: Марин Вакт, Жереми Ренье, Жаклин Биссет, Мириам Буайе, Доминик Реймон, Фанни Сэйдж, Жан-Эдуард Бодзяк, Антуан Де ла Мориньер, Жан-Поль Мюэль, Кейсли ГотьеПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D04390DA051AB10E7AEDA50865EF481962FF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193448   (262011) от 21.12.2017
+
+Двуличный любовник / L'amant double (2017) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая женщина Хлоя страдает эмоциональным расстройством, неврозами, личной холодностью к любви и обращается за советом к психоаналитику. Вскоре он отказывает ей в помощи, мотивируя своё решение возникшими к ней чувствами. Хлоя ничего не знает из прошлого психоаналитика и пытается узнать, попадая в хоррор настоящего.Производство: Франция, Бельгия / A Plus Image 7, Canal+ (fr), Ciné, Films Distribution, FOZ, France 2 Cinéma, France Télévisions, Mandarin Films, Mars Films, Scope PicturesЖанр: Триллер, драма, мелодрамаРежиссер: Франсуа ОзонАктеры: Марин Вакт, Жереми Ренье, Жаклин Биссет, Мириам Буайе, Доминик Реймон, Фанни Сэйдж, Жан-Эдуард Бодзяк, Антуан Де ла Мориньер, Жан-Поль Мюэль, Кейсли ГотьеПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C89448E726129A35EBE280992B7D012671A587
 ```
 
 https://mybot314.ru/tekegram_catalog/

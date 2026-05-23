@@ -6,7 +6,7 @@ Google Chrome 57.0.2987.110 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827886.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Driver Booster Pro 4.3.0.504 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827883.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Childish Gambino - Awaken, My Love! (2016) [FLAC|Lossless|tracks + .cue] <Funk, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827882.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827865.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Caves of Qud (2015) [En] (2.0.201.115) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827864.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Dism++ 10.1.25.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827802.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827801.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Skype 7.33.0.105 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827788.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ TweakBit FixMyPC 1.8.1.4 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827785.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Spectrasonics - Omnisphere 2.7.0f VSTi, VSTi3, STANDALONE, AAX (x64) + Libraries
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827765.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hedon Bloodrite (2019) [En] (2.1.2) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827763.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sable (2021) [En] (3.3.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827761.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hell Architect (2021) [Ru/Multi] (1.0.14b) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827755.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Vagrus - The Riven Realms (2021) [En] (1.0.05.1009F/dlc) License GOG [Centurion 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827750.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Jupiter Hell (2021) [En] (1.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827747.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Imagine Earth (2021) [Ru/Multi] (1.3.3.4562) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827745.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Zoner Photo Studio X 19.2004.2.245 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827736.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Telegram Desktop 2.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827733.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Emurasoft EmEditor Professional 19.8.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827728.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ GeoGebra 6.0.580.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827727.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ GPU-Z 2.31.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827726.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.03.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827696.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ WebBrowserPassView v1.85 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827691.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827689.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827682.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CoolUtils Total CAD Converter 3.1.0.174 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827660.jpg" />
 </div>
 
 

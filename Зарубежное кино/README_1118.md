@@ -1,55 +1,3 @@
-###  Публикация: 935564   (498266) от 09.09.2015
-
-Побег из Лос-Анджелеса / Escape from L.A (1996) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-США, жестокая тоталитарная диктатура. В результате природных катаклизмов Лос Анджелес превратился в остров, куда высылаются все неугодные правительству элементы. Совершивший в свое время невозможный «Побег из Нью Йорка» герой Курта Рассела Змей Плисскен снова понадобился властям для выполнения задачи, с которой кроме него никому не совладать, необходимо вернуть дочь (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, триллер, приключенияРежиссер: Джон КарпентерАктеры: Курт Расселл, А.Дж. Ленджер, Стив Бушеми, Жорж Коррафас, Стейси Кич, Мишель Форбс, Пэм Гриер, Джефф Имада, Клифф Робертсон, Валерия ГолиноПеревод: Профессиональный многоголосыйПродолжительность: 01:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3D79F92E1F9FD220860929A88088EF8DFA31DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934290   (498261) от 09.09.2015
-
-Сломанная стрела / Broken Arrow (1996) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Два офицера ВВС США, капитан Райли Хэйл и майор Вик Дикинс - близкие друзья. Однажды они устраивают дружеский бой по боксу, в котором побеждает Дикинс, заявив Райли, что он мог бы победить, если бы в последний момент не струсил. Вскоре обоих пилотов назначают на секретные учения на бомбардировщике с двумя ядерными боеголовками на борту. Во время полета Дикинс пытается (   Читать дальше...   )Производство: США / Twentieth Century Fox Film Corporation, Mark Gordon Productions, WCG Entertainment ProductionsЖанр: боевик, триллер, приключенияРежиссер: Джон ВуАктеры: Джон Траволта, Кристиан Слэйтер, Саманта Мэтис, Делрой Линдо, Боб Гантон, Фрэнк Уэйли, Хоуи Лонг, Вонди Куртис-Холл, Джек Томпсон, Вито РуджинисПеревод: профессиональный (многоголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67986DCAC2906D212CCFF2824EFFF12C6920B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934798   (498259) от 09.09.2015
 
 Взрыв из прошлого / Blast from the Past (1999) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498259.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498220.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498193.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498187.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498047.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498040.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498023.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498005.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498003.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497993.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497992.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497987.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497982.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497945.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497901.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497871.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497866.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497692.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497644.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497530.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497508.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497500.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497470.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497460.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D990EC7C27B5B6E8C0BA030B7C4EA7429365823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936003   (497433) от 10.09.2015
+
+Старые, добрые парни / The Good Old Boys (1995) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497433.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале двадцатого века «хороший старый парень», бывалый техасский ковбой Хьюи Кэллоуэй, отправляется в путешествие на помощь брату, ферму которого хотят отобрать. Хьюи — мужчина со старомодным, но невероятно острым чувством справедливости, которому не по нутру лицемерные порядки нового века с его автомобилями и «цивилизованным» обществом. Кэллоуэй прожил свою жизнь, (   Читать дальше...   )Производство: СШАЖанр: Приключения, вестернРежиссер: Томми Ли ДжонсАктеры: Томми Ли Джонс, Терри Кинни, Фрэнсис МакДорманд, Сэм Шепард, Сисси Спейсек, Уилфорд Бримли, Уолтер Олкевич, Мэтт Дэймон, Блэйн Уивер, Брюс МакГиллПеревод: Профессиональный двухголосыйПродолжительность: 01:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDE3023236932ED360E67D46878BE578D000E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936133   (497427) от 10.09.2015
+
+Взрыв / Blast (1997) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время олимпийских игр в Атланте террористы во главе с Эндрю Дивоффом захватывают плавательный комплекс и минируют многие другие объекты. В плавательном комплексе случайно оказывается бывший чемпион по боевым искусствам, получивший в свое время травму, пристрастившийся к наркотикам, потерявший жену (тренера по плаванию) и нашедший работу уборщиком. Опытнейший агент (   Читать дальше...   )Производство: СШАЖанр: БоевикРежиссер: Альберт ПьюнАктеры: Линден Эшби, Эндрю Дивофф, Кимберли Уоррен, Рутгер Хауэр, Норберт Вайссер, Тим Томерсон, Юдзи Окумото, Винсент Клин, Соня Эдди, Джилл Пирс, Барбара Робертс, Роберт Леннон, Эрл Уайт, Пол Элиопулос, Джон Х. Эпштейн, Тина Коте, Синтия Айрлэнд, Ховард Платт, Саймон Кларк, Джерри Ректор, Хезер Марч, Элизабет Варела, Шеннон Элизабет, Том МэтьюзПеревод: Профессиональный многоголосыйПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0EB1974F9B75107E843A0F2527C6C9E11B05B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

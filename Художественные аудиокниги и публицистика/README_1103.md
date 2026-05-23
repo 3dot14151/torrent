@@ -1,86 +1,3 @@
-###  Публикация: 1812162   (7988) от 13.08.2025
-
-Алекс Кош | Одиночка (Книга 6). Лёд и Гром (2025) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Третий меч уже практически в руках Фалька, но квест богини судьбы перестал быть основной целью. И плевать на любые угрозы. Один из немногих друзей мёртв, и если будет шанс его вернуть, то Фальк ради этого пойдёт на всё. Даже если это сделка с демоном, объявившим себя богом мёртвых и повергнувшим всю Арктанию в пучину хаотичной войны всех против всех. Но что демон (   Читать дальше...   )Жанр: фэнтези, приключенияИздательство: ИДДКПродолжительность: 08:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DE9B401E77FCCFFCBD9C0FF0BEF5E6CF8FD4A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811985   (7986) от 13.08.2025
-
-Валерий Гуров | Древний Рим: Легионер. Дорога в Помпеи (Книга 1) (2025) [MP3, Дмитрий Поляков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Древний Рим. Отгремели Гражданские войны. Диктатор Сулла издает эдикт о проскрипциях с фамилиями врагов Республики. В Риме начинается резня. Под корень вырезают сторонников Мария и всех сочувствующих.
-В теле знатного патриция, внесенного в «списки смерти», оказывается наш современник.
-
-Битвы и сражения, интриги и заговоры, смерть врагам Республики!(   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: ЛитРесПродолжительность: 07:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A92C2B13A59FB035D799FFD4A17943ED8ABD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811994   (7984) от 13.08.2025
-
-Валерий Гуров | 1917 год. Последний министр. (Книга 2) (2025) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений нашего современника в теле самого скандального министра Российской Империи - Александра Протопопова в разгар событий 1917 года. На его пути псевдопатриоты, буржуи, радикалы и ворох неразрешенных проблем.
-Но Империя должна выстоять.
-За Веру, Царя и Отечество!Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 06:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA02071D84F4979343BC78B3D13046CE327D96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812150   (7982) от 13.08.2025
 
 Игорь Ан | Техномаг. Душа техномага. (Книга 2). (2024) [MP3, Александр Кайдашов]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7982.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7981.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7980.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7979.jpg" />
 </div>
 
 
@@ -195,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7975.jpg" />
 </div>
 
 
@@ -222,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7973.jpg" />
 </div>
 
 
@@ -248,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7918.jpg" />
 </div>
 
 
@@ -275,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7914.jpg" />
 </div>
 
 
@@ -301,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7891.jpg" />
 </div>
 
 
@@ -327,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7890.jpg" />
 </div>
 
 
@@ -353,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7888.jpg" />
 </div>
 
 
@@ -379,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7885.jpg" />
 </div>
 
 
@@ -408,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7872.jpg" />
 </div>
 
 
@@ -434,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7871.jpg" />
 </div>
 
 
@@ -460,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7870.jpg" />
 </div>
 
 
@@ -488,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7868.jpg" />
 </div>
 
 
@@ -514,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7867.jpg" />
 </div>
 
 
@@ -540,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7866.jpg" />
 </div>
 
 
@@ -566,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7865.jpg" />
 </div>
 
 
@@ -594,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7863.jpg" />
 </div>
 
 
@@ -620,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7862.jpg" />
 </div>
 
 
@@ -646,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7861.jpg" />
 </div>
 
 
@@ -675,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7859.jpg" />
 </div>
 
 
@@ -686,6 +603,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EB7B6DD6DECE56E18D97A64884AB8949C2F084D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812395   (7852) от 14.08.2025
+
+Александр Светлый | Непопулярный игрок (Книга 2) (2024) [MP3, Сергей Ефимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лайт Винслет опять в тисках долга и желания полностью проявить себя. Второй турнир начался. На кону его будущее благополучие, манящий впереди гражданский "Б" – статус, без которого не попасть в финал. Нужно выиграть состязание, но организаторам не нужен неудобный игрок, выявляющий и нещадно эксплуатирующий многочисленные игровые баги. Они не хотят платить (   Читать дальше...   )Жанр: Фантастика, LitRPG, юморИздательство: ЛитРесПродолжительность: 08:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76137986F3C5347B40962D42A3A5FB23141F3E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812286   (7851) от 14.08.2025
+
+Андрей Федин | Попаданец 2 в 1 (Книга 2). Студентка Пупсик (2025) [MP3, Григорий Горбушин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злой Колдун и старый слуга архимага попадают в тело молодого принца. Оба разбираются в магии. Но в мире, где они оказались, магическая энергия доступна только женщинам… – так думали, пока там не появился Пупсик.Жанр: Фэнтези, попаданцы, юморИздательство: ЛитРесПродолжительность: 09:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53740AF58543049D89CCEBA271384126D965DD29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812391   (7850) от 14.08.2025
+
+Андрей Федин | Чёрный дембель (Часть 3). (2025) [MP3, Андрей Сид]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1973 год. СССР.
+Я вернулся домой после двух лет службы в Советской армии… снова. Словно и не прожил после этого события пятьдесят лет.
+Советский Союз на пике своего могущества. Мои родители и младший брат живы. А кладбище рядом с посёлком пока не такое большое, каким я его запомнил.
+Лето, жара, женщины, подготовка к вступительным экзаменам в институт.(   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4014F33C5C7002676282FD63F4DF8F5950AEC3E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

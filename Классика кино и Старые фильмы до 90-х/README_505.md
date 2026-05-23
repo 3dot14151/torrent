@@ -1,31 +1,3 @@
-###  Публикация: 839257   (342341) от 09.11.2014
-
-Печенка (Тжвжик) (1961) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного рассказа С. Атрпета. Фильм считается одной из любимейших комедий в Армении.
- XIX век. Маленький городок на западе Армении. Богач Никогос-ага, встретив в мясной лавке бедняка Нерсес-Ахпара, дарит ему кусок говяжьей печёнки. Нерсес-Ахпар с благодарностью принимает дар богача, и с этого момента начинаются его мучения...
- Последняя роль знаменитого (   Читать дальше...   )Жанр: комедия, короткометражкаРежиссер: Арман МанарянАктеры: Грачья Нерсесян, Цолак Америкян, Арман Котикян, Григорий Сандалджян, Маргарита Мурадян, Варвара Степанян, Аркадий Тер-КазарянПродолжительность: 00:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E52249413E48E9FA4748715AD94D3B59634F0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580636   (342313) от 25.11.2012
 
 Мумия / The Mummy (1932) DVDRip
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342313.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342266.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342187.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342092.jpg" />
 </div>
 
 
@@ -139,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342070.jpg" />
 </div>
 
 
@@ -165,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342032.jpg" />
 </div>
 
 
@@ -191,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_341936.jpg" />
 </div>
 
 
@@ -217,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341861.jpg" />
 </div>
 
 
@@ -243,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341858.jpg" />
 </div>
 
 
@@ -269,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341837.jpg" />
 </div>
 
 
@@ -296,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341835.jpg" />
 </div>
 
 
@@ -322,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341801.jpg" />
 </div>
 
 
@@ -348,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341765.jpg" />
 </div>
 
 
@@ -375,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341763.jpg" />
 </div>
 
 
@@ -401,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341756.jpg" />
 </div>
 
 
@@ -428,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_341745.jpg" />
 </div>
 
 
@@ -456,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341740.jpg" />
 </div>
 
 
@@ -482,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341739.jpg" />
 </div>
 
 
@@ -508,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341717.jpg" />
 </div>
 
 
@@ -534,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341715.jpg" />
 </div>
 
 
@@ -561,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_341714.jpg" />
 </div>
 
 
@@ -587,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341684.jpg" />
 </div>
 
 
@@ -613,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341640.jpg" />
 </div>
 
 
@@ -639,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341634.jpg" />
 </div>
 
 
@@ -665,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_341594.jpg" />
 </div>
 
 
@@ -673,6 +645,33 @@ https://mybot314.ru/tekegram_catalog/
 
 Эта эскадрилья стала «поющей» — так капитан Титаренко подбирал себе новичков. Его «старикам» было не больше двадцати, но «желторотиков», пополнение из летных училищ ускоренного выпуска, в бой все равно, по возможности, не пускали.
 Им еще многое предстояло испытать — и жар боев, и радость первой победы над врагом, и величие братства, скрепленного кровью, и первую (   Читать дальше...   )Производство: СССР, к/ст им. А. ДовженкоЖанр: Военный, Драма, КомедияРежиссер: Леонид БыковАктеры: Леонид Быков, Сергей Подгорный, Сергей Иванов, Рустам Сагдуллаев, Евгения Симонова, Ольга Матешко, Владимир Талашко, Алексей Смирнов, Виктор Мирошниченко, Григорий Гладий, Юрий Саранцев, Алим Федоринский, Александр Немченко, Вилорий Пащенко, и др.Продолжительность: 01:27:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519004   (341584) от 09.11.2014
+
+Экипаж (1979) DVDRip [Полная реставрация]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_341584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экипаж самолета, перевозящего грузы и пассажиров, попадает в ситуацию, по сравнению, с которой конец света может показаться детской забавой… В аэропорту, в котором приземлился самолет, землетрясение. Извергается огненная лава, земля уходит из под ног, все вокруг горит и рушится, людей охватывает ужас, возникает паника.
+После прибытия самолета происходит огромной (   Читать дальше...   )Жанр: Фильм-катастрофа, триллер, драмаРежиссер: Александр МиттаАктеры: Георгий Жженов, Анатолий Васильев, Леонид Филатов, Александра Яковлева, Ирина Акулова, Екатерина Васильева, Юрий Горобец, Комаки Курихара, Александр Павлов, Галина Гладкова, Рома Монин, Владимир Александров, Лариса Барабанова, Леонид Чубаров, Гуранда Габуния, Татьяна Игнатова, Владимир Иванов, Елена Коренева, Людмила Коршакова, Лариса Кудрявцева, Александр Кузьмичев, (   Читать дальше...   )Продолжительность: 02:15:34
 
 ## Скачать торент
 ```bash

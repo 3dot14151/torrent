@@ -6,7 +6,7 @@ Adobe Audition CC 2018 (11.1.1.3) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495342.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 Manager 2.1.4 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495262.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glass Gadgets FreeWay 1.0 / Стеклянные гаджеты FreeWay 1.0 [Р�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495227.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AVS All-In-One Install Package 2.2.2.94+VideoMenu-PresetPack+CoverEditor2-Preset
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495215.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Total Commander Extended 5.9.0 x86/x64 + Portable by BurSoft [ENG/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495118.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ TrustPort LiveCD 2013 (31.08.2012) Русский / Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495011.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Avira Antivirus Premium 2012 12.1.9.353 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494997.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ TuneUp Utilities 2012 12.0.3600.114 RePack by Alker [Мульти / Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494983.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ RuntimePack 12.8.20 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494981.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494926.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Far Manager 3.0.5656 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494923.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ BELOFF [dp] 2020.08.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494922.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Firefox Browser 80.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494852.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494836.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ YouTube By Click Premium 2.2.109 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494832.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.21 (3007) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494828.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Adobe Photoshop Elements v.10.0 Multilingual Updated DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494766.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Windows XP & 7 Drivers x32/x64 Update 03.09.2012 Обновление от 03.09
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494761.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ OkayFreedom VPN Premium 1.8.8.12566 (Акция COMSS - на 1 год беспл
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494706.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Chromium 76.0.3809.87 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494701.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ YouTube By Click Premium 2.2.109 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494700.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Acme CAD Converter 2019 8.9.8.1500 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494689.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PrivaZer (Donors) 4.0.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494671.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ MediaHuman YouTube Downloader 3.9.9.74 (2107) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494657.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Acronis True Image 2021 Build 30290 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494622.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ IObit Driver Booster Pro 6.6.0.489 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494599.jpg" />
 </div>
 
 

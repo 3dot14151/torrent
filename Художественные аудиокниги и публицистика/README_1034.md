@@ -1,84 +1,3 @@
-###  Публикация: 1752770   (41688) от 02.10.2024
-
-Дмитрий Ромов | Цеховик (Книга 14). Воин света [Григорий Андрианов (2024) [MP3, Григорий Андрианов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений попаданца Егора Брагина в 1981 г. Вроде бы уже все главные решения приняты и остаётся просто следовать избранным курсом. Но перед сменой правителей и эпох борьба обостряется и ставки поднимаются высоко, как никогда.Жанр: Фантастика, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 08:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736FD0E89F08AD35D887B893B29EF8669F1F60A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753099   (41634) от 03.10.2024
-
-Иван Шаман | Паутина миров. Славия (Книга 5). Возмездие (2024) [MP3, Александр Потеряев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Его предали самые близкие люди. Он лишён и свободы, и прежних сил, но остался жив. А значит, его враги не смогут спать спокойно. В далёких лесах находится непокорное государство Славия, которое не смирилось с властью империи демонов. Именно туда направляется главный герой, чтобы набраться сил и жестоко отомстить врагам и предателям.
-В пятой, заключительной книге (   Читать дальше...   )Жанр: Попаданцы в магические миры, РеалРПГ, Темное фэнтезиИздательство: 1С-ПаблишингПродолжительность: 14:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A5A3D840EC2AF2AAE1B7752934CDDBC4FBDFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631239   (41618) от 03.10.2024
-
-Алексей Брусилов | Мои воспоминания. Из царской армии в Красную (2023) [MP3, Мишель]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Генерал от кавалерии А.А. Брусилов был одним из самых талантливых генералов Русской императорской армии и вскоре после Февральской революции стал Верховным главнокомандующим Русской армии. В годы Гражданской войны он поддержал молодую советскую власть и содействовал военному строительству Советской России.
-
-Военную службу Брусилов начал в годы Русско-турецкой войны (   Читать дальше...   )Жанр: История, Биография, МемуарыПродолжительность: 11:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486A9BEBE64AF39CF90A57E2C8642C2A6D2F6E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753091   (41617) от 03.10.2024
 
 Дмитрий Чайка | Третий Рим (Книга 4). Князь из будущего. Часть 2 (2024). [MP3, Олег Воля]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41617.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41608.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41601.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41577.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41576.jpg" />
 </div>
 
 
@@ -219,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41575.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41563.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41562.jpg" />
 </div>
 
 
@@ -301,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41529.jpg" />
 </div>
 
 
@@ -327,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41521.jpg" />
 </div>
 
 
@@ -354,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41476.jpg" />
 </div>
 
 
@@ -381,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41431.jpg" />
 </div>
 
 
@@ -407,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41403.jpg" />
 </div>
 
 
@@ -433,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41376.jpg" />
 </div>
 
 
@@ -460,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41362.jpg" />
 </div>
 
 
@@ -488,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41359.jpg" />
 </div>
 
 
@@ -514,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41358.jpg" />
 </div>
 
 
@@ -540,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41305.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41284.jpg" />
 </div>
 
 
@@ -594,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41267.jpg" />
 </div>
 
 
@@ -622,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41217.jpg" />
 </div>
 
 
@@ -650,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41216.jpg" />
 </div>
 
 
@@ -678,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41199.jpg" />
 </div>
 
 
@@ -689,6 +608,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7887F053BFB03E960C974C09C297CBE9F85D5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753892   (41189) от 07.10.2024
+
+Дмитрий Рус | Играть, чтобы жить (Книга 3). Долг (2023) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая реальность обретает глубину и краски. Мир познает рождение, мир познает смерть. Пуповина, соединяющая Землю и Друмир, истончается, и даже Неназываемый не в силах предотвратить неизбежный катаклизм! Разве мог Глеб пройти мимо простой русской девчонки, чудом сбежавшей из китайского рабства и с тихим отчаяньем умоляющей помочь первого встреченного ею человека, (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтези, Героическое фэнтезиИздательство: ЭксмоПродолжительность: 09:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CB803CA9BEDCA8484B19225AB9AAF537283DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753932   (41180) от 07.10.2024
+
+Милорад Павич | Внутренняя сторона ветра. Роман о Геро и Леандре (2024) [MP3, Владимир Лесных]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Магистраль. Балканская коллекция.
+Милорад Павич (1929–2009) – знаковый сербский писатель, в произведениях которого магический реализм переплетается с гипертекстуальностью, позволяющей читателю определять фабулу романа и влиять на сюжет.
+Роман «Внутренняя сторона ветра» по своей форме напоминает водяные часы (клепсидра). Это книга-перевертыш, которую можно (   Читать дальше...   )Жанр: Зарубежная литература, романПеревод: Лариса СавельеваИздательство: ЭксмоПродолжительность: 04:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6723463F66FA5187FB104E239D464DD914574A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753894   (41170) от 07.10.2024
+
+Александр Мазин | Викинг (Книга 9). Гнев Севера (2023). [MP3, Валерий Кухарешин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викинги. Те, кто платит железом, а не серебром. Они не знают страха, ведь погибших ждут чертоги богов, а живых – богатство и слава. И в год 865 от Рождества Христова славнейший из викингов, конунг Рагнар Лотброк, покоритель Франции, завоеватель Парижа, решил, что пришло время английским королевствам стать землями данов.
+Ярлу Ульфу Хвити не нужны английские земли (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 11:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A347E7AB286A94282710BDD4A9257EFC130A662F
 ```
 
 https://mybot314.ru/tekegram_catalog/

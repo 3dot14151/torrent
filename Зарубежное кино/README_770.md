@@ -1,55 +1,3 @@
-###  Публикация: 1529022   (708631) от 22.02.2022
-
-Хранители / Watchmen (2009) WEB-DLRip [H.264/1080p-LQ] [Directors Cut] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие картины разворачивается в параллельной реальности, в Америке 1985 года. В этом мире супергерои стали частью повседневной жизни общества, а Часы Судного Дня, застыв в пяти минутах от полуночи, отсчитывают время до столкновения ведущих мировых держав. После убийства одного из своих прежних коллег Роршах — супергерой, никогда не снимающий маски, — полон решимости (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Фантастика, боевик, драма, детективРежиссер: Зак СнайдерАктеры: Малин Акерман, Билли Крадап, Мэттью Гуд, Джеки Эрл Хейли, Джеффри Дин Морган, Патрик Уилсон, Карла Гуджино, Мэтт Фрюэр, Стивен МакХэтти, Лаура МеннеллПеревод: Дублированный (со вставками MVO)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 03:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8878025448F693F1400E875569D69EFDE69677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532951   (708630) от 22.02.2022
-
-Крик / Scream (2022) WEBRip [H.264/1080p-LQ] [UKR, EN / UKR, EN Sub] [Line, MVO]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Спустя 25 лет после жестоких убийств, потрясших тихий городок Вудсборо, и серии культовых слэшеров на основе тех событий старшеклассница Тара подвергается нападению, такому же, как и в фильме. Узнав о случившемся, в Вудсборо возвращается её сестра Сэм и просит помощи в поимке нового убийцы, скрывающегося за маской Призрачного лица, у бывшего шерифа городка Дьюи Райли.Производство: США, Paramount Pictures, Lantern Entertainment, Outerbanks EntertainmentЖанр: ужасы, детективРежиссер: Мэттью Беттинелли, Тайлер ДжиллеттАктеры: Мелисса Баррера, Джек Куэйд, Дженна Ортега, Нив Кэмпбелл, Дэвид Аркетт, Дилан Миннетт, Кортни Кокс, Марли Шелтон, Мики Мэдисон, Кайл ГаллнерПеревод: Дублированный, многоголосый профессиональныйЯзык озвучки: Украинский, английскийСубтитры: Украинские (Forced), английские (Full)Продолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E99AC38769C398864EFD1851FA23342FC1D944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286803   (708628) от 04.03.2019
 
 Одинокая женщина / A Lonely Woman (2018) WEB-DLRip [H.264] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708628.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708627.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708624.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708623.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708612.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708609.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708581.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708548.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708508.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708500.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708486.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708416.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708362.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708360.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708354.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708325.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708270.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708269.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708265.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708228.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708003.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707908.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707901.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707814.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:805DABB3E85BEEBF08CAB936D7D8B38094610B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220139   (707800) от 17.04.2018
+
+Репортаж из преисподней (Репортаж 2) / [Rec] 2 (2009) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707800.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части все заканчивается на самом интересном месте – журналистку Анхелу уволокло в темноту жуткое создание, когда-то бывшее миленькой девчушкой. С этого момента начинается и сиквел, но лишь для того, чтобы напомнить зрителям, с чего весь сыр-бор. До середины фильма по зараженному дому бегают абсолютно посторонние люди, и лишь ближе к финалу мы узнаем, что (   Читать дальше...   )Производство: Испания, FilmaxЖанр: Ужасы, ТриллерРежиссер: Хайме Балагуэро, Пако ПласаАктеры: Джонатан Меллор, Мануэла Веласко, Оскар Зафра, Эриель Касас, Алехандро Касасека, Пабло Россо, Пеп Молина, Андреа Рос, Алехандро Батллори, По Поч, Джули Фабрегас, Ферран Терраза, Клаудия Фонт, Марта Карбонелл, Джордже Серрано, Ана Изабела Веласкес, Карлос ЛасартеПеревод: Дублированный, любительский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FCB2080E16C37BC42C723D0CFCB4237187D486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219933   (707793) от 17.04.2018
+
+Франкенштейн, создавший байкеров / Frankenstein Created Bikers (2016) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воскрешенный байкер оказывается зависимым от субстанции, которая вернула его из могилы. Чтобы получать ежедневную подпитку, его банда вынуждена помогать садисту-ученому,который пытается провести эксперимент по пересадке голов на похищенных девушках, чтобы помочь обрести тело своей дочери. В это время ,из тюрьмы освобождается бывшая подруга лидера байкеров, которая (   Читать дальше...   )Производство: США, Big World Pictures (II)Жанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Джеймс БикертАктеры: Джетт Брайант, Лоуренс Р. Харви, Тристан Риск, Элли Курч, Меделин Брамби, Пол МакКомиски, Билли РэтлиффПеревод: Одноголосый закадровый любительскийСубтитры: нетуПродолжительность: 02:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32F791EE45B445EBB5E6E08DC5405860ED60F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

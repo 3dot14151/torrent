@@ -1,56 +1,3 @@
-###  Публикация: 1571343   (433714) от 21.08.2022
-
-Тупик / Deadlock (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Разыскиваемый преступник Рон Уитлок вместе с командой наемников захватывает атомную электростанцию и берет всех ее работников в заложники. Армейский рейнджер Мак Карр должен спасти тысячи жителей соседнего города, которому угрожают масштабные разрушения в случае, если электростанция не будет освобождена.Производство: США / 308 Ent, BondIt, Buffalo 8 ProductionsЖанр: Боевик, триллерРежиссер: Джаред КонАктеры: Патрик Малдун, Брюс Уиллис, Мэттью Мэрсден, Майкл Деворзон, Ава Палома, Kelcey Rose, Крис Кливлэнд, Дуглас С. Мэтьюз, Келли РейтерПеревод: Дублированный (Парадиз)Субтитры: Английские (SDH)Продолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7317D6372BE39B525858D5D63360C63077005C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323833   (433674) от 05.09.2019
-
-Сканнеры 3: Переворот / Scanners 3: The Takeover (1991) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Виновный в гибели своего друга Алекс Монэ, после двухлетнего пребывания в тибетском монастыре, возвращается в Америку. Здесь его сестра Элен Монэ уже начала претворять в жизнь план по завоеванию мирового господства.
-Сканнеры должны управлять обществом и отдавать приказы, считает Элен. Но Алекс, не согласный с сестрой, не хочет устилать свой путь трупами, как это (   Читать дальше...   )Производство: Канада, США / Filmtech, Image Organization, Lance EntertainmentЖанр: ужасы, фантастика, боевикРежиссер: Кристиан ДюгеАктеры: Лилиана Коморовска, Стив Пэрриш, Колин Фокс, Дэниэл Пилон, Питер Райт, Гарри Хилл, Клэр Целлукки, Майкл КоупменПеревод: Двухголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105A407316F2E284357DAC7FEEAAC2B86037F57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406322   (433623) от 22.09.2020
 
 Отважная / Mardaani (2014) BDRip [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433623.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433520.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433477.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433476.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433473.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433465.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433401.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433306.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433304.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433291.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433265.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433261.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433252.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433246.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433240.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433228.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433220.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433112.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433092.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433075.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433073.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432998.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432863.jpg" />
 </div>
 
 
@@ -658,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432828.jpg" />
 </div>
 
 
@@ -669,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6224CB7A4FC8B180F78BEBE07C393CDA0D0C9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945514   (432819) от 10.10.2015
+
+128 ударов сердца в минуту / We Are Your Friends (2015) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Анджелес, Калифорния — это мир бесконечных возможностей днем и нереальных голливудских вечеринок ночью. Оба этих мира стремится покорить молодой DJ по имени Коул, неустанно работающий над своим пробивным треком, который должен взорвать весь мир. Его замечает и берет под крыло опытный продюсер Джеймс, но все становится крайне запутанным, когда Коул влюбляется (   Читать дальше...   )Производство: Великобритания, Франция, СШАЖанр: Драма, мелодрама, музыкаРежиссер: Макс ДжозефАктеры: Зак Эфрон, Уэс Бентли, Эмили Ратаковски, Джонни Уэстон, Шайло Фернандес, Алекс Шеффер, Джон Бернтал, Алисия Коппола, Уайли М. Пикетт, Джон АбрахамсПеревод: Дублированный (iTunes)Продолжительность: 01:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A504507B92F17F9035BF38F5A647334909432679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944939   (432801) от 10.10.2015
+
+128 ударов сердца в минуту / We Are Your Friends (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Анджелес, Калифорния - это мир бесконечных возможностей днем и нереальных голливудских вечеринок ночью. Оба этих мира стремится покорить молодой DJ по имени Коул, неустанно работающий над своим пробивным треком, который должен взорвать весь мир. Его замечает и берет под крыло опытный продюсер Джеймс, но все становится крайне запутанным, когда Коул влюбляется (   Читать дальше...   )Производство: Великобритания, Франция, СШАЖанр: драма, мелодрама, музыкаРежиссер: Макс ДжозефАктеры: Зак Эфрон, Уэс Бентли, Эмили Ратаковски, Джонни Уэстон, Шайло Фернандес, Алекс Шеффер, Джон Бернтал, Алисия Коппола, Уайли М. Пикетт, Джон АбрахамсПеревод: Дубляж (iTunes)Субтитры: отсутствуютПродолжительность: 01:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9833E4C962C2497DCB1A7F9A9F40CA28A0BE65
 ```
 
 https://mybot314.ru/tekegram_catalog/

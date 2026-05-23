@@ -6,7 +6,7 @@ Sonny Criss - The Joy Of Sax (1999) /Ars Nova/[APE|tracks+.cue]<Bop, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356336.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ray Brown - Bass Hit! (1956) /1999, Verve/[FLAC|tracks+.cue]<Bop, Mainstream Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356332.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bill Evans - Spring Leaves (1959/1961) /2000, Milestone Records/[APE|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356331.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Peter Guidi Qartet & Trio - Forbidden Flute (1999) Munich Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356269.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Kurt Elling - Passion World (2015) /Concord/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356213.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tito Puente & His Orchestra - Live at the 1977 Monterey Jazz Festival (2008) Mon
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355906.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sam Gendel & Sam Wilkes - Music for Saxofone & Bass Guitar (2018) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355748.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Виртуозы жанра Осеннее настроение. Blues.vol.
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355724.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Zaz - Sur La Route (2015) [FLAC|Lossless|WEB-DL] <Nu Jazz, Chanson>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355462.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355028.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Carmen McRae - The Sound Of Silence & Portrait Of Carmen (1968) 2001,  Collectab
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355022.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dave Liebman & Franco D'Andrea - Nine Again (1990) Red Record [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354828.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Too Slim And The Taildraggers - Brace Yourself (2022) Live [FLAC|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354817.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ V.A. - Smooth Jazz n Chill Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354649.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bud Shank & Bob Cooper - European Tour '57 (2006) Lone Hill Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354599.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tiny Grimes - Five Classic Albums (1958, 1959) 4CD, 2017, Real Gone Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354413.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Les & Larry Elgart - Best Of Big Bands (1940-e) 1990, CBS [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354095.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Art Tatum - Trio Days (1944) 1999, Ars Nova [FLAC|Lossless|tracks + .cue] <Strid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354093.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nelson Riddle & His Orchestra - The Silver Collection (1972) 1989, MPS [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354082.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Walt Dickerson Quartet - Impressions of a Patch of Blue (1965) /1999, Verve Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353792.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dizzy Gillespie - One Night In Washington (1955) /2013, Warner/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353790.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Weather Report - Live In London (80-e) 2020, Angel Air [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353679.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Glenn Miller Orchestra - The 40's Glenn Miller Orchestra (1993) [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353673.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353669.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Rehab Allstars - Feel the Blues (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353664.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353660.jpg" />
 </div>
 
 

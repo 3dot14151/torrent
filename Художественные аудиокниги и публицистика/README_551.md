@@ -1,83 +1,3 @@
-###  Публикация: 1322230   (446168) от 30.08.2019
-
-Владислав Морозов | Бей врага в его логове! Русский десант в Америку (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2017 год. США доигрались с огнем до ограниченной ядерной войны. Американская агрессия в Сирии и Иране отозвалась исламским восстанием в Европе и спровоцировала обмен тактическими ядерными ударами в Корее, Индии и на Ближнем Востоке. Мир балансирует на грани тотальной катастрофы, выживая по законам военного времени.
-
-Устоит ли Россия в огне Четвертой Мировой? Способен (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 10:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87C0BFB7C84CB695DE27593C81D3B393DA2B382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133885   (446060) от 07.09.2017
-
-Лев Толстой | Война и мир. Герои и автор (1976) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В этой постановке авторы прослеживают развитие взаимоотношений между главными героями романа - Андреем Болконским и Наташей Ростовой. В качестве иллюстрации включены наиболее яркие инсценированные страницы эпопеи, характеризующие эту сюжетную линию.Жанр: Радиоспектакль, отечественная классикаПродолжительность: 01:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8086FD46FC57339045AEBAA5933FA7637F2A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322553   (446043) от 30.08.2019
-
-Колин Типпинг | Радикальное Прощение (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Более чем вероятно, что эта книга изменит вашу жизнь. Она поможет вам полностью пересмотреть свои взгляды на собственное прошлое и настоящее. В отличие от других форм прощения, истинное прощение легко достижимо и происходит практически мгновенно. После этого вы можете отказаться от роли жертвы, распахнуть свое сердце и повысить уровень жизненных вибраций. Предлагаемые (   Читать дальше...   )Жанр: Практическая эзотерикаПродолжительность: 07:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF78D59B46E11E23B9325C863F553E6F2AF4096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322574   (446040) от 30.08.2019
 
 Стивен Хокинг | Краткие ответы на большие вопросы (2019) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446040.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445725.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445672.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445481.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445230.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445165.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445003.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445001.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444999.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444917.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444845.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444837.jpg" />
 </div>
 
 
@@ -400,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444835.jpg" />
 </div>
 
 
@@ -426,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444813.jpg" />
 </div>
 
 
@@ -452,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444804.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444757.jpg" />
 </div>
 
 
@@ -506,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444719.jpg" />
 </div>
 
 
@@ -532,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444694.jpg" />
 </div>
 
 
@@ -558,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444664.jpg" />
 </div>
 
 
@@ -584,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444633.jpg" />
 </div>
 
 
@@ -610,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444631.jpg" />
 </div>
 
 
@@ -636,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444630.jpg" />
 </div>
 
 
@@ -662,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444622.jpg" />
 </div>
 
 
@@ -673,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F562E278949C00A4C5703E6B24D0A4C5E363438C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061248   (444621) от 12.10.2016
+
+Пётр Алешковский | Рыба. История одной миграции (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444621.jpg" />
+</div>
+
+
+###  Подробнее
+
+История русской женщины, потоком драматических событий унесенной из Средней Азии в Россию, противостоящей неумолимому течению жизни, а иногда и задыхающейся, словно рыба, без воздуха понимания и человеческой взаимности... Прозвище Рыба, прилипшее к героине - несправедливо и обидно: ни холодной, ни бесчувственной ее никак не назовешь. Вера - медсестра. И она действительно (   Читать дальше...   )Жанр: ДрамаПродолжительность: 10:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08ED22FE0E0E7754D91B96E2D1BA93ED6C7448E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322707   (444567) от 31.08.2019
+
+Тимоте де Фомбель | Девочка из башни 330 (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444567.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире будущего люди живут, учатся, работают, лечатся в огромных стеклянных башнях: за их пределами никому и ничему нет места, даже природе. Автомобили стоят вертикально в отдельных башнях-парковках; взрослым приходится работать на износ, чтобы прокормить себя и детей; о том, что грозит планете от беспрерывной эксплуатации, бизнес-корпорации и власти предпочитают (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8EFDAF90DF5345CB796565A19AC52D5C65A0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390102   (444522) от 23.09.2011
+
+Михаил Задорнов | Я люблю Америку (2011) [MP3, Михаил Задорнов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Михаил Задорнов. "Я люблю Америку!"Жанр: Юмор, сатираПродолжительность: 1:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C6C3BFE27454536E4C1D0E81D6BF28BE3C7292
 ```
 
 https://mybot314.ru/tekegram_catalog/

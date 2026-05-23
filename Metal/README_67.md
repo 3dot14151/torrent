@@ -6,7 +6,7 @@ For Today - 6 Альбомов + 2 EP (2007-2015) [MP3|224-320 кб/с]<Christia
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451362.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [MP3|320 кб/с]<Melo
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450854.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tarja - In the Raw (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450264.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449449.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Snakeskin - Tunes For My Santimea (2016) [MP3|320 Kbps] <Gothic Metal, EBM, Indu
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448508.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Heart Of A Coward - Hope And Hindrance (2012) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448155.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ensepulchre - Desolation (2020) [MP3|320 Kbps] <Blackened Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447588.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Heat Affected Zone - Limbo Bar (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447586.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Raven - Metal City (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447489.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Finntroll - Vredesvävd (2020) [MP3|320 Kbps] <Blackened Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447368.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Deer Creek - Menticide (2022) [MP3|320 Kbps] <Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447323.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447215.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Toxic Ruin - Subterranean Terror (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446613.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446235.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445237.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Anthems Of Gomorrah - 4 Relises (2022) [MP3|320 Kbps] <Black Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445218.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Behemoth - And the Forests Dream Eternally (1995) Remastered, 2020, 2CD, Metal B
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443273.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Nothgard - The Sinner's Sake (2016) [MP3|320 Kbps] <MDM, Epic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442151.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Theatres des Vampires - Candyland (2016) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441402.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Emyn Muil - 3 CDr Альбома (2013-2020) [MP3|320 Kbps] <Atmospheric Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441024.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Raventale - Dark Substance Of Dharma (2015) [MP3|320 кб/с]<Atmospheric Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440515.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Mizantropia - Out Of Mind (2018) [MP3|320 Kbps] <Dark Metal, Gothic Metal, Extre
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440006.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Malice - License To Kill (1987) [MP3|320 кб/с]<Hard-n-Heavy, Melodic Heavy Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438750.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Lindemann - Fish On (2015) Single [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437892.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Sacred Steel - Heavy Metal Sacrifice (2016) [MP3|320 Kbps] <Heavy Metal, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437648.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Existance - Breaking The Rock (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437646.jpg" />
 </div>
 
 

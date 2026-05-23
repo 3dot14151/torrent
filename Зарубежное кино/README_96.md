@@ -1,55 +1,3 @@
-###  Публикация: 619397   (1035509) от 05.03.2023
-
-Семь психопатов / Seven Psychopaths (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Непутевый писатель потерял вдохновение и никак не может справиться с новым сценарием. Волей случая он оказывается втянутым в похищение собаки, затеянное его эксцентричными дружками. Выясняется, что украденное животное — любимый пёс главного местного гангстера, которому ничего не стоит в два счета вычислить и уничтожить оболтусов.Производство: Великобритания / Blueprint Pictures, British Film Institute (BFI), Film4Жанр: Комедия, криминалРежиссер: Мартин МакДонаАктеры: Колин Фаррелл, Сэм Рокуэлл, Кристофер Уокен, Эбби Корниш, Том Уэйтс, Вуди Харрельсон, Ольга Куриленко, Желько Иванек, Майкл Питт, Майкл СтулбаргПеревод: Дублированный (Лицензия)Субтитры: НетФормат: AVIПродолжительность: 01:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECDF6928666D5D683F10FD2FA64C669A39D86E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443464   (1035414) от 29.01.2021
-
-Высокая зелёная трава / В высокой траве / In the Tall Grass (2019) WEB-DL [H.265/2160p-LQ] [4K, HDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Кэл с беременной сестрой Бэкки направляются на машине в Сан-Диего, где девушка сможет отдать ребёнка на усыновление. Остановившись из-за тошноты Бэкки на обочине рядом с заросшим полем, ребята слышат крики о помощи — мальчик заблудился в высокой траве и не может выбраться. Без особых раздумий оба отравляются спасать малыша, не догадываясь, что найти дорогу назад (   Читать дальше...   )Производство: Канада / Copper Heart Entertainment, NetFlixЖанр: Ужасы, триллер, фэнтезиРежиссер: Винченцо НаталиАктеры: Лайсла Де Оливейра, Эйвери Уиттед, Патрик Уилсон, Уилл Бьюи мл., Харрисон Гилбертсон, Тиффани Хельм, Рэйчел УилсонПеревод: Многоголосый (HDrezka Studio)Субтитры: Русский (Форс., Полные), Английский (Full, SDH)Продолжительность: 01:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF9AC4A3773A7912D08DE13BA730C00B5AFF6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443467   (1035408) от 29.01.2021
 
 Высокая зелёная трава / В высокой траве / In the Tall Grass (2019) WEB-DL [H.265/2160p-LQ] [4K, SDR, 10-bit] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035408.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035400.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035389.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035385.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035383.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035379.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035376.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035346.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035341.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035312.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035309.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035300.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035297.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035271.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035253.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035251.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035243.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035151.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035135.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035129.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035126.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035123.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035119.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035118.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADD9523540D792BBE29D663467EC75BA194B8D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435030   (1035117) от 30.01.2021
+
+Состояние рассудка / Три Христа / State of Mind / Three Christs (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035117.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 1950-х в государственной больнице Ипсиланти в штате Мичиган доктор Алан Стоун начинает работать с двумя параноидальными шизофрениками. Каждый из них считает себя Иисусом, и вскоре доктор обнаруживает третьего пациента с тем же самым заблуждением. Бросая вызов жестоким методам лечения, характерным для эпохи, Стоун решает объединить всех троих и помочь по-новому (   Читать дальше...   )Производство: США, Brooklyn Films, Highland Film Group (HFG), Narrative CapitalЖанр: ДрамаРежиссер: Джон ЭвнетАктеры: Ричард Гир, Питер Динклэйдж, Уолтон Гоггинс, Брэдли Уитфорд, Шарлотта Хоуп, Джулианна Маргулис, Кевин Поллак, Джеймс Монро Иглхарт, Стивен Рут, Джейн АлександрПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF411615348C973596D725C7854E42E32739051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443975   (1035116) от 30.01.2021
+
+Ниже нуля / Bajocero (2021) WEBRip [H.264/1080p-LQ]  [SPA / RU, EN, GER, FR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимой, на безлюдном шоссе происходит нападение на фургон для перевозки заключенных. Единственный выживший человек среди блюстителей правопорядка - мужчина, находящийся за рулем машины, которому удается забаррикадироваться внутри бронированной кабины. Он вынужден сразиться сразу с несколькими врагами, включая пронизывающий холод.Производство: Испания / Amorós Producciones, Film Factory, NetFlix, Institut Català de les Empreses Culturals (ICEC)Жанр: Боевик, триллер, криминалРежиссер: Йуис КилесАктеры: Хавьер Гутьеррес, Алекс Моннер, Патрик Криаду, Эдгар Витторино, Карра Элехальде, Флорин Опритеску, Луис Кальехо, Исак Феррис, Андрес Гертрудикс, Мигель ХелабертПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: Русские, английские, немецкие, французскиеПродолжительность: 01:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC18EE8C9A6F462513D2974CFA85BF8C041C0397
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Light Image Resizer Pro 7.6.2.170 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066379.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Light Image Resizer 7.6.2.170 RePack (& Portable) Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066339.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiarty Image Enhancer 3.11 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066202.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GIMP 3.2.2 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066200.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Photoshop Lightroom Classic 2026 15.3.0.11 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066132.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ACDSee Photo Studio Ultimate 2026 19.1.0.4501 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066087.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Light Image Resizer Pro 7.6.2.170 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066065.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Affinity Studio 3.2.0.4351 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065997.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Animate 2024 24.0.13.5 Portable by 7997
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065978.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Adobe Photoshop Lightroom Classic 2026 15.3.0.11 Portable by 7997
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065931.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ACDSee Gemstone Photo Editor 16.0.0.1820 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065879.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ACDSee Photo Studio Ultimate 2026 19.1.0.4501 Full / Lite RePack by KpoJIuK [Ru/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065685.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ reaConverter Pro 8.0.214 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065660.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ACDSee Photo Studio Ultimate 2026 19.1.0.4501 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065648.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Aiarty Image Enhancer 3.11 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065554.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adobe Photoshop Lightroom Classic 2026 15.3.0.11 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065536.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Aiarty Image Enhancer 3.11 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065480.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Adobe DNG Converter 18.3.0.2528 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065470.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Luminar Neo 1.27.0.16779 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065453.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ reaConverter Pro 8.0.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065452.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Adobe Illustrator 2025 29.8.6.1 + Plugins Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065434.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Converseen 0.15.2.3 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065411.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Autodesk SketchBook Pro 9.4.4.0 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065308.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Perfectly Clear WorkBench 5.1.0.3186 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065225.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ reaConverter Pro 8.0.212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065141.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ PicPick Free+Pro 7.4.1 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065117.jpg" />
 </div>
 
 

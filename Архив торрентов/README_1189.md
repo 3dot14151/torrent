@@ -6,7 +6,7 @@ Geek Uninstaller 1.4.5 Build 124 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782943.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Danish Electro Vol.01 (2018) [MP3|320 Kbps] <Synth-pop, Synthwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782941.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Ladies Fitness Time Team Coaching (2018) [MP3|320 Kbps] <Minimal, Tech Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782930.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Aiseesoft Screen Recorder 1.1.30 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782925.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ iMazing 2.5.4 (8416) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782924.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Norton AntiVirus 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782902.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Daum PotPlayer 1.7.8557 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782899.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Norton 360 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782894.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ DP Animation Maker 3.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782893.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Icecream PDF Converter PRO 2.75 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782887.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Norton Internet Security 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782886.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Sublime Text 3 (3157)Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782884.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Alcohol 120% 2.0.3.10203 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782883.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Alcohol 120% 2.0.3.10203 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782881.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ DU Meter 7.30 Build 4769 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782880.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Movavi Video Converter 18.1.2 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782876.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Icecream Ebook Reader PRO 5.07 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782873.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion 1.11: You Are (Not) Alone | Еван
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782861.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Techsmith Snagit 2018.1.0 Build 775 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782854.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Bookmanager modelplusmodel 2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782848.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Daum PotPlayer 1.7.8557 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782844.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - In Da Club Vol.40 (Mind of Wonderful) (2010) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782832.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782817.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782815.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ ESET Internet Security 11.0.159.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782810.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ ESET NOD32 Antivirus 11.0.159.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782805.jpg" />
 </div>
 
 

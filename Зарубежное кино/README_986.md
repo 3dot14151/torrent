@@ -1,55 +1,3 @@
-###  Публикация: 911536   (583042) от 13.05.2019
-
-Мы были королями / Wir waren Könige (2014) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Специальная штурмовая группа немецкой полиции отправляется на ликвидацию наркопритона. При задержании один из полицейских получает ранение, а одному из преступников удается сбежать. Но на этом расследование этого дела не заканчивается. В ходе розыскных мероприятий погибают еще двое людей из этой штурмовой группы, чей командир поклялся отомстить за своих коллег. Настало (   Читать дальше...   )Производство: ГерманияЖанр: ТриллерРежиссер: Филипп ЛениманАктеры: Марсель Бендер, Максимилиан Брауэр, Феликс Дэфер, Хендрик Дурин, Годехард Гизе, Феликс Госер, Пабло Гуэум Пенила, Катарина Хайер, Андре ХиндерлихПеревод: Одноголосый закадровый, любительский (RAIM)Язык субтитров: ГолландскийПродолжительность: 01:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714CCD02161ACD81E426C5F9F9308EF8A182B60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738822   (583040) от 13.05.2019
-
-Праздника не будет / L'ultimo capodanno (1998) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы знаете, что Новый год — смертельно опасный праздник? За несколько часов до Нового года экстравагантные обитатели роскошного дома «Остров» уже готовы праздновать: елка сверкает, стол накрыт, стареющая графиня в объятьях молодого любовника, адвокат-мазохист достал свою любимую плетку, а свечи для торта удачно заменили динамитные шашки. Но разве в такую ночь можно (   Читать дальше...   )Производство: Италия/Cinecittа, Istituto Luce, Presidenzia del Consiglio del Ministri-Dipartimento dello Spettacolo, Rai Cinemafiction, Sorpasso FilmЖанр: Драма, КомедияРежиссер: Марко РизиАктеры: Моника Беллуччи, Макс Маззотта, Беппе Фиорелло, Марко Джаллини, Клаудио Сантамария, Алессандро Абер, Людовика Модуньо, Пьеро Натоли, Ива Заникки, Мария МонтиПеревод: Многоголосый закадровыйПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2884282231029A3D877CC39D77C76B554EE898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 814852   (583036) от 13.05.2019
 
 Китаец / Der Chinese / The Man from Beijing (2011) DVDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583036.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583035.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583034.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583033.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583031.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583030.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583029.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583025.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582988.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582985.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582979.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582978.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582970.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582935.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582905.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582896.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582894.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582893.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582891.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582848.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582790.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582738.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582724.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582697.jpg" />
 </div>
 
 
@@ -673,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0FB42AEF9EEFE106125DFDEC8632B1FF5AC208E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919185   (582694) от 19.07.2015
+
+Жизнь и смерть Питера Селлерса / The Life and Death of Peter Sellers (2004) HDTV [H.264/1080i]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавный на экране, в жизни актер доставлял массу хлопот близким своим эгоцентризмом и инфантилизмом, которые никак не вязались с его внешностью солидного очкарика. Персонажи и ситуации, с которыми сталкивается Селлерс основаны на действительных фактах.
+Питер Селлерс — один из самых прославленных комедийных актеров в истории кино. Необыкновенный талант к перевоплощению, (   Читать дальше...   )Производство: США, Великобритания, HBO Films, BBC Films, De Mann Entertainment CompanyЖанр: Драма, Мелодрама, Комедия, БиографияРежиссер: Стивен ХопкинсАктеры: Джеффри Раш, Шарлиз Терон, Эмили Уотсон, Джон Литгоу, Мириам Маргулис, Питер Вон, Соня Акино, Стэнли Туччи, Стивен Фрай, Генри ГудманПеревод: Многоголосый закадровыйПродолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44E00312E1E3F74C583CF67B48CF084F533469B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919607   (582685) от 19.07.2015
+
+Белая мгла / Whiteout (2009) Blu-ray [VC-1/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Персонал американской полярной станции, затерявшейся на просторах Антарктики, готовится к отдыху на океанском побережье, завершив долгую вахту. Не является исключением и Кэрри Стетко, федеральный маршал, отвечающий за безопасность полярников. Проверка базы «Амундсен-Скотт», на которой стажируются новички – ее последнее задание. Планы нарушает найденный труп, в буквальном (   Читать дальше...   )Производство: США, Канада, Франция, Турция / Dark Castle Entertainment, Warner Bros. Pictures Co.Жанр: боевик, триллер, криминал, детективРежиссер: Доминик СенаАктеры: Кейт Бекинсэйл, Гэбриел Махт, Том Скерритт, Коламбус Шорт, Алекс О`Лахлан, Шоун Дойл, Джоэль С. Келлер, Джесси Тодд, Артур Холден, Эрин Хиккок, Башар Рахаль, Джулиан Кэйн, Дэннис Кейффер, Andrei Runtso, Роман Варшавский, Стив Люческу, Паула Жан Хиксон, Craig A. Pinckes, Шон Таккер, Марк Джеймс Бошан, Ник ВилларинПеревод: Дублированный (Лицензия EUR)Язык субтитров: Русский, английский, испанский, немецкий, португальский, китайский, датский, нидерландский, финский, итальянский, японский, корейский, норвежский, польский, шведский, тайскийПродолжительность: 01:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C59674019545FD67CF19BC9335326F866EB411
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA-New Age Style - World Lounge 3 (2013) [MP3|320 кб/с]<New age, World, Downt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992292.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - The Official UK Top 40 Singles Chart 17.01.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991971.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - не Громкие новинки недели 52 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990727.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - ЕвроХит Топ 40 Europa Plus 17.01.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990703.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Kontor Top Of The Clubs 2016.01 (2015) [MP3|320 кб/с] <Bigroom, Nu Disco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988594.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - 100 Platinum Hits Dance & Masters Workout (2015) [MP3|320 кб/с] <Commerc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988496.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Angel In My Soul (2020) [MP3|320 Kbps] <Country, Folk, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988010.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987623.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - 2016 Alive Project (2016) [MP3|320 кб/с] <Disco, Vocal, Euro, Latin Musi
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987538.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Снежный Хит. Самые Сливки (2016) [MP3|128-320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987321.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Зайцев.нет Лучшие новинки Января (2020) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986727.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - 100 Greatest Guilty Pleasures (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986038.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - World 2016 Future (2016) [MP3|264-320 кб/с] <Club, Tropical, Future Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985944.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Amnezia Best Of 2015 (2015) [MP3|320 кб/с] <Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985856.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Top Club Music World Hits 10116 (2016) [MP3|320 кб/с] <Bigroom, Tropical
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985851.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - DFM. Новогодний эфир (2015) [MP3|233-320 кб/с] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985684.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Top 100 Club Tracks (December 2015) (2015) [MP3|320 кб/с] <Dance, Club, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985239.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - The Official UK Top 40 Singles Chart 24.01.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984925.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - ЕвроХит Топ 40 Europa Plus 24.01.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984866.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - EuroHit Top 40 - Итоговый выпуск (2015) [MP3|320 кб/с] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984376.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - The Dance Space Innovative (2016) [MP3|192-320 кб/с] <Club, Hands Up, Vo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983512.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Royalty - Free Nu School Deep & Garage (2015) [MP3|223-320 кб/с] <House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983422.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Winter Music (2016) [MP3|320 кб/с] <Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983284.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983134.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Итоговый Record Super Chart 2015 (27.12.2015) [MP3|128-320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982901.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981998.jpg" />
 </div>
 
 

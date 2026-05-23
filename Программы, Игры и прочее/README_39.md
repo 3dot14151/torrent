@@ -1,55 +1,3 @@
-###  Публикация: 1364256   (937664) от 02.03.2020
-
-NUMBER 5 : Offline Modern Gun v1.0.4 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-NUMBER 5 : Offline Modern Gun Sci-Fi FPS Game – научно-фантастическая стрелялка FPS на андроид, где вы будете спасать мир от апокалипсиса. Сюжет игры начинается с того что суперкомпьютерная сила решили захватить мир и уничтожить всех людей. Вашей задачей будет открыть для себя виртуальный мир игры и спасти человечество от апокалипсиса. Возьмите в руки мощное оружие (   Читать дальше...   )Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 16.01.2019Разработчик: ygggameПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756BD33AE2528C185E0B761B147E2C071EE98B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364383   (937663) от 02.03.2020
-
-Барометр, альтиметр и термометр v1.4.00 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Барометр и высотомер - это простое приложение для измерения атмосферного давления и высоты по встроенному в устройство GPS и датчику давления. Предупреждение! Некоторые портативные устройства (планшеты, телефоны, смартфоны) не имеют встроенного датчика давления. На этих устройствах измерения могут быть менее точными, поскольку они будут основываться на данных местных (   Читать дальше...   )Тип издания: Пиратка (разблокирована Pro)Релиз состоялся: 05.12.2019Разработчик: EXA ToolsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051557B4001C34AEE53DF73C7932EB527F48BFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003218   (937539) от 02.03.2020
 
 Вырезать Вставить Фото Без Шва / Cut Paste Photo Seamless Pro v29.3 [Ru/Multi]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937539.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934860.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Olivia Drive Pro 2.7.8 - бортовой компьютер (OBD2/ELM327) [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934686.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933403.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933265.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ Cписок покупок v2.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933257.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ Stepik v1.114 [Ru] - бесплатные онлайн-курсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932965.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932316.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ Hungry Shark Evolution 7.4.0 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931967.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ KitchenTimer 4.2.1 [Ru] - Кухонный таймер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931491.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930944.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ Garmin: NaviGuide Hungary v2016.01 NT Final [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930735.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ Garmin: City Navigator Chile NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930731.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930666.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ P4P 7 Minute Workout PRO 1.3.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930433.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ SEN: Seven Eight Nine v1.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930411.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ TinyCam Monitor PRO v14.2.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930272.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ Garmin: City Navigator Argentina NT 2017.10 Proyecto [Es]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928931.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ Blend Photo Editor Pro 2.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928925.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ Garmin: City Navigator Australia & New Zealand NT HERE 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928784.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ iGO Primo NextGen 9.18.27.681657 (Android) [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928418.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ iGO Primo NextGen 9.18.40.671989 (WinCE) [Ru/Multi]
 >>Навигация для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927193.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ Pedometer - GPS Tracker v1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927103.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ VK mp3 mod v94/657 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927023.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ VK mp3 mod - Уникальная модификация оригинально�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DC79F08E6C18187A99D44DE2721A2260C4E779A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365896   (926624) от 09.03.2020
+
+Dr.Web v12.5.1 + Activation Key [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr.Web на Android – скачать антивирус Dr.Web можно бесплатно, проведите полное сканирование всех программ и файлов в памяти смартфона, а так же на карте расширения памяти. Проверку можно провести как автоматически, так и в ручную, причем в ручную проверку, можно провести как в режиме быстрой проверки так и выборочном или полном. Вредоносные объекты антивирус поместит (   Читать дальше...   )Тип издания: Оригинал (Лицензионный ключ в комплекте)Релиз состоялся: 28.10.2019Разработчик: Doctor Web, LtdПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE58EE8BD24F76F262691921E950BA7FE5F6AF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987632   (925759) от 17.02.2016
+
+Easy Music for kids v1.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Easy Music — лучший способ погрузиться в мир музыки безо всякой теории! Прекрасно анимированное приложение познакомит с музыкой детей в возрасте от 3 лет. Они научатся узнавать ноты, тон, ритм и мелодию, играя в естественной обстановке. Интерактивный замок из песка позволит любопытным детям пробовать разные музыкальные инструменты, жанры и приемы и даже создать свое (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 05.02.2016Разработчик: EDOKI ACADEMYПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBA08909D79CFAFC65B76E5B5C57E00C0C76978
 ```
 
 https://mybot314.ru/tekegram_catalog/

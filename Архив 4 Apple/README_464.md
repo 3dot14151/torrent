@@ -6,7 +6,7 @@ Gemini 2: The Duplicate Finder 2.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291128.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ MAMP & MAMP PRO 5.2 (rel2)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291070.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Audiobook Builder 1.5.4 (115) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290984.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Transmit 5 v5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290731.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Autodesk AutoCAD 2018 (O.48.M.294) for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290623.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Letter Templates for Pages 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290415.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Shredo 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290393.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Watts 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290324.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ PDF Expert 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290321.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Ink2Go 1.7.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290037.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Adobe Audition CC 2017 (10.0.1) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289955.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Cisdem Data Recovery 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289915.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ iStatistica Pro 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289890.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Affinity Publisher Beta 1.8.0.499 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289888.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ QLab Pro 4 v4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289887.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Cisdem Document Reader 4 v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289886.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ FastScripts 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289885.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ iFinance 4 v 4.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289884.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Cisdem PDFPasswordRemover 3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289883.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Cisdem PDFCompressor 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289880.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Tagr 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289879.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ TextSoap 8.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289823.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Serial Box 11.2019 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289750.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ iStatistica Pro 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289748.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Alfred 4 Powerpack 4.0.6 (1123) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289747.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ iSkysoft Video Converter Ultimate 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289739.jpg" />
 </div>
 
 

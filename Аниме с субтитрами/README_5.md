@@ -6,7 +6,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047839.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047154.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Доч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046410.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046390.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046383.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Eiga Go-Toubun no Hanayome | Пять невест (фильм) [2022, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046312.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Gekijouban Isekai Quartet: Another World | Isekai Quartet the Movie: Another Wor
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046198.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bokura wa Minna Kawaisou | The Kawai Complex Guide to Manors and Hostel Behavior
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045992.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045937.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045932.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Hatena Illusion | Иллюзия Хатэны [2020, TV, 12 эп.] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045667.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Soredemo Ayumu wa Yosetekuru | When Will Ayumu Make His Move? | Аюму всё 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044830.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Strike the Blood Final | Удар крови OVA-5 [2022, OVA, 4 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044807.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Itou Junji: Maniac | Junji Ito Maniac: Japanese Tales of the Macabre | Дзюн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044692.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Gekijouban Karakai Jouzu no Takagi-san | Озорная Такаги (фильм
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044222.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ginga Tetsudou 999 / Ginga Tetsudo 999 / Galaxy Express 999 / Галактиче
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044103.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Uchuu Kaizoku Captain Harlock / Space Pirate Captain Harlock / Космичес�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044091.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Fo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043915.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043887.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lupin Zero | Люпин Зеро [2022, Web, 6 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043803.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Lapis Re:LiGHTs | Лазурные огни [2020, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042780.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Houkago Teibou Nisshi | Diary of Our Days at the Breakwater | Рыбалка д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042770.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hachi-nantte, Sore wa Nai Deshou! | The 8th Son? Are You Kidding Me? | Вось�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042769.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai / Love Live! Nijigasaki High 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042701.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Enen no Shouboutai: Ni no Shou | Fire Force (TV-2) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042137.jpg" />
 </div>
 
 

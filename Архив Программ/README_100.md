@@ -6,7 +6,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020921.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020915.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CyberLink PowerDirector Ultimate 19.1.2808.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020912.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe After Effects 2021 18.1.0.38 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kinoplay 0.1.5 x64 Portable by Devint [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020901.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Premiere Pro 2021 15.1.0.48 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020885.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Opera GX 73.0.3856.434 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020874.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Vivaldi 3.7.2218.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020868.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Calibre 5.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020850.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Internet Download Manager 6.38 Build 19 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020848.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ FBackup 9.0.226 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020847.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft Visual Studio 2019 Community 16.9.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020836.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CherryTree 0.99.35 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020830.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Microsoft Edge 90.0.818.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020814.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ LibreOffice 7.1.2.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020813.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft Visual Studio 2019 Enterprise 16.9.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020794.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ MAGIX Sound Forge Pro 15.0 Build 45 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020789.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft Visual Studio 2019 Professional 16.9.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020787.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BELOFF [dp] 2021.04.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020782.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.7 Build 6180 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020762.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ CPUID HWMonitor 1.44 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020761.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft .NET 5.0.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020735.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Internet Download Manager 6.38 Build 20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020691.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Calibre 5.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020667.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020661.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Chromium 90.0.4430.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020659.jpg" />
 </div>
 
 

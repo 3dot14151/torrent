@@ -6,7 +6,7 @@ Hard Drive Inspector Professional 4.1 Build 144 + For Notebooks [MULTi / Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_338148.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.2 Build 4105 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338114.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ICE Book Reader Pro 9.5.3 + SkinPack Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338084.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.2075]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338032.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ WinToUSB Enterprise 3.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337960.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ ViewFD 3.3.7 + Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337935.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Coolutils Total Mail Converter 5.1.0.210 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337890.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ CoolUtils Tiff Combine 4.1.0.23 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337883.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Voxal Voice Changer Plus 1.32 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337871.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Cacheman 10.0.2.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337870.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ UltraISO Premium Edition 9.6.6.3300 RePack by VIPol [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337866.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PowerArchiver 2012 13.02.02 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337832.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CoolUtils Total Outlook Converter 4.1.0.319 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337769.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ XnViewMP 0.88 + portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337761.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Trojan Killer 2.1.45 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337694.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Gigapixel A.I. 5.2.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337691.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AnyBurn 5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337688.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Opera 72.0.3815.186 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337679.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ PROMT Freelance 12 Build 10.0.52 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337605.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Windows Repair (All In One) 1.9.2 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337559.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MiniTool Power Data Recovery 9.1 Business Technician RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337558.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Wise Duplicate Finder Pro 1.3.7.47 RePack & (Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337556.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ AIR Music Technology - Hybrid 3.0.7.19000 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337555.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Firefox Browser 82.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337552.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ WhatsApp 2.2041.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337549.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Topaz Gigapixel A.I. 5.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337548.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 514056   (659798) от 22.06.2012
-
-Невероятные приключения янки в Африке / Yankee Zulu (1993) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Шалости друзей — мальчишек, белого африканера и черного зулу — сделали бы честь даже легендарному Кевину из комедии «Один дома».
-Жизнь надолго разлучает их, но встретившись через 25 лет, они вспоминают детство — похищают полмиллиона долларов и, преобразившись в гримерной телевидения белый в черного, а черный в белого, скрываются от преследователей.Производство: ЮАР / Distant Horizons, Koukus Troika, Toron Screen CorporationЖанр: КомедияРежиссер: Грей ХофмайрАктеры: Леон Шустер, Джон Матшикиза, Уилсон Данстер, Терри Триз, Мишель Боус, Скай Свориник, Руан Мандельстам, Бобо Серитсани, Мари Майкл, Мбали ДладлаПеревод: Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C6A1F75F77A390842068E84443E85BD41841B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513870   (659795) от 22.06.2012
-
-Железное небо / Iron Sky (2012) [1080p] Blu-ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Группа ученых под руководством офицера СС Ханса Каммлера добилась серьезных успехов по части антигравитации. Когда исход Второй Мировой войны стал очевиден, с антарктической базы гитлеровцы запустили несколько космических кораблей, чтобы их экипаж на темной стороне Луны основал секретную военную базу Schwarze Sonne (Черное Солнце). План Германии состоял в возведении мощной армады для решающего удара по Земле с последующим завоеванием планеты. И в 2018 году Четвертый Рейх перешел в наступление.Жанр: Фантастика, Боевик, КомедияРежиссер: Тимо ВуоренсолаАктеры: Юлия Дитце, Удо Кир, Пета Сержант, Ким Джексон, Гёц Отто, Стефани Пол, Кристофер Кирби, Моника Госсманн, Джим Нобелок, Юки ИвамотоПеревод: Двухголосый закадровыйПродолжительность: 01:32:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514029   (659793) от 22.06.2012
 
 Железное небо / Iron Sky (2012) [720p] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659793.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659778.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659776.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659775.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659766.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659719.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659716.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659714.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659713.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659709.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659613.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659592.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659565.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659561.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659560.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659557.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659556.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659552.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659549.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659545.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659524.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659516.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659515.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659230.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF455E6FDA10CE92476E6C5A4E94CE72986C8BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539171   (659147) от 24.03.2022
+
+Десять сражений Синго: Часть 2 / Shingo juban shobu dai nibu / Ten Duels of Young Shingo: Chapter 2 (1982) HDTVRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начав свой путь, Аои Синго бросает вызов Ягю Мунэхару, сыну Ягю Тадзимы, сэнсэя сёгуна. Тяжело ранив Мунэхару, Синго становится заклятым врагом Тадзимы. Тот клянется его убить и отправляет за ним опытных самураев и ниндзя клана Ягю.Производство: Япония, Fuji Television NetworkЖанр: Боевик, драмаРежиссер: Косэй СайтоАктеры: Томиюки Кунихиро, Тосиро Мифунэ, Нана Окада, Рино Катасе, Томоко Саито, Сюн Оойдэ, Такэтоси НайтоПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8347E6A52E68B3BBDE8BA738B48914639953F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514342   (659111) от 23.06.2012
+
+Долтри Кэлхун / Daltry Calhoun (2005) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды, когда Долтри был способен думать только о спасении своей компании от краха, ему привозят 14-летнюю дочь, которая еще не знает, что он ее отец. Теперь у Долтри задачка посложнее: две женщины, дочь Джун и бизнес...Жанр: Драма, Мелодрама, КомедияРежиссер: Катрина Холден БронсонАктеры: Элизабет Бэнкс, Джонни Ноксвилл, Бет Грант, Лора Кайюэтт, Томас Джексон Берт, Кен Джексон, Софи Трауб, Дэвид Кехнер, Мэттью Шарп, Джеймс Паркс, Кик Герри, Джульетт Льюис, Эндрю ПрайнПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AA08CF47B1554CA2BD39E73350DA3ED8A6E0DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

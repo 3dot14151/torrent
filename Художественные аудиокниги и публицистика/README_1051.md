@@ -1,84 +1,3 @@
-###  Публикация: 1768609   (33060) от 25.12.2024
-
-Алексей Птица | Морская инквизиция (Книга 5). В Новый Свет (2024) [MP3, Николай Прокофьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новые приключения нашего современника в магическом мире в теле испанского дворянина. Борьба с пиратами, старая любовь занозой сидящая в сердце, море, сокровища, чужие земли и города – всё это ожидает вас в этой книге.Жанр: Попаданцы, Историческое фэнтезиИздательство: ЛитРес: Чтец, АвторПродолжительность: 09:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DF9366D180B64930EB92413CCB9ED06DD033E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768592   (33041) от 25.12.2024
-
-Дэвид Герберт Лоуренс | Сыновья и любовники (2020) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена (Английская литература).
-Дэвид Герберт Лоуренс (1885 – 1930) – английский писатель. Один из самых известных писателей начала двадцатого столетия. Знаменитый благодаря своим психологическим романам, он также писал эссе, стихи, пьесы, записки о своих путешествиях и рассказы. В небольшом шахтерском поселке Бествуд живет ничем не примечательная (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Раиса ОблонскаяИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 17:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E081AE21711CAC27646E0F34CE610DE81C53F3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768596   (33040) от 25.12.2024
-
-Дэвид Герберт Лоуренс | Флейта Аарона (2024) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена (Английская литература).
-Дэвид Герберт Лоуренс (1885 – 1930) – английский писатель. Один из самых известных писателей начала двадцатого столетия. Знаменитый благодаря своим психологическим романам, он также писал эссе, стихи, пьесы, записки о своих путешествиях и рассказы.
-Лоуренс начал писать «Флейту Аарона» в начале 1918 года, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 09:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D3794A4022CF2733D3174FE31ECF424074FB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768600   (33024) от 25.12.2024
 
 Алексей Птица | Морская инквизиция (Книга 4). От моря до моря (2024) [MP3, Николай Прокофьев]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33024.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33022.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32992.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32961.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32944.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32919.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32834.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32822.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32816.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32774.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32731.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32715.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32714.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32643.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32621.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32534.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32512.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32497.jpg" />
 </div>
 
 
@@ -561,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32398.jpg" />
 </div>
 
 
@@ -587,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32320.jpg" />
 </div>
 
 
@@ -613,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32297.jpg" />
 </div>
 
 
@@ -641,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32295.jpg" />
 </div>
 
 
@@ -667,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32291.jpg" />
 </div>
 
 
@@ -678,6 +597,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C2650B57692E527F02C825B3DF00B12A10E4957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770405   (32289) от 01.01.2025
+
+Фёдор Достоевский | Бесы (2023) [MP3, Максим Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достоевский загорелся идеей «Бѣсов» после приезда Ивана Сниткина, брата его жены, в Дрезден. Вследствие волнений в Московском университете и активности студенческого движения, Сниткин и Достоевский много говорили про жизнь студентов, их нравы и настроения, что и вдохновило автора на написание романа. В одном из писем поэту Аполлону Майкову Достоевский писал: (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ВимбоПродолжительность: 36:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366339F1BAF6CC9906FF2E8C89AA5AB252E3789D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770401   (32283) от 01.01.2025
+
+Фёдор Достоевский | Бесы (2024) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32283.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бесы» — один из самых спорных романов Достоевского. Одни видят в нем пророческий памфлет. Другие — эдакий литературный полигон для испытания различных философских идей. Третьи — изощренный психологический триллер.
+В основе сюжета лежит реальное событие — всколыхнувшее всю интеллектуальную Россию 70-х годов «дело Нечаева». Революционеры, члены небольшого законспирированного (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: РекскверПродолжительность: 25:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D9EA74CA259044B00E3D2D07578FFA8AC5B81F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770674   (32250) от 02.01.2025
+
+Андрей Панченко | Блуждающие огни (Книга 1) (2024) [MP3, Fan12]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец у меня деспот и тиран, и всё же с любыми своими проблемами мы идём к нему, ибо он может абсолютно всё! Он бывший спецназовец и офицер всесильной спецслужбы, прошел множество горячих точек и с ног до головы увешен наградами и нашивками за ранения, охотник и рыбак, способный выжить с голым задом на безжизненной луне, а сейчас один из самых богатых и влиятельных (   Читать дальше...   )Жанр: Попаданцы в космос, Приключения, ФантастикаИздательство: Аудиокнига своими руками (Author.today)Продолжительность: 07:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80FA7BC79B2D7AE116DC86B3CD3391FAE4AD9CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

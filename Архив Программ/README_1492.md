@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275646.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Animate CC 2017 16.0.1.119 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275585.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Revo Uninstaller Free 2.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275581.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ USB Secure v 1.5.2 [English, German, French]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275572.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Adobe Audition 2020 (13.0.0.519) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275559.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ qBittorrent 4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275532.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Malwarebytes AdwCleaner 7.0.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275525.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Rowbyte Plexus 3.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275524.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Movavi Photo Editor 5.0.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275523.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ NVIDIA GeForce Desktop 388.43 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275522.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WonderFox HD Video Converter Factory Pro 11.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275494.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ping Tester Pro v9.32 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275474.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Windows XP SP3 Professional х86 RUS DM Edition v.10.12.18
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275473.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Windows 7 Perfection x86 Netbook Edition (by AMJ) [Английский и Яп�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275465.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ TeamViewer Free 13.0.5058 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275446.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Tor Browser Bundle 6.0.8 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275425.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ NVIDIA GeForce Desktop 376.33 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275421.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ SoftMaker Office Professional 2016 rev 763.1207 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275418.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Auslogics Driver Updater 1.9.3.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275402.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Movavi Video Suite 17.1.0 RePack by  KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275386.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VLC Media Player 2.2.8 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275384.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ WinRAR 5.50 DC 29.11.2017 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275373.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Photoshop CC 2017.0.1 2016.11.30.r.29 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275356.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ DAEMON Tools Ultra 5.0.0.0540 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275354.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ CCleaner 5.25.5902 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275349.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Slimjet 21.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275211.jpg" />
 </div>
 
 

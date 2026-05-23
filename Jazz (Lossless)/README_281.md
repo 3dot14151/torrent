@@ -6,7 +6,7 @@ Toshiyuki Miyama & The New Herd - Sunday Thing (1976) 2021, Three Blind Mice [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169542.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol. 1 (1953, 1954) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169533.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Memorable Songs (2011) Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169528.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ben Webster - The Soul Of Ben Webster (1954 - 1958) 2019, MatchBall [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169522.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Good Feeling Chilly Light Relaxing Jazz Playlist (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169376.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Jazz Bar (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169271.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Andy Fusco - Vortex (2019) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169229.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Coleman Hawkins - In Europe 1934-1939 (1993) Timeless Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169170.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Peggy Lee - Trav'lin' Light 1946 - 1949 (2000) Capitol [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169143.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ McCoy Tyner & Freddie Hubbard Quartet - Live at Fabrik, Hamburg (1986) 2CD, 2022
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169087.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bucky & John Pizzarelli - Family Fugue (2011) Arbors Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168722.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Monty Alexander - The Montreux Years (1993 - 2016) 2022, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168426.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Red Nichols And His Five Pennies - The Jazz Collector Edition 1929 (1991) LaserL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168366.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jeanne Lee & Ran Blake - The Newest Sound Around 1961 (2000) RCA Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168361.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Peggy Lee - That Old Feeling & You Go To My Head 1944 - 1953 (2001) 2CD, Past Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168336.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Kammerflimmer Kollektief - Remixed (2006) [FLAC|Lossless|tracks + .cue] <Future 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168270.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Acker Bilk - Great Moments With... (1998) Timeless Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168243.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jeremy Pelt - The Art of Intimacy, Vol. 2: His Muse (2023) HighNote Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168223.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168183.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168160.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168150.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Erroll Garner - 1944, Vol.3 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168012.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Berk & The Virtual Band - Jazz Chill Vol. 6 (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167901.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167809.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ellington Trio - Things Ain't What They Used To Be (2022) JazzSick Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167675.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Monica Zetterlund And The Thad Jones & Mel Lewis Orchestra - It Only Happens Eve
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167579.jpg" />
 </div>
 
 

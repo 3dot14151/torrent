@@ -6,7 +6,7 @@ Newton Family - The Best Of Newton Family (1989) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587450.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Editi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587448.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Chic - Dance, Dance, Dance: The Best Of Chic (1991) [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587412.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586997.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Romantic Worlds (2008) [FLAC|image + .cue]<Pop, Soul, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586914.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Discotech & About Nu Disco (2022) [MP3|320 Kbps] <Nu Disco, Dance, Deep Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586749.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586481.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586472.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586459.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586453.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586435.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586424.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586178.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Romantic Worlds Vol.2 (2008) [FLAC|image + .cue]<Pop, New Age>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585941.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585860.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - The Original Masters, Vol. 7 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585845.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - The Original Masters, Vol. 8 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585844.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585840.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585835.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585796.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585792.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - The Original Masters, Vol. 12 (The Music History of the Disco) (2017) [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585786.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585785.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - The Original Masters, Vol. 11 (The Music History of the Disco) (2017) [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585783.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - The Original Masters, Vol. 2 (The Music History of the Disco) (2016) [MP3|~
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585726.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Fancy - Playa De Palma (Nonstop-Hit-Party) (2015) [MP3|320 кб/с]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584777.jpg" />
 </div>
 
 

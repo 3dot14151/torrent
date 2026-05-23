@@ -1,56 +1,3 @@
-###  Публикация: 1357950   (960567) от 15.02.2020
-
-Расскажи мне, как я умру / Tell Me How I Die (2016) BDRemux [H.264/1080p] [GER Transfer] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда студенты колледжа соглашаются принять участие в загадочном эксперименте, а добрый доктор скрывает от них информацию о возможных побочных эффектах — жди беды. И главные герои ужастика испытали последствия контролируемого употребления наркотиков на своей шкуре.
-Дело в том, что счастливчики, побывавшие в затяжном трипе, начали видеть галлюцинации со сценами своей (   Читать дальше...   )Производство: США / Big Block Media Holdings, Base Station, Supergravity PicturesЖанр: Ужасы, Триллер, ДетективРежиссер: Донн Дж. ВиолаАктеры: Нэйтан Кресс, Вирджиния Гарднер, Кирби Блисс Блэнтон, Райан Хига, Марк Фурз, Итан Пек, Уильям Мапотер, Марк Ролстон, Марни Алексенбург, Кристофер АлленПеревод: Одноголосый любительский (Хихикающий доктор)Субтитры: отсутствуютПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E401631748D6EE5A9E61DC34267F8573A17550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360365   (960566) от 15.02.2020
-
-Первая любовь / Hatsukoi / First Love (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Рео и Моника — боксер со смертельным диагнозом и проститутка-наркоманка, влипшая в долги… Любовь, первая любовь настигает их внезапно. Но их чувство и жизнь под угрозой: за парочкой гонятся якудза, продажный коп, киллерша, посланная китайской триадой, и даже призрак в белой простыне… Безумная ночь в безумном Токио.Производство: Япония, Великобритания / Oriental Light and Magic (OLM)Жанр: Криминал, Боевик, МелодрамаРежиссер: Такаси МиикеАктеры: Масатака Кубота, Сакурако Кониси, Нао Омори, Сёта Сомэтани, Сэиё Утино, Беки, Дзюн Мураками, Сансэй Сиоми, Такахиро Миура, Янь ЦзинкоПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A083623516F155D241AE79BD3FBB69C223CF50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360120   (960565) от 15.02.2020
 
 Блэйд 2 / Blade II (2002) BDRip [H.265/1080p] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960565.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960563.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960562.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960558.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960557.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960552.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960530.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960528.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960527.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960524.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960523.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960522.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960521.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960519.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960516.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960513.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960488.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960485.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960483.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960477.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960476.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960472.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960424.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960414.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBB3D48C55F5540250C8179B7B7E55B5F64390A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357840   (960412) от 15.02.2020
+
+Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция / Chernin Entertainment, Twentieth Century FoxЖанр: биография, спорт, драма, боевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: Дублированный, многоголосыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (форсированные, полные), английские (форсированные, SDH)Продолжительность: 02:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14942A848D5254754D2CA0AF69940022B21BD0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360611   (960410) от 15.02.2020
+
+Идеальный пациент / The Perfect Patient (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его изощренному уму позавидовал бы сам Ганнибал Лектер. Десятки жертв по всей стране и никаких улик. Единственный свидетель — он сам, сдавшийся на милость правосудия. Что это, муки совести или очередной ход в его чудовищной игре? В клетку со зверем заходит журналист.Производство: Швеция / Brain Academy, Film i Vast, Nordisk FilmЖанр: ТриллерРежиссер: Микаэль ХофстрёмАктеры: Йонас Карлссон, Давид Денсик, Альба Аугуст, Сюзанн Рейтер, Линда Ульвеус, Кристофер Вагелин, Това Магнуссон-Норлинг, Даг Малмберг, Магнус Роосманн, Бьёрн БенгтссонПеревод: Дублированный | iTunesСубтитры: ОтсутствуютПродолжительность: 02:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532F1198CAEEF744BAAC2ECC0FE8142E1B3610F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

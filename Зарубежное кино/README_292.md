@@ -1,55 +1,3 @@
-###  Публикация: 1360357   (958967) от 16.02.2020
-
-Одиссей / Одиссея / The Odyssey (1997) DVDRemux [Полная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Год за годом греки бились под стенами Трои. Тысячи воинов полегли убитыми. Никто не знал, на чьей стороне боги. Греки роптали. И тогда хитроумный царь Одиссей придумал, как проникнуть в Трою. Через десять лет осады они победили. А Одиссей возгордился и бросил вызов богам. Оскорбленный Посейдон, бог морей, обрек его на вечные блуждания по волнам, чтобы никогда не (   Читать дальше...   )Производство: Великобритания, Италия, Германия, США, Турция, ЮАР / American Zoetrope, Beta Film, Hallmark EntertainmentЖанр: Фэнтези, Драма, Приключения, ИсторияРежиссер: Андрей КончаловскийАктеры: Арманд Ассанте, Грета Скакки, Изабелла Росселлини, Бернадетт Питерс, Эрик Робертс, Ирен Папас, Ерун Краббе, Джеральдин Чаплин, Кристофер Ли, Ванесса УильямсПеревод: Профессиональный многоголосый, Любительский одноголосыйСубтитры: Русские (full), Английские (full)Продолжительность: 02:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7537BC553D2CED16CC7D2F0314D2D26D35AC0275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303889   (958957) от 16.02.2020
-
-Красивый, плохой, злой / Extremely Wicked, Shockingly Evil and Vile (2019) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Тед Банди красив и харизматичен, и устоять перед таким невозможно. Очаровательная Элизабет мечтает встретить настоящую любовь. Кажется, до счастья можно дотянуться рукой. Но вот случается непредвиденное: внезапно Теда заключают под стражу, обвинив его в немыслимых по своей жестокости убийствах женщин. Как поверить, что этот нежный, умный (   Читать дальше...   )Производство: США / COTA Films, Ninjas Runnin' Wild Productions, Voltage PicturesЖанр: Триллер, драма, криминал, биографияРежиссер: Джо БерлингерАктеры: Зак Эфрон, Лили Коллинз, Кая Скоделарио, Джон Малкович, Джеффри Донован, Анджела Сарафян, Джеймс Хетфилд, Брайан Джерати, Джим Парсонс, Хейли Джоэл ОсментПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (форс.)Продолжительность: 01:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29ACB1B8766887DA13BBAE1028E92289627CA6B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 171646   (958872) от 31.01.2010
 
 Долина цветов / Valley of flowers (2006) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958872.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958793.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958752.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958751.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958745.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958737.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958476.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958448.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958357.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958322.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958308.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958305.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958296.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958290.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958278.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958239.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958230.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958229.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958210.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958197.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958194.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958190.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958187.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958144.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336EA96E9E2FA4FED8D856FE4CCF83BE2DD37E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979464   (958094) от 27.01.2016
+
+Синистер 2 / Sinister 2 (2015) BDRemux [H.264/1080i] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел рассказывает о молодом шерифе, решившем продолжить расследование серии таинственных убийств, описанных в первой части фильма, из-за которых в своё время потерял жизнь друг шерифа, сержант Элиссон Освальф.
+Расследование приводит шерифа к ферме, где он знакомится с дружелюбной семьей — близнецами Заком, Диланом и их матерью Кортни. Семьей, сбежавшей от издевательств (   Читать дальше...   )Производство: США, Великобритания / IM Global, Alliance Films, Automatik Entertainment, BlumhouseЖанр: Ужасы, Триллер, ДетективРежиссер: Киран ФойАктеры: Джеймс Рэнсон, Шаннин Соссамон, Роберт Дэниэл Слоун, Дартаниан Слоун, Лиа Коко, Тейт Эллингтон, Джон БизлиПеревод: Дублированный (чистый звук)Язык субтитров: FrenchПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7419DACE54E1B6476206882DB76C32FA03203A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979798   (958083) от 27.01.2016
+
+Королева пустыни / Queen of the Desert (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958083.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме показана история Гертруды Белл - роковой женщины, которая вскружила голову многим мужчинам, но никто не мог руководить ей. Она была выдающейся исследовательницей бедуинов, которые называли ее королевой пустыни. Именно эту женщину хотел использовать в своих целях Черчиль, чтобы захватить Ливан. Но Гертруда не была шпионкой. Она действовала согласно велению (   Читать дальше...   )Производство: США, МароккоЖанр: Драма, ПриключенияРежиссер: Вернер ХерцогАктеры: Джеймс Франко, Николь Кидман, Роберт Паттинсон, Дэмиэн Льюис, Дженни Агаттер, Холли Эрл, Дэвид Колдер, Бет Годдар, Джихад Абду, Марк Льюис ДжонсПеревод: Двуголосый закадровый, любительский (2D)Продолжительность: 02:08:12Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC8B7294E54B7145EFFAA0C341C14E7C2DC6D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

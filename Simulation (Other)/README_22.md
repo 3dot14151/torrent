@@ -6,7 +6,7 @@ Love Too Easily (2023) [Multi] (19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58777.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58445.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dawn of Man (2019) [Multi] (1.8.2) License GOG (обновляемая)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58099.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Oriental Valley (2024) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58066.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Game of Sisyphus (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57676.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Internet Cafe Evolution (2024) [Multi] (1.2.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57431.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Little Kitty, Big City (2024) [Multi] (1.24.5.8_3487) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56484.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55757.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55756.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55700.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55645.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.03B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55488.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.544) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55248.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack FitGirl [Platinum E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55157.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Sucker for Love: Date to Die For (2024) [En] (1.30) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55071.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Vox Machinae (2022) [En] (1.4.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55065.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55058.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Relaxing Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54500.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Touhou Mystia's Izakaya (2021) [Multi] (4.1.2/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54490.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Tribe Must Survive (2024) [Multi] (1.0.16) Repack FitGirl [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54314.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rolling Hills: Make Sushi, Make Friends (2024) [Multi] (1.0.9) Scene Razor1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54161.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hotel Business Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54100.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54018.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Scene FairLight [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53993.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ MY DESTINY GIRLS (2024) [Multi] (20240417) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53799.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.526/dlc) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53773.jpg" />
 </div>
 
 

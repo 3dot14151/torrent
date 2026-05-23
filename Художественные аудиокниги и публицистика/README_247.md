@@ -1,82 +1,3 @@
-###  Публикация: 999583   (862958) от 23.03.2016
-
-Иван Новиков, Александр Шаховской и др.| Святочные вечера (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по мотивам рассказов русских писателей.Жанр: РассказыПродолжительность: 01:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D8BAD005A3B65BD47D0CFE057862282502C840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999801   (862955) от 23.03.2016
-
-Сергей Говорухин | Со мной и без меня (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта единственная, по признанию Сергея Говорухина, его "легкомысленная книжка" была подготовлена режиссером и писателем к печати осенью 2011 года, незадолго до смерти: он ушел из жизни в 50 лет - полный замыслов и проектов.
-"Со мной и без меня" - сегодня эти слова, кажется, приобрели вполне конкретный новый смысл. Но, стоит заглянуть под обложку (   Читать дальше...   )Жанр: Современная проза,мемуарыПродолжительность: 01:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F050F8DFA95A475BF9A6663D1F5C29A4226087F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999166   (862950) от 23.03.2016
-
-Оскар Лутс | Истории про Тоотса (4 книги из 4) (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Весна. Наверное, не найдется людей, которым бы не нравились книги Оскара Лутса. Историями о жителях Пауивере зачитывались взрослые и дети… И, наверное, это оправданно, ведь героев книг Лутса невозможно не любить, невозможно забыть Тоотса и Кийра, Тээле и Арно, школьного учителя Лаури и церковного звонаря Либле. Первая книга из серии повестей Оскара Лутса о деревне (   Читать дальше...   )Жанр: Классическая прозаПродолжительность: 42:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C302C8E9C7B48C6E4A136D0ED68EDF82BB9011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108378   (862901) от 25.02.2017
 
 Агата Кристи | Подвиги Геркулеса / Подвиги Геракла [Сборник новелл] (2017) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862901.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862883.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862860.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862856.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862850.jpg" />
 </div>
 
 
@@ -221,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862846.jpg" />
 </div>
 
 
@@ -247,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862845.jpg" />
 </div>
 
 
@@ -274,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862844.jpg" />
 </div>
 
 
@@ -300,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862842.jpg" />
 </div>
 
 
@@ -326,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862611.jpg" />
 </div>
 
 
@@ -352,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862542.jpg" />
 </div>
 
 
@@ -378,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862466.jpg" />
 </div>
 
 
@@ -405,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862455.jpg" />
 </div>
 
 
@@ -431,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862408.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862276.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862274.jpg" />
 </div>
 
 
@@ -510,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862075.jpg" />
 </div>
 
 
@@ -536,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861693.jpg" />
 </div>
 
 
@@ -562,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861686.jpg" />
 </div>
 
 
@@ -588,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861619.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861616.jpg" />
 </div>
 
 
@@ -640,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861614.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861613.jpg" />
 </div>
 
 
@@ -677,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D5135CCE52F9D64FD262282FAC55DB34D1872E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304189   (861422) от 04.03.2011
+
+Слава Сэ | Сантехник, его кот, жена и другие подробности (2011) [MP3, Семен Мендельсон]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861422.jpg" />
+</div>
+
+
+###  Подробнее
+
+О мужчинах, женщинах, детях, котах, хомяках, работе, творчестве, семейных проблемах, одиночестве пишет в своем "Живом журнале", на основе которого издана книга, популярный блогер Слава Сэ — пишет легко, иронично, избегая идеализации и не опускаясь до пошлостей. Пишет автор не о себе: повествование ведется от имени сантехника, воспитывающего двух буйных (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4571CFD4D2DD789DCA9406E57EB7FA55F7FCC698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497963   (861366) от 24.09.2021
+
+Меган Миранда | Девушка из Уидоу-Хиллз (2021) [MP3, Юлия Бочанова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают историю о девушке из Уидоу-Хиллз. Арден было шесть, когда ее, блуждающую ночью во сне, смыло грозой и унесло в систему труб под городом. Тогда вся страна с замиранием сердца следила за продолжавшейся три дня спасательной операцией. Теперь Арден зовут Оливия. Сменив имя и разорвав все связи, она живет в небольшом доме на окраине, и больше всего боится, что (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EB27245BD9423E98220277EB24871E0EA1FBE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497965   (861364) от 24.09.2021
+
+Меган Миранда | Последняя гостья (2021) [MP3, Юлия Бочанова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю свою жизнь Эйвери провела в крохотном городке Литтлпорт, в Мэне. И кто бы мог подумать, что ей суждено подружиться с Сэди, состоятельная семья которой владеет почти всем Литтпортом.
+
+Каждое лето Сэди приезжает в Мэн, и долгие годы девушки – не разлей вода… До того вечера, как тело Сэди находят под обрывом. Поначалу все кажется очевидным – суицид. Однако, чем (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0170805C9CA898CDFED41BF8AF5358CFACA3971
 ```
 
 https://mybot314.ru/tekegram_catalog/

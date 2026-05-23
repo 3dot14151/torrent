@@ -1,81 +1,3 @@
-###  Публикация: 1384624   (801588) от 21.05.2020
-
-Михаил Рапов | Зори над Русью (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Художественное произведение — исторический роман, о сложных для Руси временах — событиях, связанных с татаро-монгольским игом, сбором дани и начальным этапом централизации русских земель под эгидой Московии; взрослении князя Дмитрия, прозванного после битвы на Поле Куликовом «Донским» и его отношениях с Сергием Радонежским; феодальной раздробленности — борьбе князей (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 32:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C5F8C76B78D331BC69FB1D82EC57326610954C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384794   (801583) от 21.05.2020
-
-Алекс Градов | Магия крови (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кому дракон – страшный зверь, а кому – форма существования. Алекс должен научиться летать. Или самое дорогое, что у него осталось от человеческой жизни, будет безжалостно раздавлено. Клан позаботится об этом. Вот тогда ярость, сильнейшее из чувств дракона, поднимет Алекса в небо. Времени почти не осталось. К Земле приближается враг. Выбор для Черного Клана невелик: (   Читать дальше...   )Жанр: Боевое фэнтези, попаданцы,Продолжительность: 13:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EF9296E92E76B583CEFB9E4D764CEB8DAD5780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199366   (801501) от 15.01.2018
-
-Роман Злотников | Долгое море (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Столица Империи людей, блистательный Эль Северин, освобождена от полчищ орков. Но мир ждет новая угроза – воплощение Темного Бога Шиг Хаоры в земле Глыхныг. Сможет ли герцог Арвендейл собрать армию светлых сил? Будут ли верными союзниками эльфы Светлого леса и гномы Подгорного предела? Все решится на берегу Долгого моря…Жанр: Боевое фэнтезиПродолжительность: 08:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EFE42BEE3C0F3DBB8F3BC7A40C89D2D90DD69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199331   (801497) от 15.01.2018
 
 Алексей Пехов | Созерцатель (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801497.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801482.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801464.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801463.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801441.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801433.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801375.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801260.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801255.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801243.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801211.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801200.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801188.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801176.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801140.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801101.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801070.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801059.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801036.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801013.jpg" />
 </div>
 
 
@@ -611,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800974.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800968.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800918.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27AFA92E97E781F0AA85A9FB775A7A0BE096A6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384964   (800910) от 22.05.2020
+
+Андреас Грубер | Мартен С. Снейдер (Книга 2). Смертный приговор (2020) [MP3, Ирина Зубкова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800910.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лесу на окраине Вены семейная пара, приехавшая в свой пригородный дом, находит обнаженную исхудавшую девочку. Вся ее спина покрыта татуировками с мотивами из «Ада» Данте. Полиции удается выяснить, что это одиннадцатилетняя Клара, пропавшая год назад. Но девочка упорно молчит о прошедших двенадцати месяцах. Тем временем молодая сотрудница мюнхенской полиции Сабина (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 15:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B1283AED6D8CF85E4E765463FAD4CC2A531D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199512   (800866) от 16.01.2018
+
+Николай Побережник | Мы выжили! Начало (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все произошло ровно, как в той сказке «Про пастушка», который ради развлечения кричал «Волки». Очередная дата апокалипсиса была объявлена, но большинство уже не поверило. Небольшой процент населения планеты… и двое друзей, один из которых регулярно и с прилежанием готовился к каждому концу света, не состоявшемуся ранее. Они смогли пережить гибель Мира, но теперь (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 10:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEBE3039743361E05C43FA7E9B0A83823E86E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384950   (800854) от 22.05.2020
+
+Ник Перумов, Аллан Коул | Армагеддон. Книга 2 (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот роман – смелый эксперимент, задуманный и осуществленный с поистине галактическим размахом. Его авторы – Ник Перумов, один из признанных лидеров российской фантастики, и маститый американец Аллан Коул – объединили усилия и создали свой «Армагеддон» – слегка ироничный, чуть-чуть пародийный фантастический боевик, насыщенный космическими приключениями, детективными (   Читать дальше...   )Жанр: Космическая фантастикаПродолжительность: 10:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF20BB19C1881CC2577C417D2D51BAE0558FCCEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

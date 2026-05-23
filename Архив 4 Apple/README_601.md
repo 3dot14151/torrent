@@ -6,7 +6,7 @@ AirRadar 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170056.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SoundSource 5.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170046.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ eMail Address Extractor 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PDF Expert 2.5.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170030.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Templates for Keynote - DesiGN 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170003.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ PopClip 2020.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169988.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ DjVu Reader Pro 2.4.3 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169897.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Path Finder 10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169894.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Cardhop 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169848.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ A Better Finder Attributes 6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169841.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ cDock 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169811.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ System Toolkit 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169779.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Dropshare 5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169775.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Pixelmator Pro 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169769.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Magic Battery 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169761.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sublime Merge Dev Build 2064 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169753.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Apple MainStage 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169743.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ SpamSieve 2.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169736.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Submerge 3 v3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169712.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ iPulse 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169707.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ SideNotes 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169686.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ CrossOver 19.0 (build 32195 ) Release [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169670.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ GoodNotes 5 v5.7.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169665.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ NetWorker Pro 8.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169661.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Smart Shooter 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169650.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ FabFilter Total Bundle 2020.12.08 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169645.jpg" />
 </div>
 
 

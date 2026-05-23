@@ -6,7 +6,7 @@ Inuyasha: Tenka Hadou no Ken | Inuyasha the Movie: Swords of an Honorable Ruler 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760386.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Inuyasha: Kagami no Naka no Mugenjou | Inuyasha the Movie: The Castle Beyond the
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760384.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Inuyasha | Инуяся [2000, TV, 167 из 167] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760250.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760065.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Beastars 2nd Season | Выдающиеся звери [ТВ-2] [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760063.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757192.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757186.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757015.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757006.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Hanamaru Youchien / Hanamaru Kindergarten / Детский сад Ханамар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755240.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Log Horizon: Entaku Houkai | Log Horizon: Destruction of the Round Table | Ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755063.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755036.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Seirei no Moribito / Guardian of the Sacred Spirit / Хранитель Свящ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754877.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ One Off / Эпизод [2012, OVA, 4 ep.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753130.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Netojuu no Susume | Recommendation of the Wonderful Virtual Life | Гайд по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752932.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Bokutachi wa Benkyou ga Dekinai! | We Never Learn: Bokuben Season 2 | Мы не 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751921.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ ViVid Strike! | Решающий удар! [2016, TV, 13 эп. + 2 SP] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750928.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Акашийские хрон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750926.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750923.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748303.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748055.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Fate/Extra: Last Encore | Судьба: Дополнение [2018, TV, 13 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747952.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ano Natsu de Matteru | AnoNatsu | Waiting in the Summer | Ждём тебя ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747000.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746848.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746213.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Gekijouban Card Captor Sakura|Fuuin Sareta Card / Cardcaptor Sakura: The Movie|T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745350.jpg" />
 </div>
 
 

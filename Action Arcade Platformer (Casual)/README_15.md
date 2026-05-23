@@ -6,7 +6,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.1.8b3/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207520.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Full Moon Rush (2023) [Multi] (1.0.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207062.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Probo Rush (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206963.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ViruZ (2021) [Ru/En] (1.01) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206517.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.45) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204761.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204662.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203989.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Antivine (2022) [Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203872.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202840.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dealer's Life 2 (2022) [Ru/Multi] (W75/1.26) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202783.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Out Zone (2023) [Multi] (23) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202589.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Secret Agent HD (2021) [En] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202573.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ One Hand Clapping (2021) [Ru/Multi] (1.0.41 Release.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202439.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adventure of Samsara (2025) [Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202234.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Flying Shark (2023) [En] (7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201884.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Scene DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200703.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199744.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Switchball HD (2021) [Ru/Multi] (370) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199506.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ DIG - Deep In Galaxies (2023) [Ru/Multi] (1.0.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198538.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Elypse (2023) [Multi] (1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197847.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197796.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197717.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Death or Treat (2023) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197695.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DOOMBLADE (2023) [Ru/Multi] (0.9) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197600.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Return (2023) [En] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197524.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196615.jpg" />
 </div>
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1796364   (17333) от 23.05.2025
-
-День Шакала / The Day of the Jackal (1973) BDRip [AV1/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ультраправая подпольная террористическая организация ОАС решает устранить президента Франции Шарля де Голля. Для этой цели привлекается наёмный убийца по кличке Шакал, который соглашается выполнить эту работу за полмиллиона долларов.
-Экранизация романа Фредерика Форсайта «День Шакала», основанного на реальных событиях.Производство: Великобритания, Франция / John Woolf Productions, Warwick Film Productions, Universal Productions FranceЖанр: детектив, триллер, криминал, историяРежиссер: Фред ЦиннеманАктеры: Эдвард Фокс, Микаэль Лонсдаль, Теренс Александр, Мишель Оклер, Алан Бэдел, Тони Бриттон, Дерек Джекоби, Денис Кэри, Сирил Кьюсак, Морис ДенэмПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, Авторский, Одноголосый любительскийЯзык озвучки: русский, английский, французскийСубтитры: английские, французскиеПродолжительность: 02:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB083E5D30172BA0B89C1B7CFAC5CCD7BCA53C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798747   (17276) от 23.05.2025
 
 Суровые люди / Winter People (1988) WEB-DLRip [H.264]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17276.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17267.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17254.jpg" />
 </div>
 
 
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17253.jpg" />
 </div>
 
 
@@ -138,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17234.jpg" />
 </div>
 
 
@@ -164,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17167.jpg" />
 </div>
 
 
@@ -191,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17164.jpg" />
 </div>
 
 
@@ -217,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17151.jpg" />
 </div>
 
 
@@ -243,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17122.jpg" />
 </div>
 
 
@@ -270,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17121.jpg" />
 </div>
 
 
@@ -296,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17109.jpg" />
 </div>
 
 
@@ -322,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17106.jpg" />
 </div>
 
 
@@ -348,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17077.jpg" />
 </div>
 
 
@@ -375,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17059.jpg" />
 </div>
 
 
@@ -401,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17056.jpg" />
 </div>
 
 
@@ -428,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17044.jpg" />
 </div>
 
 
@@ -454,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16998.jpg" />
 </div>
 
 
@@ -480,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16989.jpg" />
 </div>
 
 
@@ -506,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16949.jpg" />
 </div>
 
 
@@ -532,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16946.jpg" />
 </div>
 
 
@@ -558,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16939.jpg" />
 </div>
 
 
@@ -584,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16918.jpg" />
 </div>
 
 
@@ -610,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16884.jpg" />
 </div>
 
 
@@ -636,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16864.jpg" />
 </div>
 
 
@@ -662,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16847.jpg" />
 </div>
 
 
@@ -673,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD6FC34BDC3EC9C676E82F9BCD900C48CC74F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799210   (16823) от 26.05.2025
+
+У каждого свой шанс / Простая история / Une histoire simple / A Simple Story (1978) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о женщине Мари, которая переживает сложный период в своей жизни. Она долго встречалась с Серджем, но их отношения не принесли счастья. Мари беременна, потому решает сделать аборт и разорвать отношения с Серджем. После разрыва Мари пытается отвлечься, общаясь с друзьями. Вскоре она встречает своего бывшего мужа Жоржа, и между ними вспыхивают старые чувства. (   Читать дальше...   )Производство: Франция, Германия / France 3 Cinéma, Renn Productions, Rialto Film, Sara FilmsЖанр: драма, мелодрамаРежиссер: Клод СотеАктеры: Роми Шнайдер, Бруно Кремер, Клод Брассёр, Арлетт Боннар, Роже Пиго, Франсин Берже, Софи Домье, Ева Дарлан, Надин Алари, Вера Шредер, Пьер Семмлер, Барбара Рикс, Жан-Франсуа Гарро, Ив Кнапп, Николас СемпеПеревод: профессиональный многоголосый (MVO СВ Дубль; Рен ТВ)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AE446031F62E3498A60B2968C92689D73FEADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

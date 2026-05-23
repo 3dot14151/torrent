@@ -6,7 +6,7 @@ Seth Rosenbloom - As The Crow Flies (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045198.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Adjournments - Allegedly (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045197.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wild Bill Davison - Quadromania (1943 - 1952) 4CD, 2005, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045195.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jon Peach - Give Me Candy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045194.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tokyo Tramps - Fearless Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045193.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mike Franano - On the Brink (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Cl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045189.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ernie Vincent - Original Dap King (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045187.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ JD Simo - Songs from the House of Grease (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045174.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Wolf Moon - How Do You See Yourself (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045164.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Paul Bernewitz - Someday (2022) Unit Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045103.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045092.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Junior Mance - The Complete Albums Collection (1959 - 1962) 4CD, 2017, Enlighten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045089.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kim Waters - That Special Touch (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045088.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Old Man Blues - Ready for Fun (2023) [FLAC 2.0|48/24|tracks|WEB-DL] <Rock, Blues
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045040.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Stanley Turrentine - That's Where It's At (1962) 2021, Audio Wave [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044993.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Paul Chambers - The Complete Albums Collection (1956 - 1960) 4CD, 2016, Enlighte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044990.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044987.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlighten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044877.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Larry Coryell - Larry Coryell's Last Swing With Ireland (2016) 2021, Angel Air [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044871.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Greg Abate & Phil Woods With The Tim Ray Trio - Kindred Spirits: Live At Chan's 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044744.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tri-Fi - Staring Into The Sun (2014) Self-Released [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044655.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chick Corea Band Featuring Sadao Watanabe - Live Under the Sky... '80 (1980) 202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044640.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Giovanni De Chiaro - Scott Joplin On Guitar (1990) Centaur Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044633.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Paul Carrack & Tne SWR Big Band - Don’t Wait Too Long (2023) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044596.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Maynard Ferguson - Hollywood Party / Jam Session (1954) 2005, Membran Music [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044569.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Karin Krog & Steve Kuhn - Together Again (2006) Grappa [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044560.jpg" />
 </div>
 
 

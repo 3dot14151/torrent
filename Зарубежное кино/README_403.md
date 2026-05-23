@@ -1,55 +1,3 @@
-###  Публикация: 1103251   (886725) от 11.02.2017
-
-По соображениям совести / Hacksaw Ridge (2016) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Медик американской армии времён Второй Мировой войны Дезмонд Досс, служивший во время битвы за Окинаву, отказывается убивать людей и становится первым идейным уклонистом в американской истории, удостоенным Медали Почёта.Производство: Австралия, США, Cross Creek Pictures, Demarest Media, IM GlobalЖанр: Военный, Драма, ИсторияРежиссер: Мэл ГибсонАктеры: Эндрю Гарфилд, Ричард Пирос, Джейкоб Уорнер, Мило Гибсон, Дарси Брайс, Роман Геррьеро, Джеймс Лагтон, Касия Стелмах, Хьюго Уивинг, Рэйчел ГриффитсПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: АнглийскийПродолжительность: 02:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E600915CABDCBB5DE8A874E427C0E6FD4DF6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102994   (886722) от 11.02.2017
-
-Под покровом ночи / Nocturnal Animals (2016) BDRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-У Сьюзен роскошная жизнь в Лос-Анджелесе, прекрасный муж и собственная галерея. Но однажды она получает неожиданную посылку от бывшего супруга — он хотел бы встретиться, но сначала просит прочитать его новый роман. Сьюзен не подозревает, что как только она откроет рукопись, она вернется в прошлое, которое считала надежно укрытым под покровом ночи.Производство: СШАЖанр: Триллер, драмаРежиссер: Том ФордАктеры: Эми Адамс, Джейк Джилленхол, Майкл Шеннон, Аарон Тейлор-Джонсон, Айла Фишер, Элли Бамбер, Арми Хаммер, Карл Глусман, Роберт Арамайо, Лора Линни ...Перевод: Любительский одноголосый (Solod)Субтитры: АнглийскийПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FD8F2C636FF54538A833C24C0C9CE0C6035FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370009   (886672) от 02.04.2020
 
 Остин Пауэрс: Голдмембер / Austin Powers in Goldmember (2002) WEB-DL [H.264/1080p] [Open Matte]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886672.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886625.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886619.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886606.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886600.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886593.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886586.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886503.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886499.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886497.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886496.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886495.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886485.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886476.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886474.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886473.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886441.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886433.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886422.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886417.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886415.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886407.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886394.jpg" />
 </div>
 
 
@@ -660,13 +608,67 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886389.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Апрель 1945 года. Советские войска сжимают кольцо вокруг столицы Третьего рейха - Берлина. Перед лицом неминуемого поражения нацистская верхушка ищет спасение в секретном бункере, не желая покидать обезумевшего фюрера. Отвергнув предложения о побеге, Гитлер утверждает, что победа близка. Он приказывает сравнять Германию с землей и обсуждает детали своего самоубийства. (   Читать дальше...   )Производство: Германия, Австрия, Италия | Constantin Film Produktion GmbH, Degeto Film, EOS Entertainment, Norddeutscher Rundfunk, Rai Cinema, Westdeutscher Rundfunk, Osterreichischer RundfunkЖанр: Драма, Военный, Биография, ИсторияРежиссер: Оливер ХиршбигельАктеры: Бруно Ганц, Александра Мария Лара, Коринна Харфух, Ульрих Маттес, Юлиана Кёлер, Хайно Ферх, Кристиан Беркель, Маттиас Хабих, Томас Кречман, Михаэль Мендль, Андре Хеннике, Ульрих Нётен, Биргит Минихмайр, Рольф Канис, Юстус фон Донаньи, Кристиан Редль, Гёц ОттоПеревод: Профессиональный (двухголосый, закадровый)Субтитры: нетПродолжительность: 02:36:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371994   (886386) от 02.04.2020
+
+Плохие парни навсегда / Bad Boys for Life (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективы Майк Лоури и Маркус Бёрнетт снова в деле! Правда, их отстраняют от всех операций, но разве отчаянных друзей когда-нибудь что-либо останавливало? Ведь на этот раз на Майка открывает охоту некто из его прошлой жизни. Так что парням придется отжечь по полной!Производство: США, Мексика / Columbia Pictures, 2.0 Entertainment, Don Simpson/Jerry Bruckheimer Films, Overbrook EntertainmentЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Адиль Эль Арби, Билал ФаллаАктеры: Уилл Смит, Мартин Лоуренс, Ванесса Энн Хадженс, Александр Людвиг, Чарльз Мелтон, Паола Нуньес, Кейт дель Кастильо, Ники Джем, Джо Пантольяно, Джейкоб СкипПеревод: Дублированный (iTunes) + вставки VO (В. Замез) (на не переведённые эпизоды)Субтитры: ОтсутствуютПродолжительность: 02:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2901AA60367B3C0CB28983A57A39A3F1817FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185313   (886381) от 22.03.2010
+
+Конфуций / Kong Zi / Confucius (2009/2010) DVD5
+
+>>Зарубежное кино
+>>Азиатское кино (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886381.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни знаменитого китайского мыслителя и философа Конфуция.
+Китай еще не был единым в «Период Весен и Осеней». Страна представляла собой лоскутное одеяло из феодальных княжеств и государств, постоянно соперничающих друг с другом за превосходство и территории.
+В Княжестве Лу все было как везде: условный правитель не имел реального авторитета, а настоящая власть (   Читать дальше...   )Производство: Китай / Beijing Dadi Century Limited, Dadi Entertainment, China Film GroupЖанр: драма, биография, историяРежиссер: Ху МэйАктеры: Чоу Юнь-Фат, Цзяньбинь Чэнь, Чжоу Сюнь, Яо Лу, Жэнь Цюань, Ван Бань, Чжан Кайли, Цзяо Хуан, Ран Чен, Лу ИПеревод: Двухголосый закадровыйСубтитры: English, RomanianПродолжительность: 02:00:10
 
 ## Скачать торент
 ```bash

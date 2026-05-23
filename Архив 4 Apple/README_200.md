@@ -6,7 +6,7 @@ Audiobook Builder 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789799.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Permute 3 v3.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789786.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VueScan Pro 9.6.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789664.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Davinci Resolve Studio 17.4.2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789637.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Navicat Premium 12 v12.1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789623.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Parallels Desktop Business Edition 17.1.0 + Toolbox 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789552.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Endurance Antivirus 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789532.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ PDF Expert 2.2.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789523.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SQLPro Studio 1.0.325 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789491.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Chaos Control: GTD organizer | To-Do List 1.4.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789488.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Boxy SVG 3.22.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789487.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Flume Pro 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789481.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Ummy Video Downloader 1.63 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789464.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Privatus 6.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789447.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Data Creator 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789044.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ DMG Master 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789041.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ XYLIO Future DJ Pro 1.7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789033.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Lyn 1.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789028.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Luminar 2018 v1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789012.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Xojo IDE RAD 17.3.0.39152 (2017r3)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788982.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Viwizard Spotify Music Converter for Mac 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788943.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ iExplorer 4.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788909.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Color Finale Pro 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788871.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ iZotope - RX 9 Audio Editor Advanced v9.1.1 STANDALONE, VST, VST3, AAX [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788833.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ BetterTouchTool 2.689 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788823.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ iStat Menus 6 v6.31 (1090) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788816.jpg" />
 </div>
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1132512   (700451) от 09.05.2017
-
-Три икса 2: Новый уровень / xXx: State of the Union (2005) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Америка снова в опасности, и на сей раз беда пришла откуда не ждали: удар по демократии был нанесен изнутри! Группа высокопоставленных заговорщиков в белом доме поднимает мятеж с целью захвата власти. Спецслужбы бессильны — бунтовщики разгромили Агентство Национальной Безопасности (АНБ).
-Страна на грани хаоса и террора, но у чудом выжившего офицера АНБ Огастеса Гиббонса (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Original Film, Revolution StudiosЖанр: Боевик, ПриключенияРежиссер: Ли ТамахориАктеры: Уиллем Дефо, Сэмюэл Л. Джексон, Айс Кьюб, Скотт Спидман, Иксзибит, Питер Штраусс, Майкл Руф, Санни Мабри, Нона Гэй, Джон Дж. КонноллиПеревод: Дублированный, любительский (одноголосый, закадровый) Daniel JacksonСубтитры: Русские, английскиеПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C902CEB1A0E4FC11590890D18447F6F614A59B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220351   (700437) от 21.04.2018
-
-Безумные похороны / Eulogy (2004) WEBRip [H.264/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три поколения семьи Коллинз никогда не ладили друг с другом, и теперь у них появился отличный повод еще раз погрызть друг другу глотки.
-Смерть Эдмунда, грандиозного главы семейства, собрала под одной крышей Дэниела, тайного порноактера; Люси, собравшуюся объявить о своей свадьбе с любимой подругой; агрессивную невротичку Элис, превратившую свою семью в послушных (   Читать дальше...   )Производство: Eulogy Productions LLC, Ovation Entertainment LLC, S.R.O. Entertainment AGЖанр: Комедия, ДрамаРежиссер: Майкл КлэнсиАктеры: Хэнк Азария, Джесси Брэдфорд, Зои Дешанель, Гленн Хедли, Фамке Янссен, Пайпер Лори, Келли Престон, Рэй Романо, Рип Торн, Дебра УингерПеревод: Многоголосый закадровыйСубтитры: английские (полные); английские (полные), SDHПродолжительность: 01:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F1152D9CFA0E905BD88ABA788AF96B41177AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132490   (700356) от 09.05.2017
 
 Снеговик / Jack Frost (1997) BDRip [H.264/1080p-LQ]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700356.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700351.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700348.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700235.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700224.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700222.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700187.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700183.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700175.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700050.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700048.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700042.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700040.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700036.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700034.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700032.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699960.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699844.jpg" />
 </div>
 
 
@@ -534,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699725.jpg" />
 </div>
 
 
@@ -561,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699586.jpg" />
 </div>
 
 
@@ -588,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699583.jpg" />
 </div>
 
 
@@ -614,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699581.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699484.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699467.jpg" />
 </div>
 
 
@@ -678,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:126FB528E256598E6B3C040CB56C5A4B8BFBB013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026928   (699465) от 17.06.2016
+
+Парадокс / Paradox (2016) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа молодых ученых работают над секретным проектом, который может позволить им путешествовать во времени. Они посылают одного из своих членов вперед на один час. Вернувшись, он умоляет их закрыть проект...Производство: СШАЖанр: Боевик, Драма, ФантастикаРежиссер: Майкл ХерстАктеры: Адам Хасс, Зои Белл, Мэлик Йоба, Бьорн Алекс Олсен, Брайан Флаккус, Майкл Аарон Миллиган, Джонатан Кэмп, Джеймс Логан, Кортни Комптон, Даррен БэйлиПеревод: Двуголосый закадровый, любительский (RecentFilms)Продолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F794A36C125CC989DB1E32B99947006735A1F6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026866   (699464) от 17.06.2016
+
+Биркебейнеры / Birkebeinerne (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699464.jpg" />
+</div>
+
+
+###  Подробнее
+
+1204 год, Норвегию раздирает гражданская война. Незаконнорожденного сына короля Хокона III Сверрессона и Инги из Вартейга хранят в глубокой тайне. Мальчик был внебрачным сыном короля и родился после его смерти, что спровоцировало кровавую междоусобицу. Биркебейнеры (ополчение, созданное его дедом, королем Сверре Сигурдсоном) признали мальчика наследником трона Норвегии. (   Читать дальше...   )Производство: НорвегияЖанр: Драма, Боевик, ПриключенияРежиссер: Нильс Гёуп.Актеры: Якоб Офтебро, Кристофер Хивью, Пол Сверре Валхейм Хаген, Торбьорн Харр, Бенджамин Хелстад, Андерс Далберг, Elg Elgesem, Стиг Хенрик Хофф, Еппе Леурсен, Николай Ли Каас, Адам Немет, Jon Inge Nordnes, Thea Sofie Loch Næss, Torkel Dommersnes Soldal, Ane Ulimoen ØverliПеревод: Многоголосый закадровый, любительскийПродолжительность: 01:39:49Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D053B2F1296B57E0D332E57F4C036FFE13A460
 ```
 
 https://mybot314.ru/tekegram_catalog/

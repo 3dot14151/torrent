@@ -6,7 +6,7 @@ AutoHideDesktopIcons 2.78 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690656.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Geek Uninstaller 1.4.0.84 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690653.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sumatra PDF 3.4.14282 Pre-release + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690637.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Monkey's Audio 7.38 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690614.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690612.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Process Lasso 9.8.4.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690596.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ RegScanner 2.60 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690590.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Chromium 84.0.4147.135 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690586.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Shadow Defender 1.4.0.635 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690548.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Microsoft Silverlight 5.1.50428.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690540.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Dism++ 10.1.6.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690536.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Calibre 5.38.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690532.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BurnAware Professional / Premium 15.2 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690531.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WonderFox HD Video Converter Factory Pro 24.9 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690528.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Macrorit Partition Expert 6.0.0 Unlimited Edition RePack (& Portable) by 9649 [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690526.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ EF Commander 2022.03 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690524.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Magic Uneraser 5.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690484.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Topaz Gigapixel AI 5.1.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690482.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Topaz Mask AI 1.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690478.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Google Chrome 84.0.4147.135 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690476.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FlipBuilder Flip PDF Professional 2.3.25 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690413.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Multi Commander 6.2 Build 2147 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690412.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ CCleaner 5.19.5633 Professional Edition Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690409.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Qmmp 0.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690402.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Hotspot Shield Elite 5.20.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690400.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BurnAware Professional 12.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690386.jpg" />
 </div>
 
 

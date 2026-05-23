@@ -6,7 +6,7 @@ Hetman Uneraser 4.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711428.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.1.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711423.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ KeePass Password Safe 2.34 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711356.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ESET Endpoint Security 6.4.2014.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711333.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WinUtilities Professional Edition 11.37 RePack by Loginvovchyk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711332.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ uTorrent 3.5.3 Build 44396 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711275.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Uninstall Tool 3.5.5 Build 5580 RePack (& Portable) by elchupaсabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711273.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Hetman Photo Recovery 4.7 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711270.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ESET Endpoint Antivirus 6.4.2014.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711219.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Blackmagic Design Fusion Studio 8.1 Build 36 + Edit Connection Repack TeamVR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711209.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe Acrobat Professional DC (v15.16) Multilingual Updated
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711203.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AMIDuOS 2 Pro 2.0.7.8268 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711189.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ PreSonus Studio One Professional 3.2.3.38191 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711186.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Tag&Rename 3.9 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711173.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wise Care 365 Pro 3.61.321 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711165.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Wise Care 365 Pro 3.61.321 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711161.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mozilla Firefox 38.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711137.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ uTorrent 3.5.3 build 44396 Pro Portable by Коля3Д79 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711125.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Hetman Partition Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711096.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Total Commander 8.52a Extended 16.6 Full | Lite RePack (&Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711070.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Adobe Dreamweaver CC 2015 (v16.1.3) x86-x64 RUS/ENG Update 4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711062.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Adobe Acrobat Pro DC 2015.016.20045 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711060.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PrivaZer 3.0.65 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711021.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Mozilla Firefox Quantum 65.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711017.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ TSR Watermark Image Pro 3.6.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711015.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ PrivaZer 3.0.65 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711008.jpg" />
 </div>
 
 

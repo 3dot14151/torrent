@@ -1,29 +1,3 @@
-###  Публикация: 1356120   (751296) от 12.07.2020
-
-Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в программу «Первопроходец»! В нашем веселом и ярком приключении для одного или двух игроков вы играете за нового работника корпорации «Родной Космос», которая с гордостью называет себя четвертой лучшей межзвездной компанией. Вас выбросили на неизведанной планете почти без оборудования, и теперь ваша задача – определить, подходит ли планета для заселения (   Читать дальше...   )Тип издания: RepackРазработчик: Typhoon StudiosЖанр: Adventure, Action, RPG, 1st Person, 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216823   (747474) от 01.04.2018
 
 Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
@@ -32,7 +6,7 @@ Obduction (2016) [Ru/Multi] (1.7.2) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747474.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.1.703) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747260.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745770.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.5.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745063.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744882.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744733.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744502.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Bear With Me (2016) [Ru/Multi] (1.1.0) Repack alivedeath
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744442.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Late Shift (2017) [Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740494.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Paws and Soul (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740298.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.7) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740295.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738694.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738666.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738381.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737752.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736362.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735955.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Life is Strange: Remastered Collection (2022) [Ru/Multi] (2.0.392.645158/dlc) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733473.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733299.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732307.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Tiny Knight (2016) [En] (1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731271.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730509.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729704.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ STEINS;GATE ELITE (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729578.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729575.jpg" />
 </div>
 
 
@@ -667,6 +641,34 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613F41DDAABA8DF7B07E9B19FD7A9942AC87AD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022256   (729235) от 01.06.2016
+
+Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729235.jpg" />
+</div>
+
+
+###  Подробнее
+
+С вами связывается Хоуп, девушка из странной тоталитарной страны. Взломав комплексную систему наблюдения, вы помогаете Хоуп пробраться сквозь паутину опасности и обмана, используя камеры слежения и самые современные гаджеты.
+
+Republique разработана ветеранами игровой индустрии (в свое время ее авторы работали над Metal Gear Solid 4, Halo 4, F.E.A.R., SOCOM) на современном (   Читать дальше...   )Тип издания: RepackРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADFDEF7FC9EAE446F7CE7CE7EEDF711625E2883
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Grids for Instagram 8.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238608.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CADintosh X 8.8.4 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238601.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 Manager 3.6.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238595.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Perfectly Clear WorkBench 4.5.0.2518 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238585.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.23 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238578.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Glary Disk Cleaner 5.0.1.291 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238570.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Topaz Photo AI 1.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238569.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PDF Reader Pro Edition 2.8.17.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238562.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Glary Disk Cleaner 5.0.1.290 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238560.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Aiseesoft Video Converter Ultimate 10.7.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238556.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DirEqual 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238551.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FSNotes 4 v4.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238548.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MAGIX Video Pro X14 20.0.3.169 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238547.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Audacity 3.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238542.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CudaText 1.195.0.5 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238538.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Yate 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238537.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Downie 4.6.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238536.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Dato 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238530.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ZD Soft Screen Recorder 11.6.3.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238526.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AOMEI Partition Assistant Technician Edition 9.7.0 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238516.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ GoodNotes 5.6.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238514.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ ScreenToGif 2.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238513.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Maxon Cinema 4D Studio R26.014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238500.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ batchRESIZE 1.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238492.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ CheckBook Pro 2.7.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238488.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Telegram Desktop 4.8.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238484.jpg" />
 </div>
 
 

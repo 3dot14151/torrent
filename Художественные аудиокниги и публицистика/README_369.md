@@ -1,81 +1,3 @@
-###  Публикация: 1219494   (713898) от 14.04.2018
-
-Джуд Уотсон | Планета войн (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обычно джедаев приглашали разрешить спор. На сей раз у Куай-Гона и его ученика другая миссия: им предстоит спасти хранительницу мира Таллу. Женщина-джедай попала в плен к одной из воюющих сторон планеты Мелида-Даан. Здесь уже много лет идет война между двумя враждующими народами. Только Молодые — союз мятежных подростков — хотят остановить кровопролитие и восстановить (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 03:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8921B8721C04A740E46011273DD2D4CD0FB49FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024636   (713820) от 10.06.2016
-
-Клиффорд Саймак | Грот танцующих оленей (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Группа археологов изучает наскальные рисунки, найденные в пещере. В конце всех работ, когда стали паковать палатки, один из исследователей Бойд находит замаскированный грот, расписанный неизвестным художником двести веков назад — так показал углеводородный анализ, сделанный впоследствии по образцам красок и отпечаткам пальцев в лаборатории ФБР. Но череда случайностей (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F945D3CB1E91CB0860B5D25BA7BF70F07CD0C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219454   (713770) от 14.04.2018
-
-Гай Гэвриел Кей | Тигана (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мстя за смерть сына, король-чародей Брандин Игратский решает предать забвению само имя захваченной им земли, истребив ее защитников и рассеяв по полуострову Ладонь их братьев и сыновей. Но память убить невозможно. Она возрождается и становится силой, способной сопротивляться магии тирана. Сын погибшего принца Тиганы Алессан меняет сотни обличий, плетя сети заговора, (   Читать дальше...   )Жанр: ФентезиПродолжительность: 27:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66C8C660D5DA0A55657AE2BF2070AD1E28F648D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219338   (713643) от 14.04.2018
 
 Алексей Исаев, Артем Драбкин | 22 июня – 9 мая. Великая Отечественная война (2018) [OGG]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713643.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713527.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713327.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713313.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713253.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713155.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713110.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713012.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712955.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712922.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712902.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712714.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712710.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712630.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712615.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712565.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712559.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712550.jpg" />
 </div>
 
 
@@ -558,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712488.jpg" />
 </div>
 
 
@@ -584,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712459.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712434.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712364.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712348.jpg" />
 </div>
 
 
@@ -673,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B18709612DBE9D28AA7ACDE2835DD86C301ED95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532686   (712247) от 20.02.2022
+
+Валерий Увалов | Стальные Волки (Книга 1). Рождение Земной Федерации (2022) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцать второе столетие. Человечество неспешно осваивает космическое пространство Солнечной Системы. Один из исследовательских аппаратов в поясе Койпера замечает странное явление. А уже через две недели практически все армии Земли переходят на полную боевую готовность. Курсант Михаил Волков из-за несчастного случая лишился карьеры в воздушно десантных войсках. Кома (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, Научная фантастикаПродолжительность: 05:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882CA3DD527E0F1E44831ACBB11F6423EE61C04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024930   (712197) от 11.06.2016
+
+Евгений Шишкин | Правда и блаженство (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпопея «Правда и блаженство» охватывает полвека российской истории — от хрущевской «оттепели» до путинской России. Главные герои книги: генерал, монах и «вечный любовник» — проходят жестокую и радостную юность, армию, локальные войны, вербовку спецслужбами. Они проходят испытание годами перелома в 1991-м и 1993-м. И всех их ждет безумно счастливая и оглушительно (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 27:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E639D47EA29DE81AD478091BAD63DB8DD5F3557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130601   (712183) от 03.05.2017
+
+Олег Дивов | ООО «Психотроника» (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл микрорассказов о деятельности некоего ООО ПСИХОТРОНИКА. Рекламные объявления, презентации, официальные заявления и интервью, из которых, как мозаика, складывается общая картина того, чем занимаются компании и фирмы, работающие «креативно и инновационно». Но, не смотря на явно издевательский тон и бесподобный юмор автора, остаётся ощущение того, что многие из (   Читать дальше...   )Жанр: Юмористическая фантастикаПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5EE8D24A30F55B465F1C5DE7466FD9017E85D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

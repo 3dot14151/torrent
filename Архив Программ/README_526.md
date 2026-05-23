@@ -6,7 +6,7 @@ Sleipnir 6.2.10.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 64.0.3282.167 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782107.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ashampoo Photo Commander 16.0.2 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782103.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Chrome 64.0.3282.167 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782089.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Avast Free Antivirus 18.1.2326 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782016.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe Character Animator CC 2018 1.1.1.11 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782012.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782011.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782008.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ABViewer Enterprise 12.0.0.19  RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782005.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_781981.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Bridge CC 2018 8.0.1.282 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781977.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781968.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Photoshop Lightroom Classic CC 2018 (7.2.0.10) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781963.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Edge 84.0.522.20 Beta (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781921.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ K-Lite Codec Pack Update 15.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781890.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Media Player Classic Home Cinema 1.9.5 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781887.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ GeoGebra 6.0.590.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781883.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.5 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781848.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft Edge 85.0.545.0 Dev (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781847.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Monkey's Audio 5.44 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781846.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Skype 8.61.0.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781840.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Notepad3 5.20.615.1 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781821.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Red Button 5.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781812.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rufus 3.11 (Build 1678) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781755.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Vivaldi 1.14.1077.50 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781725.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Geek Uninstaller 1.4.5 Build 125 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781711.jpg" />
 </div>
 
 

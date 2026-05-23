@@ -6,7 +6,7 @@ Movavi Screen Recorder Studio 10.2.0 RePack (& Portable) by elchupacabra [Multi/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716349.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alternate QR Code Generator 1.760 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713157.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AnyMP4 Screen Recorder 1.1.30 RePack by вовава [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708103.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ConfigFOX 1.4.3 (x86/x64) Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695907.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Aml Maple 5.47 build 739(GAOTD) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695352.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WinDjView 2.1 Portable by PortableWares [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693164.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FontLab Studio 5.2.2.5714 Portable by XpucT [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692643.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Resource Builder 3.0.3.25 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691509.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Professional Renamer 3.95 RePack by KaktusTV [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690993.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Video Booth Pro 2.7.5.6 + Effects [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690545.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lingobit Localizer Enterprise 8.0.8123 RePack (&Portable) by Dodakaedr [Multi/Ru
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687330.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Destroy Windows Spying 1.0.1.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686608.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ StartIsBack++ 2.9.3 Final [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686027.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Replay Video Capture 8.8.6 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673193.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Yellowpile 2.53.31.763 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673078.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ iSpring Suite 9.7.1.3075 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672016.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ iSpring Suite 9.7.1.3075 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671922.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Ratool 1.3 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669206.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ SARDU MultiBoot Creator 3.2.1 Pro Basic [En/It]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668705.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ ReIcon v2.0 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665325.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ PromptPal 2.1.1.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665245.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ HTC Home Apis 3.1.628 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665081.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Insofta 3D Text Commander 5.1.0 RePack by вовава [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664801.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Directory Monitor 2.9.9.18 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658574.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Advanced Grapher 2.2 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658477.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ WhereIsIt? 2014 Build 220 Portable by Willi Karbacher [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658435.jpg" />
 </div>
 
 

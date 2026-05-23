@@ -1,29 +1,3 @@
-###  Публикация: 1822065   (94637) от 05.10.2025
-
-Jetbrains WebStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6094EDCFFF8EE762561F12EA910246AA06BA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822066   (94635) от 05.10.2025
 
 JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
@@ -32,7 +6,7 @@ JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94635.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ JetBrains PyCharm Professional 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94633.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ JetBrains PhpStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94631.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94628.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94627.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ JetBrains GoLand 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94626.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ Bascom AVR 2.0.7.1 [Английский и Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84215.jpg" />
 </div>
 
 
@@ -226,7 +200,7 @@ CodeVisionAVR V2.05.3 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84014.jpg" />
 </div>
 
 
@@ -261,7 +235,7 @@ Borland InterBase 7.5.1 SP1 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81545.jpg" />
 </div>
 
 
@@ -291,7 +265,7 @@ Interbase 2020 Update 5 14.5.0.864 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61856.jpg" />
 </div>
 
 
@@ -317,7 +291,7 @@ Java SE Development Kit 22.0.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59229.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Java SE Development Kit 21.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59208.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Java SE Development Kit 17.0.11 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59182.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55051.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Microsoft .NET 7.0.20 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55003.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Resource Tuner Business 2.24 Portable by FC Portables [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53771.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Resource Tuner Business 2.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51413.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ JetBrains Aqua 2024.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44256.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44253.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44236.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ Sublime Text 4 Build 4180 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42391.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ JetBrains PyCharm Professional 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36938.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ JetBrains RubyMine 2024.3 (x64-arm64) Repack by Sitego
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36786.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Software Ideas Modeler Ultimate 14.88 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29607.jpg" />
 </div>
 
 
@@ -691,7 +665,7 @@ EditPlus 6.0.0 build 0632 + EditPlus 6.0.0 patch 0669 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27337.jpg" />
 </div>
 
 
@@ -702,6 +676,32 @@ EditPlus – это компактный текстовый редактор д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:981ACF2CBD445C18569EB8326C96EFAEF95373B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782291   (26295) от 27.02.2025
+
+Microsoft Visual Studio 2022 Community 17.13.2 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Community - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9CD92F1E487AD004C256092A8F40395582B794
 ```
 
 https://mybot314.ru/tekegram_catalog/

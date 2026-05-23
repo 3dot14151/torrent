@@ -1,55 +1,3 @@
-###  Публикация: 1079617   (293904) от 04.12.2016
-
-Быстрое реагирование / Первая помощь / First Response (2015) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После того, как ограбление пошло не по плану, ветерана-парамедика Камиллу и её коллегу Гэрри берут в заложники и заставляют помочь раненому брату грабителя. Пока Гэрри ездит по городу, избегая полиции, Камилле под дулом пистолета приходится проводить опасные операции, чтобы спасти жизнь молодого человека. Даже если всё пройдёт хорошо, может ли она доверять преступникам (   Читать дальше...   )Производство: Канада / Canal+, Incendo ProductionsЖанр: Боевик, триллер, драмаРежиссер: Филипп ГаньонАктеры: Даня Рамирес, Кристофер Тернер, Джорис Джарски, Адам Батчер, Грэхэм Эбби, Джефферсон Браун, Марк Слэк, Эллен Дэвид, Хелена Мари Патт, Питер Майкл ДиллонПеревод: Профессиональный двухголосый (TV 1000)Субтитры: ОтсутствуютПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC8B60F98A7070ED8B60899CE74AA4F5091B861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079203   (293645) от 04.12.2016
-
-Джорджино / Giorgino (1994) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1918 год. Молодой доктор Джорджо Волли, отвоевавший свое на фронте, отправляется в детский приют, где когда-то работал. Приют во время войны был эвакуирован в затерянную в горах деревушку, окруженную мрачными лесами и непроходимыми болотами. Добравшись туда, Джорджо узнает, что все дети погибли, а местные жители, озлобленные и безудержные в своей жестокости, винят (   Читать дальше...   )Производство: Франция, США, Heathcliff, PolyGram Filmed EntertainmentЖанр: Триллер, Драма, ПриключенияРежиссер: Лоран БутоннаАктеры: Джефф Дальгрен, Милен Фармер, Фрэнсис Барбер, Джосс Экленд, Джон Абинери, Луиза Флетчер, Жан-Пьер Омон, Яна Андресикова, Ли Баррет, Сидни БлейкПеревод: Многоголосый закадровый, одноголосый закадровыйПродолжительность: 02:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3DEC4DAEB56C58EC0F3044ED8F0ED2A90CC5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079230   (293626) от 04.12.2016
 
 Подмена / Switch (2011) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293626.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293616.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293612.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293487.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293406.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293352.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293296.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293292.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293291.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293289.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293267.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293142.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293132.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293114.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292979.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292965.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292936.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292897.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292882.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292876.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292868.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292860.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292856.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292847.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98889B63EC64217CE1BEEE1FC25E19193495CFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962809   (292845) от 05.12.2015
+
+Ненавижу отпуск / Je hais les vacances (2007) IPTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год ты мечтаешь о нем. Но для некоторых отпуск - хуже ада! Супруги Флоранс и Бруно с детьми мечтали провести прекрасный отпуск в небольшом отеле на острове Корсика. Но накануне приезда их отель взорвали местные повстанцы. Поэтому семейство вынуждено поселится у своего дальнего родственника, который ловко берет Флоранс и Бруно в оборот. Но на этом проблемы (   Читать дальше...   )Производство: Франция, БельгияЖанр: КомедияРежиссер: Стефан КлавьеАктеры: Стефан Фрейсс, Кароль Ришер, Стефан Де Гродт, Поль Шарлен, Тома Дусе, Клеманс Лассала, Маэва ПаскуалиПеревод: Профессиональный многоголосый закадровыйПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B34B86507EA15DB2BC49882DF1464C3F3743E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731884   (292835) от 09.12.2013
+
+Любовь по рецепту / Menu degustacio (2013) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошел год с тех пор как Марк и Ракель забронировали столик в одном из лучших ресторанов Испании, расположенном прямо на берегу Средиземного моря. И вот наконец они приглашены! Мало того, день их посещения станет последним днем работы ресторана, который хозяева решили закрыть, чтобы открыть ресторан в Токио. Так что пропустить такое уникальное событие было бы просто (   Читать дальше...   )Производство: Испания / Subotica Entertainment, Eurimages, Instituto de la Cinematografía y de las Artes Audiovisuales (ICAA)Жанр: комедия, мелодрамаРежиссер: Рохер ГуальАктеры: Хан Корнет, Клаудия Бассольс, Висента Н’Донго, Эндрю Тарбет, Того Игава, Фионнула Флэнаган, Стивен Ри, Тимоти Гиббс, Санти Миллан, Молли МалкольмПеревод: Профессиональный (многоголосый закадровый)Субтитры: НетПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF57FAC4BD4B1A656E9E0732721F5C427CBB5F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

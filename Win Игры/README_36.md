@@ -6,7 +6,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.06) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051754.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051751.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DuneCrawl (2026) [Ru/Multi] (Build 21407133/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051748.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SHINOBI: Art of Vengeance (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Port Swit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051741.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (08102025) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051736.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.25.0.2775/dlc) Repack Let'sРlay [U
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051719.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2026) [
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051685.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack Let'sРlay [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051682.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051626.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10.4/dlc) Repack seleZen [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051625.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Onirism (2025) [Ru/Multi] (Build 21313783) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051624.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Stonehearth (2018) [Ru/En] (1.1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051623.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051622.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ City Transport Simulator: Bus + Tram (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051621.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Emissary Zero (2025) [Ru/Multi] (1.2.3) Scene Tenoke [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051618.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Paranoia: Happiness is Mandatory (2023) [Ru/Multi] (Build 12698814) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051593.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051586.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DDoD (2026) [Multi] (СL-42080) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051553.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Snow Ash (2026) [Ru/Multi] (Build 21423519) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051542.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Stationeers (2017) [Ru/Multi] (0.2.5919.26060) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051461.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mon Bazou (2021) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051458.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.2.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051457.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Isopod: A Webbed Spin-off (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051456.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ghost of Tsushima / Призрак Цусимы (2024) [Ru/Multi] (1053.8.1212.1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051376.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051374.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ DREAMOUT (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051356.jpg" />
 </div>
 
 

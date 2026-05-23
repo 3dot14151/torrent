@@ -1,135 +1,3 @@
-###  Публикация: 551338   (452441) от 24.09.2012
-
-Э. Костин | Руководство по выделке шкур в домашних условиях [1992] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В данной брошюре подробно описаны первичная обработка и консервация, правка и сушка, обработка и выделка шкур. Приведены рецепты и способы обработки и окраски шкурок.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E8FA3998F4841BEDDA35F9D40D6CD64EC9C9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247660   (451078) от 16.09.2018
-
-С.В. Цанев и др. | Газотурбинные и парогазовые установки тепловых электростанций (2009) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы теории газотурбинных и парогазовых установок электростанций. Значительное внимание уделено особенностям их конструкции и составу тепловых схем, методам повышения КПД производства электроэнергии и экономии топлива. Дана классификация тепловых схем различных типов парогазовых установок, приведены методики расчета показателей их экономичности.
-Особое (   Читать дальше...   )Жанр: ЭнергетикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE2C6C17894A0664AB6A718B398A25F5276D92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247646   (450747) от 16.09.2018
-
-В.А. Жуков, Ю.К. Михайлов | Механика. Основы расчета и проектирования деталей машин (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие соответствует содержанию дисциплин "Прикладная механика", "Детали машин и основы конструирования" профессионального цикла Федерального государственного образовательного стандарта высшего профессионального образования по направлениям 150000 подготовки бакалавров и специалистов.
-Пособие включает в себя учебные материалы по статике (   Читать дальше...   )Жанр: МеханикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B88B941BEE501571EADFEA29198E227314A78BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322021   (450504) от 28.08.2019
-
-Н.И. Богатырев | Современные аппараты управления и защиты (2016) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассматриваются основы теории современных электрических аппаратов управления и защиты, описаны устройство и принцип работы контактных и бесконтактных аппаратов низкого напряжения (до 1000 В), применяемых в распределительных устройствах, системах автоматики и релейной защиты. Даны рекомендации по выбору электрических аппаратов и эксплуатации. Рассмотрены (   Читать дальше...   )Жанр: Техническая литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002708E7D13A879072B8F5898A1C779B78B776AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322277   (450378) от 28.08.2019
-
-М.С. Лохвицкий и др. | Мобильная связь. Стандарты, структуры, алгоритмы, планирование (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены основные аспекты создания и функционирования современных систем мобильной связи – технической основы реализации технологий мобильной связи. На доступном, даже для неспециалистов, уровне объяснены принципы мобильной связи, показана их эволюция от 2G до 4G и тенденции развития на пути к 5G. Подробно проанализированы и проиллюстрированы базовые и (   Читать дальше...   )Жанр: СвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C91CBE08F6F6F5917C6759EFC6CE110715F643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059839   (450355) от 09.10.2016
 
 Алексей Иванов | Презентация в образовании и науке [2 книги] (2016) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450355.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449094.jpg" />
 </div>
 
 
@@ -192,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447718.jpg" />
 </div>
 
 
@@ -219,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446498.jpg" />
 </div>
 
 
@@ -245,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445611.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445150.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443727.jpg" />
 </div>
 
 
@@ -332,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443611.jpg" />
 </div>
 
 
@@ -367,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442777.jpg" />
 </div>
 
 
@@ -394,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442766.jpg" />
 </div>
 
 
@@ -420,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442214.jpg" />
 </div>
 
 
@@ -446,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442041.jpg" />
 </div>
 
 
@@ -473,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440946.jpg" />
 </div>
 
 
@@ -499,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440807.jpg" />
 </div>
 
 
@@ -525,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440413.jpg" />
 </div>
 
 
@@ -554,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440205.jpg" />
 </div>
 
 
@@ -581,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440128.jpg" />
 </div>
 
 
@@ -607,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439941.jpg" />
 </div>
 
 
@@ -635,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436034.jpg" />
 </div>
 
 
@@ -661,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435831.jpg" />
 </div>
 
 
@@ -687,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435734.jpg" />
 </div>
 
 
@@ -698,6 +566,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FD334C42EA2E4722AB7FCAB537B75E06BFC85F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555166   (433899) от 02.10.2012
+
+Е.И. Несис | Методы математической физики [1977] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433899.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложен учебный материал по математической теории поля, дифференциальным уравиеииям в частных производных и линейной алгебре в объеме, соответствующем учебной программе по курсу "Методы математической физики" для физико-математических факультетов.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB59508DD16336E26ED8C1B7B586A6BF7D97BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707940   (433398) от 07.10.2013
+
+И.М. Струженцев | Конструкция паровозов (1937) [DjVu]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор старого паровозного парка железных дорог СССР.Формат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02805DD81D3D577E02AF755E7F50A958721F4C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707914   (433393) от 07.10.2013
+
+Н.С. Конарев | Большая энциклопедия транспорта. Том 4 (2003) [DjVu]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия "Железнодорожный транспорт" является систематизированным изданием, в котором материал размещен в самостоятельных тематических разделах, расположенных в логической последовательности В ряде случаев для удобства читателей в конце разделов приводятся необходимые термины по излагаемым вопросам.Формат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5894CE7D99275AEDE3443BB54258A218E197D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707908   (433390) от 07.10.2013
+
+В.А. Дробинский | Как устроен и работает паровоз (1955) [DjVu]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433390.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в научно-популярной форме описаны принципы устройства и работы современного паровоза; изложена сущность действия пневматических и электротерапевтических тормозов, автостопов, самопишущего скоростемера, радиосвязи с локомотивом; даны основные понятия о современных экипировочных устройствах паровоза, силе тяги, вписывание в кривые участки железнодорожного пути, уравновешивании движущихся частей паровой машины; приведены некоторые сведения о газотурбовозах, паротурбовозах, паровозах с пылеугольным отоплением и другие локомотивы. Книга рассчитана на широкие круги железнодорожников, знакомых с основами физики и химии, а также учащихся старших классов железнодорожных школ.Формат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F22A43F7F1EC5E17342C43F80013A461759A186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707816   (433389) от 07.10.2013
+
+Н.С. Конарев | Железнодорожная Энциклопедия (1995) [DjVu]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая энциклопедия по существу - первое многоплановое научно-справочное издание, в котором сделана попытка систематизировать сведения по широкому кругу вопросов, относящихся к железнодорожному транспорту, а также упорядочить терминологию, используемую в различных изданиях.Формат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30329A6251CC9D9997365F905DC755910876AF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

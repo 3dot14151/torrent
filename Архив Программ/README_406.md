@@ -6,7 +6,7 @@ WinToUSB Enterprise 2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836555.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LibreOffice 5.1.2 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836537.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IsMyHdOK 1.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836535.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alternate File Shredder 2.080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836471.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Artweaver Free 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836463.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ShareX 11.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836453.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Album Player 2.106 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836426.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.4 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836412.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Microsoft Visual Studio 2019 Community 16.11.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836403.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Visual Studio 2019 Professional 16.11.4 (Offline Cache, Unofficial) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836402.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CrystalDiskInfo 8.12.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836399.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ CrystalDiskInfo 8.12.10 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836398.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Textify 1.8.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836396.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ RAM Saver Professional 21.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836395.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BestReminder v2020.05.01.10 МирТрудМай Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836386.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinTools.net Premium 17.3.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836351.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adobe Flash Player 21.0.0.213 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836313.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Topaz DeNoise AI 3.3.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836281.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836277.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Comfy Photo Recovery Home Edition/Office Edition/Commercial Edition 4.5 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836202.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Windows 10 Manager 2.0.7 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836188.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FreeFileSync 8.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836184.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ jv16 PowerTools X 4.0.0.1514 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836164.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Flash Player 21.0.0.213 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836159.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Windows 10 Manager 1.1.0 Final Portable by PortableWares [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836157.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Altap Salamander 3.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836153.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Behemoth - The Satanist (2014) [MP3|320 кб/с]<Blackened Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939662.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Crypt Of Silence - Awareness Ephemera (2016) [MP3|320 Kbps] <Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938877.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Grave Digger - Healed By Metal (2017) Deluxe Edition [MP3|320 Kbps] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938642.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Accept - Restless ­And Live (2017) 2CD [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938394.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Tyrant of Death - Ion Legacy (2015) [OGG|~600kbps] <Industrial Metal, Math Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937329.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Reaktion - Blackmailed Existence (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935566.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ravensire - The Cycle Never Ends (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935559.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Holy Grail - Times Of Pride And Peril (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935558.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Rotting Christ - Rituals (2016) [MP3|320 кб/с] <Dark Metal, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935516.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mad Mamba - Pure Venom (2017) [MP3|320 Kbps] < Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935410.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Wolfchant - Bloodwinter (2017) [MP3|320 Kbps] <Folk Metal, Pagan Metal, Viking M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935348.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Deathtale - Whole World Burns (2016) [MP3|320 кб/с] <Thrash Metal,Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934136.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Crossing Rubicon - No Less Than Everything (2016) [MP3|320 кб/с] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934116.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Persona - Elusive Reflections (2016) [MP3|320 кб/с] <Progressive Metal, Alter
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934064.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Beyond the Black - Lost in Forever (2016) [MP3|320 кб/с] <Symphonic Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933989.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ My Dying Bride - The Ghost of Orion (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933690.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Crematory - Unbroken (2020) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933419.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Blind Guardian - Beyond The Red Mirror (2015) Deluxe Edition [MP3|320 кб/с]<P
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932927.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Section A  - Wall Of Silence (2016) [MP3|320 кб/с] <Melodic Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932588.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Bloodbound - One Night Of Blood - Live At Masters Of Rock MMXV (2016) [MP3|320 �
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932538.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Myrath - Legacy (2016) [MP3|320 кб/с] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932521.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Gatekeeper - Quarantine (2017) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932489.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Far'n'Hate - Eternal (2017) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932487.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Demonic Death Judge - Seaweed (2017) [MP3|320 Kbps] <Sludge, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932485.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Boris The Blade - Warpath (2017) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932483.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Attila Voros's Strength Of Will - Blink of an Existence (2017) [MP3|320 Kbps] <G
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932439.jpg" />
 </div>
 
 

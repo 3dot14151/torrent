@@ -1,29 +1,3 @@
-###  Публикация: 1061861   (886719) от 11.02.2017
-
-Infested Planet (2014) [En] (1.10.9/dlc) License GOG
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Infested Planet – стратегия, в которой игроку предстоит уничтожать огромные орды инопланетных противников, управляя отрядом элитных солдат. Будучи окруженным со всех сторон, задача игрока – перехитрить противника и получить преимущество над врагом. И даже после успешного завершения очередного боя не стоит расслабляться, так как пришельцы постоянно эволюционируют (   Читать дальше...   )Тип издания: LicenseРазработчик: Rocket Bear GamesЖанр: Strategy (Real-time), Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22CF897A775E5E1079D6A604A2935EF30440F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371972   (886429) от 02.04.2020
 
 The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack Other s
@@ -32,7 +6,7 @@ The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886429.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Midnight Calling: Anabel / Полуночный зов: Анабель (2015) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885974.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Hidden Motives: The Diamond Rush (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885768.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ As Far As The Eye (2020) [Ru/Multi] (1.0.5c2) License GOG [Supporter Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885659.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ A Tale for Anna / Сказка для Анны (2021) [Ru] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885656.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Feelings Adrift (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885612.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Golf Club Wasteland (2021) [Ru/Multi] (7298022) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885546.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Warhammer 40,000: Armageddon (2014) [Ru/Multi] (1.10/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885517.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885454.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Big Rumble Boxing: Creed Champions (2021) [Multi] (6579165) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885433.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Arboria (2021) [En] (1.0.0.1055) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885348.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2021) [Ru/Multi] (1.0.906.0546/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885324.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BloodRayne Betrayal: Fresh Bites (2021) [Multi] (0.95) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885321.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Reflections of Life 9: Utopia (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885028.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dwarrows (2020) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884805.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The King of Fighters XIV (2017) [Multi] (1.0/dlc) License GOG [Galaxy Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884745.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ X4: Foundations (2020) [Ru/Multi] (3.00.393143 HF1/dlc) Repack =alexalsp= [Updat
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884741.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tales of Berseria (2017) [Ru/Multi] (1.48.00#193/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884662.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884572.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6/dlc) Repack Other s [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884565.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Rewinder (2021) [Multi] (1.26.5) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884118.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (7310529) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884069.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Grim Tales 10: The Heir / Страшные сказки 10: Наследник (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884048.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dice Legacy (2021) [Ru/Multi] (7195733) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883928.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883914.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E6DED215DEC50265490940F2F4FEE1F1736D612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991156   (883911) от 11.03.2016
+
+Cobalt (2016) [Multi] (133b Gold) Repack R.G. Механики
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883911.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так от создателя Minecraft, kомпания Маркуса «Нотча» Перссона поможет независимой студии Oxeye Games произвести на свет новый экшен/платформер Cobalt с очаровательным киборгом в главной роли. Игра будет располагать несколькими геймплейными режимами (одиночным, кооперативным, соревновательными) и выйдет на компьютерах под управлением Windows ближайшей осенью с последующим (   Читать дальше...   )Тип издания: RepackРазработчик: Oxeye Game StudioЖанр: Arcade (Platform)Язык озвучки: -/-Язык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25476C20DBC2AB6023C10254C712E68EBC2CAFDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

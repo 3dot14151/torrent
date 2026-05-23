@@ -1,55 +1,3 @@
-###  Публикация: 1743448   (46629) от 16.08.2024
-
-Нечто. Новый вид / Blood and Snow (2023) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда в арктической тундре обнаруживают метеорит, на место его падения отправляются двое ученых. Но в процессе выполнения задания один из них погибает, а вторая оказывается зараженной неизвестным вирусом. Ее привозят на соседнюю базу, где местный профессор пытается понять, что за трансформация с ней происходит. Когда опасная пациентка сбегает из-под наблюдения, в (   Читать дальше...   )Производство: Канада / Dystopian Films, FilmCore, HorrorHound FilmsЖанр: фантастика, ужасыРежиссер: Джесси ПаланджиоАктеры: Вернон Уэллс, Саймон Филлипс, Брук Чемберлен, Майкл Суоттон, Энн-Кэролин Бинетт, Брианна Рипковски, Адам Уэль Поттер, Блейк Каннинг, Пол Уитни, Пропсер ДжуниорПеревод: Дублированный (Paragraph Media)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (full, SDH)Продолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF206F24512AC7AF2BFB75D07D20B72B1AA84815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743444   (46622) от 16.08.2024
-
-Государственный гимн / National Anthem (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-21-летний строитель из Нью-Мексико присоединяется к квир-сообществу, выступающему на родео в поисках своей собственной версии американской мечты.Производство: США / LD EntertainmentЖанр: драмаРежиссер: Люк ГилфордАктеры: Чарли Пламмер, Ив Линдли, Рене Росадо, Мэйсон Александр Парк, Робин Лайвли, Александр Алайон, Lee Knight, Д'Анджело Лейси, Кимберли Кристанн Пембер, Delia RawdonПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99D4E2BC3C2B86F997FFB3C471A42D4829224A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743442   (46620) от 16.08.2024
 
 Государственный гимн / National Anthem (2023) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46620.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46613.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46604.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46601.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46598.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46586.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46584.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46576.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46572.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46569.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46567.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46566.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) WEBRi
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46560.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46542.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46539.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46538.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46530.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46519.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46510.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46508.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46503.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46491.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46489.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46486.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:470D95C0FB530727413B6ADAA49EB4847C640B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743743   (46484) от 17.08.2024
+
+Дуэль / The Duel (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав, что у лучшего друга Колина роман с его девушкой, Вуди решает, что никакая современная форма мести его не удовлетворит. Вместо этого Вуди вызывает своего ближайшего друга на почетное классическое состязание — джентльменскую дуэль на смерть. Когда двое их друзей присоединяются к действию, некогда неразлучная группа мужчин приближается к судьбоносному дню, который (   Читать дальше...   )Производство: США / Pigasus Pictures, ToneDeaf PicturesЖанр: драма, комедияРежиссер: Джастин Мэтьюз, Люк Спенсер РобертсАктеры: Дилан Спроус, Каллэн МакОлифф, Патрик Варбертон, Дензель Лав, Харт Дентон, Мария Габриела де Фария, Рэйчел Мэттьюз, Christian McGaffney, Рональд ГаттманПеревод: Многоголосый любительский (RGB | 18+)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA83D36DCE918BCFF50EEC12AE9D296DE1D1398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743744   (46483) от 17.08.2024
+
+Исчезнувшее время. Мальчик, который вернулся / Ga-lyeo-jin si-gan / Vanishing Time: A Boy Who Returned (2016) HDRip [H.264] [MVO
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, в полнолуние в лесу появляется пещера, а в пещере лежит яйцо волшебного монстра. Кто в эту пещеру зайдёт да яйцо разобьёт, у того монстр съедает время... 13-летняя СуРин знакомится с мальчиком Сон Мином, с которым ей весело и интересно. Однажды Су-рин напрашивается в компанию его друзей пойти вместе смотреть на взрывные работы в шахте, и в лесу ребята обнаруживают (   Читать дальше...   )Производство: Южная Корея / Showbox EntertainmentЖанр: фэнтези, драма, мелодрама, детективРежиссер: Тхэ Хва ОмАктеры: Дон Вон Кан, Ын Су Син, Хё Чжэ Ли, Хи Вон Ким (I), Хэ Хё Квон, Дан Юл Ким, У Чжин Чон, Тхэ Гу Ом, Со Ри Мун, Чон Ён Ким, Чин У Пак (I), Джи Хо АнПеревод: профессиональный многоголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Cardinals), английскиеПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495FEB0E35B2A3399A7A0B38C46D292FD8B8C22A
 ```
 
 https://mybot314.ru/tekegram_catalog/

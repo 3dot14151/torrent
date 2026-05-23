@@ -6,7 +6,7 @@ Andreas Vrhovsek | Creating Cloudscape in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030007.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kurt Jones | Indie Game Development Pipeline Volume 2 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029999.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ John Moncrief | Introduction to Materials in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029997.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ SideFX | Houdini 15 Masterclass Crowds (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029995.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ SideFX | Houdini 15 Masterclass Distributed Simulations (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029987.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rohan Dalvi | Houdini Rocket Ship (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029985.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029982.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ SideFX | Houdini 15 Masterclass FLIP Workflow Enhancements (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029979.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029975.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029972.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kurt Jones | Indie Game Development Pipeline Volume 1 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029968.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 5 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029967.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029962.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Joshua Kinney | Indie Game Development Pipeline Volume 3 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029944.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 4 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029935.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Andreas Glad | Houdini VFX for Games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029900.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 1 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029895.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Adam Swaab | Houdini Procedural Foundations (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029878.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029551.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tim Cgi | Abstract Visuals - Houdini and Redshift (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029475.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029422.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Jeremy Huxley | Vegetation & Plants for Games (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029151.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028888.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 3 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028885.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 2 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028868.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 5 (2016) PCRec [Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028860.jpg" />
 </div>
 
 

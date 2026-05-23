@@ -1,140 +1,3 @@
-###  Публикация: 1512734   (224973) от 28.11.2021
-
-К.А. Путилов | Курс физики [3 книги] (1963) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Трёхтомный курс физики для университетов К.А. Путилова
-Первый том посвящён механике, акустике, молекулярная физике и термодинамике (одиннадцатое издание)
-Первый том посвящён электричеству (шестое издание)
-Первый том посвящён оптике, атомной и ядерной физике (второе издание)Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEDA28E9325ECDA0357FFCD34ACCB84EA9D7873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 69635   (224629) от 01.12.2019
-
-40 лучших конструкций ламповых УМЗЧ
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена специально для
-любителей лампового звука.
-Формат - pdfЖанр: Обучающие материалы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0192125424655AC1E2C31567506D03530FDD42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650717   (224600) от 03.08.2023
-
-Н.А. Сальков | Сборник задач по курсу начертательной геометрии (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены задачи по всем разделам курса начертательной геометрии. Предназначен для студентов, обучающихся по направлению 07.03.01 "Архитектура".
-Сборник может быть полезен для студентов вузов других направлений.Жанр: МатематикаИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3906BBD3B5CFDADC7232213C6C75CBDFAE5052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 109212   (224586) от 01.12.2019
-
-А.М. Горбов | Справочник сантехника [2006] [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Даны рекомендации по установке и ремонту ванн, душевых кабин, раковин, унитазов и прочей сантехники, замене коммуникаций в квартире и т.д.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D935CB0143F4CE6AF4DF18DBA4DA2E5EC66226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965803   (224509) от 15.12.2015
-
-Светлана Хмелевская | Философия (2002) [FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены общие вопросы, связанные с изучением философии: ее предмет, функции, роль в обществе, кратко изложена история философии, отдельно выделена тематика онтологии и гносеологии, философской антропологии.
-Для преподавателей и студентов юридических, а также иных вузов, где преподаются гуманитарные и социально-экономические дисциплины.Жанр: Философия, УчебникиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83659119A508AD33F9EF7BD3FF5666051D61CE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965627   (224504) от 15.12.2015
 
 Г. М. Бернхем | Безработица в Америке (1931) [DJVU]
@@ -143,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224504.jpg" />
 </div>
 
 
@@ -169,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224484.jpg" />
 </div>
 
 
@@ -196,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224466.jpg" />
 </div>
 
 
@@ -222,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224428.jpg" />
 </div>
 
 
@@ -249,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224342.jpg" />
 </div>
 
 
@@ -276,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224184.jpg" />
 </div>
 
 
@@ -302,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224112.jpg" />
 </div>
 
 
@@ -329,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224097.jpg" />
 </div>
 
 
@@ -355,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224061.jpg" />
 </div>
 
 
@@ -381,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224055.jpg" />
 </div>
 
 
@@ -407,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223917.jpg" />
 </div>
 
 
@@ -433,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223911.jpg" />
 </div>
 
 
@@ -459,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223901.jpg" />
 </div>
 
 
@@ -485,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223893.jpg" />
 </div>
 
 
@@ -512,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223890.jpg" />
 </div>
 
 
@@ -538,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223857.jpg" />
 </div>
 
 
@@ -564,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223849.jpg" />
 </div>
 
 
@@ -590,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223843.jpg" />
 </div>
 
 
@@ -617,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223792.jpg" />
 </div>
 
 
@@ -643,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223780.jpg" />
 </div>
 
 
@@ -669,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223684.jpg" />
 </div>
 
 
@@ -680,6 +543,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABF310EC5B01C402EA169B81BB96FDCA342C48C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513539   (223646) от 29.11.2021
+
+Н.А. Огнерубов | Преступления в сфере медицинской деятельности (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223646.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе рассматриваются вопросы становления и развития института уголовной ответственности за преступления в сфере медицинской деятельности; понятие и сущность криминальных ятрогений в современном уголовном праве; анализируются отдельные составы преступлений против жизни и здоровья, совершаемых медицинскими работниками, а также дается эмпирический анализ данного (   Читать дальше...   )Жанр: Юриспруденция, медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F87E55E7DC53FDA32096A5BBC6DD09FEAC23A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965681   (223640) от 15.12.2015
+
+Сергей Матвеев | Неправильные глаголы и другие трудности (2013) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223640.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном пособии рассматриваются неправильные глаголы и другие части речи с особым образованием грамматических форм. Автор предлагает эффективный метод быстрого запоминания трудностей английского языка. Пособие поможет систематизировать свои знания тем, кто уже занимался изучением английского языка. Значительное количество примеров позволит усвоить материал за короткое (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4BADE8AB1DB4B527804B45E58839CC274290D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342556   (223633) от 02.12.2019
+
+Элис Робертс | Приручение. 10 биологических видов, изменивших мир (2019) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223633.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении сотен тысяч лет наши предки выживали благодаря диким растениям и животным. Они были охотниками-собирателями, превосходно знакомыми с дарами природы, принимающими мир таким, какой он есть. А потом случилась революция, навсегда изменившая отношения между человеком и другими видами: люди стали их приручать…
+Известный британский антрополог и популяризатор (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DC62801BE2402654A0BAFEF65793BAD4DC5219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342561   (223628) от 02.12.2019
+
+Элизабет Лофтус, Кэтрин Кетчем | Миф об утраченных воспоминаниях. Как вспомнить то, чего не было (2018) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223628.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Когда человек переживает нечто ужасное, его разум способен полностью похоронить воспоминание об этом в недрах подсознания – настолько глубоко, что вернуться оно может лишь в виде своеобразной вспышки, “флешбэка”, спровоцированного зрительным образом, запахом или звуком». На этой идее американские психотерапевты и юристы построили целую индустрию лечения и судебной (   Читать дальше...   )Жанр: Научно-популярная литература, ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824F8887781552FA5B83C6DB793D1EA150E7BD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425011   (223552) от 19.11.2020
+
+Е. В. Вострецова, С. М. Зраенко | Повторим теорию электрических цепей (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223552.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии представлены основные понятия и определения теории электрических цепей, а также даны тестовые задания для самоконтроля по всем разделам курса.
+Учебное пособие предназначено для студентов, обучающихся по укрупненным группам направлений и специальностей 10.00.00 — Информационная безопасность, 11.00.00 — Электроника, радиотехника и системы связи.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF004B1F5A5D7527AFB319FD5048D9C2F8AEBF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

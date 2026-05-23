@@ -6,7 +6,7 @@ Tab Smith - Top 'N' Bottom (1953, 1954) 1997, Delmark Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181567.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181541.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181454.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Peggy Lee - The Best of Miss Peggy Lee (1945-1969)1998, Capitol Records[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181431.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Columbia Jazz Piano Moods Sessions (1949 - 1952) 7CD, 2000, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181147.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180950.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Paul Bley Trio - Complete Savoy Sessions (1962-1963) 2008, Gambit Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180945.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Paquito D'Rivera & Trio Corrente - Song For Maura (2013) Sunnyside [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180943.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jack McDuff - The Heatin' System (1972) 2007, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180914.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vainoras and the altar of the drill - Develop your eyesight for the darkness (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180861.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Barbara Lea - Remembering Remembering Lee Wiley (1995) Audiophile[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180679.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - The Complete Bee Hive Sessions (1977 - 1984) 12CD, 2015, Mosaic Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180483.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hal Galper Quintet - Live At The Berlin Philharmonic (1977, 19768) 2CD, 2021, Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180336.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Art Pepper - The 1975 Garden State Jam Sessions (2005) 2CD, Lone Hill Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180127.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Eddie Daniels & Roger Kellaway - A Duet Of One (2005) 2008, IPO Recordings [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180042.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Konstantin Klashtorni - Smooth Essence (The Best Of) (2022) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179900.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ George Freeman - Rebellion (1995) Southport Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179714.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179704.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179682.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179665.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179656.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Scherzoo - 05 (2020) [FLAC|Lossless|image + .cue] <Zeuhl, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179381.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Clark Terry - Live At The Village Gate (1991) Chesky Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179365.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Lee Wiley - Sings the Songs of George & Ira Gershwin & Cole Porter (1939 - 1940)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179361.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Herb Geller - Plays The Arthur Schwartz Songbook (2005) Hep Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179013.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ J.C. Heard & Bill Perkins Quintet - Live At The Lighthouse (1964) 2018, Fresh So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178983.jpg" />
 </div>
 
 

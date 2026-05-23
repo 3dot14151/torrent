@@ -1,117 +1,3 @@
-###  Публикация: 439698   (51056) от 05.07.2024
-
-Кошка на радиаторе (1977) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главная редакция литературно-драматических программ ЦТ.
-Телеспектакль по мотивам одноименной комедии Анны Родионовой.
-
-Комедия о молодых супругах, которые поссорились и сгоряча развелись, но вынуждены жить в одной квартире. Проходит время, и после ряда смешных перипетий они понимают, что не могут друг без друга.Жанр: комедия, спектакльРежиссер: Сергей ЕвлахишвилиПродолжительность: 00:48:24
-
-Качество видео и звука: TVRip
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2FDE422CB3FFE659392981E39DFFC637514FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322073   (51051) от 05.07.2024
-
-Конек-Горбунок (1973) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-За горами, за лесами,
-За широкими морями,
-Против неба — на земле
-Жил старик в одном селе.(   Читать дальше...   )Жанр: Моноспектакль, СемейныйРежиссер: Виктор ХрамовАктеры: Олег ТабаковПеревод: Не требуетсяПродолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F88E7884B2FB2191A235F3FC88DF28F2953650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 33230   (51041) от 05.07.2024
-
-Калифорнийская сюита (2007) TVRip [БДТ]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-На протяжении многих лет на сцене Большого Драматического театра с неизменным успехом шел спектакль «Этот пылкий влюбленный» по пьесе Нила Саймона. В спектакле были заняты Алиса Фрейндлих и Владислав Стржельчик. И вот на афише БДТ вновь появилось имя американского драматурга. «Калифорнийская сюита» состоит из трех мини-пьес, события которых разворачиваются в отеле (   Читать дальше...   )Жанр: СпектакльРежиссер: Л.П. ШУВАЛОВАВ ролях: Алиса Фрейндлих, Олег Басилашвили, Варвара Владимирова - (дочь А.Фрейндлих)Продолжительность: 2:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3117E23B826F9E38FF4A327386C65CC3C830CEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620163   (51034) от 05.07.2024
-
-История лошади (1989) DVDRip [БДТ им. Горького]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименной повести Льва Николаевича Толстого "Холстомер" в постановке Ленинградского государственного академического Большого драматического театра имени М. Горького.
-
-Историю лошади рассказали как трагедию человека. Евгений Лебедев, блистательно сыгравший Холстомера, поведал о судьбе целого народа, страны, где постоянно присутствует конфликт (   Читать дальше...   )Производство: СССР, БДТ им. ГорькогоЖанр: ДрамаРежиссер: Георгий Товстоногов, Марк РозовскийАктеры: Евгений Лебедев, Олег Басилашвили, Валентина Ковель, Михаил Волков, Юзеф Мироненко, Георгий Штиль, Всеволод КузнецовПродолжительность: 02:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FC57989665999FB2F569ACCCC0B06C19C656FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483640   (51033) от 05.07.2024
 
 Когда море смеётся (1971) SATRip
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51033.jpg" />
 </div>
 
 
@@ -147,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51025.jpg" />
 </div>
 
 
@@ -177,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51024.jpg" />
 </div>
 
 
@@ -204,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51019.jpg" />
 </div>
 
 
@@ -233,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51005.jpg" />
 </div>
 
 
@@ -260,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50999.jpg" />
 </div>
 
 
@@ -286,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50918.jpg" />
 </div>
 
 
@@ -312,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50911.jpg" />
 </div>
 
 
@@ -338,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50905.jpg" />
 </div>
 
 
@@ -365,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50901.jpg" />
 </div>
 
 
@@ -392,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50899.jpg" />
 </div>
 
 
@@ -419,7 +305,7 @@ Animelo Summer Live - evolution (2010) Blu-Ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50859.jpg" />
 </div>
 
 
@@ -447,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50841.jpg" />
 </div>
 
 
@@ -474,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50819.jpg" />
 </div>
 
 
@@ -502,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50817.jpg" />
 </div>
 
 
@@ -530,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50816.jpg" />
 </div>
 
 
@@ -557,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50812.jpg" />
 </div>
 
 
@@ -586,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50791.jpg" />
 </div>
 
 
@@ -612,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50694.jpg" />
 </div>
 
 
@@ -638,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50604.jpg" />
 </div>
 
 
@@ -664,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50603.jpg" />
 </div>
 
 
@@ -692,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50526.jpg" />
 </div>
 
 
@@ -703,6 +589,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A0FC5D19A7ABB59FA69D71EC06358325D000A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320269   (50507) от 10.07.2024
+
+Мегрэ и старая дама (1974) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50507.jpg" />
+</div>
+
+
+###  Подробнее
+
+По произведению Жоржа Сименона "Мегрэ и старая дама".
+
+Для расследования убийства служанки мадам Бессон - Розы - комиссар Мегрэ едет в курортный городок в Нормандии. Там он понимает, что отношения между членами семьи Бессон сложны и запутаны, а к гибели Розы и ее брата Анри, детей простого рыбака, привели жестокость и лживость окружающих.Жанр: ТелеспектакльРежиссер: Вячеслав БровкинВ ролях: Борис Тенин, Елена Фадеева, Авангард Леонтьев, Елена Козелькова, Анатолий Ромашин, Леонид Сатановский, Нина Архипова.Формат: AVIПродолжительность: 02:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4ED9CB154C0B7DC0998833CEBDE09823F62A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432380   (50495) от 10.07.2024
+
+Мёртвые души / Моноспектакль А. Филиппенко (1988) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50495.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1985 году А. Филиппенко и М. Розовский становятся лауреатами посвященного 175-летию со дня рождения Н.В. Гоголя конкурса артистов-чтецов за «Повесть о капитане Копейкине». Вскоре появился моноспектакль «Мертвые души». 18 мая 1988 года на сцене Московского драматического театра имени К.С. Станиславского в рамках культурной программы творческого объединения «Союзтеатр» (   Читать дальше...   )Жанр: моноспектакльРежиссер: Марк РозовскийАктеры: Александр ФилиппенкоПродолжительность: 01:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA117B81A87417147263214E4E27507E0CD66282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 404418   (50494) от 10.07.2024
+
+Записки Пиквикского клуба (1972) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная редакция литературно-драматических программ ЦТ.
+Телеспектакль по роману Чарльза Диккенса.
+
+В центре спектакля неунывающий, эксцентричный, наивный и трогательный мистер Пиквик и его друзья - забавные и милые чудаки, наблюдающие жизнь, и попадающие в силу своей искренней наивности и простодушия в нелепые ситуации.Жанр: комедия, спектакльРежиссер: Александр ПрошкинПродолжительность: 01:11:23 + 01:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057588B37B3AC3F6212244AFB05F0F2A3402E498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476161   (50489) от 10.07.2024
+
+Любовь в двух действиях / Московский театр "Модернъ" (2012) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Максимов поставил свою пьесу в Московском драматическом театре   "Модернъ".
+
+Любить без оглядки и логики. Любить, растворившись в другом человеке, возможно недостойном тебя, который полюбил другую… Спектакль «Любовь в двух действиях» - мелодраматическая история о всепрощающей силе любви. Попытка поговорить со зрителями о том, что это такое - настоящая (   Читать дальше...   )Жанр: мелодрама, спектакльРежиссер: Андрей МаксимовПродолжительность: 00:58:13 + 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF32AB7D9B387E47D0DB7F13827B31F927DE3B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Snappy Driver Installer Origin R756 | Драйверпаки 23.08.0 / 23.08.2 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194276.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Pro 2023.003.20269 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194264.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5.1 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194262.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VMware vCenter Converter Standalone 6.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194261.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Audition 2023 23.6.0.61 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194255.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194252.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Davinci Resolve Studio 18.5.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194251.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Psiphon 3 build 179 (15.08.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194238.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194235.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5.1 Build 6 (x64) RePack by AlekseyP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194231.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ CCleaner 6.15.10623 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194230.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Media Encoder 2023 23.6.0.62 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194211.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Realtek Ethernet Driver 10.66 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194205.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ YouTube ReVanced Extended 18.32.36 (RVP v2.188.0) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194201.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Xara Designer Pro+ 23.3.0.67471 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194199.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Xara Web Designer+ 23.3.0.67471 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194189.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MAGIX Vegas Pro 21.0 Build 108 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194188.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Blender 3.6.2 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194187.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Bondware Poser Pro 13.1.449 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194185.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194181.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ CCleaner 6.15.10623 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194176.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft Office 2021 for Mac LTSC v.16.76 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194172.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Windows 11 (9in1) by Updated Edition (16.08.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194168.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MiniTool Partition Wizard All Editions (Pro-Delux-Enter-Ultim-Serv-Tech) 12.8 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194165.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ uTorrent Pro 3.6.0 Build 46884 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194161.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Topaz Photo AI 1.5.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194156.jpg" />
 </div>
 
 

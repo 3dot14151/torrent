@@ -1,29 +1,3 @@
-###  Публикация: 1834683   (250340) от 04.11.2025
-
-The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0 Build 20467470/dlc) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-The Outer Worlds 2 - долгожданное продолжение титулованной научно-фантастической ролевой игры от первого лица от Obsidian Entertainment (оцените эти эпитеты!) Пора выделить время в расписании - готовьтесь к захватывающему приключению с новой командой и новым оружием в новой колонии, где поджидают новые враги! Кто на новенькое?Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB465E6C97AE8ADA6E7B1C6A911592A88C66566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834684   (250339) от 04.11.2025
 
 Those Who Rule (2025) [En] (1.4.2) License GOG
@@ -32,7 +6,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250339.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Roman Triumph: Survival City Builder (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250338.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250337.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Knightica (2025) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250336.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250335.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Maze Of Realities: Flower Of Discord / Лабиринт Реальностей: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249954.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0 Build 20467470/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249377.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249374.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249369.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Scene voices38 [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249360.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Hoomanz (2025) [Ru/Multi] (0.3.26) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249340.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Necros [Deluxe E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249337.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249269.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Rebuild the History (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249203.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Orbyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249059.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249058.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Myths and Legends (2024) [Ru/Multi] (20121460/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249056.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.4.1/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249055.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249053.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249048.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249047.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack Decepticon [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249043.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249040.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Lonesome Guild (2025) [Multi] (Build 20207065) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249039.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Crysis Wars: Wreckage [En] (Mod / L / 1.0) 2012 | Chrjs
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249017.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Wreckage - финальная часть истории, которая бере
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B99B2F6D7BEAD2EF4F4FF191AE46D492F45F049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493824   (248988) от 08.05.2012
+
+Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orion: Dino Beatdown - кооперативный экшен от первого лица, разработанный студией Spiral Game Studios. Пятеро игроков возьмут на себя роль штурмовика, медика и снайпера, а затем отправятся в места обитания хищных велоцирапторов и тиранозавров. Выжить против доисторических рептилий в Dino Beatdown помогут футуристические автоматы, штурмовые винтовки, дробовики и различная боевая техника.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB928B70EDC89A0D3902286E5630F88223963AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

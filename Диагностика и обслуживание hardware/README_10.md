@@ -6,7 +6,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by zeka.k [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Core Temp 1.18.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185724.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniTool Partition Wizard / Enterprise / Ultimate / Server / Technician 12.7 ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182829.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MiniTool Partition Wizard Free 12.7 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182208.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ChimbaBench v2.5 (3.5.2.0) [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178904.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ System Ninja Pro 4.0 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177358.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ValiDrive 1.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174980.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Core Temp 1.19.5 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173576.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ System Ninja 4.0.1 + Plugins [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172774.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ System Ninja Pro 4.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172248.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ System Ninja Pro 4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171143.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ O&O Defrag Professional + Server 30.0 Build 1069 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170944.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ SiSoftware Sandra Lite 20/21 R25 (версия 31.137) [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164925.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ EASEUS Partition Master 10.8 Technician Edition WinPE [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158334.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Abelssoft SSD Fresh Plus 2015 Retail [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155287.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ OCCT 15.0.2 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150995.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MiniTool Partition Wizard Technician 12.3 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143336.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Paragon Drive Copy 15 Professional 10.1.25.779 + Boot Medias [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141588.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ SIW 2025 Technician 15.9.1009 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136957.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ O&O Defrag Professional 30.0 Build 1069 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136777.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ OCCT 15.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136776.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ FurMark 2.10.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136775.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133325.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Retail + BootCD + Boot 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133302.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ O&O Defrag Professional + Server 30.0 Build 1063 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128611.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ CPU-Z 2.17.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128594.jpg" />
 </div>
 
 

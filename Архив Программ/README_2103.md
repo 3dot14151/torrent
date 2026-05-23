@@ -6,7 +6,7 @@ Windows 7х64 Ultimate AUZsoft Black v.5.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76206.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Boot MiniCD Strelec WinPE 3.1 (11.02.2012) [Русский, Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76203.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ Autodesk AutoCAD Map 3D Enterprise 2012  [Rus Eng] [x32 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76193.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76174.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ PDF-XChange Viewer 2.5.201 PRO RePack by elchupacabra [Английский, Р�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76107.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PDF-XChange Pro v4.0201.201 (x32/x64/ML/RUS)+RePack+Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76091.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Helium Music Manager 8.4 Build 10293 Network Edition [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76066.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Reg Organizer 5.40 Beta 3 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76035.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ SaS планета 110418 [Multi, русский присутствует]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76005.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Autorun WPI DVD 12.02.2012 by andreyonohov [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75992.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ AVG Internet Security 2012 SP1 Beta 2 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75969.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Total Commander 7.56a Vi7Pack 1.85 Final [Русский, English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75937.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WinTools.net Ultimate v12.1.1  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75896.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 7 Ultimate SP1 WPI x64 By StartSoft v 8.2.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75819.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ TrustPort Antivirus 12.0.0.4857 AIO Pack ML/Rus (обновляемая)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75756.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ LiveCD ESET NOD32 Rus 08.02.12 4.0.63.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75755.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Windows 7х86 Ultimate AUZsoft Black v.4.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75754.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ DeviceLock 7.1.32972 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75740.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Windows DesktopPack 11.10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75730.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Trojan Remover 6.8.2 Build 2600 [Ml]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75711.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75686.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ uTorrent Portable x64 uTorrent 3.0 64-bit 25570 [Мульти/русский.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75597.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ TuneUp Utilities 2012 Build 12.0.3010 Final RePack + Portable by KpoJIuK [RUS, E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75585.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ DivX Plus Pro v8.2.2 Build 10.3.2 (1.8.5.28)  Eng/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75522.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Spyware Terminator Premium 2012 v3.0.0.54  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75499.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ MKVToolnix 5.3.0 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75379.jpg" />
 </div>
 
 

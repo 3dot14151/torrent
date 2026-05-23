@@ -1,55 +1,3 @@
-###  Публикация: 1734088   (15496) от 06.06.2025
-
-Наследник / Потомок / Gwigongja / The Childe (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молодой боксёр Марко Хан — так называемый копино, корейско-филиппинских кровей — всю жизнь прожил на Филиппинах и никогда не видел отца-корейца. Его мать тяжело больна, поэтому, пытаясь накопить на лечение, парень хватается за любые возможности заработка и разыскивает корейских родственников. Однажды на него выходят адвокаты, утверждающие, что его богатый папа наконец-то (   Читать дальше...   )Производство: Корея Южная / Goldmoon Film, Next Entertainment WorldЖанр: боевик, криминалРежиссер: Пак Хун-джонАктеры: Ким Сон-хо, Кан Тхэ-джу, Ким Ган-у, Ко А-ра, Хо Джун-сок, Чон Ра-эль, Ку Со-джун, Ли Ги-ён, Чхве Джон-у, Джастин Джон ХарвиПеревод: Дублированный (Велес), Многоголосый, (TVShows), авторский (Ю. Сербин)Язык озвучки: Русский, корейскийСубтитры: Русские (Forced, Full), английские, вьетнамскиеПродолжительность: 01:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E927AD94312CE9375FB84B9C1EBAE0CB601AF0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800750   (15480) от 06.06.2025
-
-Пункт назначения 4 / The Final Destination (2009) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-У Ника О`Бэннона было видение — на автогонках произойдёт ужасная трагедия, жертвами которой станут его друзья и он сам. Как и прежде группе счастливчиков, благодаря Нику, удаётся выжить, но смерть вовсе не спешит вычёркивать их из своего списка.Производство: США / FlipZide Pictures, New Line Cinema, Practical PicturesЖанр: ужасы, триллерРежиссер: Дэвид Р. ЭллисАктеры: Бобби Кампо, Шантель Ван Сантен, Ник Зано, Хейли Уэбб, Майкелти Уильямсон, Криста Аллен, Эндрю Фисцелла, Джастин Уэлборн, Стефани Онор, Лара ГрайсПеревод: дублированный официальный (Мосфильм-Мастер, Line In), профессиональный многоголосый (Киномания, ICTV), авторский (Юрий Сербин, Андрей Гаврилов, Дмитрий Есарев), любительский одноголосый (Сергей Черкасов)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F107D0442C75694C6297188EDFF7B75609A68C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800836   (15465) от 06.06.2025
 
 Хлеб и розы / Bread and Roses (2000) BDRip [H.264] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15465.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15374.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15355.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15333.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15320.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15309.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15301.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15269.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15268.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15236.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15188.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15174.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15074.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14990.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14966.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14881.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14861.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14785.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14767.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14683.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14640.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14636.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14634.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14594.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB9B0AA72DB2410C66E937F51053D2512DBF7F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576759   (14565) от 15.06.2025
+
+Франкенштейн / Frankenstein (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в современном Лос-Анджелесе, а повествование в ней ведется от лица монстра Адама, созданного и брошенного супругами Виктором и Элизабет Франкенштейнами, занимающимися научными экспериментами.Производство: США, Германия / Bad Badger, Eclectic Pictures Inc.Жанр: фантастика, драмаРежиссер: Бернард РоузАктеры: Завьер Сэмюэл, Кэрри-Энн Мосс, Дэнни Хьюстон, Тони Тодд, Маккенна Грейс, Майя Эрскин, Кэрол Энн Уоттс, Джеймс Лью, Мэттью Джейкобс, Дэйв ПресслерПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, английскийСубтитры: Английский (full, SDH)Продолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABDE5BF8D895CB5B1B20B66D9566563B53EC522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600120   (14563) от 15.06.2025
+
+Достать ножи: Стеклянная луковица / Glass Onion: A Knives Out Mystery (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Бенуа Блан отправляется в Грецию, где ему снова попадается запутанное дельце.Производство: США / Netflix, T-StreetЖанр: детектив, комедия, криминалРежиссер: Райан ДжонсонАктеры: Дэниэл Крэйг, Эдвард Нортон, Жанель Моне, Кэтрин Хан, Лесли Одом мл., Кейт Хадсон, Дэйв Батиста, Джессика Хенвик, Мэдлин Клайн, Ноа СеганПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, full), Украинские (forced, full), Английские (SDH)Продолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2A1E480B8961193EC7AB417101AB5458ECCD82
 ```
 
 https://mybot314.ru/tekegram_catalog/

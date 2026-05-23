@@ -6,7 +6,7 @@ DxO Optics Pro 10.4.0 Build 480 Elite RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745739.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Office 2013 SP1 Professional Plus 15.0.4711.1000 (x86) RePack by D!ako
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745708.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sogou Explorer 6.2.5.21336 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745522.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Box Sync 4.0.7415 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745520.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ JottaCloud 3.1.49.445 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745519.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Registry Life 5.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745504.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AIMP 4.70 Build 2222 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745502.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1804 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745498.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ JumpShare 2.0.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745465.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Opera 69.0.3686.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745447.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Athentech Perfectly Clear Complete 3.10.0.1804 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745444.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe AIR 21.0.0.215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745387.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CocCoc 55.2.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745385.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ QQ Browser 9.4.8030.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745380.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ AnyMP4 Video Converter Ultimate 7.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745379.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ SQL Dynamite 1.9.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745377.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Leibo 6.0.112.11768 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745373.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ MediaHuman YouTube Downloader 3.9.9.41 (1507) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745371.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Pepakura Designer 4.1.7a RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745370.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ TweakPower 1.103 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745366.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Luminar 4.3.0.6160 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745364.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ ABViewer Enterprise 14.1.0.74 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745363.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ pCloud Drive 3.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745309.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ OziBox Sync 2.1.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745302.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ MEGA Sync Client 2.9.4 (d887a) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745301.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Replay Media Catcher 6.0.1.27 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745298.jpg" />
 </div>
 
 

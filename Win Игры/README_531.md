@@ -1,29 +1,3 @@
-###  Публикация: 1787961   (23270) от 28.03.2025
-
-Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/dlc) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Ryse: Son of Rome рассказывает историю Мариуса Тита, молодого римского солдата, на глазах которого, от рук варваров, погибает вся его семья. После этого, мечтая о мести, он направляется с римской армии к Британии. Быстро добиваясь успехов, Мариус должен стать лидером войска и защитником Империи. Но вскоре он обнаруживает, что его планы по отмщению могут быть реализованы (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF1262D39343D23F9F31747ECD084EA2B064924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787977   (23266) от 28.03.2025
 
 Nordhold (2025) [Ru/Multi] (1.0) Repack seleZen
@@ -32,7 +6,7 @@ Nordhold (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23266.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ I Am Future: Cozy Apocalypse Survival (2024) [Ru/Multi] (1.2.0.009r) Repack Let'
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23257.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23253.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.0.120/dlc) Repack FitGirl [Resistance
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23239.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) Repack Let'sРlay [Defin
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23228.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ai Limit (2025) [Ru/Multi] (build 17884331/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23223.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Harmony Chronicles 3: Cat Out of the Bag / Хроники Гармонии 3: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23201.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Enchanted Stories: Mystic Woods / Зачарованные Истории: Та�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23199.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.7.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23189.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23169.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+556/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23168.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23167.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23160.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23154.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23153.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Crash Time - Undercover (2012) [Multi] (5.0.33) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23151.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23146.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23142.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ The Matchless Kungfu (2023) [Ru/Multi] (1.1.5.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23139.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.5.5/dlc) Repack Wanterlude [Supporter Pac
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23118.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23111.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23094.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9203.21231/dlc) Repack Wanterlude [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23079.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23077.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23062.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467885AE5DB77FCDE7481FBD4519982343E0ED4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788344   (23055) от 30.03.2025
+
+The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Призрак Фрэнка Стоуна мучает Сидар-Хиллз - город, который так и не оправился после ужасных преступлений. Группа подростков погружается в мир кровавого наследия Стоуна. Опыт этот шрамами отпечатается на их судьбах и судьбах целых семей, вплетаясь в саму материю реальности.Тип издания: RepackРазработчик: Supermassive GamesЖанр: Horror, AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
 ```
 
 https://mybot314.ru/tekegram_catalog/

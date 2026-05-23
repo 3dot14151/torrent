@@ -1,55 +1,3 @@
-###  Публикация: 1004477   (836033) от 07.04.2016
-
-Девушка на фотографиях / The Girl in the Photographs (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Размеренная и нудная жизнь красивой провинциалки Колин, меняется в тот миг, когда на её почту начинают приходить фотографии с изображением зверски убитых молодых девушек. Полиция посчитала эти фотографии чей то злой шуткой, но никак не выходки маньяка. Колин начинает выкладывать эти фото в сеть, где они набирают бешенную популярность. Эти фото начали затмевать работы (   Читать дальше...   )Производство: СШАЖанр: Триллер, Криминал, УжасыРежиссер: Ник СаймонАктеры: Митч Пилледжи, Кэтрин Изабель, Кэл Пенн, Кристи Карлсон Романо, Кенни Вормолд, Миранда Рэй Майо, Клаудия Ли, Эва Борн, Тоби Хемингуэй, Тоби ЛевинсПеревод: Двуголосый закадровый, любительский (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA4277511AB8732F7CE8A06C4B86E5D13253DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004850   (836031) от 07.04.2016
-
-Игрок / The Gambler (2014) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джим Беннетт — рисковый парень. Днем он — гениальный писатель и отличный преподаватель, ночью — заядлый игрок. Он глубоко увяз в мире, где закон — пустой звук, и однажды ставит на кон все, включая собственную жизнь. Те, кому он должен, опасны, а помочь ему может только тот, кто еще опаснее. Достоин ли второго шанса человек, проигравший самого себя? А, если да, то (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: Триллер, Драма, КриминалРежиссер: Руперт УайаттАктеры: Марк Уолберг, Джон Гудман, Бри Ларсон, Майкл Кеннет Уильямс, Джессика Лэнг, Гриффин Кливлэнд, Омар Лейва, Энтони Келли, Стив Парк, Эмори Коэн, Джордж Кеннеди, Чил Конг, Дэвон МакДональд, Эймин Джозеф, Сьён Солсберри, Тибон Митчелл, Джесмонд Кэрролл, Риа Уилкинсон, Дж. Денис, Элвин ИнгПеревод: Дублированный, Авторский (одноголосый, закадровый)Язык субтитров: Русский, украинский, английскийПродолжительность: 01:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3649B196F930A0F55C5AEBAACCA9C7C749565F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004767   (836030) от 07.04.2016
 
 Пятьдесят оттенков черного / Fifty Shades of Black (2016) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836030.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836026.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836022.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836018.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836013.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ G. I. Joe. Бросок кобры: Снейк Айз / Snake Eyes: G.I. Joe Ori
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836009.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836007.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836003.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835946.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835942.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835940.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835938.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835937.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835930.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835923.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835919.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835911.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835910.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835884.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835867.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835866.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835864.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835862.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835859.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE857D34383CD1966A5E7231A36634D1CFBF017A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501241   (835856) от 09.10.2021
+
+Портал / Doors (2021) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835856.jpg" />
+</div>
+
+
+###  Подробнее
+
+По всему земному шару внезапно стали появляться миллионы загадочных инопланетных порталов. Человечеству предстоит выяснить причину появления и предназначение этих космических аномалий. У группы исследователей-добровольцев, рискнувших проникнуть внутрь этих объектов, есть всего лишь 12 минут, чтобы познать тайну вселенной, либо исчезнуть навсегда. То, что им открывается, (   Читать дальше...   )Производство: США / Bloody Disgusting, BoulderLight PicturesЖанр: ФантастикаРежиссер: Саман Кешаварц, Джефф Дэсом, Дуган О’НилАктеры: Джош Пек, Лина Эско, Уилсон Бетел, Кип Мэлоун, Кэти Хан Нгуйен, Джулианна Коллинз, Арик Флойд, Рори Энн Даль, Christopher Black, Трэйси РозенблюмПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F820A04C6E2B361EAEC424F00BB8F4BF1C25CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501309   (835855) от 09.10.2021
+
+Восхождение пехотинца: Начало / Rise of the Footsoldier: Origins (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повидавший виды солдат Тони Такер возвращается с Фолклендской войны в родную Англию. Озлобленный на весь мир, он стремительно зарабатывает себе репутацию в криминальных кругах Эссекса и создает крупную сеть распространения наркотиков, но вскоре сам погружается в наркозависимость, совершает череду ошибок и воочию лицезрит крах построенной им империи.Производство: Великобритания, Empire PicturesHaymarket FilmsPlatinum PicturesЖанр: Боевик, драма, криминалРежиссер: Ник НевернАктеры: Винни Джонс, Крэйг Фэйрбрасс, Терри Стоун, Кит Аллен, Мишель Коллинз, Бронсон Уэбб, Сэм Гиттинс, П.Х. Мориарти, Эмма Батт, Билли МюррэйПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: отсутствуютПродолжительность: 01:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8407DB4227E34031B07A6FEB8720838F7C6EF6DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

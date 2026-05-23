@@ -6,7 +6,7 @@ Molecul -  Где нет места цифрам… осталась ЛЮБОВ�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297766.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2019 Professional 16.7.6 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297750.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rhinoceros 7 v7.1.20314 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297749.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ WhatsApp 2.2045.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297745.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ant Download Manager Pro 2.0.1 Build 75447 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297740.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Tuneskit Spotify Converter 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297739.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Compressor 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297738.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297723.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Kim Wilde - Wilde Winter Songbook (2013) [FLAC|Lossless] <Pop, Holiday, Christma
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297680.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ R-Drive Image Technician 6.1 Build 6102 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297672.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ GridinSoft Anti-Malware 3.0.65 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297670.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Google Chrome 55.0.2883.75 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297667.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ ExperienceIndexOK 1.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297666.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NVIDIA PhysX System Software 9.16.0318 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297657.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kizaru - BORN TO TRAP (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Trap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297616.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ The Bat! Professional 9.3.0.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297607.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Bat! Professional 9.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297599.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Earth Protect Squad v2.07.64b [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297598.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297597.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Microsoft Visual Studio 2019 Enterprise 16.7.6 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297596.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297572.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Mad Contacts Widget 1.32 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297568.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297566.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Windows 10 Manager 2.0.2 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297564.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Adobe Audition CC 2017.0.1 10.0.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297560.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Tails 2.7.1 [анонимный доступ в сети] [i386] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297557.jpg" />
 </div>
 
 

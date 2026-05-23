@@ -6,7 +6,7 @@ Davinci Resolve Studio 17.2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016385.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ EZ CD Audio Converter 9.3.2.1 (x64) Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016375.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.0 Build 11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016359.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Office Standard 2019 for Mac v16.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016333.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ FSNotes 4 v4.9.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016325.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ myTracks 4.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016324.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Duplicate Finder and Remover 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016323.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Principle 6 v6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016322.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Find Any File (FAF) 2.3 b15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016321.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Art Files 3 v3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016320.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Mp3tag 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016319.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Grids for Instagram 7.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016311.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Capture One 21 Pro Pro Beta4 v14.2.0.121 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016302.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Folx GO+ 5.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016297.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Luminar AI 1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016287.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ FileZilla 3.54.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016285.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ iToolab UnlockGo 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016282.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ LDPlayer 4.0.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016276.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ GPU-Z 2.39.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016271.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Wondershare Filmora Х v10.2.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016270.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ OCCT 8.2.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016264.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ DiskTrix UltimateDefrag 6.0.94.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016256.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016248.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Bulk Crap Uninstaller 5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016242.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Microsoft .NET 5.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016239.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016224.jpg" />
 </div>
 
 

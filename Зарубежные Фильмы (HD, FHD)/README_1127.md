@@ -1,55 +1,3 @@
-###  Публикация: 1777319   (28570) от 05.02.2025
-
-Космический мальчик / SpaceBoy (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-11-летний Джим — одаренный мальчик, интересующийся наукой и космосом. Приехав в новый город со своим отцом, он решает принять участие в научном конкурсе со своей одноклассницей Эммой. Несмотря на протесты, Джим убеждает ее повторить проект Киттингера (первый человек, побывавший на стратостате практически на границе космоса в 1960 году) «Эксельсиор» и построить огромный (   Читать дальше...   )Производство: Бельгия / Bulletproof Cupid, Kwassa FilmsЖанр: приключения, семейныйРежиссер: Olivier PairouxАктеры: Базиль Грюнбергер, Альбан Массон, Янник Ренье, Беренис Баоо, Жан-Бенуа Югё, Петер ван ден Бегин, Sacha Teichman, Lior Zwikielski, Marie du Bled, Michel SchillaciПеревод: ДублированныйЯзык озвучки: Русский, ФранцузскийСубтитры: русские (hardsub)Продолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6780040B2BF4828A3347682F4485E33B948AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777324   (28561) от 05.02.2025
-
-Инкогнито / Incognito (1997) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Талантливый художник пишет гениальные подделки великих мастеров, но мечтает ставить свою подпись на картине. Делая последний заказ, он неожиданно попадает в грязную преступную махинацию, встречает очаровательную женщину и находит свою судьбу...Производство: США / Morgan Creek ProductionsЖанр: мелодрама, криминал, триллерРежиссер: Джон БэдэмАктеры: Джейсон Патрик, Ирен Жакоб, Томас Локйер, Иэн Ричардсон, Саймон Чэндлер, Пип Торренс, Майкл Кокрейн, Род Стайгер, Того ИгаваПеревод: дублированный (Варус Видео), профессиональный двухголосый закадровый (Екатеринбург Арт)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1EDC6E92AD3F8F80C03DA797AC4B70986343CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777344   (28560) от 05.02.2025
 
 Остин Пауэрс: Голдмембер / Austin Powers in Goldmember (2002) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28560.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28533.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28493.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28489.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28427.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28396.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28389.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28385.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28333.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28259.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28240.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28223.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28202.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28201.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28197.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28192.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28187.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28158.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28127.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28115.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28064.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28057.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28022.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27963.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:272AF29C276ECE8CB0CF3642DC7BB11FC147BE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779104   (27954) от 11.02.2025
+
+Королевы убийства / Jawbreaker (1999) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27954.jpg" />
+</div>
+
+
+###  Подробнее
+
+День рождения - действительно грустный праздник, особенно если вместо подарка именинницу ждёт смерть... В каждой американской школе есть некоронованные королевы, которые всегда оказываются на высоте положения и поэтому смотрят на окружающих сверху вниз. Кортни, Джули и Марси счастливо витали в облаках, пока над их Олимпом не сгустились тучи. Весёлая троица решила (   Читать дальше...   )Производство: США / Crossroads Films, Jawbreaker Productions Inc., Kramer-Tornell ProductionsЖанр: комедия, криминалРежиссер: Даррен СтейнАктеры: Роуз МакГоун, Ребекка Гэйхарт, Джули Бенц, Джуди Грир, Этан Эриксон, Чад Крист, Шарлотта Айянна, Татьяна Али, П.Дж. Соулз, Уильям Кэтт, Джефф Конэвей, Мэрилин Мэнсон, Кэрол Кейн, Пэм Гриер, Колл ХарингтонПеревод: профессиональный двухголосый закадровый (Видеосервис; Ульпаней Эльром; Гарсу Пасаулис)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6733A30A6D59470F6E298B6262E2A55A6756B27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779137   (27951) от 11.02.2025
+
+Каникулы в Мексике / Гринга / Gringa (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27951.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Мардж – неуверенная в себе девушка с проблемами в общении с другими людьми – живёт вместе с матерью в Калифорнии. У них пока нет собственного дома, но её мать – риелтор, благодаря чему они могут временно проживать в продаваемых домах. Отец Мардж бросил их, когда ей было всего два года от роду, и по слухам живёт где-то в Мексике на берегу океана. Возможно, (   Читать дальше...   )Производство: США / Momentum FilmsЖанр: драма, комедия, спортРежиссер: Марни Энг, Э.Дж. ФерстерАктеры: Джуди Грир, Роселин Санчес, Стив Зан, Джесс Габор, Gala Montes, Хорхе А. Хименес, Валентина Будзурро, Emma Ramos, Tomas Ruiz, Nico BracewellПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405B5922BBF4413B3750971ED15256489090E026
 ```
 
 https://mybot314.ru/tekegram_catalog/

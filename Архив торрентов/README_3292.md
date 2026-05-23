@@ -6,7 +6,7 @@ GPU-Z 2.5.0 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321041.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ O&O ShutUp10 1.6.1394 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321033.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ O&O Defrag Professional 21.1 Build 1211  RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321028.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mp3tag 2.98 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321027.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Guitar Hero [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321015.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Hospital Records @ ADE 2016 (Beatport Exclusive) (2016) [MP3|320 Kbps] <Dru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321004.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ iMazing 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321000.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Macrorit Partition Expert 6.3.4 Unlimited Edition RePack (& Portable) by 9649 [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320974.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Macrorit Data Wiper 6.3.4 Unlimited Edition RePack (& Portable) by TryRooM [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320973.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Macrorit Partition Extender 2.0.2 Unlimited Edition  RePack (& Portable) by 9649
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320971.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sandboxie 5.59.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320970.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ImgDrive 1.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320968.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ IObit Driver Booster Pro 10.0.0.36 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320967.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320959.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ T-Rock - Rapid Fire (2012) [MP3|320 кб/с]<Dirty South, Southern Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320957.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320955.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320953.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320923.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Room Arranger 8.3.0.539 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320906.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ BitTorrent Pro 3.13 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320904.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320890.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Amsterdam ADE (2019) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320886.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - 8 From HeavensGate Volume 1 (Mixed by Woody Van Eyden) (2019) [MP3|320 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320883.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Redux Ibiza Selection (Mixed by Jon The Dentist) (2019) [MP3|320 Kbps] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320882.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.25 (1210) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320880.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ YTD Video Downloader PRO 5.9.10.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320879.jpg" />
 </div>
 
 

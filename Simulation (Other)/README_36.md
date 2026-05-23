@@ -6,7 +6,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (30.04.2025/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19427.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Human Fast Food (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19284.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SubwaySim 2 (2025) [Multi] (2153) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19200.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack Decepticon [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19103.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aquarist (2024) [Ru/Multi] (Build 18222695/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19090.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ShoppingMall: Manager Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19047.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Teardown (2022) [Ru/Multi] (1.6.3/dlc) Repack Other s [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18955.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mind Over Magic (2025) [Ru/Multi] (1.0.536.1435.9b6043f8) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18780.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ iDigging (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18759.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18681.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18677.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18670.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Liquor Store Simulator (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18624.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.102/dlc) Repack FitGirl [Digital Col
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18588.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Codename: Ocean Keeper / Ocean Keeper: Dome Survival (2024) [Ru/Multi] (1.0) Rep
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18566.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tank Squad (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18565.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Rising Star 2 (2020) [Ru/Multi] (2.98.354/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18534.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18366.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18128.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18091.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18019.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sun Haven (2023) [Ru/Multi] (2.0.2c/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18002.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build 18494183/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17986.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Toy Shop Simulator (2025) [Ru/Multi] (1.0.0b6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17788.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build #268/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17770.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Train Valley 2 (2019) [Ru/Multi] (1.8.8/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17740.jpg" />
 </div>
 
 

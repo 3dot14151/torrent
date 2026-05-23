@@ -6,7 +6,7 @@ Sumatra PDF 3.3.12434 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883501.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Unreal Commander 3.57 Build 1457 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883500.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ UninstallView 1.36 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883498.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MediBang Paint Pro 25.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883494.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MKVToolNix 45.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883485.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Bigasoft Video Downloader Pro 3.13.7.6249 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883435.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SlimComputer 1.0.4 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_883414.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ HandBrake 1.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883395.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SamDrivers 20.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883394.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ inPixio Photo Editor 10.1.7389 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883392.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Auslogics Driver Updater 1.24.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883294.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ YoWindow Unlimited Edition 4 Build 103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883287.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Glary Utilities Pro 5.69.0.90 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883199.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883194.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883193.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Readiris Corporate 16.0.22 Build 9591 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883178.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Windows 8.1 40in1 (x86/x64) +/- Office 2019 by Eagle123 (03.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883145.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883097.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v5.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883069.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ SamDrivers 20.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883061.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dism++ 10.1.21.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883056.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ CorelDRAW Graphics Suite 2020 22.0.0.412 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883015.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Paragon Hard Disk Manager Advanced 17.13.1 RePack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882998.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Readiris Pro 16.0.2 Build 9592 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882895.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Transmission Remote GUI 5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882887.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Microsoft Windows and Office ISO Download Tool 4.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882877.jpg" />
 </div>
 
 

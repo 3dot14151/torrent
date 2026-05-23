@@ -1,82 +1,3 @@
-###  Публикация: 941662   (455871) от 30.09.2015
-
-Алексей Чапыгин | Белый скит (1986) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алексей Павлович Чапыгин (1870--1937) - русский советский писатель, один из основоположников советского исторического романа, создатель крупных исторических полотен "Разин Степан" и "Гулящие люди".
-Предлагаемый сборник познакомит читателей с ранним (1900-1920-е годы) творчеством Чапыгина, представленным "петербургскими" рассказами - (   Читать дальше...   )Жанр: Отечественная проза, повести, рассказыПродолжительность: 26:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3566CE04409A468F2EE51F0FBD95E00A8FD51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408372   (455772) от 12.09.2020
-
-Брайан Мерчант | Универсальное устройство. Неизвестная история создания iPhone (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-9 января 2007 года Стив Джобс презентовал iPhone, ставший технологическим и экономическим феноменом. Самый успешный продукт Apple, годовые продажи которого достигли миллиарда! Что же стоит за созданием этого технологического «чуда», без которого ни один современный человек уже не может представить свою жизнь? Компания Apple хранит эту информацию в секрете, транслируя (   Читать дальше...   )Жанр: ЖЗЛПродолжительность: 15:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF9E62712524D8DEF1800FD4222C006A39F37183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408539   (455770) от 12.09.2020
-
-Николай Полевой | Рассказы русского солдата (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Рассказы русского солдата» - повесть выдающегося русского писателя Николая Алексеевича Полевого (1796-1846). *** Собеседник главного героя делится воспоминаниями о войне, превратностях службы и собственной жизни. Другими известными произведениями автора являются «Блаженство безумия», «Краковский замок», «Живописец», «Эмма», «Дедушка русского флота», «Елена Глинская», (   Читать дальше...   )Жанр: Повесть, биографияПродолжительность: 02:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590D851AEB2C626D0438BF857921335416D56616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569124   (455731) от 11.08.2022
 
 Эдуардо Де Филиппо | Великая магия (2003) [MP3, Юрий Яковлев и др.]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455731.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455699.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455670.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455597.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455592.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455566.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455451.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455413.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455408.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455406.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455405.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455277.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455169.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455168.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455161.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455159.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455155.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455150.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455148.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455120.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455083.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455072.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455060.jpg" />
 </div>
 
 
@@ -676,6 +597,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098581FABC7D72BBD209E6AD464CEE13CFCA5087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247065   (454930) от 14.09.2018
+
+Ирина Суздалева | Ведьма в вампирской академии (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы думаете, что это книга про обычных вампиров и ведьм? Как бы не так. Вампиры там пьют кровь не для того, чтобы жить. А главная героиня этой истории – Алиса, совсем необычная ведьмочка. Точнее, она была обычной до одного происшествия, после которого ее жизнь очень сильно изменилась. Вместо "Академии магии", куда она должна была поступить после окончания (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 09:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDC4DC895325B16C9F213431E3CB1C9F7FEEA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162776   (454861) от 03.09.2017
+
+Антон Макаренко | Флаги на башнях (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454861.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-е годы XX века.
+Дороги беспризорников сходятся в трудовой колонии имени Первого мая. Общая жизнь меняет их характеры и превращает в достойных граждан молодой Советской Республики.
+Книга основана на опыте работы Антона Семеновича Макаренко в колонии имени Ф.Э.Дзержинского.
+Антон Семёнович Макаренко был не только выдающимся педагогом, но и, бесспорно, талантливым (   Читать дальше...   )Жанр: Советская прозаПродолжительность: 17:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C3BE6F7C8B2F4CC4BB3ADB6498016200B41E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162943   (454859) от 03.09.2017
+
+Алексей Декань | Силуэты (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студенты, сверхъестественные способности которых изучаются под тщательным надзором хладнокровных и расчетливых преподавателей. Секретная организация, пытающаяся во что бы то ни стало сохранить свое существование в тайне. Юноша-калека, отчаянно ищущий свое предназначение в жизни. Безумный ученый с комплексом бога и противостоящий ему беспристрастный следователь. Всем (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1437F6141211B45CDB1AF0417ADED858CB96047
 ```
 
 https://mybot314.ru/tekegram_catalog/

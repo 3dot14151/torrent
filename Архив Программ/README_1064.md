@@ -6,7 +6,7 @@ SAM CoDeC & DeCoDeR Pack 2015 5.90 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506900.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 8.0.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506899.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 62.0.3331.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506869.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acronis BootDVD 2015 Grub4Dos Edition 30 (8/31/2015) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506837.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maxthon Browser 5.3.8.1300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506826.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ashampoo Snap 10.1.0 RePack (&Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506823.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Display Driver Uninstaller 18.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506818.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Revo Uninstaller Pro 4.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506816.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AdwCleaner 5.005 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506785.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe Illustrator CC 2019 23.0.5.625 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506764.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Auslogics BoostSpeed 11.0.1.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506762.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NETGATE Registry Cleaner 4.0.405.0 Final [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506739.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DVDFab 8.2.0.7 Final RePack (& portable) by KpoJIuK [Ru/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506734.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Dropbox 1.5.12 Experimental Build [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506732.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Revo Uninstaller Pro 4.1.5 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506722.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ LibreOffice 3.6.1 Stable + Help Pack  [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506698.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Boilsoft Utilities 23.08.2012 [Eng] RePack by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506694.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kaspersky Rescue Disk 10.0.31.4 (26.08.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506692.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506685.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ K-Lite Codec Pack Update 9.2.4 Build 2012-08-24 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506646.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506636.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Krento 3.0.1.0 (32bit, 64bit) [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506630.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Kolor Autopano Giga 2.6.4 Final Portable by CheshireCat [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506628.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ AVS All-In-One Install Package 2.2.2.94 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506624.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Sony Movie Studio Platinum 12.0 v 12.0.333 Portable by punsh [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506623.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Norton Power Eraser 3.0.0.21 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506588.jpg" />
 </div>
 
 

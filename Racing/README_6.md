@@ -6,7 +6,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636809.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Streets of Moscow / Адреналин 2: Час пик  (L) [Ru] 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634616.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Gold Pack]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633810.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Urban Trial Playground (2019) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631393.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Moto Racer 4 (2016) [Ru/Multi] (1.0/dlc) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631191.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Moto Racer 4 (2016) [Ru/Multi] (1.5/dlc) Repack Other s [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630914.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dangerous Driving (2019) [En] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625438.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625024.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Urban Trial Playground (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623745.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622180.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (5.5.6) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621841.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Motor Rock (2013) [Ru/Multi] (1.2.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619304.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NASCAR '15 (2015) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619199.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ F1 2016 (2016) [Ru/Multi] (1.8/dlc) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617648.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Need for Speed: Underground 2 (2004) [Ru] (1.2) R.G. Games Warrior
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616150.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608865.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596713.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Colin McRae Rally Remastered (2014) [Multi] (1.0) Repack xGhost
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585170.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Crashday / Universal HD 103 [Multi4/Ru] (RePack/Mod) 2011 |  PUNISHER
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576093.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ GRIP: Combat Racing (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573890.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Street Racing Syndicate (2005) [Ru] (1.1) RePack ivandubskoj
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570075.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ DiRT Rally (2015) [Ru/En] (1.2/dlc) Repack R.G. Games
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570002.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Colin McRae: DiRT 2 (2009) [Ru] (1.1.0.0) Repack YelloSOFT
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568268.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Blur (2010) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568263.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564879.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) License RELOADED [Complete E
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564661.jpg" />
 </div>
 
 

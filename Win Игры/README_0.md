@@ -6,7 +6,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Repack SE7EN [Premium Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069403.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Underling Uprising (2026) [Ru/Multi] (1.0.0.404) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069386.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack Let'sРlay [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069351.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Scene voices38 [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069350.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Iridio (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069338.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Valor of Man (2026) [Multi] (1.1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069320.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CrossCode (2018) [Ru/Multi] (1.4.2-4/dlc) Repack Let'sРlay [Complete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069230.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069229.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069195.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mafia II (2): Definitive Edition (2020) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069185.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mafia III (3): Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069184.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Restore Your Island (2026) [Ru/Multi] (Build 22753376) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069182.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Don't Play This (2026) [Ru/Multi] (1.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069181.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Grind Survivors (2026) [Ru/Multi] (4053/dlc) Repack Let'sРlay [Supporter Editio
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069177.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack Wanterlude [Ultima
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069039.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Repack Let'sРlay [Digital
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069025.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Scene Rune [Digital Deluxe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069019.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Scene Rune [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068988.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Resident Evil 7 Biohazard (2017) [Ru/Multi] (1.0.0.7/dlc) Repack Let'sРlay [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068987.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068986.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Repack Let'sРlay [Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068939.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068938.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Outbound (2026) [Ru/Multi] (1.0.5.810/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068907.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Meltopia (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068905.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Duriano (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068901.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack FitGirl [Limite
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068899.jpg" />
 </div>
 
 

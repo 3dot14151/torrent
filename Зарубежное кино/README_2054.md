@@ -1,57 +1,3 @@
-###  Публикация: 476099   (85659) от 31.03.2012
-
-Страх и ненависть в Лас Вегасе / Fear and Loathing in Las Vegas (1998) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм режиссёра Терри Гиллиама, основанный на книге Хантера С. Томпсона «Страх и отвращение в Лас-Вегасе. Дикое путешествие в сердце американской мечты».
-Журналист Рауль Дюк (Джонни Депп) и его адвокат Гонзо (Бенисио дель Торо), едут в Лас-Вегас. Их главная цель в Лас-Вегасе — статья для журнала о мотогонке «Минт 400», но путешествие быстро превращается в серию острых галлюцинаций.
-Основа фильма - автобиография Хантера Стоктона Томпсона, отправившись в Лас-Вегас со своим адвокатом Оскарам Акостой чтобы написать статью для журнала Rolling Stone и поймать американскую мечту они готовы нарушить все существующие правила и законы. Самый запрещаемый, возвышаемый и противоречивый фильм в истории кино.Жанр: биография, комедияРежиссер: Терри Вэнс Гиллиам / Terrance Vance GilliamАктеры: Джонни Депп, Бенисио Дель Торо, Тоби Магуайр, Эллен Баркин, Гэри Бьюзи, Кристина Риччи, Марк Хэрмон, Кэмерон Диаз, другие.Перевод: профессиональный ногоголосый закадровый (West Video)Продолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F6D913DDBA2CB38D41BB4FF976F7E4DABB8AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359687   (85636) от 31.03.2012
-
-Фарго / Fargo (1995) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Муж (Мэйси) нанимает двух типов (Бусеми и Преснелл), чтобы те похитили его жену, надеясь, что ее богатый отец заплатит приличный выкуп. Это повлекло за собой целую цепь кровавых событий и вереницу трупов, ибо из-за чрезвычайной глупости, жадности и невезения исполнителей, заказчика и папаши все пошло наперекосяк. Жуткая, мрачная история, блестяще поставленная, сыгранная (   Читать дальше...   )Жанр: Криминал, Драма, ТриллерРежиссер: Джоэл Коэн / Joel CoenАктеры: Фрэнсис МакДорманд / Frances McDormand, Уильям Х. Мэйси / William H. Macy, Стив Бусеми / Steve Buscemi, Харви Преснелл / Harve Presnell, Питер Стормаре / Peter StormareПеревод: Авторский (одноголосый закадровый)Субтитры: нетПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB29BC57336530294347A39F127C4276C4CB4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476401   (85619) от 31.03.2012
 
 Ограбление по-итальянски / The Italian Job (2003) HD DVDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85619.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85618.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85613.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85596.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85595.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85569.jpg" />
 </div>
 
 
@@ -221,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85563.jpg" />
 </div>
 
 
@@ -249,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85560.jpg" />
 </div>
 
 
@@ -275,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85552.jpg" />
 </div>
 
 
@@ -301,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85538.jpg" />
 </div>
 
 
@@ -327,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85530.jpg" />
 </div>
 
 
@@ -353,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85527.jpg" />
 </div>
 
 
@@ -380,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85514.jpg" />
 </div>
 
 
@@ -406,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85489.jpg" />
 </div>
 
 
@@ -433,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85470.jpg" />
 </div>
 
 
@@ -462,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85429.jpg" />
 </div>
 
 
@@ -489,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85404.jpg" />
 </div>
 
 
@@ -515,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85401.jpg" />
 </div>
 
 
@@ -541,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85396.jpg" />
 </div>
 
 
@@ -569,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85394.jpg" />
 </div>
 
 
@@ -597,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85383.jpg" />
 </div>
 
 
@@ -623,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85381.jpg" />
 </div>
 
 
@@ -651,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85369.jpg" />
 </div>
 
 
@@ -677,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85368.jpg" />
 </div>
 
 
@@ -688,6 +634,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96AFE058E9FE98A3C649703AB3484A65622B5030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475725   (85344) от 30.03.2012
+
+Захват / Carjacked (2011) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодую женщину с ребёнком в её же собственной машине берёт в заложницы грабитель банка.Производство: США | Daniel Grodnik ProductionsЖанр: ТриллерРежиссер: Джон БонитоАктеры: Мария Белло, Стивен Дорфф, Джоанна Кэссиди, Кристен Кер,р Катрин Дент, Тим Гриффин, Молли МакКуин, Гэри Граббс, Дэвид Дженсен, Анджелл БруксПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0ECDA1E1F0317C0786F1A35687F4DB02854ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475312   (85342) от 30.03.2012
+
+Синоптик / The Weather Man (2004) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэйв Спиртс — один из тех счастливчиков, которым принято завидовать. Популярный ведущий прогноза погоды, он получает приглашение работать в крупном нью-йоркском телешоу. Деньги, признание, отличные перспективы — удача явно на его стороне. Но мысль об этом почему-то больше не греет.
+
+Пока «глашатай морозов и дождей» покорял профессиональные вершины, его личная жизнь (   Читать дальше...   )Производство: США, ГерманияЖанр: Драма, КомедияРежиссер: Гор Вербински/Gore VerbinskiАктеры: Николас Кейдж /Nicolas Cage/, Майкл Кейн /Michael Caine/, Хоуп Дэвис /Hope Davis/, Николас Холт /Nicholas Hoult/, Джудит МакКоннелл /Judith McConnell/, Джил Беллоуз /Gil BellowsПеревод: Профессиональный (многоголосый, закадровый)Формат: АVIПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA2F4AEEAC7F4E1E1A005A6B591D1080D0FD164
 ```
 
 https://mybot314.ru/tekegram_catalog/

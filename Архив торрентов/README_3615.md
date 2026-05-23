@@ -6,7 +6,7 @@ JRiver Media Center 30.0.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249864.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Uninstall Tool 3.6.1 Build 5687 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249863.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bulk Image Downloader 6.21.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249860.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wildberries 4.7.1000 Mod by Pashulik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249859.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1103) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249858.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Illustrator 2022 26.1.0.185 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249855.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DigiKam 7.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249854.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ACDSee Photo Studio Ultimate 2022 15.1.0.2910 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249847.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249842.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CrystalDiskMark 8.0.4b + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249841.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Firefox Browser ESR 102.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249836.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fort Firewall 3.7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249832.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ LibreWolf 102.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249831.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v8.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249829.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AquaSoft Stages 14.2.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249827.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adobe Animate 2022 22.0.5.191 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249818.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Hard Disk Sentinel Pro 6.01 Build 12540 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249814.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Universal USB Installer 2.0.1.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249811.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ FileMenu Tools 7.8.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249809.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249804.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Topaz Gigapixel AI 5.9.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249795.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ YouTube Vanced [ROOT] (Extended) 17.28.32 Mod by Number one' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249783.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Telegram for Android 9.5.2 (3208) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249774.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Perfectly Clear WorkBench 4.3.0.2439 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249773.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Microsoft .Net Framework 12.07.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249766.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ O&O Defrag Professional / Server 25.2 Build 7405 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249763.jpg" />
 </div>
 
 

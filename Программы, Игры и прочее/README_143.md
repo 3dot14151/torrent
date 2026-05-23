@@ -1,58 +1,3 @@
-###  Публикация: 1724034   (56128) от 18.05.2024
-
-Spatial Touch™ 1.1.1 Mod by IndAlok [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Управляйте своим планшетом или смартфоном, не касаясь экрана! Spatial Touch™ — это пульт дистанционного управления с помощью жестов на базе искусственного интеллекта, который позволяет управлять мультимедийными приложениями на расстоянии, не касаясь экрана. Вы можете управлять YouTube, Shorts, Netflix, Disney Plus, Instagram, Reels, Tiktok и другими добавляемыми (   Читать дальше...   )Тип издания: ModПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4340EFCF547EBF2A8EFBC342155431CF4A789F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724275   (56086) от 19.05.2024
-
-Яндекс Музыка, Книги, Подкасты PLUS 2024.5.2 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Яндекс.Музыку можно слушать онлайн и без интернета. Десятки миллионов треков в одном приложении.
-- Подборки на все случаи жизни
-- Популярные и новые альбомы и синглы
-- Персональные рекомендации ежедневно(   Читать дальше...   )Тип издания: ModРелиз состоялся: 15.05.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4360CB1F77D80EF1E8467ED67F13B96A62DAFF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724332   (56062) от 19.05.2024
 
 Busuu - изучение языков 31.22.0(1019875) Mod by Balatan [Ru/Multi]
@@ -61,7 +6,7 @@ Busuu - изучение языков 31.22.0(1019875) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56062.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ Moon+ Reader Pro v9.4 (build 904000) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56057.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ Polarr v6.9.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56038.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ Colorfy PLUS - Coloring Book v3.26 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56031.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ Bluetooth Codec Changer 1.6.7 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55977.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ RS File Manager / RS Файловый менеджер 2.1.2.2 Mod by Mixroot [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55947.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ ESET Mobile Security Antivirus 9.0.14.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55884.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55746.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55725.jpg" />
 </div>
 
 
@@ -295,7 +240,7 @@ Transparent clock & weather / Прозрачные часы и погода 7.01
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55634.jpg" />
 </div>
 
 
@@ -321,7 +266,7 @@ MiX Camera 8.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55626.jpg" />
 </div>
 
 
@@ -347,7 +292,7 @@ Garmin: TopoActive Europe 2024.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55556.jpg" />
 </div>
 
 
@@ -375,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55535.jpg" />
 </div>
 
 
@@ -401,7 +346,7 @@ Navier HUD 3.4.22 Lite-Mod by NURIK [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55448.jpg" />
 </div>
 
 
@@ -427,7 +372,7 @@ Navier HUD 3.4.22 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55433.jpg" />
 </div>
 
 
@@ -453,7 +398,7 @@ Foreca Погода / Foreca Weather 4.55.6 (ARM64) Lite-Mod by alenka_persikova
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55430.jpg" />
 </div>
 
 
@@ -479,7 +424,7 @@ Navier HUD 3.4.22 Mod by youarefinished [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55429.jpg" />
 </div>
 
 
@@ -505,7 +450,7 @@ Foreca Погода / Foreca Weather 4.55.6 Mod by funnysith [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55403.jpg" />
 </div>
 
 
@@ -531,7 +476,7 @@ n7player Music Player 3.2.10-3002010 Lite-Mod by CMAPTOC [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55394.jpg" />
 </div>
 
 
@@ -557,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55362.jpg" />
 </div>
 
 
@@ -583,7 +528,7 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55337.jpg" />
 </div>
 
 
@@ -609,7 +554,7 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55324.jpg" />
 </div>
 
 
@@ -635,7 +580,7 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55318.jpg" />
 </div>
 
 
@@ -661,7 +606,7 @@ Wood Block Puzzle (QBlock)  v3.6.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55316.jpg" />
 </div>
 
 
@@ -672,6 +617,58 @@ Wood Block Puzzle – классическая игра-головоломка �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D925938D304C92AD82B8BF0FC1716E39125517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725902   (55299) от 26.05.2024
+
+Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам интересно узнать, как выглядели бы фотографии из вашей последней поездки, если бы их нарисовал Ван Гог? Как бы выглядела ваша собака, если бы она была сделана из облаков? Разве эта фотография с вашей парой не выглядела бы еще более романтичной, если бы она была сделана карандашом?Тип издания: ProРелиз состоялся: 25.05.2024Разработчик: Battery Stats SaverПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC1E395D19127676D4C41306C5AA1829BEA8C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726375   (55118) от 28.05.2024
+
+Windy.app: погода и ветер 50.1.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windy.app - очень и очень востребованное погодное приложение, что детально визуализирует прогнозы на ближайшее время. Владельцы гаджетов смогут воочию наблюдать за вероятным течением ветра, перемещением осадков и прочими аспектами. Это поможет и пилотам и рабочим, что так или иначе зависят от подобных условий и спортсменам, что не хотят рисковать понапрасну. Высокое (   Читать дальше...   )Тип издания: ProРелиз состоялся: 02.04.2024Разработчик: Windy Weather World IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8756D4080895C1EBF3B30DF45FEF522508AABAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1493395   (896871) от 02.09.2021
-
-Реальная история мальчика-волчонка / The True Adventures of Wolfboy (2019) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Подросток Пол живет в изоляции от мира. У него гипертрихоз (заболевание, проявляющееся в избыточном росте волос, не свойственном данному участку кожи), и каждый выход из дома для него стресс. Окрестные подростки мучают его, люди боятся. Отец делает все возможное, чтобы облегчить жизнь сына, но обычные подростковые проблемы поиска себя и становления как личности у (   Читать дальше...   )Производство: США / Big Indie Pictures, K Period MediaЖанр: Драма, криминал, приключенияРежиссер: Мартин КрейчиАктеры: Джейден Мартелл, Софи Джаннаморе, Джон Туртурро, Ив Хьюсон, Крис Мессина, Мишель Уилсон, Хлоя Севиньи, Стивен Хендерсон, Мелисса Мэндиса, Ник ПулинскиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADAF74CA9F4E1A5E567D8C48F95129D74D408E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493110   (896865) от 02.09.2021
-
-Бегущая в лабиринте / Meander (2020) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Попавшая в аварию девушка просыпается в огромном лабиринте, населенном фантастическими тварями. Теперь она вместе с другими незнакомцами участвует в смертельно опасной игре. Каждые семь минут целые секции лабиринта схлопываются, и не успевшие найти решение остаются в нем навсегда. Единственный шанс спастись — никогда не останавливаться.Производство: Франция / Alba Films, Cinéaxe, Cinéfrance Studios, Equitime, Fulltime Studio, OCS, SG Image 2018, WTF, Ynnis InteractiveЖанр: Фантастика, боевик, ужасыРежиссер: Матьё ТуриАктеры: Гайя Уайсс, Петер Францен, Роман Либер, Фредерик Франкитти, Корнелиу Драгомиреску, Эва Нивдански, Карл Лафоре, Анри Бенард, Фабьен Уссе, Olympe TuriПеревод: Дублированный (iTunes)Субтитры: Русские, английские (SDH)Продолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9F6DC2971196F8629B29EED92253EDF6A71E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493113   (896862) от 02.09.2021
 
 Охотник за разумом. Схватка / No Man of God (2021) WEB-DL [H.264/720p] [Line] [PR]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896862.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896844.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896843.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896801.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896747.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896688.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896611.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896598.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896591.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896559.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896516.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896507.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896445.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896442.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896438.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896385.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896383.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896377.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896375.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896371.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896264.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896262.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896261.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896260.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8856130C9E5CDF5A6735F6BB8D82BEB40A2AA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339692   (896252) от 27.03.2020
+
+Предвестник землетрясения / Earthquake Bird (2019) WEB-DL [H.264/1080p-LQ] [МVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад молодая англичанка Люси, сбежав от семейных проблем, переехала в Японию, где успешно устроилась на работу переводчиком. Внезапно Люси оказывается подозреваемой в убийстве подруги и землячки Лили. Предположительно, причиной раздора между двумя женщинами стал привлекательный фотограф Тэйдзи.Производство: США, Scott Free Productions, Twenty First CityЖанр: Триллер, драма, мелодрама, криминал, детективРежиссер: Уош УэстмолендАктеры: Алисия Викандер, Райли Кио, Наоки Кобаяси, Джек Хьюстон, Кики Сукэдзанэ, Кэн Ямамура, Кристал Кэй, Юрино, Акико Ивасэ, Кэнта ОгаваиПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Netflix Русские, английские, французские, немецкие, испанские, китайскиеПродолжительность: 01:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A49C7972876D0220B1F522E2FC88BF65E7AE2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646209   (896250) от 27.03.2020
+
+Джек Ричер / Jack Reacher (2012) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снайпер убивает нескольких случайных прохожих. Его находят и арестовывают. Все улики указывают на него. На допросе вместо признания он пишет имя — Джек Ричер. Больше обвиняемый не может ничего сказать, поскольку после избиения заключёнными впадает в кому. Загадочный Джек Ричер появляется незамедлительно. Что теперь будет с убийцей?Производство: США / Mutual Film Corporation, Paramount Pictures, Skydance Productions, TC ProductionsЖанр: боевик, триллер, детектив, криминалРежиссер: Кристофер МакКуорриАктеры: Том Круз, Розамунд Пайк, Джай Кортни, Дэвид Ойелоуо, Ричард Дженкинс, Роберт Дювалл, Вернер Херцог, Джозеф Сикора, Майкл Рэймонд-Джеймс, Алексия ФастПеревод: ДублированныйСубтитры: английские (Full, SDH, Commentary 1, Commentary 2)Продолжительность: 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B22C21057A1C8CC8009CC90D57705F4945E7833
 ```
 
 https://mybot314.ru/tekegram_catalog/

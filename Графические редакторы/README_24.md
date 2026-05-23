@@ -6,7 +6,7 @@ dslrBooth Professional 6.42.2011.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214104.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SoftOrbits Photo Retoucher 6.0 [Multi/Ru] (sharewareonsale до 11 декабр�
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214090.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Capture One 23 Enterprise 16.7.0.3201 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213579.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Adobe Photoshop 2026 27.0.0.25 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213548.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Photoshop 2026 27.0.0.25 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213420.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EximiousSoft Business Card Designer 5.11 Standart / 3.75 Pro Repack (& Portable)
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213419.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ EximiousSoft Vector Icon 3.75 Repack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213416.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ EximiousSoft Logo Designer 3.90 Standart / 3.75 Pro Repack (& Portable) by elchu
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213405.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Movavi Picverse 1.9.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213340.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ DxO PureRAW 2.0.2 Build 1 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213314.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PixPlant 5.0.43 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213174.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Radiant Photo 2.1.1.790 + Addons Pack [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212629.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adobe Photoshop 2025 26.11.1.5 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212280.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Adobe Photoshop 2025 26.11.1.5 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212233.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ GIMP 3.0.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212164.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Serif Affinity Designer 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212128.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Serif Affinity Publisher 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212127.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Serif Affinity Photo 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212126.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ JixiPix Chromatic Edges 1.0.26 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211950.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ HitPaw Object Remover 1.0.0.16 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210438.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Synfig Studio 1.4.4 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210244.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Corel PhotoMirage 1.0.0.219 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210130.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Serif Affinity Publisher 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210040.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Tint Guide Collection 28.05.2023 Portable by AlekseyPopovv [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210024.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Serif Affinity Photo 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210016.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Serif Affinity Designer 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209992.jpg" />
 </div>
 
 

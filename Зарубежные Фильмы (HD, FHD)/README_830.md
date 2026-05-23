@@ -1,55 +1,3 @@
-###  Публикация: 1565852   (212014) от 25.07.2022
-
-Эволюция Борна / The Bourne Legacy (2012) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В игре всегда несколько фигур. Одна из них — Джейсон Борн, другая — совершенный агент Аарон Кросс. Их возможности безграничны. Но даже у идеального оружия бывают сбои…Производство: США, Япония / Bourne Film Productions, Bourne Four Productions, Captivate Entertainment, Dentsu, Relativity Media, The Kennedy/Marshall Company, Universal PicturesЖанр: боевик, триллер, приключенияРежиссер: Тони ГилройАктеры: Джереми Реннер, Рэйчел Вайс, Эдвард Нортон, Стейси Кич, Оскар Айзек, Желько Иванек, Донна Мерфи, Майкл Чернус, Кори Столл, Элизабет МарвелПеревод: дублированный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские, английские (SDH, colored)Продолжительность: 02:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A8E0B624F35523756BF0E6FC38E86C9C3C1C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557848   (211944) от 26.07.2022
-
-Оперативник / Связной / The Operative (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Рэйчел бегло говорит на нескольких языках. Идеальная квалификация для агента израильской службы внешней разведки Моссад, которая ее завербовала. Офицер связи Томас высоко ценит ее. Оперативное командование в Израиле также доверяет ей, и поэтому Рэйчел отправляется в Тегеран с секретной миссией. Очарованная этой чужой страной, она тщательно вписывается в повседневную (   Читать дальше...   )Производство: Франция, Израиль, Германия, США, Великобритания / Black Bear Pictures, Bord Cadre Films, Le PacteЖанр: Боевик, триллер, драма, детективРежиссер: Юваль АдлерАктеры: Дайан Крюгер, Мартин Фриман, Кэс Анвар, Ротем Кейнан, Лана Эттинджер, Йоав Леви, Yohanan Herson, Rita Bäde, Annette Atzpodien, Daniel WandeltПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full)Продолжительность: 01:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14C62252B3E43B0426C2DE9C05E9876F99D45ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557679   (211923) от 26.07.2022
 
 Хроники мутантов / Mutant Chronicles (2008) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211923.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211922.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211919.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211907.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211905.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211887.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211876.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211874.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211870.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211867.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211841.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211827.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211814.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211810.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211781.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211778.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211775.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211771.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211766.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211753.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211746.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211718.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211715.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211701.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06F9F7513321454B8D023E879A9980441DCD385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639199   (211698) от 12.06.2023
+
+Братство четырёх «Л» / La guerre des Lulus / The Lulus (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Август 1914 года. Пока немецкая армия укрепляет позиции на севере Франции, четверо подростков — Люсьен, Лукас, Луиджи и Людвиг — сбегают из приюта в надежде найти лучшую жизнь. «Братство четырех “Л”» — французская приключенческая драма о дружбе.Производство: Франция / Bidibul Productions, Canal+ fr, Centre National de la Cinématographie (CNC)Жанр: драма, приключенияРежиссер: Ян СамюэльАктеры: Том Кастен, Леонар Фоке, Матис Грос, Палома Лебо, Лу Пинар, Солаль Деве, Изабель Карре, Франсуа Дамиенс, Алекс Лутц, Ахмед СиллаПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2EE959D242E7ECBF38DC26697D659A6C8566FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639190   (211693) от 12.06.2023
+
+Братство четырёх «Л» / La guerre des Lulus / The Lulus (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Август 1914 года. Пока немецкая армия укрепляет позиции на севере Франции, четверо подростков — Люсьен, Лукас, Луиджи и Людвиг — сбегают из приюта в надежде найти лучшую жизнь. «Братство четырех “Л”» — французская приключенческая драма о дружбе.Производство: Франция / Bidibul Productions, Canal+Жанр: драма, приключенияРежиссер: Ян СамюэльАктеры: Том Кастен, Леонар Фоке, Матис Грос, Палома Лебо, Лу Пинар, Солал Деви, Изабель Карре, Франсуа Дамиенс, Алекс Лутц, Ахмед СиллаПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33632DC8EB63BFE48ABFDE665BBCB15D5C9DC72C
 ```
 
 https://mybot314.ru/tekegram_catalog/

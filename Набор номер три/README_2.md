@@ -1,55 +1,3 @@
-###  Публикация: 1863510   (1063276) от 05.04.2026
-
-Что на самом деле произошло с Telegram 1 апреля
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В полночь 1 апреля ТСПУ начали получать правила блокировки всех IP-подсетей Telegram. Не замедление – полная блокировка на уровне IP. Одновременно вендоры DPI выкатили новые эвристики, которые научились определять MTProxy в режиме Fake-TLS. Тысячи прокси-серверов по всей стране отвалились за минуты.То есть 1 апреля – не шутка. РКН действительно попытался положить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863652   (1063258) от 05.04.2026
-
-Лазер вместо радио: лунный корабль передаёт данные на скорости до 260 Мбит/с по новой системе оптической связи
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-NASA в течение двух дней продемонстрировало работу новой системы оптической связи, которая может стать ключевой для будущих миссий к Луне и Марсу.В отличие от традиционных радиоволн, данные передаются с помощью модулированного лазерного луча, направленного с космического корабля на приёмные станции на Земле на расстоянии в сотни тысяч километров.Главная особенность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863116   (1063240) от 06.04.2026
 
 В РФ хотят сократить количество провайдеров. Минцифры обсуждают ужесточение правил лицензирования связи
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063240.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Cколько весил и сколько стоил первый в мире �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063175.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063147.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Windows 10 Pro 22H2 19045.7058 x64 [Lightweight] [Ru-En] by SanLex (2026.04.06)
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063145.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063125.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063050.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063017.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062941.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ NASA показало зрелищный таймлапс пролета Лун�
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062934.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ Telega: как «удобный клиент Telegram» превратили в 
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062898.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062747.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062715.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ VPN не нужен: на Хабре вышел TG Unblock для ускорен
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062581.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062504.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062446.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062352.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062162.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062141.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062088.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062080.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061987.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061897.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061860.jpg" />
 </div>
 
 
@@ -667,13 +615,67 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061623.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Средства фильтрации трафика, которые Роскомнадзор использует в том числе для ограничения доступа к запрещённым ресурсам, перегружены и не справляются с блокировками в полной мере. Из-за этого периодически появляется доступ к заблокированным ранее сервисам, таким как WhatsApp. Об этом пишет Forbes со ссылкой на собственные осведомлённые источники.В дополнение к этому (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859842   (1061501) от 19.03.2026
+
+Сторонние клиенты Telegram в 2026 году - что выбрать и где подвох
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одни версии дают больше приватности и удобства, другие обещают слишком много. Разбираем, где реальные преимущества, а где уже тревожные компромиссы.У Telegram давно есть не только официальная программа. Вокруг мессенджера вырос целый набор сторонних клиентов: одни аккуратно допиливают привычную оболочку, другие добавляют спорные функции вроде скрытого чтения и истории (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859846   (1061339) от 19.03.2026
+
+В РФ начали ограничивать домашний интернет. Речь не про белые списки ...
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Провайдер «Дом.ру» начал тестировать замедление проводного интернета у пользователей с избыточным расходом трафика.
+ Это не первый подобный случай и, вероятно, не последний.Что случилось?
+(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

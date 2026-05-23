@@ -1,55 +1,3 @@
-###  Публикация: 1063946   (429771) от 18.10.2016
-
-Убьём жену Уорда / Let's Kill Ward's Wife (2014) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все друзья знают, что супруга бедолаги Уорда сущая стерва. Она постоянно к нему придирается, пилит и не отпускает на встречи с приятелями. И вот лучшие друзья Уорда начнинают обсуждать непростой вопрос, как бы хорошо зажил их друг, если бы его супруга погибла. Кто-то даже в шутку скажет, что ее можно убить. В итоге шуточный разговор приведет к безумным последствиям. (   Читать дальше...   )Производство: США, Lost Rhino FilmsЖанр: Комедия, Криминал, ДрамаРежиссер: Скотт ФоулиАктеры: Патрик Уилсон, Скотт Фоули, Дональд Фэйзон, Джеймс Карпинелло, Эми Акер, Марика Доминчик, Дагмара Доминчик, Николлетт Шеридан, Грег Гранберг, Вероника ДоминчикПеревод: Авторский (одноголосый, закадровый) М.Чадов, любительский (одноголосый, закадровый) П. Морозов aka PashaUpСубтитры: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C38BDDCA332EE0ABA892950D6E8C06A8F2AD8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571831   (429654) от 23.08.2022
-
-Понедельник / Monday (2020) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В пятницу между вами может пролететь искра, которая приведет к потрясающим выходным, но что делать, если впереди ждёт неизбежный понедельник?Производство: Великобритания, США, Греция / Protagonist Pictures, Wishmore, Faliro House ProductionsЖанр: МелодрамаРежиссер: Аргирис ПападимитропулосАктеры: Себастиан Стэн, Дениз Гоф, Йоргос Пирпассопулос, Доминик Типпер, Андреас Константину, Элли Трингу, София Коккали, Силлас Цумеркас, Вангелис Мурикис, Хлоя СиренПеревод: Дублированный (Лицензия), Любительский многоголосый (AlphaProject)Субтитры: Русские (Forced, Full), Украинские (Full), Английские (Full, SDH)Продолжительность: 01:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9314BBBC262A5AA6C5798A137478745C634AB4CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571686   (429642) от 23.08.2022
 
 Ключевые моменты / Defining Moments (2021) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429642.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429566.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429560.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429556.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429486.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429455.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429398.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429388.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429365.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429357.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429346.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429293.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429231.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429230.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429229.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429225.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429218.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429212.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429205.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428951.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428815.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428636.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428630.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428558.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553864   (428556) от 04.10.2012
+
+Разомкнутые объятия / Los abrazos rotos (2009) [720p]  BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный сценарист и режиссёр попадает в страшную автокатастрофу, после которой необратимо слепнет. Он не может больше снимать кино, от него уходит женщина, которая была смыслом его жизни. Вместе со зрением он теряет всё. Смириться с трагедией своей жизни он сможет только спустя 14 лет, открыв душу своему молодому помощнику, которого он полюбил как сына.Жанр: ДрамаРежиссер: Педро АльмодоварАктеры: Пенелопа Крус, Льюис Омар, Бланка Портильо, Хосе Луис Гомез, Тамар Новас, Рубен Очандиано, Марта Аледо, Агустин Альмодовар, Энрике Апарисио, Юйи Берингола, Росси де Пальма, Карлос Леаль, Дэниэл Мартин, Хайме Фернандес-Сид Бускато, Джейм Сантос Гонзалез, Эстер Гарсия, Серджо ДиазПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 02:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C1D3887354E2F692779D9858FD5CAD868D6604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945964   (428456) от 12.10.2015
+
+Вымирание / Добро пожаловать в Гармонию / Extinction (2015) WEB-DL  [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428456.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нескольких сотен тысяч лет эволюции и превосходства, люди были почти уничтожены на Земле. В течение всего лишь нескольких дней инфекция превратила их в диких существ без интеллекта, они стали злыми и безжалостными. Через семь лет после этого, мы находим небольшой городок — Harmony, покрытый многолетними снегами. Двое мужчин, давние друзья Патрик и Джек, и дочь (   Читать дальше...   )Производство: Испания, США, Венгрия, ФранцияЖанр: Драма, Ужасы, ФантастикаРежиссер: Мигель Анхель ВивасАктеры: Мэттью Фокс, Джеффри Донован, Куинн Маккоулган, Валерия Веро, Клара Лаго, Мэтт Девере, Алекс Хафнер, Джереми ВилерПеревод: Профессиональный многоголосый - iTunes.Язык субтитров: Русский,Английский,УкраинскийПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1886D73023CFB6CC908CBE0954018628648DAE0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

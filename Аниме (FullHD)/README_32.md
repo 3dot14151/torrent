@@ -6,7 +6,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499600.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Aka
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499586.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499582.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Ag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499581.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499530.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498523.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Gyokou no Nikuko-chan | Fortune Favors Lady Nikuko | Никуко из Рыба�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498514.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498233.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Vatican Kiseki Chousakan | Vatican Miracle Examiner | Инспекторы чу�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495176.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493817.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493539.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491342.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Hitsugi no Chaika: Avenging Battle Chaika: The Coffin Princess - Avenging Battle
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489730.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Wake Up, Girls! / Подъем, девчата! [2014, TV, 12] BDrip 1080p Hi10p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489398.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Dantalian no Shoka / The Mystic Archives of Dantalian / Таинственная
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488827.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Nihon Animator Mihonichi | Japan Animator Expo | Японская выставк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487120.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Lucky ☆ Star / Счастливая звезда [2007, 24 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486738.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Wakaba Girl | Модница Вакаба [2015, TV, 13 + 1] BDrip 1080p Hi10p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485995.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | Отвер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483245.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482584.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482568.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479222.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479010.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Moonlight Mile: 2nd Season - Touch Down | Лунная миля: Приземл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478416.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Bakumatsu Rock | Рок эпохи Бакумацу [2014, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475150.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Moonlight Mile: 1st Season - Lift off | Лунная миля [2007, TV, 12 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474312.jpg" />
 </div>
 
 

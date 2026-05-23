@@ -1,30 +1,3 @@
-###  Публикация: 1381041   (159399) от 10.11.2023
-
-Уроки русского – Захар Прилепин (2017-2023) WEBRip (выпуски 1-225 из ??) (обновляемая)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Выбор тем для телепередач определяется их присутствием в информационном пространстве — то, что называется «важным событием или громкой темой» и обсуждается в прессе, соцсетях и видеоблогах. Но и сам автор готов задавать новые темы.
-Замысел нового телепроекта Прилепин объяснил так: «Пока мы выясняли отношения между правыми и левыми, православными и атеистами, красными (   Читать дальше...   )Телекомпания: Россия, НТВ HD, ООО «Гринвич Продакшн»Жанр: Телепередача, Политика, История, ДокументальныйПеревод: Не требуетсяПродолжительность: выпуски  ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288F1CF246875C7C1191CFBD6476FFF3975D781B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599953   (159388) от 25.12.2022
 
 Первая передача на НТВ. Автомобильная передача (25.12.2022) SATRip [H.264]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159388.jpg" />
 </div>
 
 
@@ -61,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159376.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159375.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159359.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159355.jpg" />
 </div>
 
 
@@ -165,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159353.jpg" />
 </div>
 
 
@@ -191,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159348.jpg" />
 </div>
 
 
@@ -218,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159343.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159340.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159339.jpg" />
 </div>
 
 
@@ -300,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159322.jpg" />
 </div>
 
 
@@ -326,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159320.jpg" />
 </div>
 
 
@@ -352,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159316.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159315.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159285.jpg" />
 </div>
 
 
@@ -430,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159272.jpg" />
 </div>
 
 
@@ -457,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159270.jpg" />
 </div>
 
 
@@ -485,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159266.jpg" />
 </div>
 
 
@@ -511,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159264.jpg" />
 </div>
 
 
@@ -537,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159257.jpg" />
 </div>
 
 
@@ -563,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159251.jpg" />
 </div>
 
 
@@ -589,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159250.jpg" />
 </div>
 
 
@@ -615,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159245.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159218.jpg" />
 </div>
 
 
@@ -668,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159202.jpg" />
 </div>
 
 
@@ -679,6 +652,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF8264D06E52CD1057D44402ACE60FFBD328B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432196   (159179) от 11.11.2023
+
+Бомба. Наши в Лос-Аламосе (2020) WEB-DL [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм к 100-летию Службы внешней разведки о советской разведоперации «Энормоз».
+6 августа 1945 года американский бомбардировщик Б-29 сбросил атомную бомбу на Хиросиму. 9 августа другая бомба уничтожила японский город Нагасаки. Но то, что у американцев была еще и третья цель — СССР, долгие годы оставалось тайной. 30 августа 1945 года генерал-майор Лорис (   Читать дальше...   )Производство: Россия, Фонд национального кино «Патриот», Первый каналЖанр: Документальный, история разведкиРежиссер: Михаил ЕлкинЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B56F79D2D03AE5D6BABB043D47CA1ADA913A4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

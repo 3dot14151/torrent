@@ -1,82 +1,3 @@
-###  Публикация: 1241068   (522135) от 15.08.2018
-
-Эрик-Эмманюэль Шмитт | Десять детей, которых никогда не было у госпожи Минг (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Французский коммивояжёр, посещающий китайскую провинцию Гуандун по вопросам бизнес-развития своей компании, случайно знакомится с госпожой Минг, пожилой работницей мужской уборной в стенах «Гранд Отеля». В светской беседе господа Минг сообщает, что у неё десять детей, чему француз верить категорически отказывается, ведь широко известно, что в Китае действует закон (   Читать дальше...   )Жанр: драмаПродолжительность: 02:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4F431ECB3A8FB02185EC8FAF0C410448EF6FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241139   (522130) от 15.08.2018
-
-Эдуард Володарский, Никита Михалков | Свой среди чужих, чужой среди своих (1976) [MP3, Вячеслав Манылов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие повести происходит в годы гражданской войны в Сибири. В одном из сибирских городов губернский комитет направляет в Москву золото и драгоценности. Враг, пробравшийся в губком под видом рабочего, сообщает об этом белогвардейскому подполью. Ценности попадают в руки белогвардейцев. Чекисты разоблачают врага и ликвидируют орудовавшую в тех местах банду.
-Повесть (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 05:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C85AC8DC5302EE9E66AB20D59E92529A5BCF134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313932   (522112) от 11.07.2019
-
-Алекс Каменев | Послушник (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если тебе «повезло» оказаться в теле мага, да не простого, а тенелова — повелителя судьб, то будь готов к тому, что на тебя будет объявлена Охота. С одной стороны — загонщики, чтобы пленить, с другой — стрелки, чтобы уничтожить. Ведь в умелых руках ты можешь стать или полезным, или опасным инструментом, который нарушит равновесие между Измененными и Посвященными (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 09:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EF90D3C87965CDDBBDDD89AEFD6B7E902A3B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313930   (522041) от 11.07.2019
 
 Андрей Васильев | Чужие Небеса (2019) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522041.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522001.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521982.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521980.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521978.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521976.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521961.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521959.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521901.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521894.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521889.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521887.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521883.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521841.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521815.jpg" />
 </div>
 
 
@@ -485,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521774.jpg" />
 </div>
 
 
@@ -511,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521756.jpg" />
 </div>
 
 
@@ -537,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521425.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521418.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521416.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521333.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521316.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521210.jpg" />
 </div>
 
 
@@ -678,6 +599,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:331C87958C89AA92E7B50B3EB553D5D39E325145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314137   (521023) от 12.07.2019
+
+Денис Деев | Игра на Нервах (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521023.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Игра на нервах» – фантастический роман Дениса Деева, первая книга одноименного цикла, жанр боевое фэнтези, ЛитРПГ.
+Нажав на кнопку «Вход» ты можешь стать кем угодно. Воином Света, выкашивающим кроликов целыми стадами ради клочков шерсти и крох опыта. Или начать карьеру Адепта Тьмы и пытаться с помощью некромантии залечить сломанную лапку у птенчика. А можно начать (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтези, ФэнтезиПродолжительность: 09:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D82D233D176D626F150EEEFA9EA6C65523E322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560289   (520808) от 29.06.2022
+
+Альбина Нури | Мёртвая вода (2021) [MP3, Алла Галицкая]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520808.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Полины была тихая счастливая жизнь: любимые муж и дочка, финансовое благополучие и спокойствие. Едва не сбив на дороге мальчика-сироту, они с Женей решают усыновить ребенка, тем более что Полина больше не может иметь детей.
+Алик казался просто идеальным: послушным, красивым, милым, одаренным. Однако с его появлением мирной жизни семьи пришел конец, а уютный дом (   Читать дальше...   )Жанр: Детектив, ТриллерПродолжительность: 06:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AB43E1DE95CEEB92D6538E0BF6F2E2097B976F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560291   (520807) от 29.06.2022
+
+Альбина Нури | Морок (2021) [MP3, Сергей Трушин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама умерла, когда Дина была совсем маленькой. Отец вырастил ее, они всегда были близки, и она подумать не могла, что он может променять любимую дочь на новую жену. Однако это случилось, и мачеха оказалась такой же лживой, жестокой и лицемерной, как в сказке про Золушку… Азалия стремилась поссорить отца с дочерью, и ей это удалось. До самой смерти несчастный и не (   Читать дальше...   )Жанр: Детектив, ТриллерПродолжительность: 08:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD028AAF9AB35A3A5CF4482777156C7085109D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

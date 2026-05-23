@@ -1,29 +1,3 @@
-###  Публикация: 1565853   (211932) от 26.07.2022
-
-NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [VO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Сериал показывает захватывающие дух пейзажи и дикую природу Америки, у которой уникальная география. Рассказывает Майкл Б. Джордан.Производство: США / National Geographic, Disney+Жанр: Документальный, приключения, природаРежиссер: Tom StephensПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE43980BC97B24ADDDC29D5B2434848792629F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638948   (211820) от 10.06.2023
 
 NG. Разрушительный ураган Сэнди / Superstorm New York: What Really Happened (2012) WEB-DL [H.264/1080p]
@@ -32,7 +6,7 @@ NG. Разрушительный ураган Сэнди / Superstorm New York: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211820.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ History Channel. В изоляции (Лабрадор) / Alone (2022) WEB-DL [H
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211808.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211586.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ History Channel. В изоляции (Арктика) / Alone (2021) WEB-DL [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211541.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211376.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ PBS: Nature - Отважный Ирак / Braving Iraq (2010) BDRip [H.264/1080p
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210934.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210877.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210231.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ NG. В поисках динозавров на Аляске / Hunting Alaskan D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210215.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210196.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210193.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210181.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210155.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ NG. Путь гепарда / The Way Of the Cheetah (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210010.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ NG. Настоящая чёрная пантера / The Real Black Panther (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209976.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209903.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ BBC. Белая королева и ее соперницы / The Real White Que
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209885.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209593.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209490.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ PBS. Охотники за воспоминаниями / Memory Hackers (2016) 
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209280.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208942.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208846.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208694.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208686.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208643.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36428CE3A33CFC5D07264AF2001D0C47F389A148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647806   (208464) от 20.07.2023
+
+Необъяснимое / The UnXplained (2023) WEB-DL [H.264/1080p] (сезон 5, серии 1-10 из 10) [DVO]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208464.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сериале будут исследованы факты, стоящие за самыми увлекательными, странными и необъяснимыми загадками нашего мира.Производство: США, Prometheus EntertainmentЖанр: документальный, история, исследованияУчастники: Уильям Шэтнер, Митио Каку, Джонатан Янг, Ток Томпсон, Эндрю КоллинзПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (Forced, Full), английские (Full)Продолжительность: 10x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB80FEF9F056BC1CC9E62BACF9F8CCBCBA5E10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

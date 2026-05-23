@@ -6,7 +6,7 @@ Assassin's Creed: Liberation HD (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412918.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rogue Trooper (2006) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409070.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daymare: 1998 (2019) [Ru/Multi] (9731) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408312.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daymare: 1998 (2019) [Ru/Multi] (9731) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408310.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407279.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797/upd4) Rip =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407271.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Star Wars: The Force Unleashed Dilogy [Ru/En] (Repack) 2009 - 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406457.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wanted: Weapons of Fate / Особо опасен: Орудие судьбы [Ru
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406005.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (ReP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405676.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405412.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405355.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Devil May Cry 4 [Ru/En] (RePack/1.1) 2008 | R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404266.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Raiders of the Broken Planet (2017) [Ru/Multi] (1.0.0.1/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403743.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Through the Woods (2016) [Ru/Multi] (1.2) License GOG [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402095.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Hitman: Sniper Challenge (2012) [Ru/Multi] (1.0.364.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397328.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Uprising 44. The Silent Shadows [Ru] (Repack/1.03) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394613.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ DroneZ / КиберZона [Ru] (L) 2001
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392608.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392590.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Sleeping Dogs (2014) [Ru/En] (1.0/u1) Repack xatab [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391646.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Batman: Arkham City / Batman: Аркхем Сити (2011) [Ru/En] (1.1/dlc) ReP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391467.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Overlord - Complete Pack [En/Ru] (Repack) 2007 - 2009 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391385.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Through the Woods (2016) [Ru/Multi] (1.0) Repack Other s [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388544.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Alice: Madness Returns (2011) [Ru/En] (1.0/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386893.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386561.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack R.G. Cat
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385233.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Absolver (2017) [Ru/Multi] (1.25/dlc) Repack R.G. Catalyst [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385116.jpg" />
 </div>
 
 

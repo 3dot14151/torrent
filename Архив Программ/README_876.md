@@ -6,7 +6,7 @@ Core Temp 1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602408.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GIMP 2.8.22 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602394.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ORPALIS PaperScan Professional 4.0.5 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602382.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CLO Standalone 6.2.234.38207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602372.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Your Universal MultiBoot Installer UEFI 0.0.4.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602370.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GIMP 2.8.22 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602350.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Stardock Fences 3.0.5.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602295.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CINEMA 4D Studio R26.014 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602279.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602264.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ LibreOffice 6.0.5.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602238.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rainmeter 4.2.0 Build 3097 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602235.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ IObit Uninstaller Pro 7.5.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602228.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Mirillis Action! 3.9.2 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602169.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ExamDiff Pro Master Edition 10.0.1.12 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602167.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ KeePassXC 2.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602162.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ ORPALIS PDF Reducer Professional 3.1.8 RePack (& Portable) by elchupacabra [En/F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602158.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Brave Browser 0.63.48 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602156.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Opera 60.0.3255.70 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602144.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Macrium Reflect v7.2 .4228 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602143.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WinToUSB Technician 4.8.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602139.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MAGIX Sound Forge Pro 13.0.0.48 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602136.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Adobe components : Flash Player 32.0.0.171 + AIR 32.0.0.125 + Shockwave Player 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602131.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Opera 60.0.3255.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602130.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602129.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Microsoft Visual Studio 2019 Enterprise 16.0.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602118.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Luminar 3.1.0.2942 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602102.jpg" />
 </div>
 
 

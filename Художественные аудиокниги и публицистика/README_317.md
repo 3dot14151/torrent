@@ -1,81 +1,3 @@
-###  Публикация: 1012741   (778315) от 02.05.2016
-
-Иван Ефремов | Последний марсель. (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Сборник составили приключенческие рассказы с элементами научной фантастики, действие которых отнесено ко временам Великой Отечественной войны. Моряки подбитого немцами советского боевого корабля совершают дерзкую высадку на окружённую врагом территорию и не менее рискованный побег из окружения. Военный летчик транспортирует ценный секретный груз через Атлантику, (   Читать дальше...   )Жанр: Иронические приключенияПродолжительность: 02:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FF2B9A99E155F8ACD60EF92B88EF223A3E51EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012656   (778291) от 02.05.2016
-
-Татьяна Устинова | Ангел пролетел, Волшебный свет [2 Книги] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Ангел пролетел: В одной из больниц после тяжелой операции умирает пациент. Мужчина был немолод и в принципе подобный исход никого не удивил. Никого, кроме оперировавшего старика хирурга. Ведь все прошло настолько успешно, что он был в полной уверенности, что через пару дней сможет сыграть партию другую в шахматы с теперь уже бывшим пациентом. Неожиданно выясняется, (   Читать дальше...   )Жанр: ДетективПродолжительность: 02:28:59 (00:58:02 | 01:40:56)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA031FAF2A28554B65DFB74BFC71CA2161DB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012651   (778290) от 02.05.2016
-
-Курт Воннегут | Сирены Титана (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Действие романа происходит в недалеком будущем. Американский аристократ Уинстон Румфорд на собственном космическом корабле погружается вместе со своим псом Казаком в «хроно-синкластический инфундибулум», после чего человек и собака оказываются «размазаны» в пространстве и времени. Выражается это в том, что они беспрестанно перемещаются между Землей, Марсом, спутником (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A2D22397EFA092C3F452CCCD32755C144937F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012659   (778255) от 02.05.2016
 
 Джон Кэмпбелл | Нечто (2016) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778255.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778235.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778196.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778162.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777859.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777858.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777829.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777825.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777789.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777739.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777638.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777629.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777627.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777596.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777567.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777511.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777485.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777327.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777308.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777304.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777295.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777293.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777288.jpg" />
 </div>
 
 
@@ -675,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C259FB59A8CAB1B6F069CB183AD17C52DFE58982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013233   (777266) от 05.05.2016
+
+Владимир Куницын | Спецназ Его Императорского Величества (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777266.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1803 году Наполеону пришла в голову идея создать секретное подразделение для выполнения специальных деликатных задач. По сути, это была первая диверсионная группа, созданная под личным управлением императора. Командиром спецгруппы был назначен Луи Каранелли, корсиканец, сосед императора по Аяччо.
+Корнет Николай Данилов, потомок княжеского рода, служит в драгунском (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 10:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA240CB73FEAB8218C8B47AEF38497B97ABB9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211585   (777204) от 08.03.2018
+
+Лиза Скоттолини | Подумай дважды (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убить сестру и занять ее место. Для Эллис Конноли это не проблема. Двойняшек Эллис и Бенни разлучили в детстве. Эллис жила с любящими приемными родителями, а Бенни — с больной матерью.
+Несмотря на тяготы жизни, Бенедетта смогла сделать карьеру, а окруженная заботой Эллис связалась с наркоторговцами. Близнецы познакомились в тюрьме. Эллис обвиняли в убийстве полицейского, (   Читать дальше...   )Жанр: ТриллерИздательство: Нигде не купишьПродолжительность: 12:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB0FB5E1567828922807EB35EC9799C44D40BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211659   (777194) от 08.03.2018
+
+Елена Малиновская | Убить Кукловода (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли марионетка переиграть кукловода? Странный вопрос, конечно же, нет! А если этой марионеткой являешься ты сама, а на кону — твоя жизнь? Волей-неволей начнешь собственную игру, пытаясь обрести долгожданную свободу и надежду на будущее. Мне, Доминике Альмион, специалистке по смертельным проклятьям, не привыкать распутывать клубки интриг и развязывать узлы загадок. (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 12:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F2FC5931066526C2CDB192D7721BFDA9EC63F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

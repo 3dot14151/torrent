@@ -7,7 +7,7 @@ Topaz Gigapixel 1.3.0 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070267.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Topaz Video 1.6.0 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070266.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TagScanner 6.1.21 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070235.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Affinity Studio 3.2.1.4425 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070205.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MuseScore 4.7.1 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070188.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Minimal Image Viewer 2.0.1 Portable [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070180.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Photoshop 2026 27.7.0.11 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070176.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe Photoshop 2026 27.7.0.11 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070131.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Photoshop 2026 27.7.0.11 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070130.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ reaConverter Pro 8.0.222 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070116.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cockos REAPER 7.73 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070102.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PotPlayer 260422 (1.7.22859) RePack (& Portable) by elchupacabra (19.05.2026) [M
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070099.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PotPlayer 260422 (1.7.22859) + Portable by SamLab [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070093.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Abelssoft Tagman 2025.11.02 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069952.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Boris FX Vegas Pro 2026.0 Build 105 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069934.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 33 beta 3 RePack by 7997 [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069901.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ CoolUtils Total Image Converter 8.5.0.303 RePack (& Portable) by elchupacabra [M
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069898.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ IrfanView 4.75 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069884.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Perfectly Clear WorkBench 5.1.0.3211 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069877.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ XMedia Recode 3.6.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069876.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ reaConverter Pro 8.0.221 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069875.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Artweaver Plus 8.1.5.3980 RePack (& Portable) by elchupacabra [En/De]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069874.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Freemake Video Converter 6.0.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069864.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ MediaPlayerOK 1.00 + Portable [Multi]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069849.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Room Arranger 11.0.1.777 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069828.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ JRiver Media Center 35.0.78 (x64) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069826.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591363.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ UniWar HD 1.8.20 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591354.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Defenders 1.8.60237 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591350.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ League of Stickman v1.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591340.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Ingress 1.80.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591321.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ HDR FX Photo Editor Pro v1.6.9 [En] - cоздания HDR эффектов на 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591281.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Russian Rider 1.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590892.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ UC Browser - быстрый Cерфинг v10.3.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590890.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AIDA64 v1.22 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590872.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Akunin Book от Бориса Акунина 4.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590855.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ FL Studio Mobile  v2.0.2 [Eng]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590822.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Smurfs Village v1.6.0a [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590409.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ CastleStorm - Free to Siege v1.76 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590349.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Despicable Me / Гадкий Я V3.0.1a   [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590287.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590272.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590104.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fleksy Keyboard - Happy Typing 6.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589871.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ F-Droid 0.94 (test) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589827.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ PhotoMath v8.5.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589675.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Mobile Security Firewall v1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589561.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Vertex Impress U прошивка Miui v5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589438.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Zedge Ringtones & Wallpapers 4.12.3 Final/ Версия 4.15b1 [Multi/Ru] - Об
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589422.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Lucky Patcher by ChelpuS 10.1.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589344.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.4.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589342.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Duolingo Plus: изучение иностранных языков 5.56.4 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589316.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Minecraft - Pocket Edition v.0.9.5 alpha [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589139.jpg" />
 </div>
 
 

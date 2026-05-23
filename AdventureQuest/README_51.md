@@ -1,29 +1,3 @@
-###  Публикация: 1188953   (271918) от 04.12.2017
-
-Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы – управляющий дома, который… ШПИОНИТ за жильцами! Вы ставите жучки, обыскиваете квартиры, прослушиваете телефоны. Вы собираете компромат и строчите доносы. Или… Возможно, у вас есть другой выбор? В этом мрачном тоталитарном будущем жизни людей принадлежат Государству. Репрессивные законы и тотальная слежка пришли на смену свободе, равенству и братству.Тип издания: RepackРазработчик: Warm Lamp GamesЖанр: Adventure, Indie, StrategyЯзык озвучки: Английский, Испанский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337814   (271175) от 13.11.2019
 
 Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
@@ -32,7 +6,7 @@ Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271175.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Jekyll and Hyde / Джекил и Хайд [Ru] (RePack) 2010 | Martin
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271152.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Silent Hill: Shattered Memories [En] (Р) 2009
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271073.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270951.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Sally Face (2016) [Ru/Multi] (1.4.13/dlc) License PLAZA [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269843.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269386.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Neverhood (1996) [Ru] (1.0/dlc) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268253.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267427.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ The Council - Complete Season (2018) [Ru/En] (0.9.5.6336) Repack xatab [Episode 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267381.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Frosty Nights (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266600.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Frosty Nights (2017) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266598.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266533.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Event[0] (2016) [En] (169221) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266524.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Sherlock Holmes versus Jack the Ripper / Шерлок Холмс против Д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265675.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265625.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Treasure Hunter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265462.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Sherlock Holmes: The Awakened / Шерлок Холмс и секрет Ктул
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264992.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ The Council - Complete Season (2018) [Ru/Multi] (0.9.5.6336) License PLAZA [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264756.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264497.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264344.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264194.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_264053.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Tacoma (2017) [Ru/Multi] (121417) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263646.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Heavy Rain (2019) [Ru/Multi] (build 362) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263431.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Asterix & Obelix XXL 3 - The Crystal Menhir (2019) [Ru/Multi] (1.15) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263419.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Asterix & Obelix XXL 3 - The Crystal Menhir продолжает приключ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B7FDBA4825BE5A005CF268BE81635979D8E3C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340859   (263181) от 25.11.2019
+
+The Lift (2018) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс - хамоватый подросток и разгильдяй. Нехватка денег вынуждает его разносить пиццу. Во время доставки очередного заказа Макс ссорится с матерью. Квартира, куда нужно доставить заказ находится на 13 этаже.Тип издания: RepackРазработчик: Bulls BrosЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
 ```
 
 https://mybot314.ru/tekegram_catalog/

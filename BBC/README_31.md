@@ -1,29 +1,3 @@
-###  Публикация: 1757708   (38760) от 31.10.2024
-
-Космический шаттл Колумбия: Последний полет / Space Shuttle Columbia: The Final Flight (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) Pazl Voice
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История последней миссии Колумбии рассказывается в захватывающих подробностях, начиная с нескольких месяцев до проблемного запуска, разворачиваясь на протяжении 16 дней на орбите и заканчиваясь расследованием трагической гибели семи астронавтов.Производство: США / BBC Studios, Mindhouse Productions, CNN Original SeriesЖанр: документальный, история, космосУчастники: Боб ПейджПеревод: Многоголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02542388FC80D3847020E276FACBEAD2F9B246A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252621   (35467) от 02.12.2024
 
 BBC. История математики / The Story of Maths (2008) SATRip (4 серии из 4)
@@ -32,7 +6,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35467.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34859.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33724.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32061.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32042.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31848.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31125.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30399.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30396.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30090.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30085.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30070.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29980.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29951.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29876.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29763.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ BBC. Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29664.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29663.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ BBC. Отвага и предательство: Столетняя война /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29642.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) BDRemux [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29639.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ BBC. Теории заговора. Вакцинные войны / Conspiracy F
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29566.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ BBC: Аляска. Земли замёрзшего королевства / Alas
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29537.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ BBC: Вулканы в космосе / Space Volcanoes (2017) HDTV [H.264/1080i
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29528.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ BBC. Нас уже 7.7 миллиардов человек. Дальше - бо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29357.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ BBC: Horizon. Тёмная сторона Всемирной Паутины / In
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29334.jpg" />
 </div>
 
 
@@ -669,6 +643,33 @@ BBC: Horizon. Тёмная сторона Всемирной Паутины / In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4059F9B57C8CFC64903E90133D7FB9CA5AF250B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395638   (29303) от 30.01.2025
+
+BBC: Теории заговора: Тайное правительство и Джордж Сорос / The Conspiracy Files: The Billionaire Global Mastermind (2019) WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многочисленные теории заговора связывают имя Джорджа Сороса со всемирным еврейским заговором, тайным правительством, миграционным кризисом, биржевыми скандалами.
+Как возникают подобные теории, кто и зачем их цитирует, и причём здесь политтехнологии – в документальном фильме Би-би-си над этими и другими вопросами размышляют писатели, политики, учёные, и те, кто пострадал (   Читать дальше...   )Производство: Великобритания / BBC Current Affairs, British Broadcasting Corporation (BBC)Жанр: ДокументальныйРежиссер: Michael RudinУчастники: James Hoft, Jack Kingston, Leonard BenardoПеревод: Двуголосый профессиональный (Lucky Production)Субтитры: отсутствуютПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B42C6656421685572D6B019E186E087DD1147FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

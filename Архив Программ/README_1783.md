@@ -6,7 +6,7 @@ IceCream Ebook Reader Pro 6.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191241.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Universal USB Installer 2.0.1.7 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191240.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AutoPowerOptionsOK 5.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191238.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ iZotope - Ozone 10 Advanced 10.2.0 VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191234.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191231.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.1 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191214.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ iTubeGo YouTube Downloader 6.5.0 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191213.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ XnViewMP 1.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191205.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PotPlayer 230905 (1.7.21999) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191199.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Tor Browser Bundle 11.5.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191196.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Topaz Video AI 3.4.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191195.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ XnView Shell Extension 4.1.9  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191176.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Advanced SystemCare Pro 16.6.0.259 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191166.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ XnView Classic 2.51.4 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191163.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Diamond Cut Forensics Audio Laboratory 11.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191153.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Floorp Browser 11.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191142.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Notepad++ 8.5.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191140.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CCleaner 6.15.10623 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191134.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Internet Download Manager 6.41 Build 20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191126.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Topaz Photo AI 2.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191125.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Kaspersky Small Office Security 21.14.5.462 (Web Installer) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191094.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Registry Finder 2.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191069.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ LibreWolf 106.0.5-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191068.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Telegram Desktop 4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191059.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ AnyDesk 7.1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191040.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Telegram Desktop 4.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191038.jpg" />
 </div>
 
 

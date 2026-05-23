@@ -1,38 +1,3 @@
-###  Публикация: 593479   (135179) от 23.12.2012
-
-Skrillex - Best of all time (2012) [MP3|256 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex – Kill Everybody (Original Mix)
-02. Skrillex – Kill Everybody (Bare Noize Remix)
-03. Skrillex – Fucking Die (Cooper Mix)
-04. Skrillex – First Of The Year (Equinox)
-05. Skrillex – Father Said (feat. 12th Planet)
-06. Skrillex – Disco Rangers
-07. Skrillex – Bangarang
-08. Skrillex – All I Ask Of You (12th Planet Remix)
-09. Skrillex – All I Ask Of You (12th Planet Remix)
-10. Rob Zombie – Sick Bubblegum (Skrillex Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340C563418375B93BAE5413286F81880A36F7FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679669   (135159) от 26.11.2023
 
 VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
@@ -41,7 +6,7 @@ VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135159.jpg" />
 </div>
 
 
@@ -70,7 +35,7 @@ VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134992.jpg" />
 </div>
 
 
@@ -105,7 +70,7 @@ VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134986.jpg" />
 </div>
 
 
@@ -140,7 +105,7 @@ VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134981.jpg" />
 </div>
 
 
@@ -175,7 +140,7 @@ VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134899.jpg" />
 </div>
 
 
@@ -210,7 +175,7 @@ VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134880.jpg" />
 </div>
 
 
@@ -245,7 +210,7 @@ VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134877.jpg" />
 </div>
 
 
@@ -274,7 +239,7 @@ VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134867.jpg" />
 </div>
 
 
@@ -303,7 +268,7 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134864.jpg" />
 </div>
 
 
@@ -338,7 +303,7 @@ VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134853.jpg" />
 </div>
 
 
@@ -373,7 +338,7 @@ VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134842.jpg" />
 </div>
 
 
@@ -408,7 +373,7 @@ VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134832.jpg" />
 </div>
 
 
@@ -443,7 +408,7 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134831.jpg" />
 </div>
 
 
@@ -472,7 +437,7 @@ VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134823.jpg" />
 </div>
 
 
@@ -501,7 +466,7 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134813.jpg" />
 </div>
 
 
@@ -536,7 +501,7 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134794.jpg" />
 </div>
 
 
@@ -562,7 +527,7 @@ VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134792.jpg" />
 </div>
 
 
@@ -597,7 +562,7 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134779.jpg" />
 </div>
 
 
@@ -632,7 +597,7 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134771.jpg" />
 </div>
 
 
@@ -667,7 +632,7 @@ VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134760.jpg" />
 </div>
 
 
@@ -702,7 +667,7 @@ VA - Зимний extrim. Самые новые хиты 2 (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134710.jpg" />
 </div>
 
 
@@ -737,7 +702,7 @@ VA - Новогодний cборник зарубежной музыки (2012)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134691.jpg" />
 </div>
 
 
@@ -772,7 +737,7 @@ VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134563.jpg" />
 </div>
 
 
@@ -807,7 +772,7 @@ VA - Живёт моя отрада. Застольные песни (2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134454.jpg" />
 </div>
 
 
@@ -842,7 +807,7 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134272.jpg" />
 </div>
 
 
@@ -862,6 +827,41 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94AABA7CEECCEAD0CFC017E039FDFB29B9396A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594359   (134230) от 25.12.2012
+
+VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aperitif Quartet - Another Drink
+02. Lounge Lovers - Piano Pianoforte
+03. Jazz Bar - Indelette
+04. Funkalova - Samvise
+05. Cool John - With the Trumpet
+06. Beach Groove Ensemble - Vibrations
+07. Novo Som - Acapulco Express
+08. The Chiller - Chiller
+09. Examination - Maginot
+10. Gold Lounge Project - Vibes(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6339BCE0111CF52DEBA2B11CF5D380A76412182
 ```
 
 https://mybot314.ru/tekegram_catalog/

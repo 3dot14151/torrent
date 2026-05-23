@@ -6,7 +6,7 @@ Capsized (2011) [En] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790853.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ A Hat in Time (2017) [En] (1.0.10897.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790852.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Demon Turf (2021) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789176.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pronty: Fishy Adventure (2021) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789170.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ UNDEMON (2021) [Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789167.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Marsupilami: Hoobadventure (2021) [Ru/Multi] (1.0rd) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788716.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hextech Mayhem: A League of Legends Story (2021) [Ru/Multi] (1.21.11.19/dlc) Lic
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788715.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Headlander (2016) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786268.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Sexy Brutale (2017) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785526.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Remnants of Naezith (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783970.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Planetoid Pioneers (2018) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783698.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Pid (2012) [Multi] (18421) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783416.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Aegis Defenders (2018) [En/Jp] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782818.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hunahpu Quest. Mechanoid (2018) [Ru/En] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780358.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DYO (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780326.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0.43.1/dlc) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779442.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779428.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Little Nightmares (2017) [Ru/En] (1.0/dlc) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779026.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Owlboy (2016) [Ru/En/Jp] (1.3.6613.28019) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778588.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cosmochoria (2015) [En] (1.18.4) Repack ARMENIAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773990.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772643.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772527.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Lost Castle (2016) [Ru/Multi] (1.83) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772510.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ La-Mulana (2012) [Ru/Multi] (1.6.6.1b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766879.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Save Jesus (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766006.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ UNSIGHTED (2021) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764954.jpg" />
 </div>
 
 

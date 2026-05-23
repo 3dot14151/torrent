@@ -1,57 +1,3 @@
-###  Публикация: 1377379   (1024835) от 23.03.2021
-
-Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслабления (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя мир ASMR – новый способ расслабления и повышения качества сна. Помогает лучше, чем медиация. Намного эффективнее, чем белый шум. Самый популярный тренд в сфере релаксации и расслабления. Приложение Tingles – лучший способ ощутить на себе все преимущества ASMR. Лучшие ASMR-исполнители. Без рекламы. Работает с выключенным экраном, и поддерживает множество (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 01.02.2021Разработчик: Tingles, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876F09A40B61EB535A724C85D23AEE5874E4F99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457251   (1024550) от 25.03.2021
-
-Car Radio v1.1.3 [En] - for Android Stereo Head Units
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Интернет-радио, разработанное специально для автомобильных головных устройств Android для имитации FM-радио.
-Приложение предназначено для использования с головными стереосистемами 2 Din, такими как автомобильные аудиоустройства Joying или MTCD PX5.
-.Тип издания: Пиратка (Premium)Релиз состоялся: 21 февраля 2021 г.Разработчик: 3D Magic LLC.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FAFE7901F3700F09413C389003D89281FA593F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457207   (1024529) от 25.03.2021
 
 Учебник По Вождению Автомобиля v1.0.0.3 [Ru/Multi]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024529.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024393.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024061.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024049.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ Shadow of Death: Dark Knight - Stickman Fighting v1.100.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023997.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ Robot Warfare v0.4.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023979.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023973.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023951.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ Machinarium v2.5.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023917.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ ClockWork Tomato v3.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023799.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ AirDroid v4.2.6.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023716.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ Jeejen 3.1.20 Mod by Martin H3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023656.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ Jasi Patcher 4.11 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023441.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ Tiny Scan: PDF Document Scanner 4.2.10 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023439.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ SwiftScan (Ранее Scanbot) 7.9.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023421.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ Hi-Q MP3 Voice Recorder 2.9.0 Mod by Balatan, Rainontheradio, vars0ug [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023412.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ Spotify Music 8.6.12.986 Mod by Balatan, Sentex, jwwwg [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023192.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023117.jpg" />
 </div>
 
 
@@ -529,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023025.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ Family Coloring book v3.2.1 [En] (обновляемая)
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022879.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ Modern Combat 3: Fallen Nation 1.1.7g [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022346.jpg" />
 </div>
 
 
@@ -607,7 +553,7 @@ Modern Combat 4: Zero Hour 1.2.3e [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022341.jpg" />
 </div>
 
 
@@ -633,7 +579,7 @@ Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуа�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022328.jpg" />
 </div>
 
 
@@ -659,7 +605,7 @@ Color Grab (Color Detection) 3.9.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022266.jpg" />
 </div>
 
 
@@ -670,6 +616,59 @@ Color Grab (Color Detection) - Любите рисовать? Или же тво
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881EA281869D53AB81321CAA7DDE8A9BF223C85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460882   (1022242) от 07.04.2021
+
+Alarm Clock Pro 2.9.9 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будильник (Alarm Clock) - это новая форма простоты с элегантными часами и интеллектуальным алгоритмом активации сигналов.
+Приложение включает гибкий интеллектуальный алгоритм активации сигналов. Сигналы имеют функцию автоматической корректировки после смены часового пояса и предварительно определенные настройки. Во время разговора по телефону автоматически приглушается (   Читать дальше...   )Тип издания: Premium (Paid)Релиз состоялся: 06.04.2021Разработчик: MacroPinchПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD7C5298592F4812E633F9939028E0B6226822D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460911   (1022236) от 07.04.2021
+
+Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографии - это нечто большее, чем просто изображение. Увидьте в своих фото скрытый смысл и сделайте их невероятными, как никогда раньше. Множество пресетов, фильтров, оверлеев и анимаций. После редактирования они станут как живые, будут передавать уникальные истории! Настраивайте не только готовые эффекты, но и обычные категории: яркость, контраст, насыщенность, (   Читать дальше...   )Тип издания: Premium + ModificationsРелиз состоялся: 03.03.2021Разработчик: vimageПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D86052AF0DC3C0B61EF752DED2588D4C646C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

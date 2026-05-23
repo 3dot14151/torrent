@@ -6,7 +6,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290627.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289639.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289284.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Awe of Despair (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288868.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288862.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/En] (1.22.0.1/upd12/dlc) Rip R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285388.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0upd5) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285240.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Borderlands Game of the Year Enhanced (2019) [Ru] (1.5.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285224.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Root Of Evil: The Tailor (2016) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283632.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Battlefield: Bad Company 2 (2010) [Ru/En] (795745) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283356.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Signal Ops (2013) [En] (1.0.5361) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282132.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Killing Room (2016) [Ru/Multi] (1.37.7) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276687.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Maize (2016) [En] (1.0.1310) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276627.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Outlaws (1997) [En] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276180.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275408.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Space Rift NON VR (2016) [En] (1.0) License CODEX [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275360.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275348.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274157.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Elena (2016) [En/Ge] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271912.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271863.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270197.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212) License PLAZA [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270053.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Far Cry 3 (2012) [Ru/En] (1.05/dlc) Repack xatab [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270008.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ SOMA (2015) [Ru/Multi] (1.500) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267486.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267466.jpg" />
 </div>
 
 

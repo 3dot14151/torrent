@@ -6,7 +6,7 @@ n-Track Studio Suite 9.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031175.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Upchurch - Hideas: The Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031170.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ ON1 Photo RAW 2021.1 v15.1.0.10093 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031167.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Bartender 4 v4.0.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031166.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Reeder 5 v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031164.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mirror for LG TV 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031162.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Adobe Character Animator 2020 v3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031149.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Adobe Animate 2021 v21.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031144.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Skype 8.69.0.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031140.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WizTree 3.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031139.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ K-Lite Codec Pack Update 16.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031138.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Disk Drill Enterprise 4.2.274 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031133.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031130.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Adobe Premiere Rush v1.5.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031125.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Readiris Pro 17.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031122.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ RogueKiller Anti-Malware 14.8.5 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031121.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Skype 8.69.0.77 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031116.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Carbon Copy Cloner 5 v5.1.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031115.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Substance Designer 2021.1.0 (11.1.0) Build 4374 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031113.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ TapinRadio 2.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031112.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Native Instruments Traktor Pro 3 v3.4.2.256 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031110.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Howard Email Notifier 1.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031106.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Skype 8.69.0.77 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031088.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031078.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Adobe Media Encoder 2020 v14.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031059.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Bandicam 5.0.2.1813 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031056.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Zan Image Printer 5.0.19.11 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904434.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VentaFax Business 6.3 [Eng] и Private 6.3 [Multi включая Русский]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901686.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AlterPDF Pro 4.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896629.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AlterPDF Pro 4.2 Portable by AlekseyPopovv [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893347.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Soft4Boost Document Converter 6.9.3.779 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890671.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Movavi PDF Editor 3.1.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889919.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PDF Anti-Copy Pro 2.5.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883382.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Secure-PDF Professional Edition 2.000 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880218.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ WPS Office 10.1.0.5507 Premium Portable by BurSoft [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878575.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Addinsoft XLSTAT Premium v2016.02.28451 [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878182.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Adobe Acrobat Professional DC 15.010.20060 Portable by punsh [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876580.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tipard PDF to Word Converter 3.3.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870433.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869545.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Infix PDF Editor Pro 7.5.0 Portable by conservator [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868819.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Ace Translator 16.3.0.1630 RePack by вовава [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865698.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7248.5000 (2020.04) RePack by KpoJIuK [R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861440.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PassFab for Excel 8.5.2.7 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858121.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849802.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848051.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ GanttProject 2.8.11 Build 2393 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847928.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Kingsoft WPS Office 2016 Beta 10.1.0. 5510 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841048.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837717.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Kvisoft FlipBook Maker Enterprise 4.3.3.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829368.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ WindowsExcel 2020.1.0.1238 Portable by AlekseyPopovv [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824101.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ WindowsWord 2020.5.0.2428 Portable by AlekseyPopovv [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823995.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ WindowsWord 2020.5.0.2428 Portable by Deodatto [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823986.jpg" />
 </div>
 
 

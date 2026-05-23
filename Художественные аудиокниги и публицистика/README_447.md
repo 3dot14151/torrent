@@ -1,85 +1,3 @@
-###  Публикация: 1149792   (596617) от 13.07.2017
-
-Василий Фёдоров | Судьба мне подарила Русь (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2013 год насыщен многими юбилейными событиями, связанными с историей нашего края, среди которых 95-летний юбилей нашего земляка - поэта Василия Дмитриевича Федорова.
-Начало жизни где-то далеко,
-Конец ее, быть может, недалече.
-Пройти свой путь мне было не легко,(   Читать дальше...   )Жанр: Стихотворения. Поэмы. Терцины. Новеллы.Продолжительность: 12:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B711233F9A2990F5C3C817D6B4E642004AE7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149986   (596545) от 13.07.2017
-
-Стефан Цвейг | Письмо незнакомки (2017) [MP3, Николай Станишевский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В новелле «Письмо незнакомки» Цвейг рассказывает о чистой и прекрасной женщине, всю жизнь преданно и самоотверженно любившей черствого себялюбца, который так и не понял, что он прошёл, как слепой, мимо великого чувства.Жанр: Классика, драмаИздательство: Аудиокнига своими рукамиПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA47C5961B6CD9D656ABF6957C2CB38B03F57BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150042   (596541) от 13.07.2017
-
-Александра Черчень | Тайна василиска (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Интриги, пакости, опасности… обычная жизнь студентов в Академии Триединства! Но у мавки Невилики все намного веселее!
-К стандартному набору прилагаются головоломные расследования и блуждания в лабиринте собственных чувств и страстей. Ведь призрак-убийца продолжает на нее охоту, загадочные события из прошлого основателей Академии не дают покоя, как не оставляет в (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DF0AFB6A36575F04DAE4A56CDD9D0C09C2BA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150035   (596540) от 13.07.2017
 
 Владимир Жаботинский | Пятеро. Роман и пять рассказов о старой Одессе (2017) [MP3]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596540.jpg" />
 </div>
 
 
@@ -115,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596421.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596044.jpg" />
 </div>
 
 
@@ -169,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595850.jpg" />
 </div>
 
 
@@ -196,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595583.jpg" />
 </div>
 
 
@@ -223,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595577.jpg" />
 </div>
 
 
@@ -249,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595576.jpg" />
 </div>
 
 
@@ -276,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595519.jpg" />
 </div>
 
 
@@ -302,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595514.jpg" />
 </div>
 
 
@@ -329,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595456.jpg" />
 </div>
 
 
@@ -356,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595454.jpg" />
 </div>
 
 
@@ -382,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595290.jpg" />
 </div>
 
 
@@ -408,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595277.jpg" />
 </div>
 
 
@@ -435,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595276.jpg" />
 </div>
 
 
@@ -461,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595168.jpg" />
 </div>
 
 
@@ -487,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595155.jpg" />
 </div>
 
 
@@ -513,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595102.jpg" />
 </div>
 
 
@@ -539,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595089.jpg" />
 </div>
 
 
@@ -565,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595001.jpg" />
 </div>
 
 
@@ -591,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594992.jpg" />
 </div>
 
 
@@ -617,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594987.jpg" />
 </div>
 
 
@@ -645,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594986.jpg" />
 </div>
 
 
@@ -671,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594974.jpg" />
 </div>
 
 
@@ -682,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5F66DBE9CB5E85693EB605308C91DFC0648B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299773   (594971) от 04.05.2019
+
+Григорий Каковкин | Мужчины и женщины существуют (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каковкин Григорий Владимирович — писатель, драматург, журналист, режиссер и сценарист документального кино. Родился в Москве в 1953 году. Окончил философский факультет МГУ. Как журналист и публицист работал в ведущих изданиях страны, в газетах “Известия”, “Литературная газета”, журнале “Сельская молодежь” и “Открытая политика”. На телевидении был ведущим и автором (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE66F434D630592383B85F739C2E9B808B13C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299164   (594968) от 04.05.2019
+
+Сергей Козлов | Вид из окна (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбежавший из родного города, а также пытающийся сбежать от самого себя разведённый поэт по объявлению в газете нанимается в сопровождающие к овдовевшей миллионерше-бизнесменше Вере. В скором времени между ними вспыхивает любовная страсть. Неожиданно появляется киллер, которого Вера нанимала для того, чтобы он разделался с убийцами её мужа, а потом начинают происходить (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 11:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011C3704EF17421AED98E08F8149FD7504BD792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298843   (594965) от 04.05.2019
+
+Михаил Шполянский | Был такой случай (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Шполянский (1955-2014) - священник Украинской Православной Церкви, писатель, публицист, многодетный отец, воспитавший троих своих и 11 приемных детей. Популярность его книг выходит далеко за пределы воцерковленной читательской аудитории. Практически все рассказы отца Михаила имеют автобиографический характер. Читая их, невозможно не удивляться тому, как интересна (   Читать дальше...   )Жанр: Смешные и грустные истории из жизни священникаПродолжительность: 17:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73223481B094BB373C8607F6009247EC5B964210
 ```
 
 https://mybot314.ru/tekegram_catalog/

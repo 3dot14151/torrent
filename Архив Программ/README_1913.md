@@ -6,7 +6,7 @@ IP-TV Player 0.28.1.8841 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158570.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 7.17.32.105 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158566.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 7 Максимальная SP1 x86 JAWS15 для незрячих.2015.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158560.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bandicam 3.0.1.1002 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158555.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Indigo Renderer Standalone 3.8.29 + plugin for Cinema 4D R11-R15 3.18.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158541.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RuntimePack 15.12.20 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158536.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AnyDVD & AnyDVD HD 7.6.6.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158532.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4779.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158527.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4779.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158526.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cyberfox 43.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158479.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Slimjet 6.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158461.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ K-Lite Codec Pack Update 11.7.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158436.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cyberfox 43.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158434.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ CCleaner 5.13.5460 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158422.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Glary Utilities Pro 5.41.0.61 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158403.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AdwCleaner 5.026 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158399.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ SoftColor PhotoEQ 10.0 RePack (& Portable) by 78Sergey & Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158390.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Everything 1.4.0.713 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158372.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ FileMenu Tools 7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158365.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Bat! Professional 7.1.4 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158361.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ CCleaner 5.13.5460 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158360.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ TheAeroClock 3.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158354.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ad-Aware Free Antivirus+ 11.8.856.8535 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158353.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PanoramaStudio Pro 3.0.0 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158350.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Revo Uninstaller Pro 3.1.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158346.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Windows 8.1 x64 Single Language NVDA для незрячих. 2015.12.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158345.jpg" />
 </div>
 
 

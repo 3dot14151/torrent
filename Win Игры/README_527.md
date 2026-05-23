@@ -1,29 +1,3 @@
-###  Публикация: 1784253   (24228) от 19.03.2025
-
-Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Испытайте ошеломительные моменты, погружаясь в разнообразные миры Split Fiction, новаторского совместного приключения от студии, создавшей It Takes Two - игру года 2021. Мио и Зоя - писательницы-антиподы: одна пишет научную фантастику, другая - фэнтези. Они оказываются заперты в собственных сюжетах, после того, как их подключили к машине, созданной, чтобы украсть (   Читать дальше...   )Тип издания: RepackРазработчик: Hazelight StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536676   (24225) от 19.03.2025
 
 Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle] [18+]
@@ -32,7 +6,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24225.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24220.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24210.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack seleZen [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24200.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24199.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Beyond Galaxyland (2024) [Ru/Multi] (1.0.0.6/1.0.2.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24192.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24189.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Corner Kitchen: Fast Food Simulator (2025) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24185.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24124.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24116.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Death Stream (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24114.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24113.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24107.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24095.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Reignbreaker (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24083.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24078.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24022.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Long Dark (2017) [Ru/Multi] (2.40/dlc) Repack dixen18 [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24017.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24007.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23993.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dread Tomb (2025) [Multi] (1.16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23979.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23976.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Cataclismo (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23973.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Storykeepers: Hidden Mystery (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23969.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Aquatic Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23962.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Aquatic Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD5A1D4632ACCD35A1F5405A3C76163A6EF58993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631922   (23919) от 22.03.2025
+
+Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Curse of the Sea Rats - двумерная метроидвания, рассказывающая настоящую пиратскую историю об отважных боевых крысах. Как шутят разработчики игры, приключенческая игра с элементами крысоидвании. История начинается в тот момент, когда ведьма-пиратка превращает весь экипаж корабля в крыс. Теперь героям необходимо отправиться в насыщенное событиями приключение, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Petoons StudioЖанр: Экшны, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

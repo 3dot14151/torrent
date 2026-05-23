@@ -6,7 +6,7 @@ Aiseesoft Video Converter Ultimate 10.5.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568606.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Textify 1.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568596.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Paint.NET 4.0.17 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568588.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zoom Player MAX 13.7.1 Build 1371 Final RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568584.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cumulative Update KB4025334 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568579.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 Manager 2.1.3 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568557.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BELOFF [dp] 2019.5.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568542.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Nitro PDF Professional v7.5.0.22 Repack by Boomer (x86\x64)[Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568514.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mozilla Firefox 48.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568510.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hotspot Shield Elite 6.20.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568503.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Windows App Boss 1.0.2.3 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568487.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ FinePrint 7.05 Final Repack by alexagf [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568485.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Bandicam 3.2.1.1106 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568483.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.00.5100 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568473.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Duplicate Cleaner Pro 4.0.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568460.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Nitro PDF Professional v7.5.0.22 Final + Portable [2012,x86\x64,Eng\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568458.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Avast Internet Security 19.5.2378 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568456.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Wondershare Filmora 8.3.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568433.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6754.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568415.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Mozilla Firefox Adaptable 14.0.1 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568404.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7172.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568402.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ KMSoffline 2.1.2 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568374.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Avast Premier 19.5.2378 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568363.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ KMS Tools Portable 13.07.2017 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568322.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Microsoft Office 2007 Standard SP3 12.0.6754.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568319.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Symantec Endpoint Protection 14.2.1 (14.2 RU1) build 3335 (14.2.3335.1000) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568318.jpg" />
 </div>
 
 

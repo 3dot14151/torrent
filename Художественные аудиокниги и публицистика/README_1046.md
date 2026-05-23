@@ -1,84 +1,3 @@
-###  Публикация: 315884   (35897) от 28.11.2024
-
-Пьер Бенуа | Дорога гигантов (2011) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Большая библиотека приключений и научной фантастики.
-Пьер Бенуа (1886–1962) – французский писатель, член Французской академии (1931).
-Роман «Дорога гигантов» (La Chaussée des géants) написан в 1922 году.
-Герой после ранения переводится на тыловую службу, где решает заняться редким мегрельским языком. В результате его как редкого специалиста (   Читать дальше...   )Жанр: Зарубежная литература, классика, авантюрно-приключенческий романПеревод: О.А. ОвсянниковаИздательство: Нигде не купишьПродолжительность: 09:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5287D0360424D2F252F74967C2822FF87F125D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762927   (35872) от 28.11.2024
-
-Максим Гаусс | Преисподняя (Книга 5). «Омикрон-4» (2024) [MP3, Кирилл Федоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я выжил! Но какой ценой? Врачи и генетики смогли поставить меня на ноги. Да и черт бы с этим…Серьезные люди из службы безопасности обратились ко мне за помощью – где-то в руинах «Астры-1» при странных обстоятельствах пропадают люди. На лицо факт нападения неизвестным существом…Теперь я, Костолом и хорошо вооруженная охрана – спасатели. Мля, мы снова спускаемся в (   Читать дальше...   )Жанр: Боевая фантастика, ужасы, триллерИздательство: ЛитРес: чтецПродолжительность: 10:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD3A804B391FCB0C0F811A24694736529D908F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762759   (35859) от 28.11.2024
-
-Николай Метельский | Маски (Книга 8). Тень маски (2020) [MP3, Андрей Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Везунчик, гений, неординарная личность, ведьмак – это всё о нём, о Синдзи Аматэру. Малайская эпопея для него фактически закончилась, принеся немалые барыши. Но бездействие – это не про него, и по возвращении в Токио Синдзи задумывает новые авантюры.Жанр: Боевое фэнтези, Городское фэнтези, ПопаданцыИздательство: АРДИСПродолжительность: 14:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFDA8A050D0FA114FB84E0257C21BB8DD47B657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762922   (35856) от 28.11.2024
 
 Максим Гаусс | Преисподняя (Книга 4). «Заря-2» (2024) [MP3, Кирилл Федоров]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35856.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35852.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35840.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35837.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35829.jpg" />
 </div>
 
 
@@ -223,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35826.jpg" />
 </div>
 
 
@@ -249,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35825.jpg" />
 </div>
 
 
@@ -277,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35821.jpg" />
 </div>
 
 
@@ -303,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35818.jpg" />
 </div>
 
 
@@ -329,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35794.jpg" />
 </div>
 
 
@@ -356,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35783.jpg" />
 </div>
 
 
@@ -384,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35746.jpg" />
 </div>
 
 
@@ -410,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35721.jpg" />
 </div>
 
 
@@ -438,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35643.jpg" />
 </div>
 
 
@@ -464,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35581.jpg" />
 </div>
 
 
@@ -490,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35580.jpg" />
 </div>
 
 
@@ -516,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35562.jpg" />
 </div>
 
 
@@ -542,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35553.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35541.jpg" />
 </div>
 
 
@@ -594,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35459.jpg" />
 </div>
 
 
@@ -620,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35452.jpg" />
 </div>
 
 
@@ -646,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35449.jpg" />
 </div>
 
 
@@ -672,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35429.jpg" />
 </div>
 
 
@@ -684,6 +603,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC937FD600CCB65555338198EEA25045C52D1A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311172   (35374) от 03.12.2024
+
+Сэмюэл Беккет | Мерфи (2004) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэмюэл Беккет (1906–1989) – ирландский писатель, один из самых известных представителей авангардной литературы двадцатого века, лауреат Нобелевской премии 1969 года. По насыщенности слова его сравнивают с Джойсом, а по умению показать тщету и безысходность человеческого существования – с Кафкой.
+Роман «Мерфи», написанный Беккетом в 1938 году, еще до окончательного (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 07:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1351AF42AEE436F8D8791FCB85A3BD61E62912C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763828   (35368) от 03.12.2024
+
+Макс Вальтер | Мешок 2.0 (Книга 1). Руль (2024) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот город, не имеет ни конца ни начала. Здесь всегда идёт дождь, а передвигаться можно только ночью. Кровожадные твари подстерегают за каждым углом и нужно хорошо постараться, чтобы не стать ужином для одной из них. Я – простой дальнобойщик, волею судьбы, заброшенный в это жуткое место. Подыхать мне совсем не хочется, а значит придётся, учиться жить заново. И я (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, ПостапокалипсисИздательство: Литрес - чтецПродолжительность: 07:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40021A11411293B404A27E95C6C0CF0F0BC722A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763750   (35361) от 03.12.2024
+
+Антон Чехов | Сборник радиопостановок (Часть 1) (2017) [MP3, А. Папанов, А. Миронов, Р. Плятт и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая фраза писателя: «Краткость – сестра таланта», как нельзя более подходит к творчеству самого А.П.Чехова. Одним верным штрихом обозначить характер, метким словом сказать о главном, точно расставить акценты и нарисовать яркую объемную картинку буквально за несколько минут – это работа мастера. Никто так не рассмешит, как Чехов, и никто так не заставит грустить, (   Читать дальше...   )Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075BE872308396A1145B5DD897734535D7DAC501
 ```
 
 https://mybot314.ru/tekegram_catalog/

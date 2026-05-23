@@ -1,107 +1,3 @@
-###  Публикация: 1014587   (775943) от 08.05.2016
-
-Lego Jurassic World (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что вы знаете о динозаврах? Безусловно, они имели весьма большие размеры и отличались не очень дружелюбным нравом, их мир был жесток и в нем приходилось бороться за жизнь. Вам же, предстоит следить за протеканием юрского периода, попутно пользуясь главным плюсом Lego мира, возможностью создать нечто новое, тут все ограничивается только вашей фантазией.Тип издания: LicenseРазработчик: TT Games, Feral InteractiveЖанр: Arcade (Platform), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B482E94A2FCE5109F0C63775B75AB40FFD008B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014593   (775941) от 08.05.2016
-
-SEGA Superstars Tennis (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Теннис является одним из самых популярных видов спорта. Телевизионные трансляции, международные соревнования, престижные кубки, многомиллионные гонорары — все это привлекает внимание миллионов поклонников. Но чтобы стать настоящим теннисистом, нужны годы упорных тренировок. Отдать столько времени спорту способны лишь увлеченные люди, но теперь замечательный шанс (   Читать дальше...   )Тип издания: LicenseРазработчик: Sumo DigitalЖанр: Sport SimulatorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA3A3E0D6358BFBBB8A79BB1FEE2335EA7ACB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204673   (775917) от 11.03.2018
-
-Final Fantasy X HD Remaster (2014) [PSVita] [USA] 3.60 [NoNpDrm] [Repack / UnDub] [Ru]
-
->>Консольные Игры
->>PS Vita
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Время золотого века наступило тогда, когда просвещенной цивилизации, населявшей Спиру, удалось открыть устройство Machina. Но всё это далекое прошлое. Примерно тысячу лет назад в мире поселилась беда, которая носила название Син. И понеслись несчастья, разрушения, как говорили пророки из-за чрезмерной веры в Machina. Все это продолжалось, пока молодой и перспективный (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: JRPGЯзык озвучки: ЯпонскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E0E23F0C139F5354B2E4C7FDC49C2CAD4DB94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014576   (775907) от 08.05.2016
-
-Kirby and the Rainbow Paintbrush (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Стране грез произошла беда — исчезли сразу все цвета! Исследуйте чудесный пластилиновый мир красочной игры жанра «платформер», используя сенсорный экран Wii U GamePad для того, чтобы рисовать радужные нити, по которым будет перемещаться Кирби, а также блокировать препятствия и врагов.Тип издания: LicenseРазработчик: HAL Labs, Nintendo SPDЖанр: Платформер, приключениеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64B4052A2472105A9F43C8C143041B33001DEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015163   (775592) от 09.05.2016
 
 Smash Cars (2009) [PS3] [EUR] 3.41 [PSN] [Ru/En]
@@ -110,7 +6,7 @@ Smash Cars (2009) [PS3] [EUR] 3.41 [PSN] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775592.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ X-Men Origins: Wolverine (2009) [Xbox360] [RegionFree] FreeBoot [Repack] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775554.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775550.jpg" />
 </div>
 
 
@@ -190,7 +86,7 @@ Smash Cars (2009) [PS3] [EUR] 2.70 [Cobra ODE / E3 ODE PRO ISO] [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774702.jpg" />
 </div>
 
 
@@ -216,7 +112,7 @@ multiMAN 4.50.01 BASE (for BD-R and ODE) [PS3] [Ru/Multi] [Cobra ODE / E3 ODE PR
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774699.jpg" />
 </div>
 
 
@@ -244,7 +140,7 @@ Red Dead Redemption (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773952.jpg" />
 </div>
 
 
@@ -270,7 +166,7 @@ Dead or Alive (1996) [PS1] [USA] [Unofficial] [Ru]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773918.jpg" />
 </div>
 
 
@@ -297,7 +193,7 @@ Alien Resurrection (2000) [PS1] [USA] [Unofficial] [Ru]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773877.jpg" />
 </div>
 
 
@@ -323,7 +219,7 @@ South Park (1999) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773871.jpg" />
 </div>
 
 
@@ -349,7 +245,7 @@ Bayonetta 2 (2014) [WiiU] [USA] 4.1.0 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773839.jpg" />
 </div>
 
 
@@ -375,7 +271,7 @@ Max Payne 3 + 13 DLC [PS3] [PAL] [Ru/En] [Repack/1.09] 2012 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773129.jpg" />
 </div>
 
 
@@ -401,7 +297,7 @@ Grand Theft Auto 4: Complete Edition (2008) [PS3] [EUR] 3.41 [Unofficial] [Ru/En
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772612.jpg" />
 </div>
 
 
@@ -427,7 +323,7 @@ Star Fox Guard (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772411.jpg" />
 </div>
 
 
@@ -455,7 +351,7 @@ Game & Wario (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772402.jpg" />
 </div>
 
 
@@ -481,7 +377,7 @@ Star Fox Zero (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772302.jpg" />
 </div>
 
 
@@ -507,7 +403,7 @@ Mario Tennis: Ultra Smash (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771001.jpg" />
 </div>
 
 
@@ -533,7 +429,7 @@ Smash Cars (2009) [PS3] [USA] 3.55 [PSN] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770999.jpg" />
 </div>
 
 
@@ -559,7 +455,7 @@ Super Smash Bros. for Wii U (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770948.jpg" />
 </div>
 
 
@@ -585,7 +481,7 @@ Super Mario Maker (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770886.jpg" />
 </div>
 
 
@@ -611,7 +507,7 @@ IRD файлы для ODE ISOCheck (2015) [PS3] [Ru]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770107.jpg" />
 </div>
 
 
@@ -638,7 +534,7 @@ Mario Party 10 (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770054.jpg" />
 </div>
 
 
@@ -665,7 +561,7 @@ Red Dead Redemption (2011) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769605.jpg" />
 </div>
 
 
@@ -676,6 +572,115 @@ Red Dead Redemption (2011) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [Repack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19843953E68A51CCCD167FCF6E2488C7F5C601B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016587   (769490) от 15.05.2016
+
+Shovel Knight (2015) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shovel Knight - это классическая приключенческая игра с великолепным геймплеем, 8-битной графикой и запоминающимися, харизматичными персонажами.
+
+В ней вы найдёте зубодробительную смесь того, что накопил в себе этот жанр за долгие годы существования. Вам предстоит играть за маленького, но храброго рыцаря, перед которым стоит большая и серьёзная задача! Ему нужно (   Читать дальше...   )Тип издания: eShopРазработчик: Yacht Club GamesЖанр: Arcade (Platform)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB946D893EFC8194A8A6C9F85202C26BCE7DDA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016966   (769476) от 15.05.2016
+
+Lone Survivor Director's Cut (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En/Gr/Fr]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lone Survivor является survival horror’ом, однако за крупными пикселями скрывается скорее печальная повесть, граничащая с безумием и реальным миром, и часто вы будете задумываться: «а то, что видит герой — реальность или сон?». Разработчики очень тонко играют на восприятии, частенько подбавляя пищу для размышлений. Атмосфера одиночества и депрессии передана настолько (   Читать дальше...   )Тип издания: eShopРазработчик: Curve StudiosЖанр: Action, Horror, AdventureЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57A2BD93AB7706B0C7103C3C2A1FF17F5661265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016980   (769468) от 15.05.2016
+
+Swords & Soldiers II (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принципы Swords & Soldiers II просты: стройте здания и создавайте армию, состоящую из разных отрядов. У каждого отряда будет своя роль, но все они начинают атаковать автоматически. Лишь одним касанием сенсорного экрана можно воплотить в жизнь свои тактические схемы. Восстанавливайте войска, призывайте молнии и метеоритный дождь простым касанием экрана. В разгар (   Читать дальше...   )Тип издания: eShopРазработчик: Ronimo GamesЖанр: Action, StrategyЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAD42DE7F13B2D82C033C4F92A6DA6D039FD993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016779   (769451) от 15.05.2016
+
+Don't Starve: Giant Edition (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Don’t Starve: Giant Edition — это бескомпромиссная игра на выживание в глуши, полная науки и магии.
+
+Вы играете за Уилсона, неустрашимого учёного, пойманного демоном и перенесённого в загадочный дикий мир.
+(   Читать дальше...   )Тип издания: eShopРазработчик: Klei Entertainment Inc. / BlitWorksЖанр: Action, AdventureЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69ED5C8D2175F385DBFA582A96A7146F37DDE7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

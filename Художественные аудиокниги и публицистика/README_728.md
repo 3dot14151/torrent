@@ -1,83 +1,3 @@
-###  Публикация: 1426222   (215437) от 23.11.2020
-
-Кирилл Клеванский | Пепел (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-«Пепел» – фантастический роман Кирилла Клеванского, первая книга цикла «Легенды Безымянного Мира», приквел к "Сердце Дракона», жанр боевое фэнтези, героическое фэнтези.
-
-Еще до того, как погасла Миристаль. До битвы Небес и Земли. Когда еще не был заточен на Горе Черепов Черный Генерал, странствовал волшебник, ищущий на бесконечных тропах Безымянного Мира себя, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 17:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33F7420461545D12D859DB84882CBBFA479BD7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586594   (215425) от 27.10.2022
-
-Алексей Карелин | S.T.A.L.K.E.R.: Еретик  (2022). [MP3, Олег Шубин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Кто есть Бог и есть ли? И может ли Он помочь в Зоне, которая не терпит соперничества? Кто страшнее: монстр или человек? Прошедший чеченскую войну Островский оставлен отрядом в Припяти. Раненный и обессиленный, он оказывается во власти былого врага из боевого прошлого. А дома ждут жена и дочь, умирающие от рака...Жанр: Боевая фантастика, ПостапокалипсисПродолжительность: 10:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141B475D6AFC207CABEB2B36FED780260C267D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270031   (215419) от 17.12.2018
-
-Максим Керн | Корона эльфийской империи (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Хорошо быть королём. Все тебя любят, все тебя уважают… Так думал наш соотечественник Алексей Воронцов, когда после автомобильной аварии попал в другой мир. Причём в тело эльфа. Непростого эльфа, к слову, а целого короля. Казалось бы, живи и радуйся, тем более, что возвращаться обратно Алексей желанием не горит. Но быть королём оказалось не так просто. Сначала вампир-оборотень (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, Юмористическое фэнтезиПродолжительность: 12:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0109579C7AAC18EF60159BFA5353E31806BEC026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269887   (215393) от 17.12.2018
 
 Алексей Махров | Каратели времени (2018) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215393.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215382.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215372.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215351.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215285.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215271.jpg" />
 </div>
 
 
@@ -245,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215260.jpg" />
 </div>
 
 
@@ -271,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215246.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215204.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215175.jpg" />
 </div>
 
 
@@ -352,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215164.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215101.jpg" />
 </div>
 
 
@@ -406,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215079.jpg" />
 </div>
 
 
@@ -432,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215032.jpg" />
 </div>
 
 
@@ -460,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214998.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214991.jpg" />
 </div>
 
 
@@ -513,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214964.jpg" />
 </div>
 
 
@@ -541,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214963.jpg" />
 </div>
 
 
@@ -567,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214961.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214959.jpg" />
 </div>
 
 
@@ -621,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214934.jpg" />
 </div>
 
 
@@ -648,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214900.jpg" />
 </div>
 
 
@@ -674,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214892.jpg" />
 </div>
 
 
@@ -685,6 +605,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66C944CE67AA11F4C993E5C689A8690345C8BAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426514   (214858) от 24.11.2020
+
+Ольга Герр | Захватчик (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214858.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Захватчик» – фантастический роман Ольги Герр, первая книга цикла «Атланты», жанр любовное фэнтези, эротическое фэнтези.
+Элитная порода, отличная родословная, крепкое здоровье и красивый экстерьер – это все про меня. Нет, я не животное, я – человек. Но после того как появились они, это одно и то же. Не желая быть чьим-то любимцем, я сбежала и спряталась. Как думала (   Читать дальше...   )Жанр: Любовное фэнтези, Эротическое фэнтезиПродолжительность: 08:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00ED14E32D59FC5F08EE10CED390D551F48F1689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426518   (214836) от 24.11.2020
+
+Екатерина Верхова | Город Левиафанов (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу популярной современной писательницы Екатерины Верховой – «Город Левиафанов», вторую в серии «Город Бегемотов».
+
+Книга прочитана популярной киноактрисой и известной актрисой дубляжа Сашей Брежневой.
+Жизнь прекрасна и удивительна. По крайней мере, я себя в этом изо всех сил убеждаю. Ну и что, что я – неопытная новообращенная (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиПродолжительность: 06:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4B219A4AA18386B03B3D38F61393D9E4929F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344041   (214793) от 08.12.2019
+
+Анна Пожарская | Ключи от счастья (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть сестрой правителя – значит быть вещью, разменной монетой в делах государства. Да и как иначе, если брат проигрывает войну, а происхождение предписывает забыть о себе и, выбирая мужа, следовать долгу, а не сердцу. Кровь велит сохранять спокойствие и выполнять условия договора с врагом, не желая объяснять, что делать, если мысли занимает вовсе не жених, а вояка-шалопай: (   Читать дальше...   )Жанр: Женское фэнтезиПродолжительность: 06:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA8EE257363D6A4431BD99D17978B9D3AC3E7B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

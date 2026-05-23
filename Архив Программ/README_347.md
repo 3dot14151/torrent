@@ -6,7 +6,7 @@ XMedia Recode Version 2.3.0.9 [Multi/Русский] Free
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874494.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Whale Browser 2.10.124.26 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874475.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Sunrise Seven 1.1.54 (x32, x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874470.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Free DVD Video Converter 1.5.12 [Multi] [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874468.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Loaris Trojan Remover 3.1.22.1453 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874433.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ PeaZip 7.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874431.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Trojan Killer 2.1.20 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874427.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Infix PDF Editor Pro 7.5.0 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874420.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DriverPack Solution 16.17.1 + Драйвер-Паки 17.02.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874388.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Product Key Explorer 4.2.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874304.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ oCam 500.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874302.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Opera 67.0.3575.137 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874297.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Bat! Professional 9.1.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874294.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FastStone Image Viewer 6.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874290.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4903.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874289.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4903.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874285.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Advanced SystemCare Pro 10.2.0.721 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874278.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Waterfox Current / Classic 2020.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874197.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Cent Browser 4.2.9.152 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874196.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ OCCT 5.5.6.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874190.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Bat! Professional 9.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874125.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Visual Studio Code 1.44.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874118.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ oCam Screen Recorder 500.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874095.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ TreeSize Professional 7.1.5.1471 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874093.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ FurMark 1.21.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874086.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Bandicam 4.5.8.1673 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874020.jpg" />
 </div>
 
 

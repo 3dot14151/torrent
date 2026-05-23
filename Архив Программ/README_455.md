@@ -6,7 +6,7 @@ Comodo Cloud Antivirus 1.1.387596.183 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805472.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Smart Defrag Pro 5.0.2.768  Final[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805463.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vivaldi 1.8.770.46 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805380.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gilisoft USB Lock 5.7.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805352.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hotspot Shield Elite 5.20.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805342.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Spamihilator 0.9.9.53 [Multi (Ru)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_805265.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Vivaldi 1.8.770.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805246.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ ACDSee Ultimate 9.2 Build 649 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805232.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Freemake Video Converter 4.1.9.9 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805226.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ GPU Caps Viewer 1.34.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805136.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Icecream Screen Recorder Pro 4.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805133.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Novicorp WinToFlash Professional 1.6.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805124.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Immersive Explorer 1.1.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805066.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Process Lasso Pro 8.0.2.0 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805057.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Avast Premier 17.3.2290 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805000.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ viber 6.7.0.1082 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804998.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Microsoft Windows and Office ISO Download Tool 4.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804997.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mozilla Firefox 37.0.1 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804965.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.90.4200 Final Portable by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804914.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VMware Workstation 12 Pro 12.5.5 build 5234757 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804897.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Volume2 1.1.5.399 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804806.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ IObit Uninstaller Pro 6.3.0.18 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804805.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Internet Download Manager 6.28 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804798.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Internet Download Manager 6.23 Build 10 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804764.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ R-Studio 7.6 Build 156767 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804762.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Microsoft Windows 10 TP Language Pack build 10049 (x86-x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804757.jpg" />
 </div>
 
 

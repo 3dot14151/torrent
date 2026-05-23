@@ -6,7 +6,7 @@ VA - Total EDM Invasion 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239027.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sola Presents: Miami (2023) [MP3|320 Kbps] <House, Funky House, Tech House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239014.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Beach Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238766.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tiesto - DRIVE (2023) EXPLICIT [MP3|320 Kbps] <House, Electropop, Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238563.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Deep Ibiza Opening Party (2023) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238363.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - This Is Deep House 2023 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238266.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Night Grooves (House Edition), Vol. 2 (2023) [MP3|320 Kbps] <House, Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238256.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Ultimate Club Tunes (2023) [MP3|320 Kbps] <Euro House, Club, Progressive, T
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237545.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Elite Force - Modern Primitive (2006) [MP3|320 Kbps] <House, Downtempo, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237281.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - We Love Summer Vol. 2 (2023) [MP3|320 Kbps] <Deep House, Deep Tech, Soulful
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237264.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Deep House Summer Paradise Pt. 1 (2023) [MP3|320 Kbps] <Deep House, Deep Te
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237236.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Best Collection Of The Year - OMNE ONE (2023) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237117.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Senssual Miami (2023) CD, Compilation [MP3|320 Kbps] <House, Funky House, N
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236993.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Tune Zone: Deep House Edition (2023) [MP3|320 Kbps] <Deep House, Deep Groov
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236979.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Quantize Soulful House Collection Vol. 1 - Compiled & Mixed By Renée Melen
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236947.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Armada Subjekt - Ibiza 2023 (2023) [MP3|320 Kbps] <House, Tech House, Afro 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236339.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - 33-45 Rpm, Vinyl-Struck Vol. 4 (2023) [MP3|320 Kbps] <Jackin House, Soulful
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236172.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Summer 2023: Best Of Deep House (2023) CD, Compilation [MP3|320 Kbps] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236154.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Songspire Records In Miami 2023 (2023) [MP3|320 Kbps] <House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235392.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Spring Sampler 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235377.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Club Summer Megamix (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235052.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Black Hole House Music 05-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234601.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Funky House Summer Anthems (2023) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234463.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Summer Megamix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234119.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - EDM Deejay Compilation 2023 (Summer Edition) (2023) [MP3|320 Kbps] <Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233829.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - The Good Life 2023 (Best Deep House, Relax House, Chill House, Tropical Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233824.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ashampoo Snap 10.0.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785907.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stellarium 0.12.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785900.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XnViewMP 0.85 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785896.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ W10Privacy 2.3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785891.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AIMP 4.13 Build 1893 DC 07.04.2017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785884.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Acronis True Image 2017 New Generation Build 6206 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785869.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Acrobat XI Pro 11.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785863.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ uTorrent 3.5.0 Build 43580 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785859.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Paint.NET 4.0.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785763.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ashampoo Burning Studio 18.0.4.15 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785762.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Silverlight 5.1.50906.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785754.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ SIV (System Information Viewer) 5.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785749.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785743.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Windows and Office ISO Download Tool 4.32 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785738.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ DevID Agent 4.39 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785736.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AV Uninstall Tools Pack 2017.04 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785735.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ EssentialPIM Pro 7.24 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785731.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Adobe Flash Player 25.0.0.148 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785720.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ O&O ShutUp10 1.5.1389 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785719.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Flash Player 25.0.0.148 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785716.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Sound Normalizer 7.6 RePack (& Portable) by elchupacabra (UPD 11.04.2017) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785708.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Acronis True Image 2017 Build 8041 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785707.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe Acrobat XI Pro 11.0.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785693.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Sprint-Layout 6.0 (06.06.2016) Repack by Lordar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785687.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Rufus 2.14 Build 1086 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785684.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Adobe Photoshop Lightroom CC 2015.10 (6.10) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785682.jpg" />
 </div>
 
 

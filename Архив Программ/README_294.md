@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909078.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Torch Browser 69.1.0.3064 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909070.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Chromium 11.0.660.0 (73801) [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_908965.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Viber 12.6.0.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908954.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Unity Pro 2019 2.20f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908948.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Free Alarm Clock 2.7.1 [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908865.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Athentech Perfectly Clear Complete 3.10.0.1771 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908863.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ MyPhoneExplorer 1.8.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908825.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BELOFF [dp] 2020.03.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908814.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SIMetrix/SIMPLIS 8.20a [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908806.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ GOM Player Plus 2.3.51.5315 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908715.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ NVIDIA GeForce Desktop 442.74 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908711.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cent Browser 4.2.7.128 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908703.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ashampoo WinOptimizer 17.00.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908702.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Blender K-Cycles RTX 2021 3.0.0 Alpha Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908693.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Mozilla Thunderbird 91.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908689.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Opera GX 78.0.4093.186 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908661.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ OpenShot 2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908657.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ PrivaZer 4.0.28 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908647.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Format Factory 5.1.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908645.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Blender K-Cycles RTX 2021 2.93.4 RC LTS Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908641.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Auslogics BoostSpeed 11.4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908629.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908620.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Opera 78.0.4093.184 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908614.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Miranda IM HotCoffee Mod 0.9.16 Final R1 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_908605.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ LosslessCut 3.38.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908596.jpg" />
 </div>
 
 

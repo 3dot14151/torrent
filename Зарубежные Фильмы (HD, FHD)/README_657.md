@@ -1,56 +1,3 @@
-###  Публикация: 1327820   (369799) от 27.09.2019
-
-Вечно молодой / Forever Young (1992) WEB-DLRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в 1939 году. Бесшабашный пилот-испытатель Дэниэл МакКормик никак не может отважиться сделать предложение своей возлюбленной Хелен, откладывая до последнего момента. Но счастье не ждет до завтра - девушка впадает в состояние комы в результате несчастного случая. Убитый горем Дэвид, соглашается на уникальный криогенный эксперимент, в котором (   Читать дальше...   )Производство: США, Канада / Icon Entertainmnet International, Warner Bros. PicturesЖанр: Фантастика, мелодрама, комедия, приключенияРежиссер: Стив МайнерАктеры: Мэл Гибсон, Джейми Ли Кёртис, Элайджа Вуд, Изабель Глэссер, Джордж Уэндт, Джо Мортон, Николас Сурови, Дэвид Маршалл Грант, Роберт Хай Гормен, Милли Слэвин, Майкл А. ГурджианПеревод: Авторский (Михалёв, Живов, Горчаков), Профессиональный многоголосыйСубтитры: английскиеПродолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EB9F4DC2DCCEA1E8A9CE806979049EB5B8BC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254884   (369780) от 15.10.2018
-
-Нарушая запреты / Tra(sgre)dire / Trasgredire / Cheeky (2000) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Карла Борин молода, сексуальна и полна желаний. Одно из них — освоить английский язык. Для полного погружения в среду Карла приезжает в Лондон, вскоре к ней должен присоединиться ее возлюбленный Матео. В поисках жилья она отправляется в агентство недвижимости, где знакомится с его владелицей.
-Получив соблазнительно выгодное предложение, Карла оказывается в ее объятиях… (   Читать дальше...   )Производство: Италия / Lion PicturesЖанр: Эротика, Драма, КомедияРежиссер: Тинто БрассАктеры: Юлия Маярчук, Ярно Берарди, Франческа Нунци, Марио Пароди, Мауро Лоренц, Лейла Карли, Витторио Аттене, Антонио Салинес, Кьяра Джоббато, Ремо Пиццарони и др.Перевод: Многоголосый закадровыйСубтитры: Русские (full), Английские (full, SDH)Продолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418075775BDC29B71851CAA14D616CF88A8D0241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327551   (369778) от 27.09.2019
 
 Чистая правда / All Is True (2018) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369778.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369597.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369568.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369557.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369548.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369502.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369497.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369496.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369477.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369472.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369469.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369407.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369396.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369388.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369355.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369352.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369340.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369335.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369292.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369245.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369240.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369230.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369124.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369123.jpg" />
 </div>
 
 
@@ -673,6 +620,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:065038723C6CC43ADF530129EA9FA91FC6988567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328714   (369118) от 15.10.2020
+
+Хороший сын / Добрый сынок / The Good Son (1993) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри Эванс — чудный и послушный мальчик. Генри обожает игры. В особенности милы его сердцу игры со смертельным исходом.
+Ни его любящие родители, ни верная сестренка понятия не имеют, что за очаровательной, ангельской улыбкой Генри скрывается зловещая, дьявольская сущность. Лишенная жалости, сопереживания и жаждущая крови.
+Единственным человеком, который распознал (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Триллер, драмаРежиссер: Джозеф РубинАктеры: Маколей Калкин, Элайджа Вуд, Венди Крюсон, Дэвид Морс, Дэниэл Хью Келли, Жаклин Брукс, Куинн Калкин, Эшли Кроу, Гай Штраусс, Кит БраваПеревод: Многоголосый закадровый, Двуголосый закадровый, Авторский (одноголосый)Субтитры: Русские, английскиеПродолжительность: 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C12052D258DE5310A0968299F7AFBA878A601EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416150   (369116) от 15.10.2020
+
+Девушка грез / I Met a Girl (2020) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что осталось после прошлой ночи, — лишь запах ее духов. Никто ее не видел, никто не знает, где она живет. Никто не верит, что она существует. Как найти девушку грез? Он бросил все и отправился на край света — в город ее мечты. Сидней.Производство: Австралия / Monsoon Pictures, Factor 30 FilmsЖанр: Комедия, драмаРежиссер: Люк ИвАктеры: Брентон Туэйтс, Лили Салливан, Джоэль Джексон, Зара Ньюман, Анита Хей, Inez Currõ, Peter Rowsthorn, Лайам Грэхэм, Дэн Пэрис, Анни ФинстерерПеревод: Многоголосый профессиональный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5555AB1075022F96BEBA9C6792485E43E17FDC4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

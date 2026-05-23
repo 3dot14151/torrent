@@ -1,29 +1,3 @@
-###  Публикация: 1320609   (469097) от 19.08.2019
-
-Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15: Шрамы Ламии (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Не успели остыть страсти и бурные баталии в городке Калвер, в котором свирепствовала Черная чума, вызванная очередными кознями незабвенного графа Сен-Жермена, как уже в другом городе по соседству над всеми жителями навис панический страх, вызванный чередой загадочный смертей молодых девушек, на теле которых были обнаружены идентичные шрамы в виде мистических символов, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Amax InteractiveЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CA4AC4A6D0E36BF928AE2BC66104B056EA87AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548485   (468680) от 17.09.2012
 
 War Tanks 3D / Война Танков 3D: Вне Времени [Ru] (P) 2012
@@ -32,7 +6,7 @@ War Tanks 3D / Война Танков 3D: Вне Времени [Ru] (P) 2012
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468680.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468540.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Mystery Case Files 21: The Harbinger / За семью печатями 21: Пр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468266.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Tony Stewart's All-American Racing (2020) [En] (1.0) Steam-Rip CHRONOS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468049.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467930.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Masquerada: Songs and Shadows (2016) [En] (0.95) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467874.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Unaided: 1939 (2016) [En] (1.0.1 hotfix) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467858.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Firewatch (2016) [Ru/En] (1.03) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467844.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Hard West 2 (2022) [Ru/Multi] (1.0.0.0.4021/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467703.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467698.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Midnight Calling 4: The Wise Dragon / Полуночный Зов 4: Мудры�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467360.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Haunted Legends 11: The Cursed Gift / Легенды о призраках 11: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467226.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467147.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ The Solus Project (2016) [Ru/Multi] (1.13) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467013.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467009.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466906.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Cry of War (2018) [Ru/Multi] (1.1/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466648.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Hegemony Rome: The Rise of Caesar (2014) [Ru/En] (2.2.1/dlc) Repack =nemos=
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466055.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ DRAG (2020) [Multi] (0.1.7.0) Steam-Rip Goldberg [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465853.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465849.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465745.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Vanaris Tactics (2022) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465742.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Mystery Case Files 17: Rewind / За семью печатями 17: Вспят�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465250.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Mary le Chef: Cooking Passion (2017) [Ru/Mult] (1.0) Unofficial [Коллекц�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465233.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Dead Rising 4 (2017) [Ru/Multi] (1.0/upd4/dlc) R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465051.jpg" />
 </div>
 
 
@@ -670,6 +644,33 @@ Dead Rising 4 (2017) [Ru/Multi] (1.0/upd4/dlc) R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1520C9306AEF975B431C72552C510F0237FCD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386970   (464338) от 14.09.2011
+
+Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464338.jpg" />
+</div>
+
+
+###  Подробнее
+
+В незапамятные времена в мире гремела война. Азираал - темный бог войны - вел бесчисленную армию орков к завоеванию мира. Но его планам не было суждено исполниться. Азираал был повержен, и прах его упокоился в вечной гробнице. Лишившись покровителя, войско орков разбежалось. Воцарился мир... Но через многие тысячелетия гномы обнаружили храм, спрятанный глубоко в недрах гор. Слухи об артефактах, хранящихся в подземном святилище, разнеслись по всему свету. Из тьмы веков поднялась страшная угроза. Неизвестная чума черным ураганом обрушилась на мир.
+В начале великого пути дорога наемника приведет тебя на дальний север. Впервые с тех пор, как исчезла твоя сестра, ты напал на след ее похитителей. Ты встретишься с посланниками Темного Братства - это они забрали твою сестру, чтобы получить старинную реликвию вашей семьи. Люди верят, что ваш род - избранный. Но сейчас это уже неважно. Если ты хочешь увидеть сестру живой, нужно действовать и действовать быстро...Тип издания: RePackЖанр: RPG / Action / 3D / 1st Person / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA9C87B3611BC55E175AE868B9352948CE703EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

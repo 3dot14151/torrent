@@ -1,55 +1,3 @@
-###  Публикация: 1686279   (126722) от 22.12.2023
-
-Папа, не звезди! / La tete dans les etoiles (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Обычный доставщик еды случайно попадает на борт международной космической станции. Он быстро становится мировой звездой и героем для своей восьмилетней дочери. Теперь ему предстоит не только научиться жить в космосе, но понять, как вернуться на Землю.Производство: Франция / CG Cinema, Wrong Men NorthЖанр: комедияРежиссер: Эммануэль ЖилиберАктеры: Хаким Джемили, Алис Поль, Франсуа-Ксавье Демезон, Навель Мадани, Лиссандра Вальдес Робас, Оливия Коте, Брахим Булель, Беатрис Розен, Кловис Чо, Микаэль СладденПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E619570338341CB1969F457E0A6E17625FF8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686269   (126721) от 22.12.2023
-
-Немая ярость / Silent Night (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В ходе бандитской разборки случайная пуля лишает счастливую семью маленького сына, а его отца — голоса. Спустя год усиленной подготовки папа мальчика становится кошмаром для врагов в любой перестрелке, погоне или рукопашной. В годовщину трагедии он намерен разыграть безостановочную симфонию возмездия всем, кто встанет у него на пути. Теперь его действия скажут всё (   Читать дальше...   )Производство: США, Мексика / A Better Tomorrow Films, Capstone StudiosЖанр: боевик, драма, криминалРежиссер: Джон ВуАктеры: Юэль Киннаман, Кид Кади, Арольд Торрес, Каталина Сандино Морено, Ёко Хамамура, Валерия Сантаэлла, Винни О’Брайен, Акояни Чакон, Алехандро Монтерос, Анджелес ВуПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9B560FDC41EFEB4897BD49B3187BB3360B49F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617928   (126719) от 22.12.2023
 
 Переговорщик / Gyoseop / The Point Men (2023) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126719.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126715.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126709.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126701.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126700.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126699.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126698.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126697.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126695.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126681.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126678.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126677.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126676.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126673.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126671.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126668.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126666.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126661.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126654.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126653.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126650.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126646.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126642.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126632.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29A9053BB03E4CDCED01036E55E51BB6B22EDD2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686371   (126613) от 22.12.2023
+
+Жизнь начинается / Une vie qui commence (2010) DVD9 [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатилетний Этьен боготворит своего отца врача, Жака. Они всегда неразлучны и делают все вместе. Жак берет сына с собой на работу в больницу и учит своему ремеслу, учит его играть в гольф и многим другим вещам. Покупает Этьену его первый пиджак и учит завязывать галстук. Однако Жак становится зависимым от наркотиков, втайне их воруя в больнице. Наркотики все (   Читать дальше...   )Производство: Канада / Cirrus Communications, Item 7Жанр: драмаРежиссер: Мишель МонтиАктеры: Чарльз Антуан Перро, Жюли ЛеБретон, Франсуа Папино, Реймон Клутье, Рита Лафонтен, Мэтис Бриссон, Juliette Vernes-Monty, Мишель Монти, Ив Сов, Элиэн ПрефонтенПеревод: одноголосый любительский (Владислав Данилов)Язык озвучки: русский, французскийСубтитры: русские, французские, английскиеПродолжительность: 01:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A046FEB7D88B249D89CF4257EC5E9ACA2DB1729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686347   (126612) от 22.12.2023
+
+Сын акулы / Le fils du requin (1993) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата Мартин и Симон - малолетние вандалы городка на морском побережье на севере Франции. Мартина за его выходки отправляют в спецучреждение для несовершеннолетних преступников, но он постоянно убегает оттуда, чтоб с братом продолжить совершать преступления... Паренёк, вдохновлённый отрывком из книги Лотреамона "Песнопения Мальдорора", придерживается (   Читать дальше...   )Производство: Бельгия, Франция, Люксембург, Centre National de la Cinématographie (CNC), Compagnie des Images, France 3 Cinéma...Жанр: драма, криминалРежиссер: Аньес МерлеАктеры: Людовик Ванденаль, Эрик Да Силва, Сандрин Бланк, Максим Леру, Иоланда Моро, Роз Тьерри, Ренан Мазеас, Анна-Софи Машу, Laure Saupique, Жан-Пьер БагоПеревод: авторскийЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC4DCD95E40FE3165F950981647016615BFE5AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

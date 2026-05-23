@@ -6,7 +6,7 @@ Juicy J - Rubba Band Business (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265975.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Markus Schulz & Dakota - The Nine Skies (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265972.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stand Up (2017.12.10) WEB-DLRip (сезон 7, выпуск 11: Дайджест
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265971.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ MAGIX VEGAS Movie Studio Platinum 16.0.0.167 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265967.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Red Giant Suites 2019 (VFX Suite 1.0.3) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265951.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Uconomix uMark PDF Watermarker Professional 1.0 RePack by вовава 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265927.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Sly5thAve - The Invisible Man: An Orchestral Tribute To Dr. Dre (2017) [FLAC|Los
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265926.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Internet Download Manager 6.30 Build 1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265924.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ DCommander 3.1.4a [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265919.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Geek Uninstaller 1.4.5 Build 123 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265917.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Compilation 10 (2010) [MP3|320 kbps]<Industrial / EBM / Dark Electro / Rhyt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265874.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Clean Cut Kid - Felt (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265855.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ TechTool Pro 9.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_265854.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Internet Download Manager 6.30 Build 1 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265848.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ RadioMaximus 2.21.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265847.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Telegram Desktop 1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265838.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265813.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265809.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Christmas Stocking Filler Pt. 2 (2000) [FLAC|Lossless|tracks + .cue] <Leftf
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265807.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Telegram Desktop 1.2.0 RePack & Portable by SPecialiST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265770.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Internet Download Manager 6.30 Build 1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265763.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Ummy Video Downloader 1.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265761.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ MiniTube 2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265758.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Pale Moon 28.2.2 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265734.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Opera 57.0.3098.91 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265731.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Ocenaudio 3.5.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265721.jpg" />
 </div>
 
 

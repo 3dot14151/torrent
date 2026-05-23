@@ -1,55 +1,3 @@
-###  Публикация: 1797084   (18322) от 14.05.2025
-
-Шальная пуля 2 / Balle perdue 2 / Lost Bullet 2 (2022) WEB-DLRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Восстановив свое доброе имя, гениальный механик Лино преследует лишь одну цель — отомстить продажным полицейским, которые убили его брата и наставника.Производство: Франция / Inoxy Films, Nolita TV, Versus ProductionЖанр: боевик, триллер, криминалРежиссер: Гийом ПьерреАктеры: Альбан Ленуар, Стефи Сельма, Себастьян Лаланн, Жером Ньель, Khalissa Houicha, Энни Серра, Кентан Д’Эйно, Тибо Эврар, Николя Дювошель, Маттье ЖиванардиПеревод: Двуголосый любительский (Zetflix)Язык озвучки: Русский, Французский, АнглийскийСубтитры: русские (forced, full), английские (Forced, full, SDH)Продолжительность: 01:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108F437F5D31DC186BB6EBC2C30DCABBF2FFEE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797070   (18314) от 14.05.2025
-
-Судья Дредд / Judge Dredd (1995) BDRemux [H.264/1080p] [US Transfer] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В третьем тысячелетии мир переменился. Климат, народы - все перевернулось… Земля превратилась в ядовитую, выжженную пустыню, которую стали называть «Проклятая земля». Миллионы людей сосредоточились в нескольких огромных городах, на улицах которых царили хаос и преступники. Система правосудия не смогла справиться с анархией, и был создан новый порядок - элитные подразделения, (   Читать дальше...   )Производство: США, Нидерланды, Великобритания / Cinergi Pictures Entertainment Inc., Edward R. Pressman Productions, Hollywood PicturesЖанр: фантастика, боевик, триллер, криминалРежиссер: Дэнни КэннонАктеры: Сильвестр Сталлоне, Арманд Ассанте, Роб Шнайдер, Юрген Прохнов, Макс фон Сюдов, Дайан Лэйн, Джоэнна Майлз, Джоан Чэнь, Бальтазар Гетти, Морис РоевзПеревод: Многоголосый (Tycoon, Киномания, Ракурс), двуголосый (НТВ+), авторский (Гаврилов, Визгунов, Иванов, Кашкин, Махонько)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, Украинские, Английские (Full, SDH)Продолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BA9CD5CAD6A8FAD1D88C97B369FD6ADD7A9A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797078   (18311) от 14.05.2025
 
 Невидимый хищник / The Invisible Raptor (2023) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18311.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18243.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18223.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18211.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18176.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18048.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18033.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18023.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18018.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18003.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17924.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRemux [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17891.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17859.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17857.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17853.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17801.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17793.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17774.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17752.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17750.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17749.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17717.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17716.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17713.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9553EDEDBCF2C5C7DE25A80FF0BC212C3B09A024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794682   (17710) от 20.05.2025
+
+Я девочка / Yo niña / I Girl (2018) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Армония живёт с родителями в небольшой хижине без водопровода, газа и электричества в окружении рек, озер и лесов Патагонии. Её родители - хиппи, которые ставят под сомнение принципы современного капиталистического общества и стараются жить в гармонии с природой. Но всё не так радужно, как хотелось бы, и им ещё предстоит столкнуться с множеством проблем.Производство: Аргентина, Ajimolido FilmsЖанр: драма, биографияРежиссер: Natural ArpajouАктеры: Эстебан Ламот, Андреа Карбальо, Уэну Пас Паредес, Эмилиано Карраззоне, Бимбо Годой и другие.Перевод: Двухголосый любительский (Синема УС)Язык озвучки: РусскийСубтитры: английские (hardsub)Продолжительность: 01:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0268E493AAF44C4B4D93A6BACE72930671F39D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810204   (17599) от 03.08.2025
+
+Сделай шаг: Лови момент / Make Your Move (2013) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17599.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о двух танцорах, которые выросли в разных условиях. Но оба они окажутся в Нью-Йорке и будут работать вместе в клубе. Между ними соперничество, но, когда двое влюбляются, история превращается в историю Ромео и Джульетты.Производство: США, Корея Южная / CJ Entertainment, Robert Cort Productions, SM EntertainmentЖанр: мелодрамаРежиссер: Дуан АдлерАктеры: Дерек Хаф, БоА, Уилл Юн Ли, Уэсли Джонатан, Изабелла Мико, Джефферсон Браун, Мики Исикава, Рик Гонсалес, Майкл Мэндо, Дэн ЛорияПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2356E239AED743A415CDE6089815F627129E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1139848   (658551) от 03.06.2017
-
-RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAEFC829CA39782D717674B4D906B09F7032E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225775   (658473) от 17.05.2018
 
 Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
@@ -32,7 +6,7 @@ Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658473.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pride & Prejudice: Hidden Anthologies (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658229.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mystic Diary 3: Missing Pages (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658154.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ominous Objects 4: Lumina Camera / Зловещие вещи 4: Камера 'Lu
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658026.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658024.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Mary Knots: Garden Wedding (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657767.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fairy Kingdom 2 / Сказочное Королевство 2 (2017) [Ru] (1.0) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657699.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Cadenza 2 : The Kiss of Death / Каденция 2: Поцелуй смерти 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657563.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sheltered (2016) [Ru/Multi] (1.6) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657532.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Castlevania: Lords of Shadow - Антология (2013-2014) [Ru/En] (1.0.2.9u2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657530.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Lara Croft GO: The Mirror of Spirits (2015) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657526.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tom Clancy's Ghost Recon: Future Soldier (NoDVD/v1.0 + FIX) 2012 | SKIDROW
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657503.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657445.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ F1 2017 (2017) [Ru/En] (1.13/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657439.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657429.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656851.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Resident Evil 4 HD Project (2014) [Ru/Multi] (1.1.0) Repack/Mod Decepticon [Ulti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656849.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656675.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Cold Waters (2017) [En] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656577.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656488.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656467.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656466.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Koloro (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656465.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Creepy Road (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656463.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Fernbus Simulator (2016) [Ru/En] (1.14.12800/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656446.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Fernbus Coach Simulator - первый симулятор, позволяющи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABF4874C63ED97F82CD8999A4F90F31A12EA428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904037   (656302) от 01.06.2015
+
+Sable Maze 4: Twelve Fears / Темный лабиринт 4: Двенадцать страхов (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр Sable Maze. Эмбер всегда мечтала побывать в Лабиринте Страхов! И вот однажды случилось чудо – ей перепал бесплатный билетик на этот аттракцион. Эмбер сразу же отправилась развлекаться. не подозревая, какие кошмары ждут ее впереди. Отправляйтесь вслед за Эмбер и помогите ей выбраться из Запредельного Мира Страха и Ужаса! Вам придется (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Daily Magic ProductionsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CD7DCD8F3E6F6694359D470782634AE44ECF53
 ```
 
 https://mybot314.ru/tekegram_catalog/

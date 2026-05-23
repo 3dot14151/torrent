@@ -6,7 +6,7 @@ PointerStick 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868323.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FontViewOK 4.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868318.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BrowserAddonsView 1.00 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868311.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soft Organizer 6.06 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868238.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BurnAware Professional 10.1 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868232.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Blank And Secure 4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868224.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Run-Command 2.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868220.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ProcessKO 3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868207.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Chromium 93.0.4577.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868133.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinUtilities Professional Edition 14.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868125.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PicturesToExe Deluxe 9.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868123.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ xrecode II Build 1.0.0.230 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868083.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rainmeter 3.3.1 Build 2602 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868072.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sony Xperia Companion 2.14.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868031.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ GeoGebra 6.0.665.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868030.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Telegram Desktop 3.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868029.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FreeFileSync 11.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868025.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Rainlendar Lite 2.17 Build 169 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868016.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Freeplane 1.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868015.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BurnAware Professional 10.1 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868001.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Punto Switcher 4.3.5 Build 1815 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867993.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Prelude CC 2015.3 4.3.0 (19) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867958.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Far Manager  3.0.5888 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867873.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Shockwave Player 12.2.7.197 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867852.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Advanced SystemCare Pro 14.6.0.307 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867728.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Auslogics File Recovery 7.1.2.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867690.jpg" />
 </div>
 
 

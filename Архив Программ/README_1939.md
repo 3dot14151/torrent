@@ -6,7 +6,7 @@ Total Commander 11.02 (17.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150640.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WSCC (Windows System Control Center) 7.0.7.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150629.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ IObit Uninstaller Pro 13.2.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150625.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Audacity 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150616.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ZBrush 2024.0.0.1 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150615.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIDA64 Extreme Edition 6.92.6632 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150600.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Emurasoft EmEditor Professional 23.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150564.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150541.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150530.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Perfectly Clear WorkBench 4.6.0.2616 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150529.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ n-Track Studio Suite 10.0.0.8231 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150515.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150513.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Topaz Video AI 4.0.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150512.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Icecream Photo Editor 1.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150508.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wise Disk Cleaner 11.0.6.820 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150506.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ AAF DCH Optimus Sound 6.0.9075.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150496.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ NVIDIA GeForce Experience 2.8.1.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150495.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ TweakNow WinSecret Plus! 4.9.16 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150482.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Full Uninstall 2.12 Final [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_150474.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Topaz Photo AI 2.1.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150472.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ R-Studio Network Edition 8.15 Build 180091 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150467.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Everything 1.4.1.1015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150457.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Autorun Organizer 2.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150450.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ The Bat! Professional 9.3.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150446.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ IObit Driver Booster Pro 8.2.0.306 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150439.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Icecream PDF Editor Pro 3.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150437.jpg" />
 </div>
 
 

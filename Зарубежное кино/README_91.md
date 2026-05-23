@@ -1,56 +1,3 @@
-###  Публикация: 1441579   (1037390) от 22.01.2021
-
-Чистота крови / Blood Quantum (2019) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В индейской резервации Ред Кроу начали оживать мёртвые: выпотрошенная рыба, пристреленная из жалости собака. Зараза не обошла стороной и людей, которые, превратившись в безмозглых агрессивных тварей, стали бросаться на здоровое население. Но у коренных жителей Америки обнаружился иммунитет к неизвестному вирусу. Теперь они вынуждены жить на ещё меньшей огороженной (   Читать дальше...   )Производство: Канада / Prospector FilmsЖанр: УжасыРежиссер: Джефф БарнебиАктеры: Майкл Грейес, Эль-Майя Тэйлфезерс, Форрест Гудлак, Кайова Гордон, Оливия Скривен, Стоунхорс Лоун Гоеман, Брэндон Оакес, Уильям Белло, Девери Джейкобс, Гэри ФармерПеревод: Дублированный (iTunes)Субтитры: Английские (Forced, Full, SDH)Продолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7540401F90A11389D2141851C0EB369D7D0039E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431964   (1037382) от 22.01.2021
-
-Сказки на ночь / Bedtime Stories (2008) WEBRip [H.264/720p-LQ] [Open Matte] [Локализованная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В жизни главного героя Скитера Бронсона никогда не случалось ничего удивительного. Но однажды сестра попросила его присмотреть за двумя очаровательными и неугомонными племянниками и одной симпатичной морской свинкой по имени Плаксик.
-Все трое привыкли засыпать под мамины сказки, и Скитеру пришлось каждый вечер придумывать невероятные истории для своей веселой семейки. (   Читать дальше...   )Производство: США / Walt Disney Pictures, Happy Madison Productions, Gunn Films, Offspring EntertainmentЖанр: Фэнтези, Мелодрама, КомедияРежиссер: Адам ШенкманАктеры: Адам Сэндлер, Кери Рассел, Гай Пирс, Расселл Брэнд, Ричард Гриффитс, Тереза Палмер, Люси Лоулесс, Кортни Кокс, Джонатан Морган Хейт, Лаура Энн КеслингПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069C29A5D60B7DE75266B9B2CD12B1EFA40DB692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432062   (1037368) от 22.01.2021
 
 Бессонница / Insomnia (2002) BDRip [H.265/1080p] [10-bit] [ITA Transfer]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037368.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037366.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037364.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037361.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037354.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037350.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037349.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037341.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037340.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037337.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037336.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037330.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037322.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037320.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037314.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037311.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037155.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037148.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037111.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037104.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037091.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037089.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037082.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037075.jpg" />
 </div>
 
 
@@ -670,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EADF401EFEB2F0D9E4156E1D54BA6DAB99CA3061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441944   (1037072) от 23.01.2021
+
+Дивергент, глава 3: За стеной / Allegiant (2016) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трис и Фор впервые покидают город и своих близких и оказываются в опасном мире за стеной, отделяющей Чикаго, где им открывается шокирующая правда.
+Они должны быстро разобраться, кому можно доверять, так как битва, разгорающаяся за стенами города , угрожает всему человечеству. Чтобы выжить, Трис придется сделать непростой выбор между мужеством, верностью, любовью (   Читать дальше...   )Производство: США / Mandeville Films, Red Wagon Entertainment, Summit EntertainmentЖанр: Фантастика, боевик, триллер, детектив, приключенияРежиссер: Роберт ШвенткеАктеры: Шейлин Вудли, Тео Джеймс, Энсел Элгорт, Зои Кравиц, Майлз Теллер, Джефф Дэниелс, Наоми Уоттс, Мэгги Кью, Билл Скарсгард, Кейнан ЛонсдейлПеревод: Дублированный (Лицензия, Централ Партнершип)Субтитры: Английские (Full)Продолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E5FE782EB6788385CC24FA9DEFEC41DB438E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441575   (1037071) от 23.01.2021
+
+Чистота крови / Blood Quantum (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037071.jpg" />
+</div>
+
+
+###  Подробнее
+
+В индейской резервации Ред Кроу начали оживать мёртвые: выпотрошенная рыба, пристреленная из жалости собака. Зараза не обошла стороной и людей, которые, превратившись в безмозглых агрессивных тварей, стали бросаться на здоровое население. Но у коренных жителей Америки обнаружился иммунитет к неизвестному вирусу. Теперь они вынуждены жить на ещё меньшей огороженной (   Читать дальше...   )Производство: Канада / Prospector FilmsЖанр: УжасыРежиссер: Джефф БарнебиАктеры: Майкл Грейес, Эль-Майя Тэйлфезерс, Форрест Гудлак, Кайова Гордон, Оливия Скривен, Стоунхорс Лоун Гоеман, Брэндон Оакес, Уильям Белло, Девери Джейкобс, Гэри ФармерПеревод: Дублированный (iTunes)Субтитры: Английские (Forced)Продолжительность: 01:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889A17EC3CCA1B102D48DD0ADC8612B1413CEFC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

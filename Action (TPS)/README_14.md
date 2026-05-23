@@ -6,7 +6,7 @@ Grand Theft Auto 4 (2010) [Ru/En] (1.0.7.0/1.1.2) Repack R.G. Games [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777003.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Senran Kagura Peach Beach Splash (2018) [Multi] (1.00) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776998.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack =nemos= [Ultimate
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775580.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775565.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Devil May Cry HD Collection (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774873.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Daymare: 1998 (2019) [Ru/Multi] (10545) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772431.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Conan Exiles (2018) [Ru/Multi] (1.0.0.230672/25565) Repack xatab [Barbarian Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770280.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack xatab [Digital Delu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767974.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Haydee (2016) [Ru/Multi] (1.09.1) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765940.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765624.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Grand Theft Auto 4: Episodes from Liberty City [Ru] (L) 2010
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765496.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Assault Gunners HD Edition (2018) [Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764779.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Solstice Chronicles: MIA (2017) [Ru/Multi] (1.03) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764136.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nanoui (2018) [En] (1.0.1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763890.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763123.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761032.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mars Taken (2018) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761024.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Absolver (2017) [Ru/Multi] (1.15.307/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761018.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Shadwen (2016) [En/Multi] (1.0.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760597.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Smashing the Battle (2016) [En/Multi] (1.05) Repack АRMENIAC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760500.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack =nemos= [Episode 1-4
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758702.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Absolver (2017) [Ru/Multi] (1.29/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749591.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ POSTAL Redux (2016) [En] (1.1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749476.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/dlc) License PROPHET [Complete Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749472.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747876.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747728.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627322.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ High School DxD Hero | Демоны старшей школы 4 [2018, TV, 13] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627321.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi / Мастерска
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626200.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kurogane no Linebarrels / Linebarrels of Iron / Стальные Лайнбар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625900.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных до�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622262.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ayakashi / Аякаси [2007, TV, 12] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622141.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622140.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Shinsekai Yori / From the New World / Из Нового Мира [2012, TV, 25 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621452.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания во
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621224.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621222.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619930.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Yakusoku no Neverland / The Promised Neverland / Обещанный Неверл
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619926.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618258.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617568.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617303.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Renai Boukun / Love Tyrant / Любовь тирана [2017, TV, 12 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615874.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614703.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ ID-0 / Идентификатор - ноль [2017, TV, 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614123.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Beatless / Мёртвый ритм [2018, TV, 20 ep + 4 sp] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605992.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604192.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603739.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Tsuki ga Kirei / Какая красивая луна! [2017, TV, 12 ep] HDTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603247.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603025.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601819.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601784.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601519.jpg" />
 </div>
 
 

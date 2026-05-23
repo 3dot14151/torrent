@@ -6,7 +6,7 @@ HitPaw Photo Enhancer 2.0.3.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202586.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202495.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202348.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Perfectly Clear WorkBench 4.8.0.2871 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202212.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Paint Tool SAI 2 20230711 Technical Preview [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202180.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Topaz DeNoise AI 3.7.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201963.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FireAlpaca 2.13.26 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201822.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Topaz DeNoise AI 3.7.2 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201743.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ashampoo Photo Commander 17.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201575.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ashampoo Photo Commander 17.0.3 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201561.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ reaConverter Pro 8.0.148 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199941.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199652.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Filter Forge Studio Edition 12.6.714 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199552.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ SoftColor PhotoEQ 10.10.2305 RePack by 78Sergey [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198875.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ CyberLink PhotoDirector Ultra 14.5.1627.1 (x64) RePack by PooShock [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198605.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Franzis SHARPEN projects 4 professional 4.37.03697 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198598.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Animate 2023 23.0.2.103 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198582.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197975.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PhotoDiva Pro 5.0 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197126.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ PT Portrait 6.0.1 (x64) Studio Edition RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196803.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ PhotoDiva Pro 5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196584.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ PhotoDiva Pro 5.0 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196459.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PhotoInstrument 7.7 Build 1052 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194596.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Green Screen Wizard Professional 12.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194334.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ SoftOrbits Sketch Drawer Pro 10.01 (акция Comss) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193943.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ AliveColors 10.0.4853 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193384.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019898.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019309.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Planetarian: Snow Globe | Планетарианка: Снежный шар [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018404.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Assault Lily: Bouquet | Букет штурмовых лилий [2020, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018374.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | DanMachi III | М�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018167.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018087.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Radiant | Радиан [ТВ-1] [2018, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018077.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Gekijouban Oushitsu Kyoushi Heine | The Royal Tutor Movie | Королевски
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018052.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Ultraman | Ультрамен [2019, Web, 13 из 13] WEBRip 1080p HEVC 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018044.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018040.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017895.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017860.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Yasuke | Ясукэ [2021, ONA, 6 из 6] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017365.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Kono Minikuku mo Utsukushii Sekai | This Ugly yet Beautiful World | Этот у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017357.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Saiyuuki Gaiden | Саюки: Истоки [2011, OVA, 3 + SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017266.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Boku no Hero Academia: Ikinokore! Kesshi no Survival Kunren | Моя герой�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016910.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Boku no Hero Academia (2017) | My Hero Academia Season 2 | Моя геройск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016893.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016891.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Ai Yori Aoshi | Bluer Than Indigo | Все оттенки синевы | Тем�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015619.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ai Yori Aoshi ~Enishi~ | Bluer Than Indigo ~Fate~ | Все оттенки син
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015611.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014504.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014145.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Natsume Yuujinchou Go | Тетрадь дружбы Нацумэ (ТВ-5) [2016,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013707.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Gekijouban Natsume Yuujinchou: Utsusemi ni Musubu | Тетрадь дружбы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013695.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013657.jpg" />
 </div>
 
 

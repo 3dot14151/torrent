@@ -6,7 +6,7 @@ Stats 2.6.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799532.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Twitterrific 5 v5.4.8 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799527.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ProFind 1.9.2 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799521.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799517.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Skype 7.34.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799514.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PopClip 2021.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799498.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FBackup 9.3.434 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799493.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ OnyX 4.1.0 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799491.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ djay - DJ App & AI Mixer 3.1.7 fix  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799489.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Serial Box & SerialSeeker/iSerial Reader 2021- 11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799488.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799487.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Java SE Development Kit 11.0.13 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799483.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Autodesk AutoCAD Electrical 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799480.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Spotify 1.1.71.560 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799455.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Firefox Browser ESR 91.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799448.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Donna the Buffalo - Dance in the Street (2018) [FLAC|Lossless|tracks + .cue] <Bl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799446.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Ant Download Manager Pro 2.4.2 Build 80118 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799445.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Firefox Browser 94.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799443.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ ThisIsWin11 0.90.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799438.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Minstall Portable by Nomer001 2017.04 FINAL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799437.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ USB 16GB Portable-Soft 02.04.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799434.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ dBridge - A Love I Can't Explain (2018) Exit Records [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799408.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Bandizip 6.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799406.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ BestReminder v2019.01.03.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799405.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ CJ Rise - Lost Empire (2019) [MP3|320 Kbps] <Spacesynth, Synthwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799400.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Athentech Perfectly Clear Complete 3.6.3.1400 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799395.jpg" />
 </div>
 
 

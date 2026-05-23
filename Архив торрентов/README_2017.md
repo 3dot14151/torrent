@@ -6,7 +6,7 @@ NASCAR-2019. 8-й Этап. Бристоль. Гонка / Monster Energy NASCAR
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600026.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Firefox Browser ESR 91.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600018.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SamDrivers 22.04 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600007.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Google Earth Pro 7.3.0.3827 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599998.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ CCleaner 5.32.6129 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599993.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Opera 46.0.2597.46 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599992.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Acrobat Reader DC 2017.009.20058 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599990.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CCleaner 5.32.6129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599983.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Myth Defence Light Forces 2.3.0 free [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599979.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Lemurzin / Лемурзин 1.32 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599978.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ iTunes 12.2.0.145 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599975.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Scanitto Pro 3.6 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599970.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599969.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Dracula 5: The Blood Legacy HD 1.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599966.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Stick Squad 2 - Shooting Elite 1.0.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599964.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Space RPG 2, Продолжение 2D космической леталки 1.1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599962.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599920.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Little Hawk - Home and Native Land (2007) [MP3|192 кб/с]<Native American, Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599891.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Arty - Together We Are 004 (2012) [MP3|320 кб/с]<House / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599890.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Torian - Dawn (2012) [MP3|320 кб/с]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599889.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Andrew Vasquez - An American Indian (1999) [MP3|192 кб/с]<Native American, Et
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599888.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Adobe Flash Player 26.0.0.137 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599877.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Adobe Flash Player 26.0.0.137 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599875.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ SIGERSHADERS XS Material Presets Studio 3.5.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599873.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Display Driver Uninstaller 18.0.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599854.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599847.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1475078   (1010331) от 19.06.2021
-
-Грегуар / Gregoire (2017) WEB-DL [H.264/1080p-LQ] [МVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Четверо молодых людей пытаются разобраться с последствиями своих действий и тем, как они повлияли на их друзей и семьи.Производство: Канада / OaksЖанр: ДрамаРежиссер: Коуди БаунАктеры: Морган Тейлор Кэмпбелл, Джаред Абрахамсон, Джедидайя Гудакр, Эмили Хейн, Бен Коттон, Робин Росс, Иэн Белчер, Джесси Хэддок, Камерон Кросби, Николь МуньосПеревод: Двухголосый профессиональный, двухголосый любительскийСубтитры: Русские (forced), английскиеПродолжительность: 01:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED2DB4D19A80FF9005DFD5B45E548DB32EB273F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474426   (1010303) от 19.06.2021
-
-Афера века / El robo del siglo (2020) BDRip [H.264/720p] [RUS Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В самом фешенебельном пригороде Буэнос-Айреса пятеро грабителей ворвались в здание банка Рио де Акассусо. Взяв в заложники всех сотрудников и посетителей банка, они начали переговоры с прибывшей полицией. Пока сотни полицейских окружали здание, благодаря хитроумному плану и тщательной подготовке преступникам удалось вынести из хранилища деньги и ценности на общую (   Читать дальше...   )Производство: Аргентина / AZ Films, MarVista Entertainment, Television FederalЖанр: Боевик, драма, комедия, криминал, биографияРежиссер: Ариэль ВиноградАктеры: Гильермо Франчелла, Диего Перетти, Луис Луке, Пабло Раго, Рафаэль Ферро, Мариано Архенто, Хуан Алари, Джоанна Франселла, Марио Аларкон, Почи ДукассеПеревод: Дублированный (Лицензия)Субтитры: ОтсутсвуютПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1069231E89ED7163422C7F39DA81F494FAD46916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475734   (1010299) от 19.06.2021
 
 Пришельцы 3: Взятие Бастилии / Les Visiteurs: La Revolution / The Visitors: Bastille Day (2016) BDRemux [H.264/1080p] [FRE Transfer]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010299.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010289.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010288.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010282.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010276.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010274.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010272.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010271.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010268.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010263.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010262.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010256.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010255.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010145.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010121.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010068.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010059.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009959.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009915.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009914.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009890.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009751.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009695.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009678.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DED2FEAE2165C91525B6617659DF5C9844E6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475996   (1009677) от 23.06.2021
+
+Кровь пеликана / Pelikanblut / Pelican Blood (2019) WEB-DL [H.264/720p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вибке живет на ферме и в одиночестве растит приемную дочь. После нескольких лет ожидания у нее наконец появляется возможность удочерить еще одного ребенка. Первые несколько недель проходят идеально, а затем Вибке начинает замечать, что сначала тихая и застенчивая Рая вдруг начинает проявлять признаки агрессии, представляя опасность для себя и окружающих. Чтобы защитить (   Читать дальше...   )Производство: Германия, Болгария/arte, Junafilm, Miramar Film, Südwestrundfunk (SWR)Жанр: драмаРежиссер: Катрин ГеббеАктеры: Нина Хосс, Яна Маринова, Муратан Муслу, Самия Мюриэль Шанкрен, Даниэла Холц, Себастьян Рудольф, Софи Пфеннигсторф, Катерина Липовская, Катинка Аубергер, Аделия-Констанс Оклеппо, Димитар Баненкин, Кристоф Якоби, Райан Рафферр, Жюстин Хиршфельд.Перевод: Двуголосый любительский (datynet & Yuka_chan)Субтитры: отсутствуютПродолжительность: 02:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84B5B497AE5DC93244FEA4428961B5DBEBB7CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479401   (1009628) от 23.06.2021
+
+Хищники / Endangered Species (2021) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычное сафари в заповеднике Кении превращается в сущий кошмар из-за одной ошибки. Однако нападение носорога становится лишь первым испытанием для мирной американской семьи, которая лишилась транспорта и средств связи, — теперь они остались в диких краях, где помимо хищных животных на охоту выходят не менее опасные браконьеры. Чтобы выжить, о человечности придётся (   Читать дальше...   )Производство: Кения, США / Grindstone Entertainment Group, Hassell Free Production, The Electric Shadow CompanyЖанр: Боевик, триллерРежиссер: М. Дж. БассеттАктеры: Ребекка Ромейн, Филип Уинчестер, Майкл Джонстон, Изабель Бассетт, Крис Фишер, Джерри О’Коннелл, Бренда Нгесо, Джордж Гленн Оума, Асим Шарма, Притул РэйтатаПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FE41F04D16BC050B91A6C458D5433C7AE74C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

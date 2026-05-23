@@ -6,7 +6,7 @@ VA - A Synthwave Panorama Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565859.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565400.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Golden Soul (2022) [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565366.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Soft Pop Hits (2022) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565340.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - 538 Hitzone Best Of 2011 2CD (2012) [MP3|320 кб/с]<Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565281.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Солнечный Дэнс Музон. Зарубежный (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565247.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Энергия Mega хитов 3 (2012) [MP3|256 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565221.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Todays Top Hits (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565142.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Billboard Hot 100 Singles Chart (04.06.2022) [MP3|320 Kbps] <Pop, Rock, Hip
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565140.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Пляжная Кукарача (2012) [MP3|128-320 кб/с ]<Поп, Evrod
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565088.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - Retro Party 70-80' (2017) [MP3|320 Kbps] <Pop, Disco, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565020.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Шедевры инструментальной музыки #32 (2012) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564716.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Chill Out Essentials - Formentera (2015) [MP3|320 кб/с]<Disco, Deep, Sou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564631.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Radio DFM Top D-Chart Май 2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563589.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - MuviItalo Vol.6 (Extended Version) 3CD (2016) [MP3|128-320 Kbps] <Italo-Dis
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563552.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Duets Vol.01-08 (2010) [MP3|320 кб/с]<Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563308.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Lana Del Rey - The Essential Collection (2019) [MP3|320 Kbps] <Dream-pop, Indie,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563274.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Night Party (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563096.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Love Ballads (4CD) (2012) [MP3|320 кб/с]<Rock, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563073.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - TOP July (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562703.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Шедевры инструментальной музыки #43 (2012) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562677.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Никакой коммерции просто отличная музык�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562553.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - New Age Style - Dream Dance 1-4 (5CD)(2011-2012) [MP3|320 кб/с]<Dream Tr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562181.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ VA - не Громкие новинки недели 17 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561977.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ VA - The Summer Popular Dance Album (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561608.jpg" />
 </div>
 
 
@@ -792,7 +792,7 @@ VA - Latest & Greatest Feelgood Anthems (2016) [MP3|320 Kbps] <Pop, Rock, Soul>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561532.jpg" />
 </div>
 
 

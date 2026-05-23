@@ -6,7 +6,7 @@ DriverEasy Professional 5.1.1.7383 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551647.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Foundry NUKE STUDIO 10.0v4 + HIERO 10.0v4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551645.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Driver Booster Pro 4.0.1.272 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551630.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Illustrator CC 2015.3 (20.1.0.174) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551626.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ScrollNavigator 5.9.0 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551537.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ FileZilla 3.35.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551527.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Cent Browser 3.5.3.50 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551470.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Cent Browser 3.5.3.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551467.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ SoftPerfect NetWorx 6.2.1.18204 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551416.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AusLogics BoostSpeed 10.0.13.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551358.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CyberLink PhotoDirector Ultra 9.0.2727.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551349.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Notepad++ 7.5.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551348.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Victoria 4.65b SSD Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551303.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ApowerREC 1.3.7.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551213.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Mozilla Firefox Quantum ESR 60.7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551148.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Aiseesoft Screen Recorder 2.1.56 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551145.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Wise Disk Cleaner 10.2.2.773 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551136.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Dropbox 8.4.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551097.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FlipBuilder Flip PDF 4.4.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551090.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Simple Sticky Notes 4.6 Portable by Joo Seng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550982.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Ummy Video Downloader 1.10.4.0 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550922.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ MyPhoneExplorer 1.8.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550909.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft OneDrive 17.3.6517.0809 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550888.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Vivaldi 1.3.551.38 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550871.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Microsoft Windows 10.0.18362.175 Version 1903 (June Update 2019) - Оригин�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550853.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Uninstall Tool 3.5.0 Build 5507 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550808.jpg" />
 </div>
 
 

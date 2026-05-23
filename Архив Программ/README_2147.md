@@ -6,7 +6,7 @@ Adobe Illustrator 2024 28.5.0.132 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Dreamweaver 2021 21.4.0.15620 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57257.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Pro 2024.002.20736 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57251.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 7 SP1 x64 (3in1) Activated by Updated Edition (08.05.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57241.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Animate 2024 24.0.3.19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57235.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ableton - Live Suite 11.3.25 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57232.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Rufus 4.5 (Build 2160) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57229.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ KeePassXC 2.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57211.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ nthLink 6.4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57210.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Macrorit Disk Scanner 6.7.3 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57206.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Run-Command 6.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57205.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Topaz Gigapixel AI 7.1.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57204.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WinNTSetup 5.3.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57203.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Topaz Video AI 5.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57201.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ CyberLink PhotoDirector Ultra 15.3.1611.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57198.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ O&O DiskImage Professional 19.1 Build 136 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57196.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0507) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57193.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Macrorit Data Wiper 7.2.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57192.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Qalculate! 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57190.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Blackmagic Design Fusion Studio 19.0 Build 20 (x64) Public Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57184.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Extreme Picture Finder 3.66.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57183.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AntiPlagiarism.NET 4.131.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57182.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wondershare UniConverter Ultimate 15.5.8.70 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57181.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Force Deleter 1.5.6.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57180.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ XviD4PSP 8.1.79 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57179.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ AOMEI Partition Assistant Technician Edition 10.4.0 (08.05.2024) RePack by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57131.jpg" />
 </div>
 
 

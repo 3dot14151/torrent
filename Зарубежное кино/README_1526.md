@@ -1,56 +1,3 @@
-###  Публикация: 1628758   (254835) от 24.04.2023
-
-Где чёрт не сможет, там баба поможет 2 / Gdzie diabel nie moze, tam baby posle 2 (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Четыре амбициозные и умные женщины решают воспользоваться полным хаосом, чтобы начать прибыльный бизнес. Их идея обещает быстрое обогащение, но в случае неудачи они останутся ни с чем. Сабрина, Маржена, Крися и Дорота понимают уровень риска. Но они полны решимости доказать, что женщины способны добиться любых целей, если берутся за дело. Пока мир вокруг разрушается, (   Читать дальше...   )Производство: Польша / Global StudioЖанр: драма, комедия, криминалРежиссер: Хитклифф Януш ИвановскийАктеры: Мальгожата Кожуховская, Агнешка Вендлоха, Доминика Гвит, Паулина Галёнзкая, Себастьян Станкевич, Михал Котерский, Миколай Рознерский, Цезары Лукашевич, Филип Тлокински, Антони ПавлицкиПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, польскийСубтитры: английскиеПродолжительность: 02:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD27E30CFD4E713C90573F4646E350C922324266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799778   (254831) от 24.04.2023
-
-Специалист / The Specialist (1994) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Шэрон Стоун — в роли сексапильной красотки Мэй с роковым прошлым. Она поклялась отомстить гангстерам, убившим ее родителей, и уже выбрала способ, как с ними расправиться, и нашла человека, который это сделает: внешне невозмутимый бывший эксперт — подрывник ЦРУ Рэй.
-Майами, курорт для сверхбогачей, превращается в охотничью территорию, где Мэй заманивает и соблазняет (   Читать дальше...   )Производство: Перу, США / Iguana Producciones, Jerry Weintraub Productions, Warner Bros. PicturesЖанр: Боевик, ТриллерРежиссер: Луис ЛлосаАктеры: Сильвестр Сталлоне, Шэрон Стоун, Джеймс Вудс, Род Стайгер, Эрик Робертс, Марио Эрнесто Санчес, Серхио Доре мл., Чейз Рэндольф, Жанна Белл, Бриттани Пейдж БоакПеревод: Дублированный, многоголосый, авторскийЯзык субтитров: ОтсутствуютПродолжительность: 01:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5F24DCBCFAF88C65BCB0296D4176C9FE55DB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627778   (254830) от 24.04.2023
 
 Паразит / No mires a los ojos / Staring at Strangers (2022) WEB-DL [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254830.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254823.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254803.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254800.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254799.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254796.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254795.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254774.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254773.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254767.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254742.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254740.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254738.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254736.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254730.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254729.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254727.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254722.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254716.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254709.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254700.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254693.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254689.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254688.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB6679A9DA481548828B99BAB6F344015E111E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630228   (254684) от 29.04.2023
+
+Пропавшая без вести / Missing (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254684.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти отца для 18-летней Джун её мама — единственная семья. Та вместе с новым ухажёром Кевином отправляется в отпуск в Колумбию, а девушка всю неделю проводит на вечеринках, но когда мама не появляется в аэропорту, дочь начинает поиски. Поскольку представитель консульства без должных бумаг не может перейти к активным действиям, через специализированный сайт (   Читать дальше...   )Производство: США, Stage 6 FilmsЖанр: Детектив, триллер, драмаРежиссер: Николас Д. ДжонсонАктеры: Сторм Рид, Ниа Лонг, Жоакин де Алмейда, Кен Люн, Эми Ландекер, Дэниэл Хенни, Тим Гриффин, Ава Зариа Ли, Кимберли Чэн, Меган Сури, Лиза ЯмадаПеревод: Дублированный (Bravo Records Georgia), Профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Full), Английские (Full)Продолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA3BEE40E8CC69D219D9A2C0545B5E0DC66DBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630136   (254683) от 29.04.2023
+
+Игра на выживание / Hunt Club (2022) WEB-DLRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчины-охотники ради развлечения привыкли заманивать женщин на свой остров, предлагая им крупный денежный выигрыш. ​​​​​​​Только в этот раз они пригласили не тех женщин, и охота открывается на них самих.Производство: США / Latigo Films, Matt Dean Films, Titan Global EntertainmentЖанр: Боевик, триллерРежиссер: Элизабет Блейк-ТомасАктеры: Мена Сувари, Каспер Ван Дин, Уилл Пельтц, Майя Стоян, Микки Рурк, Джессика Белкин, Дэвид Липпер, Джейсон Лондон, Кипп Трайббл, Джофф СэмюэлсПеревод: Дублированный (Баритон)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A44883F26661993DB0510E18D9B56E0635B1CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

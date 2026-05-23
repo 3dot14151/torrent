@@ -6,7 +6,7 @@ HWiNFO 8.03 Build 5450 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108995.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FolderSizes 9.6.484 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108991.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ O&O Defrag Professional 28.1 Build 10015 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108975.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Telegram Desktop 5.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108967.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Topaz Gigapixel AI 7.1.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108961.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Calibre 7.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108953.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ FBackup 9.9.911 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108949.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ O&O DiskImage Professional 19.1 Build 137 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108942.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Process Lasso Pro 14.1.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108879.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Opera GX 109.0.5097.100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108865.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Brave Browser 1.66.115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108858.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Firefox Browser 126.0.1 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108771.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chromium 125.0.6422.113 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108769.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Skype 8.120.0.207 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108758.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Skype 8.120.0.207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108744.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ GeoGebra 6.0.843.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108743.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Telegram Desktop 5.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108739.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Opera GX 109.0.5097.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108723.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ StaxRip 2.39.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108719.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Telegram Desktop 5.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108709.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Opera GX 109.0.5097.108 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108660.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Telegram Desktop 5.0.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108658.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Image Uploader 1.4.1 Build 5153 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108605.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ FolderSizes 9.6.486 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108603.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ XYplorer 26.00.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108595.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Telegram Desktop 5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108583.jpg" />
 </div>
 
 

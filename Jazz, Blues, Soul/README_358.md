@@ -6,7 +6,7 @@ Art Farmer - Art Worker (1968) 2014, Studio Songs[FLAC|tracks+.cue]<Hard Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305628.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ June Christy - Big Band Specials (1962) 1999, Capitol Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305618.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Duke Ellington - Ellington At Newport 1956 Complete 2CD, 2014, Sony Music[FLAC|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305568.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charlie Byrd - Christmas Carols for Solo Guitar (1966) 1997, Columbia Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305523.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Stan Getz - Out Of Nowhere (1960) 1994, FourStar [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305521.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Xmas Erotic Jazz Lounge - Christmas Chill Out Relaxation (2016) [MP3|320 Kb
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304629.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Clifford Brown & Max Roach Quintet - The Complete Study In Brown (1954 - 1956) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304295.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Misty Blues - Weed 'Em & Reap (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304280.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - La Grande Histoire du Jazz: from Hard Bop to Cool 1955-1957 (2010)Box Set 2
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303747.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Roger Kellaway - Live At The Jazz Standard (2006) 2CD, 2008, IPO Recordings [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303617.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Louis Prima - The Wildest! (1956) 2000, DCC Compact Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303609.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxopho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303604.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lionel Hampton - Three Classic Albums Plus 1954 - 1955 (2009) 2CD, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303599.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gregg Wright's Left Hook - Round One (1995) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303528.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303518.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303497.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Michel Colombier - Michel Colombier (1979) 1999, Anthology's [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303493.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Coco Favre - Introducing Coco Favre (2014) Self-Released [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303492.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lisa Ekdahl - More of the Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303434.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Jazz and '80s Part Two (2005) [MP3|160 кб/с]<Jazz, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303389.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Erotic Jazz Moments (2016) (Essential Collection) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303293.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Smooth Jazz Sax Instrumentals - Sexy Jazz Massage (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303258.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Tea Time Moments Vol.2 (Relaxing Smooth Jazz Music) (2018) [MP3|320 Kbps] <
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303253.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dave Ellis - In The Long Run (1998) Monarch Records[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303013.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mezzoforte - Rising (1984) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303008.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mezzoforte - Surprise, Surprise (1982) 1989, RCA, Germany [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303007.jpg" />
 </div>
 
 

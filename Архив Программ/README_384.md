@@ -6,7 +6,7 @@ Vit Registry Fix Pro 12.7 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849946.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Clipdiary 5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849917.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ qBittorrent 3.3.11 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849908.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Anti-Malware 2017 1.9.1.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849906.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kinza Browser 6.2.2 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849899.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LibreOffice 6.4.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849893.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Topaz Mask AI 1.2.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849886.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MediaMonkey Gold 4.1.28.1905 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849885.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ashampoo Photo Commander 16.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849830.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849826.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Icecream Screen Recorder Pro 4.70 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849805.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ qBittorrent 4.2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849790.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Altium Designer 17.0.11 Build 656 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849781.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AKVIS Points 3.0.258.14357 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849779.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ The Bat! Professional 9.1.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849721.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Minstall Portable by Nomer001 2017.03 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849696.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849690.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Edge 94.0.992.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849648.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Reg Organizer 5.14 Тихая установка [Rus+Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849582.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Cent Browser 4.2.10.171 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849574.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Bat! Professional 9.1.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849567.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Privacy Eraser Free 5.16.0 Build 4024 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849535.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ GPU Shark 0.24.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849525.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ K-Lite Codec Pack Update 16.4.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849519.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ The Bat! Professional 9.1.18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849485.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Babylon Pro 9.0.1.5 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_849479.jpg" />
 </div>
 
 

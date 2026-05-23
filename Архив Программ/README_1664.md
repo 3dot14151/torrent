@@ -6,7 +6,7 @@ Advanced SystemCare Pro 15.5.0.267 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211979.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser 114.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211977.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OCCT 11.0.13 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211976.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Care 365 Pro 6.5.4.626 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_211975.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.75.6100 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211974.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WhatsApp 2.2238.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211973.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Smart Driver Manager Pro 6.4.974 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211971.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211969.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ FileZilla Server 1.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_211968.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AIMP 5.11 Build 2432 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_211967.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ORPALIS PaperScan Professional 4.0.7 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211963.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ CCleaner 6.05.10102  Free / Professional / Business / Technician Edition RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211960.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Atlantis Word Processor 4.1.6.2 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211959.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ IObit Driver Booster Pro 10.5.0.139 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211958.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Autorun Organizer 5.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211956.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Zoner Photo Studio X 19.2303.2.463 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211951.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Revo Uninstaller Pro 5.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211948.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ OCCT 12.0.7 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211947.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ IObit Uninstaller Pro 12.5.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211931.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ CCleaner 6.05.10102 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211925.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Viber 18.7.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211924.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ O&O ShutUp10++ 1.9.1432 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211920.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Windows and Office Genuine ISO Verifier 11.11.32.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211911.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Glary Utilities Pro 5.206.0.235 include Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211906.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Phase One Capture One 22 Enterprise 15.4.1.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211899.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ MediBang Paint Pro 28.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211895.jpg" />
 </div>
 
 

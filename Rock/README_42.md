@@ -6,7 +6,7 @@ StuckFish - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593390.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593171.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Brian Harold May - 2 Albums (2021-2022) Deluxe Version, Remastered, Expanded and
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592107.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Astro Zombies - Frogs Legs (2015) [MP3|320 кб/с]<Psychobilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591434.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Raccoonies - Raccoonies (2015) [MP3|320 кб/с]<Folk Rock, Blues, Country, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590983.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ronnie Montrose - Music From Here (1994)/2014/ [OGG|481-538 кб/с]<Classic Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590449.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589591.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589122.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589102.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Shadows - The Absolutely Essential 3CD Collection (2014) [MP3|320 кб/с]<I
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588636.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Exovex - Radio Silence (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587989.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Starry Saints - Serenade (with bonus singles) (2010-2011) [MP3|256 Kbps] <Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587523.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Plott Hounds - Living Free (2014) [MP3|320 кб/с]<Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586034.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Arbiter - 4 Releases (2021-2022) [MP3|320 Kbps] <Heavy Psych Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585874.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ David Coverdale & Whitesnake - Best Ballads (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585101.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Yellow Matter Custard - One More Night in New York City (Live) (2011) [MP3|320 k
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585087.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Super Rock. Power Hour (2011) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585014.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Falter - Further from Nowhere (2013) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584939.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Uncle Dog - Old Hat (1972) Remastered, 2005, Air Mail Archive [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584474.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Luther Wright & The Wrongs - Rebuild The Wall (2001) [MP3|320 Kbps] <Rock, Folk,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583450.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583378.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ New York Dolls - Les Genies du Rock - Vietnamese Baby (1994) [MP3|320 кб/с]<P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583017.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Starlight Brigade - 4 Albums (2013-2022) [MP3|320 Kbps] <Crossover Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582959.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Van Morrison - Les Genies du Rock - Brown Eyed Girl (1995) [MP3|320 кб/с]<Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582945.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Fletwood Mac - Les Genies du Rock - Black Magic Woman (1995) [MP3|320 кб/с]<R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582940.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ The Sweet - Les Genies du Rock - Fox on the Run (1995) [MP3|320 кб/с]<Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582934.jpg" />
 </div>
 
 

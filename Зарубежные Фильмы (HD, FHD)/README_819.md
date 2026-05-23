@@ -1,57 +1,3 @@
-###  Публикация: 1343631   (216073) от 07.12.2019
-
-Дневной свет / Daylight (1996) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Машина таксиста Кита Латуры в момент взрыва оказывается на въезде в огромный подводный тоннель, ведущий в Нью-Джерси. Огромный огненный шар проносится по тоннелю. В живых остается только дюжина испуганных людей. Без посторонней помощи им не выбраться. Кит Латура совершает отчаянную попытку пробраться в тоннель и вывести из него людей.
-Много лет назад он работал в (   Читать дальше...   )Производство: США / Davis Entertainment, Universal PicturesЖанр: Боевик, Триллер, Драма, ПриключенияРежиссер: Роб КоэнАктеры: Сильвестр Сталлоне, Эми Бреннеман, Вигго Мортенсен, Дэн Хедайя, Джей О. Сандерс, Карен Янг, Клер Блум, Ванесса Белл Кэллоуэй, Реноли Сантьяго, Колин ФоксПеревод: Дублированный, многоголосый закадровый, одноголосый авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: русские (форс., полные), английские (полные)Продолжительность: 01:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A290E443DF618F1B63C57633F8A306FAB57ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426238   (216020) от 23.11.2020
-
-Лучшие годы / Gli anni piu belli (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-История трёх друзей, Паоло, Риккардо, Джулио, и девушки Паоло, Джеммы, рассказанная в течение сорока лет, с 1980 года до наших дней.
-Паоло получает степень в области литературы и начинает преподавать. Джулио становится успешным адвокатом и меняет свои идеалистические взгляда на богатство и славу. Риккардо меняет профессии в поисках себя – от актёра до журналиста. (   Читать дальше...   )Производство: Италия / Lotus Production, Rai Cinema, 3 Marys EntertainmentЖанр: ДрамаРежиссер: Габриэле МуччиноАктеры: Пьерфранческо Фавино, Микаэла Рамаццотти, Ким Росси Стюарт, Клаудио Сантамария, Николетта Романофф, Эмма Марроне, Альма Ноче, Франческо Чентораме, Андреа Питторино, Маттео Де БуоноПеревод: Профессиональный (дублированный) (iTunes)Субтитры: Итальянские (SDH)Продолжительность: 02:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E05E7DAD5D2FF52043A3FB477B66EFF23D773A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514486   (216011) от 03.12.2021
 
 Кошачьи миры Луиса Уэйна / The Electrical Life of Louis Wain (2021) WEB-DL [H.264/1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216011.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215985.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215934.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215929.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215889.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215882.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215857.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215814.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215802.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215786.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215749.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215713.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215703.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215675.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215663.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215654.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215630.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215601.jpg" />
 </div>
 
 
@@ -529,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215573.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215552.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215505.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215489.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215488.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215447.jpg" />
 </div>
 
 
@@ -672,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:585C4EDEA7D4E408C52EDF15344A39E4136F0367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343696   (215431) от 07.12.2019
+
+В тихом омуте / I See You (2019) WEB-DL [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В идиллически тихом и спокойном городке бесследно пропадает двенадцатилетний мальчик. За расследование берется детектив, который переживает раскол в семье, узнав о недавней измене своей жены. Тем временем смертельная угроза подбирается уже к его собственному дому…Производство: США, Head Gear Films, Kreo Films FZ, Local HeroЖанр: Триллер, детектив, драма, криминалРежиссер: Адам РэндоллАктеры: Хелен Хант, Джон Тенни, Джуда Льюис, Оуэн Тиг, Либэ Барер, Грегори Алан Уильямс, Эллисон Кинг, Эрика Александр, Дженнифер Грэйс, Адам КернПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101BF33F6767DFCBA1523414A6EFA3D09036A1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343626   (215403) от 07.12.2019
+
+К звёздам / Ad Astra (2019) BDRip [H.265/1080p] [10-bit]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалёкое будущее. Несколько лет назад человечество запустило программу поиска внеземной жизни «Проект «Лима»», во главе которой стоял капитан Клиффорд Макбрайд. Последний сигнал экспедиции был зафиксирован в районе Нептуна, и с тех пор о её судьбе ничего не было известно. Сам капитан Макбрайд стал героем и самым известным космонавтом, вдохновившим многих на исследование (   Читать дальше...   )Производство: Китай, Бразилия, США / New Regency Pictures, Bona Film Group, Keep Your HeadЖанр: Фантастика, триллер, драма, детектив, приключенияРежиссер: Джеймс ГрэйАктеры: Брэд Питт, Томми Ли Джонс, Рут Негга, Дональд Сазерленд, Кимберли Элиз, Лорен Дин, Донни Кешаварц, Шон Блейкмор, Бобби Ниш, Лиза Гэй ХэмилтонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (SDH)Продолжительность: 02:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A92D65F1C04C4096FCB8B810061649225F51B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

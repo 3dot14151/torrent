@@ -6,7 +6,7 @@ Gemini Tri - Astroida (2020) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332614.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ WhatsApp 2.2043.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332613.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ iA Writer 5.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332610.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ K-Lite Codec Pack Update 15.8.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332604.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Germind - Vibrations (2013) [FLAC|Lossless|WEB-DL|tracks]<Psybient, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332565.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Nils Frahm - Music For The Motion Picture Victoria (2015) [FLAC|Lossless|WEB-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332563.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Vivaldi 3.4.2066.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332553.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ YT Downloader 7.2.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332545.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ PrivaZer 4.0.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332543.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Opera GX 71.0.3770.310 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332541.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ BurnAware Professional 8.6 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332535.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Soft Organizer 5.01 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332533.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Soft Organizer 5.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332531.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Extreme Picture Finder 3.51.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332495.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Q-Dir 8.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332492.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Slimjet 28.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332491.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Alto's Adventure v1.7.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332484.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ FurMark 1.22.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332482.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Blocs 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332473.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332470.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ SeaMonkey 2.39 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332465.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Bandicam 2.4.1.902 Portable by KloneBADGuY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332462.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ PDFsam Basic 4.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332431.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ WhatsApp 2.2043.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332424.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ MAGIX Sound Forge Pro Suite 14.0.0.112 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332423.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Trojan Killer 2.1.46 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332422.jpg" />
 </div>
 
 

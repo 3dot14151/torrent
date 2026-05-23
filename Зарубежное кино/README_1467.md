@@ -1,55 +1,3 @@
-###  Публикация: 1336420   (280192) от 06.11.2019
-
-Короли интриги / El Cuento de las Comadrejas (2019) WEB-DLRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мара Ортис, забытая всеми кинозвезда «золотой эпохи» ведет затворнический образ жизни в старинном особняке в пригороде Буэнос-Айреса. Свой кров актриса делит с экстравагантной компанией бывших свидетелей ее увядшей славы — влюбленным в нее супругом-актером эпизода, язвительным сценаристом и режиссером-циником. Отношения этой четверки далеки от совершенства: они балансируют (   Читать дальше...   )Производство: Аргентина, Испания  / 100 Bares, ...Жанр: Комедия, детективРежиссер: Хуан Хосе КампанельяАктеры: Грасиэла Борхес, Оскар Мартинес, Луис Брандони, Маркос Мандсток, Клара Лаго, Николас Франсельа, Лус Киприота, Мару Запата, Anwar Yoma, Мануэль Мартинес СобрадоПеревод: Профессиональный многоголосый (iTunes)Субтитры: НетПродолжительность: 02:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603BE246D4539B3431DEB9F742ED828111408170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336307   (280185) от 06.11.2019
-
-Ты умеешь хранить секреты? / Can You Keep a Secret? (2019) WEB-DL [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эмма с треском провалила совещание и возвращается из командировки самолётом. Настроение — хуже некуда, вдобавок девушка боится летать, поэтому хорошенько принимает на грудь перед посадкой. Сочувствующая стюардесса предлагает ей свободное место в первом классе, где разносят шампанское, и при первой же турбулентности от страха Эмма начинает вываливать все свои секреты (   Читать дальше...   )Производство: США / BCDF Pictures, Big Indie PicturesЖанр: Мелодрама, комедияРежиссер: Элиз ДюранАктеры: Александра Даддарио, Тайлер Хэклин, Сунита Мани, Кимико Гленн, Лаверн Кокс, Джуда Фридландер, Кейт Кастонгуэй, Сэм Асгари, Эшлин Алесси, Бобби ТисдэйлПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A532E8E3BF5704DD7EB214E06FB46B44611E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336097   (280182) от 06.11.2019
 
 Кокаиновый барон / Running with the Devil (2019) WEB-DLRip [H.265] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280182.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280126.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280124.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280118.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280066.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280062.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280027.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280013.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280005.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279996.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279970.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279969.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279962.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279959.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279958.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279957.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279955.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279954.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279953.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279951.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279908.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279895.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279891.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279889.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D6DFEF116C2C794FD44A482CB237352227A03D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187365   (279883) от 28.11.2017
+
+Падение Лондона / London Has Fallen (2016) Blu-ray [H.264/1080p] [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279883.jpg" />
+</div>
+
+
+###  Подробнее
+
+При загадочных обстоятельствах убит британский премьер-министр. На его похороны съезжаются лидеры крупнейших держав мира. Несмотря на запредельные меры безопасности, неизвестные террористы успешно взрывают приглашенных руководителей государств одного за другим вместе с половиной исторического центра Лондона. Однако, для президента США и его личного телохранителя (   Читать дальше...   )Производство: США, Великобритания, Болгария, Gerard Butler Alan Siegel Entertainment, LHF Film, Millennium FilmsЖанр: Боевик, триллер, криминалРежиссер: Бабак НаджафиАктеры: Джерард Батлер, Аарон Экхарт, Морган Фримен, Алон Абутбул, Валид Зуэйтер, Адель Беншериф, Мехди Дехби, Шивани Гаи, Мартин Петрушев, Оуэн Дэвис, Майкл Уилдман, Рада Митчелл, Стэйси Шэйн, Пенни Дауни, Кларксон Гай Уильямс, Патрик Кеннеди, Колин Сэлмон, Анджела Бассетт, Дебора Грант, Эндрю ПлевинПеревод: Дублированный (Лицензия)Субтитры: Русские, Английские, ФранцузскиеПродолжительность: 01:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A600E1883E353594116D9846082E58714E3271F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187300   (279875) от 28.11.2017
+
+Ночлежка / Crash Pad (2017) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стенслэнд, простак и безнадёжный романтик, верит, что обрёл истинную любовь в лице красавицы Морган. Однако для неё молодой любовник — лишь способ отомстить беспутному мужу, на что тот отвечает равноценной монетой, начав разгульную холостяцкую жизнь… в доме Стенслэнда.Производство: США / Indomitable Entertainment, Windowseat FilmsЖанр: КомедияРежиссер: Кевин ТентАктеры: Нина Добрев, Донал Глисон, Кристина Эпплгейт, Томас Хейден Чёрч, Анна Ван Хуфт, Алийа О Брайен, Бриттни Ирвин, Аня Савчич, Нилс Дж Хонестад, Сунита ПрасадПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские (отдельным файлом)Продолжительность: 01:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C696ADB2E7B21C20B00BA5BA4B3E2CBFF5FB34F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

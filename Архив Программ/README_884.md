@@ -6,7 +6,7 @@ eM Client Pro 7.2.35464.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597845.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FireAlpaca 2.1.18 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597844.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Master PDF Editor 5.4.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597835.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Slideshow Maker 4.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597788.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 67.0.3396.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597786.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox ESR 52.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597773.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IcoFX 3.7.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597768.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Java SE Runtime Environment 8.0.3330.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597753.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SolveigMM Video Splitter 5.0.1506.30 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597746.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ GPU-Z 2.20.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597679.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Privacy Eraser Free 4.50.0 Build 2960 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597673.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Valhalla DSP - ValhallaDelay 1.0.6 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597661.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wise Registry Cleaner 7.41 Build 479 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_597648.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Nitro Pro 13.58.0.1180 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597598.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Android Studio Bumblebee 2021.1.1 Patch 3 Build #AI-211.7628.21.2111.8309675 + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597580.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Silverlight 5.1.40620.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597577.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft Windows 10 Insider Preview Single Language 10.0.10159 (esd) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597570.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Skype 7.6.32.105 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597551.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AusLogics BoostSpeed 8.0.0.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597543.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ ISO Workshop 3.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_597525.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Google Chrome 22.0.1215.0 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_597524.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Microsoft Visual Studio 2019 Community 16.0.3 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597517.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Microsoft Visual Studio 2019 Professional 16.0.3 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597503.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mozilla Firefox ESR 45.2.0 Portable by PortableApps  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597495.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Flip PDF Professional 2.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597479.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Wondershare DVD Creator 3.8.0 + Menu Templates Packs [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597458.jpg" />
 </div>
 
 

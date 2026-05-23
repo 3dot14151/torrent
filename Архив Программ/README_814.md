@@ -6,7 +6,7 @@ Portable Offline Browser 5.9.3374 SR 5 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635311.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Teorex FolderIco 1.0 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635309.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VSO ConvertXtoDVD 5.3.0.11 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635297.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VMware Workstation 11.1.1 Build 2771112 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635296.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Bat! Professional 6.8.4 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635290.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Movavi Slideshow Maker 5.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635232.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VueScan Pro 9.6.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635226.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ WinRAR 5.71 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635225.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Notepad++ 7.6.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635219.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Aiseesoft Screen Recorder 2.2.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635167.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635156.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VMware Workstation 11.1.1.2771112 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635155.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SoftMaker Office Professional 2016 rev 733.0527 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635151.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Total Commander 8.51a Final MAX-Pack Extended 2015.06.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635149.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VMware Player 7.1.1-2771112 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635144.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CrystalDiskInfo 8.16.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635045.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Opera 85.0.4341.60 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635042.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Topaz DeNoise AI 3.6.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635041.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sony Vegas Pro 13.0 Build 453 (x64) RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634999.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Sony Vegas Pro 13.0 Build 453 (x64) Portable by Punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634996.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NeoDownloader 3.0.3 Build 208 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634974.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Audition CC 2019 12.1.0.182 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634956.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Movavi Video Converter 19.2.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634944.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634910.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ R-Studio 5.4 Build 134120 Network Edition [Русский / Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634883.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Kaspersky Internet Security 2020 20.0.14.1085 (Technical Release) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634830.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Music News For Forum vol.165 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061280.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anya Blaze - Favorites Collection (2025) [MP3|320 Kbps] <Italodisco, Italodance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061185.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ ONE1 - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurod
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061183.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - No name compilation part 74 Other (2026) [MP3|320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061157.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - No name compilation part 73 Other (2026) [MP3|320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061156.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - No Name Compilation Part 72 Remixes (2026) [MP3|320 Kbps] <Other, Remixes>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061155.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - No name compilation part 71 Other (2026) [MP3|320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061154.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Music for Soul - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italoda
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061153.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - No Name Compilation Part 70 Remixes (2026) [MP3|320 Kbps] <Italodisco, Ital
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060048.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ai - No name compilation part 68 S. Yesenin covers (2026) [MP3|320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059995.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - No name compilation part 69 Other (2026) [MP3|320 Kbps] <Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059896.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Music - Pop vol.Two (2026) [MP3|320 Kbps] <Pop, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059830.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - No name compilation part 67 Assorted (2026) [MP3|320 Kbps] <Electronic, Voc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059678.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Music News For Forum vol.164 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059606.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - No name compilation part 66 remixes (2026) [MP3|320 Kbps] <Italodisco, Ital
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059581.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Music - Pop vol.One (2026) [MP3|320 Kbps] <Pop, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059495.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - No name compilation part 65 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059319.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ai - No name compilation part 64 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058984.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ai - No name compilation part 63 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058983.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - No name compilation part 62 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058982.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Danekoo1 - Remixes (2026) [MP3|320 Kbps] <Instrumental, Electronic, Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058914.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - No name compilation part 61 Assorted (2026) [MP3|320 Kbps] <Electronic, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058912.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - No name compilation part 60 remixes (2026) [MP3|320 Kbps] <Italodisco, Ital
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058759.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - No name compilation part 59 Assorted (2026) [MP3|320 Kbps] <Electronic, Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058263.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Music News For Forum vol.163 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058101.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - No name compilation part 57 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057919.jpg" />
 </div>
 
 

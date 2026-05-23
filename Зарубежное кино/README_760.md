@@ -1,55 +1,3 @@
-###  Публикация: 1024675   (713410) от 10.06.2016
-
-И грянул шторм / The Finest Hours (2016) Blu-Ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма основан на реальных событиях, произошедших в 1952 году, когда сотрудники береговой охраны в самый разгар шторма, используя деревянные моторные лодки, пытались спасти экипаж двух нефтяных танкеров.Производство: США / Walt Disney Pictures, Whitaker EntertainmentЖанр: боевик, триллер, драма, историяРежиссер: Крэйг ГиллеспиАктеры: Крис Пайн, Кейси Аффлек, Бен Фостер, Эрик Бана, Холлидей Грейнджер, Джон Ортис, Кайл Галлнер, Джон Магаро, Грэм МакТавиш, Майкл Рэймонд-Джеймс, Бо Напп, Джош Стюарт, Абрахам Бенруби, Кейнан Лонсдейл, Рэйчел Броснахэн, Бенжамин Колдык, Мэттью Мехер, Джесси Габбар, Александр Кук, Дэнни КоннеллиПеревод: Дублированный (Лицензия BD EUR)Язык субтитров: Русский, Английский, Китайский, Индонезийский, Корейский, Малайский, Португальский, ТайскийПродолжительность: 01:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D2394E5D7E9AAF36088B32CC89FC717305FE4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024448   (713406) от 10.06.2016
-
-Самолет президента / Air Force One (1997) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самолет президента — самый охраняемый объект ВВС США. Президент возвращается с переговоров в Москве вместе с семьей и администрацией. Но едва самолет поднимается в воздух, его захватывает группа террористов, которыми руководит непримиримый коммунист Коршунов. Он угрожает убить заложников, если их лидер, генерал Радек, заключенный в тюрьму, не будет освобожден. Президенту (   Читать дальше...   )Производство: США, Германия / Beacon Communications LLCЖанр: боевик, триллер, драмаРежиссер: Вольфганг ПетерсенАктеры: Харрисон Форд, Гэри Олдман, Гленн Клоуз, Венди Крюсон, Лизель Мэтьюз, Пол Гилфойл, Ксандер Беркли, Уильям Х. Мэйси, Дин Стокуэлл, Том ЭвереттПеревод: Дублированный, одноголосый закадровыйЯзык субтитров: Английские (Вшитые)Продолжительность: 02:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1E71A83AB7339A1AD481CFB3A5F32963C8D695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025003   (713405) от 10.06.2016
 
 Рыцарь кубков / Knight of Cups  (2015) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713405.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713365.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713324.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713278.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713276.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713273.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713272.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713270.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713268.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_713263.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713249.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713231.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713219.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713170.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713142.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713133.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713076.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713060.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713002.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713000.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712985.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712976.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712970.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712965.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60955499F351D388E5DDB1FB4496C6396E6CB98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219406   (712959) от 14.04.2018
+
+Кавалерия / 12 Strong (2018) WEB-DLRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их бросили в пекло после 11 сентября, когда мир раскололся на «до» и «после». Именно им предстояло на передовой бороться с врагом, не знающим пощады. На чужой земле преимущество у всадников — этому их научили нежданные союзники. Вместе они попытаются удержать мир от погружения в хаос.Производство: США / Alcon Entertainment, LionsgateЖанр: Боевик, драма, военный, историяРежиссер: Николай ФьюлсиАктеры: Крис Хемсворт, Майкл Шеннон, Уильям Фихтнер, Эльза Патаки, Тейлор Шеридан, Джофф Стульц, Майкл Пенья, Роб Риггл, Треванте Роудс, Джек КесиПеревод: Многолосый закадровый, любительский (MUZOBOZ)Субтитры: Русские (forced), английские (full)Продолжительность: 02:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4463332D026CF3D32870D98D240CBC229BBBE7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893625   (712958) от 29.04.2015
+
+Непрощенный / Unforgiven (1992) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история Уильяма Мунни — бывшего хладнокровного убийцы, нашедшего в себе силы покончить с грязным ремеслом. Он стал фермером, завел семью. И вот сейчас его жена умирает, оставляя его одного с двумя детьми. Мунни беден, ему нужны деньги. Скофилд Кид предлагает ему поймать двух ковбоев, совершивших преступление, и получить за это вознаграждение. Но все складывается (   Читать дальше...   )Производство: США / Malpaso Productions, Warner Bros. Pictures Co.Жанр: ВестернРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Джин Хэкмен, Морган Фримен, Ричард Харрис, Джаймз Вулветт, Сол Рубинек, Фрэнсис Фишер, Анна Левайн-Томсон, Дэвид Муччи, Роб КэмпбеллПеревод: Профессиональный (дублированный), Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)Продолжительность: 02:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922C204196BB8293D2DA7AB1159569DEDCFF6FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

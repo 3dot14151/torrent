@@ -6,7 +6,7 @@ VA - Hit Factory Vol. 1 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041652.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Milk & Sugar Winter Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041420.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Ultra Jogging Platinum Hits 2021 Fitness Session [MP3|320 Kbps] <House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040111.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039286.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038374.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037579.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037273.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036987.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036896.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Deep House On The Beach (2023) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036716.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Miami House Week 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036443.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Ballaton Nightlife (2023) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035854.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Alternative EDM Party 2023 (2023) [MP3|320 Kbps] <Dance, Electronic, Club, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035610.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035583.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035570.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Summer Melody: Best Of 2020 (Mixed Version With Full Compilation DJ Mix) (2
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035455.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Training Motivation 2021 [MP3|320 Kbps] <House, Dance, Pop>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033979.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033399.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032964.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - House Clubhits Megamix 2023 (2023) [MP3|320 Kbps] <Dance, Club, House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032960.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030955.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Thumbs Up For Cardio Dance 2021 Workout Compilation (2021) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029730.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Future Trance - Rave Classics (2023) [MP3|320 Kbps] <Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029607.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Ibiza XXL - The Summer Hits 2023 (2023) [MP3|320 Kbps] <Dance, Club, House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029414.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Cafe De Anatolia - Desert Rose (2023) [MP3|320 Kbps] <Organic House, Progre
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029400.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Pure Aerobic Hits 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028356.jpg" />
 </div>
 
 

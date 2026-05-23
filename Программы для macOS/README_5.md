@@ -6,7 +6,7 @@ Front and Center 1.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034243.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AppCleaner 3.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034195.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Autodesk Maya 2020.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034052.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SVGMaker 1.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033564.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ConceptDraw PROJECT 11 v11.0.1.93 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033548.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ConceptDraw DIAGRAM 14 v14.1.0.369 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033530.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ConceptDraw MINDMAP 12 v12.0.0.164 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033520.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ProPresenter 7 v7.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033456.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Goldie Ap‪p 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033319.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WaiFu2‪x 2.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033299.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AirMagic 1.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033040.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ EaseUS Todo Backup for Mac 3.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033020.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Macsome Spotify Downloader 2 v2.1.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033019.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Photolemur 3 1.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032994.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ KPlayer 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032732.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Nimble Commander Pro 1.2.9 [Rus/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032704.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ EaseUS RecExperts 1.5.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032683.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MacBreakZ 5 v5.44 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032595.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Wattagio 1.12.6 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032584.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ HazeOver 1.8.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032578.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ DiscoBrick Pro 2.21 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032568.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Middle 1.5.18 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032344.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Screen Tin‪t 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032342.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ iSoftPhone Pro 4.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032313.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Flyingbee PDF to Excel 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032304.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Morph Age 5.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032291.jpg" />
 </div>
 
 

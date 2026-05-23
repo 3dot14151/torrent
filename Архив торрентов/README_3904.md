@@ -6,7 +6,7 @@ EaseUS Data Recovery Wizard Technician 15.6.0.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207481.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ App Builder 2023.39 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207480.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wondershare UniConverter 14.1.10.138 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207467.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CCleaner 6.04.10044 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207465.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SupRemo 4.10.2.2085 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207461.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fort Firewall 3.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207453.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ DesktopDigitalClock 4.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207450.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ LDPlayer 9.0.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207447.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MKVToolNix 74.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207446.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Topaz Video AI 3.3.8 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207445.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SplitCam 10.7.16 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207444.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WinTools.net Premium / Professional / Classic 23.8.1 RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207441.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Volume2 1.1.8.461 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207434.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Aiseesoft Mac Screen Recorder 2.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207428.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Serial Box & SerialSeeker 2023 - 08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207424.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PortableApps.com Platform 24.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207421.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207415.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ CCleaner 6.09.10300 Technician Edition (x64) + CCEnhancer Portable by FC Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207413.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v11 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207404.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ HDCleaner 2.044 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207399.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Internet Download Manager 6.41 Build 17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207392.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Topaz Video AI 3.3.9 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207382.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ R-Studio Network 9.3 Build 191223 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207372.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ XY VPN - Security Proxy VPN 4.4.766 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207371.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ USB Image Tool 1.90 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207369.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Gradient v2.9.66 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207367.jpg" />
 </div>
 
 

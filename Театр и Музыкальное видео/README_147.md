@@ -1,116 +1,3 @@
-###  Публикация: 415620   (49151) от 23.07.2024
-
-Чеховские страницы / МХАТ им. Горького (1977) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация спектакля "Чеховские страницы" в постановке МХАТа им. М.Горького по одноактным пьесам и рассказам А.П.Чехова: "Канитель", "Лекция о вреде табака", "Юбилей", "Печенег", "Рассказ госпожи N.N.", "Лебединая песня".Жанр: комедия, спектакльРежиссер: Евгений Радомысленский, Николай АлександровичАктеры: Виктор Сергачёв, Анастасия Зуева, Анатолий Кторов, Павел Массальский, Ирина Мирошниченко, Михаил Болдуман, Анастасия Георгиевская, Борис Петкер, Ангелина Степанова, Марк Прудкин, Николай Шавыкин, Александр Михайлов (II), Нина ЗасухинаПродолжительность: 02:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C11F8BFA93DB09568A8C53E5A7D35967B8D1EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550699   (49148) от 23.07.2024
-
-Supertramp - Live in Paris '79 (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Supertramp’s “Breakfast In America” был самым продаваемым альбомом в 1979 году, было продано более 20 миллионов копий, Supertramp получают две премии Грэмми. После выхода альбома последовал 10-месячный тур группы... Итак Supertramp прибывают в Париж и дают потрясающий концерт! Аудио запись с него - это знаменитый двойной альбом "Париж". И вот только теперь (   Читать дальше...   )1. French Touch (intro)
-2. School
-3. Bloody Well Right
-4. The Logical Song(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7B5A4401D2452AFB891AE97715697D5F6B8485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648329   (49143) от 23.07.2024
-
-Whitesnake - Made In Japan (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )01. Best Years
-02. Give Me All Your Love Tonight
-03. Love Ain't No Stranger
-04. Is This Love(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773177F7A16AC555444AEEA7E1BF61607C753B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 122610   (49140) от 23.07.2024
-
-Marc Bolan And T.Rex - "Born To Boogie" (2005) 2xDVD9 (Special Edition)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фильм о концерте легендарных T.Rex, состоявшемся на пике их славы, в 1972-м году, вскоре после выхода альбома «Electric Warrior». «Born To Boogie» был отснят от начала до конца самим Ринго Старом. Это издание включает множество ранее не изданных видеоматериалов, а изображение и звук были отреставрированы, чтобы соответствовать современным стандартам.T. Rex In Concert 5.30pm, 18th March 1972, Wembley Afternoon Concert
-01.  Rosko's Intro
-02.  Cadilac
-03.  Jeepster(   Читать дальше...   )Жанр: RockРежиссер: Ринго Старр / Ringo StarrВ ролях: Марк Болан, Ринго Старр, Элтон ДжонСубтитры: Английские / Французские / Итальянские / Немецкие / ИспанскиеФормат: DVD VideoКачество: DVD9Продолжительность: 02:14:13 + 03:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B480AD53FA30D30D20F25E3780A0684CB56AD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 172512   (49136) от 23.07.2024
 
 Этот фантастический мир. Выпуск 8 (1983) TVRip
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49136.jpg" />
 </div>
 
 
@@ -145,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49134.jpg" />
 </div>
 
 
@@ -173,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49133.jpg" />
 </div>
 
 
@@ -199,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49132.jpg" />
 </div>
 
 
@@ -225,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49119.jpg" />
 </div>
 
 
@@ -256,7 +143,7 @@ Iggy Pop - Live At The Avenue B / Iggy Pop - Live At The Avenue B (2005) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49103.jpg" />
 </div>
 
 
@@ -285,7 +172,7 @@ Bon Jovi - Greatest Hits The Ultimate Video Collection (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48961.jpg" />
 </div>
 
 
@@ -314,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48955.jpg" />
 </div>
 
 
@@ -341,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48941.jpg" />
 </div>
 
 
@@ -372,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48937.jpg" />
 </div>
 
 
@@ -401,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48928.jpg" />
 </div>
 
 
@@ -428,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48925.jpg" />
 </div>
 
 
@@ -454,7 +341,7 @@ Judas Priest - British Steel Live - 30th Anniversary Deluxe Edition (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48924.jpg" />
 </div>
 
 
@@ -483,7 +370,7 @@ DIO - We Rock (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48909.jpg" />
 </div>
 
 
@@ -515,7 +402,7 @@ DIO - Holy Diver Live (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48902.jpg" />
 </div>
 
 
@@ -544,7 +431,7 @@ Ray Charles Live: In Concert with the Edmonton Symphony (19.09.2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48832.jpg" />
 </div>
 
 
@@ -574,7 +461,7 @@ Status Quo - "XS All Areas" (2004) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48827.jpg" />
 </div>
 
 
@@ -604,7 +491,7 @@ Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48824.jpg" />
 </div>
 
 
@@ -633,7 +520,7 @@ Doro - 25 Years In Rock... And Still Going Strong (2010) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48819.jpg" />
 </div>
 
 
@@ -662,7 +549,7 @@ Genesis - The Video Show 2004 DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48817.jpg" />
 </div>
 
 
@@ -691,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48741.jpg" />
 </div>
 
 
@@ -720,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48727.jpg" />
 </div>
 
 
@@ -735,6 +622,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B255BFD054697B02E8D4C9599AD05116BAF96C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257565   (48713) от 27.07.2024
+
+Фил Коллинз - Прощальный тур / Phil Collins: Finally... The First Farewell Tour (2005) 2xDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный как по песенному материалу
+(сплошные хиты: In the Air Tonight, Another Day in Paradise, You Can't Hurry Love,...),
+так и по энергетике концерт.01. Drums, Drums & More Drums
+02. Something Happened On the Way to Heaven
+03. Against All Odds
+04. Don't Lose My Number(   Читать дальше...   )Язык субтитров: English, Spanish, German, French, Italian, Dutch, PortugueseПродолжительность: 323 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047183   (48648) от 27.07.2024
+
+Валентин Катаев - Юморески Валентина Катаева (1968) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48648.jpg" />
+</div>
+
+
+###  Подробнее
+
+По рассказам Валентина Катаева "Дневник горького пьяницы", "Шубка" и "Жемчужина".
+Маленький шедевр замечательного режиссёра Александра Белинского с прекрасными ленинградскими актёрами. Смешные и очень жизненные рассказы - случаи из жизни и ситуации по рассказам Валентина Катаева поставлены и сыграны ведущими ленинградскими актёрами...Производство: СССР, Ленинградское ТелевидениеЖанр: Фильм-спектакль, комедияРежиссер: Александр БелинскийАктеры: Аркадий Стучков, Юрий Аптекман, Валентина Ковель, Вадим Медведев (I), Георгий Куровский, Людмила Макарова, Владимир ТатосовПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A917AE98BBAB6C5A73860D07AF6D584F8E92AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193817   (48615) от 28.07.2024
+
+Василий Шукшин - Михаил Ульянов читает рассказы Василия Шукшина (1977) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сравнительно небольшая, но очень достойная работа Михаила Александровича Ульянова, а также известного своими запоминающимися телепостановками режиссера Бориса Михайловича Конухова и его группы. В исполнении М. Ульянова прозвучали три рассказа В.М. Шукшина: "Раскас", "Осенью", "Микроскоп". В моноспектакль внесен также личный момент: Ульянов (   Читать дальше...   )Производство: СССР, Центральное телевидениеЖанр: Моноспектакль, литературное чтениеРежиссер: Борис КонуховАктеры: Михаил УльяновСубтитры: отсутствуютПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622FC0878E280BC19C0F1E085535FF6E93470AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463788   (48603) от 28.07.2024
+
+"Послушайте!" Вечер Авангарда Леонтьева (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия вечера Авангарда Леонтьева в Московском Международном Доме Музыки.
+
+Авангард Леонтьев читает и комментирует поэму Михаила Лермонтова "Тамбовская казначейша", а также несколько стихотворений.
+В программе использованы рисунки Михаила Лермонтова.Жанр: поэзияРежиссер: Анастасия СинельниковаПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D026B4B370FE45E46A2CF67FDE976258F888DC7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

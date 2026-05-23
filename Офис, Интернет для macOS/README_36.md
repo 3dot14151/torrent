@@ -6,7 +6,7 @@ Things 2.8.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294728.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Drop - Beautiful color picker for macOS 1.01 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294198.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Nice Todo 2 v2.0.5d [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293329.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Fantastical 2.1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293159.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Vellum 2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291666.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Final Draft 11 v11.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291541.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Remotix VNC, RDP & NEAR 5.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290959.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Tweetbot for Twitter 2.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290884.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Graphics for iWork 3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290340.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Paperless 3.0.71 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289878.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ PDF Plus - Merge & Split PDFs 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289737.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ iNet Network Scanner 2.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288478.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Templates for MS Word by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287798.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ MailTab Pro for Gmail 7.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287325.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ MenuTab Pro for Facebook 6.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287144.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Shimo 5 v5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286919.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MacFamilyTree 9 v9.0.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286171.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Readiris Pro 17.1.3 (build 7ca) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284245.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Canary Mail - Encrypted Email 2.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281159.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Keep It 1.7.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280950.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Cisdem PDFManagerUltimate 3.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280948.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ MailRaider 3.69 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280940.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ RealDNS - Dynamic DNS update client 7.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280806.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Image Viewer 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280600.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Bookends 13.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279572.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Microsoft Office for Mac 2016 v15.28 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278060.jpg" />
 </div>
 
 

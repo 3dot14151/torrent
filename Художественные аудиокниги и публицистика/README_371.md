@@ -1,83 +1,3 @@
-###  Публикация: 1131017   (710782) от 04.05.2017
-
-Виктор Курочкин | Последняя весна (2013) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Произведения Виктора Курочкина - одни из самых искренних и пронзительных о Великой Отечественной войне. Суровая правда о войне в повестях Виктора Курочкина смягчается романтикой подвига и юмором, спасавшим людей в нечеловеческих условиях военного времени. Виктор Курочкин – далеко не самое известное лицо в русской послевоенной литературе, однако закономерно, что в (   Читать дальше...   )Жанр: Военная прозаИздательство: Нигде не купишьПродолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A476A868726CBC7B71E78C2230E95B081984EC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130944   (710663) от 04.05.2017
-
-Даниэль Клугер | Суд и расчет (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бывший полицейский, а ныне владелец частного сыскного агентства Натаниэль Розовски (в прошлом – репатриант из СССР) снова распутывает самые загадочные преступления..Жанр: ДетективПродолжительность: 03:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B160D0A9F502B6EDB6EDB9C5805F4EA1C0BE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131051   (710659) от 04.05.2017
-
-Алексей Емельянов | Партия с шахом (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Первая мировая война, или, как ее тогда называли, Великая война, опалила не только российский Кавказ, но и нейтральную Персию.
-Это малоизвестные, почти проигнорированные отечественными историками войны.
-После провала блицкрига в Европе в Берлине надеялись, что подняв мусульманский Восток на «священную войну» против «англо-русских завоевателей», создав в тылу громившей (   Читать дальше...   )Жанр: Исторический романПродолжительность: 04:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBC5B5D8DF7B545BD9D08DA385B57B469105B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131050   (710658) от 04.05.2017
 
 Вашингтон Ирвинг | Альгамбра (2017) [MP3, Владимир Григорьев]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710658.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710531.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710518.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710399.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710398.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710037.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710032.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710030.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709962.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709945.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709943.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709834.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709831.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709776.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709773.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709721.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709709.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709677.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709645.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709441.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709405.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709393.jpg" />
 </div>
 
 
@@ -666,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709391.jpg" />
 </div>
 
 
@@ -677,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D817F8C06C0DD6BC917AA0CDB9FA3B3EB85D46A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401476   (709289) от 10.08.2020
+
+Александр Кабаков | Бульварный роман и другие московские сказки (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709289.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бульварный роман и другие московские сказки» – книга прозаика Александра Кабакова о жителях мегаполиса. Здесь, среди суеты и пробок, обыкновенная история любви становится сказочной, а реальное соединяется с мистическим. Автор рассказывает, как сложилась судьба Красной Шапочки и Серого Волка, нарушает ли правила дорожного движения Летучий Голландец и включена ли (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 09:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C902BD0DE397B1E0FF515E0FD0FBB00F3CB8B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401456   (709162) от 10.08.2020
+
+Юрий Москаленко, Алекс Нагорный | Берсерк забытого клана. Холод и тьма порубежья (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами восьмая книга из цикла «Не в магии счастье». Приключения Феликса, нашего современника, оказавшегося в чужом мире, продолжаются. Опасные и щекотливые ситуации, в которых он постоянно оказывается в другой версии России, стали для него обычным делом. Но на сей раз для Феликса жизнь подготовила новое испытание – он оказался в гуще военных событий, а перспективы (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 07:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41442944CFC226436BF3A964D1C3B339A39728DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533099   (708991) от 22.02.2022
+
+Даниэль Шпек | Piccola Сицилия (2020) [MP3, Марина Бакина]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708991.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Piccola Сицилия» – захватывающая и красивая, как восточный ковёр, семейная сага.
+
+Наши дни. Солнечный осенний день на Сицилии. Дайверы, искатели сокровищ, пытаются поднять со дна моря старый самолёт. Немецкий историк Нина находит в списке пассажиров своего деда Морица, который считался пропавшим во время Второй мировой. Это тайна, которую хранит её семья. Вскоре (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Татьяна НабатниковаПродолжительность: 20:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8679117A7339185874928B9FAC8D5659F54BC3F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 1449329   (1029647) от 22.02.2021
-
-Королевский гамбит / Critical Thinking (2020) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Марио «Мистер Ти» Мартинез ведет факультатив шахмат для подростков из неблагополучных семей. От остальных учителей его отличает легкий стиль общения, эмпатия и высокий интеллект. На улицах города творится беспредел, подростки здесь постоянно попадают в неприятности, и многие берутся за самые рискованные дела, чтобы выжить. Какие тут могут быть шахматы? Но Мартинез (   Читать дальше...   )Производство: США / Cinema Veritas, Critical thinking, Hialeah Park Studios, NRSP, Perfect BalanceЖанр: ДрамаРежиссер: Джон ЛегуизамоАктеры: Джон Легуизамо, Рэйчел Бэй Джонс, Майкл Кеннет Уильямс, Коруин С. Тагглс, Хорхе Лендеборг мл., Энджел Куриэль, Джеффри Батиста, Уилл Хохман, Зора Касебере, Рамсес ХименесПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F947633A361012D2722073E2021A167E93CC40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449704   (1029644) от 22.02.2021
-
-Птица в клетке. Заражение / Songbird (2020) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году мир все еще находится во власти опасного вируса. Зараженных силой забирают из домов и отправляют в зловещие карантинные лагеря.
-У курьера Нико редкий иммунитет к болезни, и он свободно передвигается по городу. Когда его девушка Сара заражается, Нико понимает, что за ней уже выехали военные и у него есть считанные часы, чтобы спасти возлюбленную.Производство: США / STX Films, Invisible Narratives, Platinum DunesЖанр: Драма, фантастика, триллер, мелодрамаРежиссер: Адам МэйсонАктеры: Кей Джей Апа, София Карсон, Крэйг Робинсон, Брэдли Уитфорд, Петер Стормаре, Эльпидия Каррильо, Александра Даддарио, Лия МакХью, Пол Уолтер Хаузер, Деми МурПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (форс.), английские, украинскиеПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA8BBB61A61331DA2202850CFE70EE32FB97759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449335   (1029643) от 22.02.2021
 
 Звук металла / Sound of Metal (2019) WEB-DLRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029643.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029641.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029610.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029599.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029506.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029483.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029480.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029474.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [H.264
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029472.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029461.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029460.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029450.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029448.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029437.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029402.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029401.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029399.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029361.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029359.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029357.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029355.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029352.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029289.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029275.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:849051D70C28B958A4A97D277374986D6D42B6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449831   (1029261) от 24.02.2021
+
+Последний Вермеер / The Last Vermeer (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029261.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета бывший участник нидерландского движения Сопротивления Джозеф Пиллер (Клас Банг), который расследует дело художника-авантюриста Хана ван Меегерена (Гай Пирс). Последнего обвиняют в коллаборационизме и продаже нацистам значительного количества произведений искусства, в том числе одну из картин Яна Вермеера, выдающегося нидерландского художника семнадцатого (   Читать дальше...   )Производство: США / Imperative Entertainment, NL FilmЖанр: драмаРежиссер: Дэн ФридкинАктеры: Клас Банг, Гай Пирс, Мария Бах Хансен, Роланд Мюллер, Аугуст Диль, Оливия Грант, Сюзанна Дойл, Эдриан Скарборо, Даан Ауфенакер, Мэтт ДжонсПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские, украинские, английскиеПродолжительность: 01:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473A6167AB0D652F8BD594D8A5C7C0D84028B7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443833   (1029258) от 24.02.2021
+
+Боевой робот номер 4 (Монстры, созданные человеком) / Monsters of Man (2020) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029258.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далёких джунглях Камбоджи ЦРУ проводит несанкционированные испытания боевых роботов с искусственным интеллектом, созданных частной компанией. Расстреливая банду вооружённых наркоторговцев, андроиды уничтожают и жителей лесной деревни, невольными свидетелями чего становится живущий там же бывший морпех и группа американских студентов-медиков, участвующих в волонтёрской (   Читать дальше...   )Производство: Австралия / MRT Films Pty Ltd, Hanuman Films, 11:11 EntertainmentЖанр: фантастика, боевикРежиссер: Марк ТойяАктеры: Нил МакДонаф, Brett Tutor, Хосе Росете, Дэвид Хэверти, Paul Haapaniemi, Райан Хью, Ly Ty, Ma Rynet, Kayli Tran, Джессика БлэкморПеревод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельным файлом)Продолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620D689AED7AC4B428716A2D53818E0B4B27E07A
 ```
 
 https://mybot314.ru/tekegram_catalog/

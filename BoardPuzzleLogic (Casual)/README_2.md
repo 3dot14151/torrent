@@ -6,7 +6,7 @@ Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667567.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Getting Over It with Bennett Foddy (2017) [Ru/Multi] (1.52) License HI2U
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665817.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pretty Snails / Спаси улиток! (2017) [Ru] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652133.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hieroglyphika (2016) [Ru/Multi] (1.2.1) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643350.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Metamorphic (2016) [En] (1.0.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641411.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Lucas Chess (2015) [Ru/Multi] (9.04) Portable
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639039.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Star Vikings Forever (2016) [Ru/Multi] (240219) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634834.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Burnstar (2015) [Ru/Multi] (1.0 b.204) License PROPHET
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626236.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Electric Circuit (2015) [Ru/En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626075.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Chess Ultra (2017) [Ru/Multi] (1.0) License CODEX
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625000.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Burnstar (2015) [Ru/Multi] (1.0/b204) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624392.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Burnstar (2015) [Ru/Multi] (1.0 b.204) SteamRIP ALiAS
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624314.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Old Clockmaker's Riddle {0.1.20} (P) [Ru] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618535.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Armello (2015) [Ru/Multi] (2.0p3/dlc) Repack R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618250.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Obulis (Eng) [P] (2008)
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_613087.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ History2048 - 3D puzzle number game (2017) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600832.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Chess Ultra (2017) [Ru/Multi] (4.15.1) Repack R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597732.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Clue/Cluedo: The Classic Mystery Game (2018) [Multi] (2.4.1-511565/dlc) License 
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594298.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Armello (2015) [Ru/Multi] (1.6) License GOG [DRM Free Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593060.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VELONE (2022) [Ru/Multi] (1.0.1/dlc) License GOG [Supporter Bundle]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591947.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Puyo Puyo Champions (2019) [Multi] (1.0) License CODEX
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582984.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Runic One (2005) [En] (1.04) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574278.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Pirates of New Horizons: Planet Buster (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570885.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Turner (2016) [En/Es] (1.5) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565035.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Pirate Jigsaw (2015) [En] (1.0) Repack ZEKE
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562518.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Fort Meow (2015) [En] (1.0.0) Repack ZEKE
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562371.jpg" />
 </div>
 
 

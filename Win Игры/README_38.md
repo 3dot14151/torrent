@@ -6,7 +6,7 @@ Yakuza 0 (2018) [Ru/Multi] (build 4746539) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050797.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fida Puti Samurai (2021) [En] (1.2c025a) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050796.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050795.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050794.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Star Fire: Eternal Cycle (2025) [Ru/Multi] (1.25.271) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050793.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Blood: Refreshed Supply (2025) [Multi] (2.0.3116) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050769.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Cradle (2025) [En] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050749.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discounty (2025) [Multi] (1.0.16/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050734.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Netherworld Covenant (2025) [Ru/Multi] (1.0.0-911) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050669.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3725.0/1.72) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050629.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ FIFA 22 (2021) [Ru/Multi] (1.0.77.45722) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050626.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FIFA 22 (2021) [Ru/Multi] (1.0.77.45722) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050625.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ STAR OCEAN THE DIVINE FORCE (2022) [Ru/Multi] (01.01 Build 23063/dlc) Repack Let
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050580.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050537.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ranch Farm and Store Simulator (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050536.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BioMenace Remastered (2025) [En] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050535.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050529.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 21053667) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050525.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ SKALD: Against the Black Priory (2024) [Ru/En] (1.0.7e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050515.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0332) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050496.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Repack FitGirl [Digital 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050470.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sonic Colors: Ultimate (2021) [Ru/Multi] (10078994/dlc) Scene voices38 [Digital 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050439.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050388.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Happy Holidays 5: Christmas Never Ends / Счастливые праздники
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050369.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050366.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050365.jpg" />
 </div>
 
 

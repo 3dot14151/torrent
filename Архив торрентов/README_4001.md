@@ -6,7 +6,7 @@ NonVisual Desktop Access (NVDA) 2023.2 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192172.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ App Builder 2023.49 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192158.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ColorControl 9.6.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192157.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CPU-Z 2.07.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192156.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Topaz Video AI 3.4.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192154.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Spotify 1.2.19.937 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192151.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Duplicate Cleaner Pro 5.20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192149.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Opera One 102.0.4880.33 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192145.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Melon VPN - Secure Proxy VPN 7.9.158 Mod By AzadNet [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192142.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ FileSeek Pro 6.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192141.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SupRemo  4.10.3.2151 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192139.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TweakPower 2.043 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192130.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Imagine 1.1.7 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192128.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ OCCT 12.0.15 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192118.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ HWiNFO 7.62 Build 5200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192117.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ PotPlayer 230905 (1.7.21998) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192114.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Skype 8.90.0.405 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192107.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ FileMenu Tools 8.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192106.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192104.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Duplicate Cleaner Pro 5.20.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192099.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192085.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Skype 8.90.0.405 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192080.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Skype 8.90.0.405 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192072.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ OBS Studio 28.1.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192066.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ WSCC (Windows System Control Center) 7.0.3.6 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192058.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Minimal Audio - Morph EQ 1.0.1 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192054.jpg" />
 </div>
 
 

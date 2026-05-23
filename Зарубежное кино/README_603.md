@@ -1,57 +1,3 @@
-###  Публикация: 1383019   (791204) от 02.06.2020
-
-12 раундов / 12 Rounds (2009) BDRip [H.264/720p] [Unrated Cut] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дэнни Фишер, Новоорлеанский полицейский, единолично арестовывает Майлса Джэксона, одного из наиболее опасных и разыскиваемых преступников в мире. Однако, при этом, страшный несчастный случай уносит жизнь подруги Майлса. Годом позже, жаждущий мести Джэксон совершает побег из тюрьмы и похищает подругу Дэнни. Вынужденный принять участие в 12 раундах опасных игр, расставленных (   Читать дальше...   )Производство: США /  Fox Atomic, The Mark Gordon Company, Midnight Sun PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Ренни ХарлинАктеры: Джон Сина, Эйдан Джиллен, Эшли Скотт, Стив Харрис, Брайан Дж. Уайт, Гонсало Менендес, Тейлор Коул, Кайл Расселл Клементс, Питер Нэви Туясосопо, Трэвис ДэвисПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DFAECCD6359CEFA939962A8BF191925B221547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387580   (791198) от 02.06.2020
-
-Без лица / Face/Off (1997) BDRip [H.264/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чтобы раскрыть подробности запланированного преступниками крупного теракта, агент ФБР Шон Арчер соглашается на сложную хирургическую операцию. Он берёт себе новое лицо, лицо террориста Кастора Троя, который находится в коме.
-
-Однако происходит непредвиденное: Трой приходит в себя и исчезает в обличье Арчера. Жизнь Шона превращается в настоящий кошмар — ему приходится (   Читать дальше...   )Производство: США / Permut Presentations, Touchstone Pictures, Paramount PicturesЖанр: боевик, триллер, криминал, фантастикаРежиссер: Джон ВуАктеры: Джон Траволта, Николас Кейдж, Джоан Аллен, Алессандро Нивола, Джина Гершон, Доминик Суэйн, Ник Кассаветис, Харви Преснелл, Колм Фиор, Джон Кэрролл ЛинчПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: русские, английскиеПродолжительность: 02:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECDF2737EF845EAA068E14D56F7560E65F91787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387581   (791195) от 02.06.2020
 
 Без лица / Face/Off (1997) BDRip [H.264]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791195.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791186.jpg" />
 </div>
 
 
@@ -115,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791174.jpg" />
 </div>
 
 
@@ -141,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791171.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791140.jpg" />
 </div>
 
 
@@ -193,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791134.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791133.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791108.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791099.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791003.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790959.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790946.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790931.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790923.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790920.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790912.jpg" />
 </div>
 
 
@@ -479,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790909.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790908.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790903.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790901.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790898.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790891.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790888.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790873.jpg" />
 </div>
 
 
@@ -672,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:608730D18CEDD50887B4DF066A760684EF071E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275051   (790870) от 10.01.2019
+
+Старик с пистолетом / The Old Man And the Gun (2018) BDRip [H.264/720p] [AVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории Форреста Такера, начиная от его дерзкого побега из Сан-Квентина в возрасте 70 лет до беспрецедентной череды ограблений, которые выводили из себя властей и очаровывали публику. В погоне за бывалым вором, детектив Джон Хант поражается преданностью Форреста своему ремеслу и женщине которая любит его, несмотря на выбранную им "профессию".Производство: США / Fox Searchlight PicturesЖанр: Драма, Комедия, Криминал, БиографияРежиссер: Дэвид ЛоуриАктеры: Роберт Редфорд, Сисси Спейсек, Кейси Аффлек, Дэнни Гловер, Том Уэйтс, Тика Самптер, Ari Elizabeth Johnson, Teagan Johnson, Джин Джонс, Джон Дэвид Вашингтон, Элизабет МоссПеревод: Одноголосый закадровый авторский: Важенин Андрей (BadBajo)Субтитры: Английские (SDH)Продолжительность: 01:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62232285F95D9CE42557D139E306BEE0A4C53C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201956   (790844) от 27.01.2018
+
+Взрывная блондинка / Atomic Blonde (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Лоррейн Бротон, бриллиант в короне Секретной разведывательной службы Ее Величества, не просто мастер шпионажа: она бомбически сексуальна, взрывоопасна и использует весь арсенал своих уникальных умений во время невыполнимых миссий. В неспокойном Берлине, куда ее направляют с заданием вернуть бесценное досье, она вынуждена объединиться с агентом под прикрытием (   Читать дальше...   )Производство: Германия, Швеция, США / 87ElevenЖанр: боевик, триллер, детективРежиссер: Дэвид ЛитчАктеры: Шарлиз Терон, Джеймс МакЭвой, Эдди Марсан, Джон Гудмен, Тоби Джонс, Джеймс Фолкнер, Роланд Мёллер, София Бутелла, Билл Скарсгард, Сэм ХаргрейвПеревод: Дублированный (iTunes), Профессиональный многоголосый (Paradox & Omskbird records)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B56594C7FA4F414EFF66DD77CC45AFBA8BF3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

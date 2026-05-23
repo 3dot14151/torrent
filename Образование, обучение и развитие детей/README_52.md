@@ -1,56 +1,3 @@
-###  Публикация: 1062197   (444250) от 12.10.2016
-
-Анастасия Сарычева | Русская литература. Шпаргалка (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие содержит ответы на основные вопросы, связанные с русской классической литературой.Незаменимо при подготовке к экзаменам, зачетам, семинарам. Для школьников, студентов, аспирантов, преподавателей и всех интересующихся русской литературой.
-В начале века комедия считалась «низким» жанром, но Грибоедов, как и впоследствии Гоголь, не соглашался с этим. (   Читать дальше...   )Жанр: Обучение, развитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7FA3BABCF9D2582007D5856D2B3C1FC01DE97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942775   (444240) от 05.10.2015
-
-Тер-Минасова С. Г., Узунова Л. М., Сухина Е. И., Собещанская Ю. О. | English Favourite 4 student's book в 2-х частях [2] (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Учебник в 2-х частях. Разработан в соответствии с требованиями федерального государственного образовательного стандарта начального общего образования по иностранному языку. Содержание учебника обеспечивает обучение в контексте коммуникативно-деятельностного, социокультурного и личностно-ориентированного подходов к развитию школьников; включает множество естественных (   Читать дальше...   )Жанр: Иностранные языки, учебникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EC6FBC15DED0AF385C4AE27969D956CD8747B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062127   (443892) от 12.10.2016
 
 Н.В. Абельмас | Занимательные игры и задания по математике и русскому языку для развития логического мышления (2005) [DJVU]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443892.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442932.jpg" />
 </div>
 
 
@@ -115,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441005.jpg" />
 </div>
 
 
@@ -143,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438550.jpg" />
 </div>
 
 
@@ -169,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438345.jpg" />
 </div>
 
 
@@ -195,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437579.jpg" />
 </div>
 
 
@@ -222,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437354.jpg" />
 </div>
 
 
@@ -248,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436721.jpg" />
 </div>
 
 
@@ -274,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436401.jpg" />
 </div>
 
 
@@ -300,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435864.jpg" />
 </div>
 
 
@@ -328,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435409.jpg" />
 </div>
 
 
@@ -357,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434937.jpg" />
 </div>
 
 
@@ -386,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433971.jpg" />
 </div>
 
 
@@ -413,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433698.jpg" />
 </div>
 
 
@@ -440,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432465.jpg" />
 </div>
 
 
@@ -466,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431827.jpg" />
 </div>
 
 
@@ -492,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431740.jpg" />
 </div>
 
 
@@ -518,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431728.jpg" />
 </div>
 
 
@@ -546,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430609.jpg" />
 </div>
 
 
@@ -573,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429715.jpg" />
 </div>
 
 
@@ -599,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429601.jpg" />
 </div>
 
 
@@ -627,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429490.jpg" />
 </div>
 
 
@@ -653,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428475.jpg" />
 </div>
 
 
@@ -681,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428169.jpg" />
 </div>
 
 
@@ -692,6 +639,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826CC850730EEE2879C8A6DFC3F134A7CD334C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063630   (428040) от 19.10.2016
+
+Т.О. Пушкарьова | Окружающий мир 4 класс 2 часть РАСТЕНИЯ (2016) [PDF] [UK]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428040.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 4 классе курс "Окружающий мир" имеет 4 раздела: "Растения", "Животные", "Человек", "Путешествуем по планете". В основу построения содержания положено экологический, валиологичний, краеведческий, украиноведческий и планетарный принципы.
+
+Второй раздел "Наша планета:? Живой мир. Животные "дает широкое представление (   Читать дальше...   )Жанр: УчебникЯзык: УкраинскийИздательство: ТОВ НВП «Росток А.В.Т.»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CE5E9017067C020024C1123F6CC5443056A01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063645   (427657) от 19.10.2016
+
+М.И. Кальчук и др. | Украинский язык. 4 класс. 1 часть (2016) [PDF] [UKR]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель учебника по украинскому языку - показать учащимся последовательность образования правильной устной и письменной речи: от образования звуков, слияние их в слоги, образования слов, предложений к написанию текстов, а лингвистическая сказка , которая является началом каждой темы, повышает познавательную деятельность младших школьников, способствует развитию навыков (   Читать дальше...   )Жанр: УчебникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9C577CA0FBCDDD8FAC6DDF948C30AC9751C8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

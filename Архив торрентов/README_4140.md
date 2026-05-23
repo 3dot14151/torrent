@@ -6,7 +6,7 @@ Aiseesoft Video Converter Ultimate 10.6.8 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168076.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Registry Cleaner Pro 10.2.7.687 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168072.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Goa 2020 Top 40 Hits Best of Progressive Psy Trance EDM Acid Psychedelic Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168067.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FSNotes 4 v4.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168064.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Privatus 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168059.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Firefox Browser 108.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168055.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wirecast 16.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168054.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SpamSieve 2.9.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168053.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168052.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ PullTube 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168049.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Auslogics Driver Updater 1.24.0.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168048.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ One Commander Pro 3.26.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168042.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Duplicate Photos SweeperOff 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168041.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ SoundSwitch 6.4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168039.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Airtool 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168036.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Data Guardian 6 v.6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168034.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Calibre 4.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168033.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.24 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168030.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Mujuice - Regress (2019) [MP3|320 Kbps] <Electronic, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168029.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Cisdem ContactsMate 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168028.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Alarm Clock Pro 13 v13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168025.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ImageRanger Pro Edition 1.7.8.1679 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168022.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.3 Stable RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168021.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Invisible 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168019.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168016.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ FastScripts 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168014.jpg" />
 </div>
 
 

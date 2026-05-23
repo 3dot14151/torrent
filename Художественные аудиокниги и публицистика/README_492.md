@@ -1,81 +1,3 @@
-###  Публикация: 1312454   (532561) от 04.07.2019
-
-Наталья Жильцова | Скрижаль Мораны (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодая некромантка Тень чудом остается в живых после битвы великих магов, но на этом ее злоключения только начинаются. Сорваны печати древнего схрона, сильнейший артефакт в руках безумцев из Братства Света, война между Светлыми и Темными не за горами…Бросает нашу героиню из огня да в полымя: то архимаг в заложники возьмет, то светлые эльфы к казни приговорят. И (   Читать дальше...   )Жанр: Любовное фэнтези, Магические академииПродолжительность: 11:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1064F2B77D24927E55E7B2E4D7F6A0DE6436147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312463   (532556) от 04.07.2019
-
-Бенедикт Сарнов | Если бы Пушкин жил в наше время (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта книга известного критика Бенедикта Сарнова объединяет статьи, написанные в разные годы, но посвященные одной теме - истории взаимоотношений советских писателей и советской власти. Отсюда и название. Когда-то Зощенко написал: "Если бы Пушкин жил в наше время, мы бы его на руках носили и устроили бы поэту сказочную жизнь". Эта книга - о талантливых писателях (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 25:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B5B2DE618215979916274B4C32C96422D0C0EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312438   (532555) от 04.07.2019
-
-Сильвия Лайм | Невеста волка (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Иногда предательство – это не конец, а начало. Изредка – это дверь в иной мир, где война стоит на пороге. Где оборотни до смерти дерутся за своих женщин, а люди заряжают оружие серебряными пулями. Где бродит таинственный убийца, перегрызающий глотки всем, кто так похож на тебя. Где добродушные улыбки – верный шанс попасть в ловушку, а волчье рычание за спиной – шанс (   Читать дальше...   )Жанр: Детективное фэнтези, любовное фэнтези, юмористическое фэнтезиПродолжительность: 08:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEE5B9AF36B67C5F5C34E4EC4DB48F1123672C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312449   (532547) от 04.07.2019
 
 Наталья Жильцова | Проклятие некроманта (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532547.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532545.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532368.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532225.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532154.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532094.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532043.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532032.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531983.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531962.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531883.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531881.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531782.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531760.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531754.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531687.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531647.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531486.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531442.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531436.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531429.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531417.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531390.jpg" />
 </div>
 
 
@@ -675,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72540BF25E6991098D7186E062BDE40BDDCCEF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240039   (531293) от 09.08.2018
+
+Рене де Пон-Жест | Герцогиня Клавдия (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие романа происходит в блестящих светских гостиных Парижа и в мещанской обстановке буржуазных домов столичного предместья, в каторжном лагере, в страшных джунглях Французской Гвианы, и даже в гнезде немецких шпионов - в самый канун франко-прусской войны. Проигравшийся в пух и прах французский аристократ герцог Роберт де Бланжи решает поправить свои дела путем (   Читать дальше...   )Жанр: Роман, ПриключенияПродолжительность: 07:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B27525C62B4353C5779E49B198E362FA63F5B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926668   (531280) от 11.08.2015
+
+Арсений Меркушев | Мама (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тем теплым мартовским днем в мир пришла беда - на свободу вырвался смертоносный вирус, превращавший людей в «обратившихся».
+И с этого дня мир получил новый вектор развития, а люди в нем живущие – новые правила жизни, а вернее – выживания. Сама суровая логика жизни подсказывала, что теперь наилучшие шансы выжить у молодых и сильных мужчин, умеющих стрелять и убивать, (   Читать дальше...   )Жанр: Фантастика, апокалипсисПродолжительность: 10:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C87C58BE3F81CAB7AAE2C94FE6E59F8EA69127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240161   (531261) от 09.08.2018
+
+Георгий Брянцев | Тайные тропы (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запутанны, извилисты и опасны тайные тропы невидимой для непосвященных войны. Они идут через моря и границы, по лесам и бескрайним степям. И сколько надо зоркости и упорства, уменья и мужества, чтобы обнаружить их и найти на них едва приметные следы...
+Роман о борьбе советских патриотов с гитлеровской, а потом и американской разведкой был изъят из библиотек в начале (   Читать дальше...   )Жанр: Военные приключенияПродолжительность: 14:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6ABC9C07D6AD337A70078DDE6C1E57403335FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

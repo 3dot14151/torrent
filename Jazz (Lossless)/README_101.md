@@ -6,7 +6,7 @@ Ella Fitzgerald - The Complete Piano Duets (1964, 1975) 2020, 2CD, Verve [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713493.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Putney Dandridge - 1936 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713280.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713279.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713211.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713204.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713197.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Joe Chambers - The Almoravid (1974) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713191.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Michel Petrucciani - Blue Note Jazz Inspiration (2011) Blue Note Jazz Inspiratio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713182.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nicki Parrott - The Songs Of Four Seasons (2013) Venus Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713111.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ed Jones - For Your Ears Only (2018) Impossible Ark Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711981.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dave Brubeck - His Greatest Hits: Take Five (1990) 1995, Sony Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711841.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jan Johansson - Spelar Musik Pa Sitt Eget Vis (1964 - 1966) 1995, Heptagon Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711361.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jan Johansson - 300.000 (1967, 1968) 1994, Heptagon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711355.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Actis Dato Quartet - Swingin' Hanoi (2003) Splasc(H) Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710828.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jimmy Cobb's Mob - Cobb's Groove (2003) Universal [APE|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710824.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Don Byas - Complete 1946-1951 European Small Group Master Takes (2001) 3CD, Defi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710822.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Buster Williams Quartet - Live At The Montreux Jazz Festival 1999 (2008) TCB Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710818.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Angelo Debarre & Ludovic Beier - Swing Rencontre (2002) Marianne Melodie [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710794.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Angelo Debarre & Ludovic Beier - Entre Ciel et Terre (2006) Le Chant Du Monde [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710793.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Malia - The Best of Malia (2015) [FLAC|Lossless|image + .cue] <Soul, Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710519.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Allen Toussaint - American Tunes (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710193.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Steve Oliver - Pictures and Frames (2016) [FLAC|Lossless|image + .cue] <Jazz, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710190.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Clayton Brothers - Siblingity (2000) Warner [FLAC|Lossless|image + .cue] <Mainst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710053.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Maria Schafer - To Know Love... (2018) Marsch Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710052.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Nina Simone - I Got Life And Many Others 1959 - 1971 (2000) Star Series, Unoffic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710039.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Django Reinhardt - 100 Ans de Jazz (1930-e - 1940-e) 1997, 2CD, BMG [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709540.jpg" />
 </div>
 
 

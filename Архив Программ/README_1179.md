@@ -6,7 +6,7 @@ Telegram Desktop 1.1.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445948.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Magic Photo Recovery 4.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445944.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ R-Studio 8.11 Build 175357 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445879.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Flash Player 23.0.0.185 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445874.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Revo Uninstaller Pro 3.1.7 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445869.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Revo Uninstaller Pro 3.1.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445867.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Revo Uninstaller Pro 3.1.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445863.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wireless Network Watcher 2.02 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445862.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ EASEUS Partition Master 11.9 Technician Edition RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445861.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AIMP 4.11 Build 1841 DC 09.10.2016 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445856.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DLL Suite 9.0.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445855.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Raxco PerfectDisk Professional Business 14.0 Build 891 RePack by D!akov  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445823.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Process Lasso Pro 9.0.0.402 RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445822.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Google Earth Pro 7.1.7.2606 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445791.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ K-Lite Codec Pack 12.4.4 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445785.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ CrystalDiskInfo 7.0.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445780.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DTS-HD Master Audio Suite 2.60.22 RePack by AlekseyPopovv [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445712.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Autodesk Inventor (Pro) 2017 R3 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445701.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Nero WaveEditor 12.0.4000 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445598.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Wondershare PDF Converter Pro v4.0.1.1 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445521.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ inventory 1.1 [Русский] Обновление от 27.09.12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445449.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ACDSee Pro 6.0 Build 169 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445427.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ashampoo Snap 8.0.7 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445200.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FTPRush 2.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445149.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ The Bat! Professional 9.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445147.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ TweakPower 1.157 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445138.jpg" />
 </div>
 
 

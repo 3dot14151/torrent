@@ -1,113 +1,3 @@
-###  Публикация: 281161   (948911) от 11.01.2011
-
-Юбилейный концерт.  Борис Моисеев: Десерт (2011.01.10) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Запретный плод подают на сладкое. И женщины не могут отказаться…  На одной сцене — Борис Моисеев и все дамы его сердца!01.Паганини
-02.Маленьким не умереть
-03.Это боль
-04.Московские звезды(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971851E2E38B3BD1BBA464114048EF15E87FE9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089299   (948820) от 05.01.2017
-
-Ярослав Гашек - Швейк, или Гимн идиотизму (2005) TVRip (Московский академический театр Сатиры)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Авторы инсценировки перекроили знаменитый роман, выстроив спектакль в форме аукциона в пользу голодающих актеров, на котором продавались исторические раритеты и личные вещи персонажей книги. Например, железный таз, в котором парил свои больные ноги бравый солдат Йозеф Швейк, 27 томов уголовных дел, подписанных им же, или клистир, которым лечили от всех болезней дезертиров. (   Читать дальше...   )Производство: Россия, Московский академический театр СатирыЖанр: Спектакль, комедияРежиссер: Александр ШирвиндтАктеры: Эдуард Радзюкевич, Михаил Державин мл., Юрий Авшаров, Фёдор Добронравов, Игорь Лагутин, Виктор Бакин, Константин Карасик, Сергей Чурбаков, Сергей Бурунов, Александр ЖигалкинПродолжительность: 02:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628BA8B5A1B1A22A4CAB95339589E9EC60C44830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857896   (948355) от 11.01.2015
-
-Инфинити - Крылья (2014) [1080p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Формат: MKVПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0787182C69D07A479EDD901BBD13D0607A286418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982441   (948132) от 03.02.2016
-
-Sade – Life Promise Pride Love (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Programme Start (0:10)
-02. Your Love Is King (3:37)
-03. Smooth Operator (Red Eye) (8:27)
-04. Hang On To Your Love (3:59)(   Читать дальше...   )Жанр: Smooth Jazz, DowntempoПеревод: ОтсутствуетПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C96D72D1A6CD02B7097100F035A13A566C37D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982327   (947991) от 03.02.2016
 
 Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video,  DVDRip
@@ -116,7 +6,7 @@ Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947991.jpg" />
 </div>
 
 
@@ -145,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947732.jpg" />
 </div>
 
 
@@ -174,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947517.jpg" />
 </div>
 
 
@@ -203,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946917.jpg" />
 </div>
 
 
@@ -229,7 +119,7 @@ VA - Divas – VH1 Divas Live (1998) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946898.jpg" />
 </div>
 
 
@@ -258,7 +148,7 @@ Saga - World Apart Revisited (2007) 2 x DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946808.jpg" />
 </div>
 
 
@@ -287,7 +177,7 @@ Shakira – MTV Unplugged (2002) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946796.jpg" />
 </div>
 
 
@@ -316,7 +206,7 @@ Enigma - A Posteriori (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946585.jpg" />
 </div>
 
 
@@ -345,7 +235,7 @@ VA - Зимний марафон № 223: Презент Новинок Росс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946554.jpg" />
 </div>
 
 
@@ -374,7 +264,7 @@ Pink Floyd – The Wall (1982) 1999 Sony Music Video, DVDRip
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946512.jpg" />
 </div>
 
 
@@ -400,7 +290,7 @@ Al Di Meola - 37. Leverkusener Jazztage (2016) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945881.jpg" />
 </div>
 
 
@@ -429,7 +319,7 @@ The Steve Miller Band - Avo session Basel (2012) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945765.jpg" />
 </div>
 
 
@@ -459,7 +349,7 @@ The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945685.jpg" />
 </div>
 
 
@@ -486,7 +376,7 @@ Queen + Adam Lambert - Rock Big Ben Live (2015) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945596.jpg" />
 </div>
 
 
@@ -515,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945568.jpg" />
 </div>
 
 
@@ -543,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945463.jpg" />
 </div>
 
 
@@ -569,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945218.jpg" />
 </div>
 
 
@@ -596,7 +486,7 @@ VA – Live Aid (1985) 4DVD, 2004 Warner Music Vision, DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945056.jpg" />
 </div>
 
 
@@ -625,7 +515,7 @@ Mark Knopfler and Emmylou Harris - Real Live Roadrunning (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944822.jpg" />
 </div>
 
 
@@ -654,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944670.jpg" />
 </div>
 
 
@@ -683,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944505.jpg" />
 </div>
 
 
@@ -712,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944500.jpg" />
 </div>
 
 
@@ -724,6 +614,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A16DCB706C4FFA5C3F06D05BC02626070778874D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 282075   (944450) от 14.01.2011
+
+The Beatles: Вечер трудного дня / A Hard Day-s Night (1964) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1964 ГОД: начало Битломании. «Битлз» дебютируют на американской сцене в шоу Эда Салливана. Режиссер Ричард Лестер делает первый фильм о группе, сняв его в жанре музыкальной комедии. "Вечер трудного дня" рассказывает фэнам группы об одном дне в жизни ВЕЛИКОЙ ЧЕТВЕРКИ...
+A Hard Day's Night - первый битловский фильм, снятый Ричардом Лестером, появился на экранах (   Читать дальше...   )Жанр: TV, Video, Rock’n’roll, художественный фильм, биографияРежиссер: Ричард ЛестерАктеры: The Beatles, Уилфрид Брамбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна Куэйл.Перевод: Не требуется. Одноголосый закадровый (Русский) + Оригинал (Английский)Субтитры: Руский (песни на англйском) - UTF-8 SRT.Формат: MKV (Matroska)Продолжительность: 01:29:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091002   (944428) от 08.01.2017
+
+Люди и страсти (1975) VHSRip (Театр им. Ленсовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль по произведениям классиков немецкой драматургии и поэзии.Производство: СССР, Театр им. ЛенсоветаЖанр: Спектакль, драмаРежиссер: Игорь ВладимировАктеры: Алиса Фрейндлих, Анатолий Равикович, Михаил Боярский, Галина Никулина, Лариса ЛеоноваПродолжительность: 03:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72324C007D570855326DD52973B887EA4497B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090967   (944231) от 08.01.2017
+
+Роза Хутор. Рождество 2017 (2017.01.07) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944231.jpg" />
+</div>
+
+
+###  Подробнее
+
+В светлый праздник Рождества на сцену концертного зала «Роза Холл» выйдут самые любимые, самые популярные российские артисты, чьи имена и песни в буквальном смысле слова «гремят» на всю страну. Встреча с каждым из них по отдельности — уже сама по себе настоящий праздник для сотен тысяч их поклонников, что же говорить о возможности увидеть их на сцене всех вместе! (   Читать дальше...   )Телекомпания: Первый каналЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899A9BCB9AD3227B73CEE757D7F8FE7A935A5236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982907   (943733) от 06.02.2016
+
+Shirley Bassey - Divas Are Forever (2000) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съёмки 1997 года с концерта в Антверпене на фестивале Diamand Awards.1	Goldfinger
+2	Diamonds Are Forever
+3	S'Wonderful
+4	Kiss Me Honey, Honey(   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C1775B6701194E2E16260CF614712152AD05FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

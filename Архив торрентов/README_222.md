@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005383.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office Standard 2019 for Mac v16.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005377.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Smultron 12 v12.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005352.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Feeder 4 v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005351.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Boxy SVG 3  v3.59.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005350.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Stats 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005348.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Disk Xray 2.7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005345.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Java SE Development Kit 11.0.12 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005341.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ ProFind 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005334.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Wondershare UniConverter 13.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005333.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Komarebi - Nebulous (2021) Ping Disc [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005331.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ PhoneRescue for iOS 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005328.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Money Pro - Personal Finance 2.7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005327.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ AirMail Pro 5 v5.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005325.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Commander One PRO - FTP client 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005323.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ PhoneRescue for Android 3.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005322.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wondershare DVD Creator 6.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005320.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Balabolka 2.15.0.793 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005319.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ LDPlayer 4.0.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005318.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ WinTools.net Premium 21.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005307.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Skype 8.74.0.152 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005303.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Whale Browser 2.9.118.38 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005300.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ TapinRadio 2.14.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005298.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Wondershare Filmora Х v10.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005286.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Waltr Pro 1.0.98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005276.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Emurasoft EmEditor Professional 20.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005275.jpg" />
 </div>
 
 

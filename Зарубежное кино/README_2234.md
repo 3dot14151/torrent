@@ -1,56 +1,3 @@
-###  Публикация: 1247808   (25377) от 08.03.2025
-
-8 подруг Оушена / Ocean's Eight (2018) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пять лет, восемь месяцев, 12 дней… и далее. Именно столько Дебби Оушен разрабатывала план величайшего ограбления своей жизни.
-Она точно знает, что для него потребуется, — команда лучших в своем деле, начиная с ее давней сообщницы Лу Миллер. Вместе они собирают команду уникальных специалистов. Их цель — неотразимые 150 миллионов долларов в бриллиантах — в бриллиантах (   Читать дальше...   )Производство: США / Warner Bros., Village Roadshow Pictures, Rahway Road Productions, Smokehouse PicturesЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Гэри РоссАктеры: Сандра Баллок, Кейт Бланшетт, Гриффин Данн, Дирдри Гудвин, Энн Хэтэуэй, Минди Кейлинг, Рианна, Даниэлла Раббани, Брайан Дж. Картер, Сара Полсон, АквафинаПеревод: Дублированный (Blu-ray EUR)Субтитры: Русские (Forced), Русские (Full), Украинские (Forced), Английские (Full), Английские (SDH)Продолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F28FDCB1189DFF238C33E4F589EF8EF93CB76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996421   (25374) от 08.03.2025
-
-Суфражистка / Suffragette (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен движению суфражисток (борьба за предоставление женщинам избирательных прав), зародившемуся в Великобритании в конце 19 века.Производство: Великобритания / British Film Institute (BFI), Canal+ France, Redgill ProductionsЖанр: драма, биография, историяРежиссер: Сара ГавронАктеры: Кэри Маллиган, Хелена Бонем Картер, Брендан Глисон, Энн-Мэри Дафф, Мэрил Стрип, Грэйс Стоттор, Джофф Белл, Аманда Лоуренс, Шелли Лонгуорт, Адам Майкл ДоддПеревод: Дублированный (Лицензия BD CEE)Качество: BDRip 720pПродолжительность: 01:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378132253A777603B3D82263D2ECD8516AFFC266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410974   (25367) от 08.03.2025
 
 По половому признаку / On the Basis of Sex (2018) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25367.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25359.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25355.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25341.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25335.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25329.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25297.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25295.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25287.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25283.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25255.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25237.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25234.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25231.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25228.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25220.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25205.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25179.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25164.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25144.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25133.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25127.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25124.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25119.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BDA26BCA685A2598C224A2FC8BC4BE4720730AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614471   (25074) от 11.03.2025
+
+Умереть за доллар / Dead for a Dollar (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый охотник за головами сталкивается со своим заклятым врагом — профессиональным игроком и преступником, которого он отправил в тюрьму много лет назад.Производство: Канада, США / Chaos, a Film Company Inc., Polaris PicturesЖанр: триллер, вестернРежиссер: Уолтер ХиллАктеры: Кристоф Вальц, Уиллем Дефо, Рэйчел Броснахэн, Уоррен Бурк, Луис Чавес, Брэндон Скотт, Бенджамин Брэтт, Хэмиш Линклейтер, ФиДель Гомез, Гай БернетПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: русские (Forced), английские (Forced, Full, SDH)Продолжительность: 01:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3614F205EDEB697534247E73B142D3C3B7097870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784498   (25003) от 11.03.2025
+
+Нормальные / Normal (2007) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25003.jpg" />
+</div>
+
+
+###  Подробнее
+
+В автокатастрофе погиб молодой парень, подающий надежды баскетболист, звезда города... Его мать и отец, его девушка, его друг, его нечаянный убийца - оставшийся в живых виновник аварии, - каждый по-своему переживает эту трагедию. Все хотели бы вернуться к нормальной жизни, однако это не так просто, ведь случившееся оставило глубокий след в жизни каждого. Но даже (   Читать дальше...   )Производство: Канада / Head Gear Films, Metrol Technology, Normal Film CompanyЖанр: ДрамаРежиссер: Карл БессайАктеры: Кэрри-Энн Мосс, Кевин Зегерс, Каллум Кит Ренни, Эндрю Эйрли, Тай Рунян, Камилль Салливан, Лорен Ли Смит, Майкл Райли, Бриттни Ирвин, Эллисон Хоссак, Кэмерон БрайтПеревод: Двуголосый профессиональный (Ольга Туберовская и Николай Кузнецов / Студия «Ульпаней Эльром»)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAEF4C70EB0DE72A36EDA12BE487A0A2A4CD7EE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

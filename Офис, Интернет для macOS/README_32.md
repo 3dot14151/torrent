@@ -6,7 +6,7 @@ Templates Lab for MS Office 3.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374067.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Entity 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372134.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ChatMate for WhatsApp 4.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371904.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Bundle for iWork 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371543.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Microsoft Office Standard 2019 for Mac v16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371156.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Unibox 1.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370378.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Business Templates 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369644.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Graphic Styles 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369142.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Adobe Muse CC 2018.0.0.685 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369098.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Corporate Packs for Pages 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369006.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ CalendarPro for Google 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368297.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Visual Studio Code 1.50.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367339.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Outline 3.21.3 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366231.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ FileMaker Pro 18 Advanced v18.0.3.317 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365874.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Microsoft Edge for Mac 86.0.622.43 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365115.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ GN Infographics for Adobe Photoshop - Templates 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365019.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ TableEdit Pro 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364355.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Kite Compositor 1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363192.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Orion PDF Author 2 v2.20.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361668.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mail Pilot 3 v3.0 (7810)b [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361643.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Enolsoft DjVu to PDF 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360365.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bubble Translate 1.1 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360159.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Master of Typing - Мастер Печати 3: Практика v.3.3.14 (15.13
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359611.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Records 1.5.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356115.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Synkmark 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354819.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Nova 9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354658.jpg" />
 </div>
 
 

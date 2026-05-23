@@ -1,56 +1,3 @@
-###  Публикация: 577892   (744589) от 12.02.2019
-
-Временная петля / Los cronocrimenes (2007) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Гектор - самый обычный человек, вполне довольный своей жизнью: любящая жена, дом за городом. В один из вечеров внимание Гектора привлекает мелькнувшая в лесу полуобнаженная девушка и движимый любопытством, мужчина отправляется разведать, что же там такое происходит. В лесу он сталкивается с человеком, чье лицо скрыто окровавленными бинтами. Скрываясь от преследования (   Читать дальше...   )Жанр: Триллер, Фантастика, ДетективРежиссер: Начо Вигалондо / Nacho VigalondoАктеры: Карра Элехальде, Кандела Фернандез, Барбара Гоэнага, Начо ВигалондоПеревод: 1)Профессиональный (двухголосый) НТВ+
-2)Любительский (двухголосый)Язык субтитров: русские, английскиеПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A7D942936AA05F5F5B530DDA0E162D166E4723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282267   (744586) от 12.02.2019
-
-Точка невозврата / Beirut (High Wire Act) (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Разгар Ливанской войны. Интриги, предательство, грязные компроматы, нравственное падение, жертвенность и любовь, боль и надежда… На руках героя умирает жена, подстреленная террористами. Через десять лет он, преодолев ненависть и отчаяние, возвращается в Бейрут, чтобы вызволить давнего друга, захваченного в плен боевиками.Производство: СШАЖанр: Триллер, драма, криминалРежиссер: Брэд АндерсонАктеры: Розамунд Пайк, Джон Хэмм, Марк Пеллегрино, Дин Норрис, Джонатан Койн, Дуглас Ходж, Лейла Бехти, Кейт Флитвуд, Алон Абутбул, Ши УигхэмПеревод: Дублированный (Лицензия R5)Субтитры: Английские (Full, SDH)Продолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C4B0094821E1BB5D8564341B0ED0EB76B2FE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282399   (744585) от 12.02.2019
 
 За пределами пустоты / Beyond White Space (2018) WEB-DLRip [H.264] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744585.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744583.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744580.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744569.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744562.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744523.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744518.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744510.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744506.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744497.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744476.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744475.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744443.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744429.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744427.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744424.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744421.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744380.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744370.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744355.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744151.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744089.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744046.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744035.jpg" />
 </div>
 
 
@@ -671,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396902   (743968) от 17.07.2020
+
+Кровь, песок и золото / Blood, Sand and Gold (2017) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа археологов находит в пустыне Сахара потерянное золото сэра Фрэнсиса Дрейка, но вскоре золото воруют у них из-под носа. Археолог Мэйв Адамс пойдёт на всё, чтобы вернуть золото, на поиски которого она потратила полжизни.Производство: США, Мексика, Гонконг, Швейцария, ОАЭ, Марокко, American Film Productions, Golden Hinde ProductionsЖанр: БоевикРежиссер: Гэлан КоннеллАктеры: Аарон Коста Гэнис, Моника Уэст, Кристофер Редман, Дженни Стерлин, Майкл Беняер, Паулино Партида, Брюс МакКензи, Эзра Найт, Сюна Иидзима, Carlo ManleyПеревод: Профессиональный многоголосый (Официальный перевод)Субтитры: АнглийскиеПродолжительность: 01:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063F815E3759A74869EE3AE5800F04FF405856E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783193   (743913) от 05.05.2014
+
+Адвокат дьявола / The Devil's Advocate (1997) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адвокат Ломаке не проиграл ни одного из своих 64 дел. Элитная фирма Нью-Йорка делает молодому талантливому юристу заманчивое предложение. Но за этим предложением стоит дьявол. Великолепная готическая притча на современном материале...
+Будут победы и потери, головокружительна карьера и неожиданная, двусмысленная концовка. Жизнь Ломакса, его жены и сама его душа поставлены (   Читать дальше...   )Производство: США, Германия,  Warner Bros., Taurus Films, Regency Pictures, Kopelson EntertainmentЖанр: Триллер, драма, детективРежиссер: Тейлор Хэкфорд/Taylor HackfordАктеры: Киану Ривз, Аль Пачино, Шарлиз Терон, Джеффри Джонс, Джудит Айви, Конни Нильсен, Крэйг Т. Нельсон, Тамара Тюни, Рубен Сантьяго-Хадсон, Дебра Монк, Вито Руджинис, Лора Хэррингтон, Памела Грэй, Джордж Уайнер, Кристофер Бауэр и др.Перевод: ДублированныйЯзык субтитров: Русский, английскийФормат: DVD9Продолжительность: 02:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800E53F59351AD2D37A8690F7463E2DDC7333D7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

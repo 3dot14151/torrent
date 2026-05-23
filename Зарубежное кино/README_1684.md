@@ -1,55 +1,3 @@
-###  Публикация: 1613634   (206953) от 19.02.2023
-
-Противостояние / Единственный / The One (2001) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Преступник по имени Ю-Лоу, бывший член организации по контролю межпространственных перемещений, старается найти и убить своих аналогов в параллельных мирах, чтобы забрать в себя их единую жизненную силу, которую они все делят. Убивая другие версии себя и забирая их силу, Ю-Лоу хочет стать богом. Единственный, кто его может остановить — последний оставшийся в живых (   Читать дальше...   )Производство: США / Revolution StudiosЖанр: фантастика, боевик, триллерРежиссер: Джеймс ВонгАктеры: Джет Ли, Джейсон Стэйтем, Карла Гуджино, Делрой Линдо, Джеймс Моррисон, Дилан Бруно, Ричард Стейнметц, Стив Рэнкин, Такер Смоллвуд, Харриет Сэнсом ХаррисПеревод: дублированный, многоголосый, двуголосый, авторский, одноголосый любительскийЯзык озвучки: русский, английский, чешский, венгерский, польский, украинскийПродолжительность: 01:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:372CD00F4217B9DB770D033B3178CA6CD11CDA5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651740   (206952) от 07.08.2023
-
-777 Чарли / 777 Charlie (2022) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Одинокий ворчун подбирает бездомного лабрадора. Они отправляются в удивительное путешествие через полстраны в Гималаи, чтобы впервые увидеть снег. Угрюмый Дхарма не любит ни людей, ни животных. Он совсем не хотел заводить питомца, но однажды не смог пройти мимо раненого лабрадора. Дхарма неохотно соглашается взять непослушную собаку на передержку и сам не замечает, (   Читать дальше...   )Производство: Индия / Paramvah StudiosЖанр: драма, комедия, приключенияРежиссер: Киранрадж КАктеры: Ракшит Шетти, Чарли, Сангитха Шрингери, Радж Б. Шетти, обби Симха, Даниш Саит, Sharvari, Aniruddh Roy, Harini, Siddharth BhatПеревод: Дублированный (The Kitchen Russia)Язык озвучки: Русский, ХиндиСубтитры: ОтсутствуютПродолжительность: 02:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4034598F13BEDD9BA5E531B2BF5AA15599B401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613692   (206945) от 19.02.2023
 
 Плохой лейтенант / The Bad Lieutenant: Port of Call - New Orleans (2009) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206945.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206944.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206938.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206932.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206922.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206921.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206919.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206915.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206914.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206913.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206911.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206909.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206908.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206899.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206894.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206891.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206881.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206871.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206869.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206857.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206854.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206843.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206840.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206832.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:913FAE65FBECDB3FFD7CC4FB5C49DD0E9F702647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580408   (206828) от 01.10.2022
+
+Месть Банши / Code Name Banshee (2022) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позывной Банши хорошо известен в мире профессиональных киллеров: именно под ним работает Делайла — бывший агент ЦРУ, которая после смерти отца выбрала тропу наемника. Спустя много лет после утраты, ей придется заручиться помощью бывшего наставника, чтобы наконец совершить долгожданную месть.Производство: США / Yale Productions, Banshee Productions, Bee-Hive ProductionsЖанр: боевик, триллерРежиссер: Джон КейесАктеры: Джейми Кинг, Антонио Бандерас, Томми Флэнаган, Ким ДеЛонги, Кэтрин Дэвис, Левон Панек, Кейл Окли Зеперник, Дилан Флэшнер, Александр Вайшельбойм, Маринко РадаковичПеревод: Дублированный (Велес)Субтитры: Английские (Full, SDH)Продолжительность: 01:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88DEABB45B2704B67D28A47F09F21E547A39458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580379   (206823) от 01.10.2022
+
+Ирония судьбы в Голливуде / About Fate (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марго и Гриффин вполне могут стать идеальной парой. Единственная проблема в том, что они никогда не встречались, и оба собираются связать себя узами брака с другими людьми. Но все это вот-вот изменится, когда судьба сведет их вместе и откроет глаза на настоящую любовь.Производство: США / Aldamisa Entertainment, Contentious MediaЖанр: мелодрама, комедияРежиссер: Марюс ВайсбергАктеры: Эмма Робертс, Томас Манн, Мэделин Петш, Льюис Тан, Бритт Робертсон, Фикайл Кани, Джаред Тройло, Шерил Хайнс, Дэннис Старосельский, Меган ХолавэйПеревод: Дублированный (Кириллица)Язык озвучки: русскийПродолжительность: 01:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DFFA53E12A24A27B2BC7AE5436265A7847F8A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

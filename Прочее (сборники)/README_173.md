@@ -6,7 +6,7 @@ VA - Deep Club Booms (2012) [MP3|320 кб/с]<House, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129449.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129445.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129334.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129280.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129270.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129245.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129184.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Жаркая Зимняя Ночь на Maximum FM (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129056.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Music News For Forum vol.141 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128988.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Musical kaleidoscope part 58 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128907.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Music News For Forum vol.140 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128650.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - CarMusic 2 for man (2023) [MP3|320 Kbps] <House, G-House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127980.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Music News vol.323 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127962.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - Music News vol.324 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127452.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Music News vol.325 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126755.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Понемногу отовсюду by Yuridar #D (1957-2023) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126690.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Дискотека 2024 Dance Club Vol. 221 от NNNB (2023) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126359.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Music News For Forum vol.139 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126038.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ AI - Russian Covers Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125865.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - ЕвроХит Топ 40 Europa Plus 10.10.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125787.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Music News vol.326 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125745.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Music News vol.327 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125211.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Лучшие песни Европа Плюс за 2022 год [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124984.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ VA - Лучшие песни Европа Плюс за 2023 год [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124959.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ VA - RelaX (my essence) for You (2023) [MP3|192 Kbps] <Pop, Rock, Relax>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124926.jpg" />
 </div>
 
 
@@ -779,7 +779,7 @@ VA - Music News vol.328 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124803.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1797152   (18208) от 15.05.2025
-
-Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let'sРlay [Ultimate Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Макс Колфилд, временная преподавательница фотографии в престижном Каледонском университете. Обнаружив в снегу тело своей подруги Сафи, Макс Колфилд прорывается сквозь ткань реальности в параллельный мир. Полагаясь на свою новую способность переходить из одного мира в другой, сможет ли Макс найти убийцу и предотвратить гибель подруги?Тип издания: RepackРазработчик: Deck Nine GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797185   (18204) от 15.05.2025
 
 EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
@@ -32,7 +6,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18204.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18182.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18175.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18172.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18166.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Sinking City (2019) [Ru/Multi] (ms6 58246 s mc2 4/dlc) License GOG [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18150.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fabledom (2024) [Ru/Multi] (1.07 HF) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18142.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18134.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.16/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18130.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18128.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack FitGirl [Complete Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18102.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18091.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18088.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+559/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18080.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ A Haunting Novel 2: Surfaced Secrets / Проклятый роман 2: Тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18078.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.3/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18070.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18046.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack seleZen
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18044.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18019.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18016.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Sun Haven (2023) [Ru/Multi] (2.0.2c/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18002.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10457) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17999.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build 18494183/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17986.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dome Keeper (2022) [Ru/Multi] (4.2.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17964.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ We Are Football 2024 (2024) [Multi] (1.4.0.18237532) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17947.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ We Are Football 2024 (2024) [Multi] (1.4.0.18237532) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530852320995D0990E1382A9B6CDBDC4D6C8E085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797138   (17942) от 18.05.2025
+
+EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь, страшные события серии игр "EBOLA" разворачиваются и в СССР. Игра была разработана совместно с короткометражным фильмом EBOLA VILLAGE. Классический хоррор, вдохновленный оригинальными играми на выживание 90-х, EBOLA VILLAGE - это современный взгляд на приключение от первого лица, в котором главная героиня Мария расследует загадочные события, произошедшие (   Читать дальше...   )Тип издания: RepackРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E3BE1C28486D63643AB3F8199CA98F37003537
 ```
 
 https://mybot314.ru/tekegram_catalog/

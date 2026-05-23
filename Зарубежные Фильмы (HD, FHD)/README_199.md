@@ -1,56 +1,3 @@
-###  Публикация: 1367932   (894864) от 28.03.2020
-
-Взлетная полоса / The Runway (2010) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Колумбийский самолет терпит крушение в ирландской сельской местности как раз в тот момент, когда мальчик Пако ожидает приземления космического корабля, который он вызвал с помощью своего межгалактического радиоприемника, собственноручно сконструированного вместе с другом.
-Пако по счастливой случайности знает зачатки испанского и, единственный во всей деревне, может (   Читать дальше...   )Производство: Ирландия, Люксембург / Fastnet Films, Poderosa PicturesЖанр: комедияРежиссер: Йен ПауэрАктеры: Демиан Бишир, Керри Кондон, Джеймс Космо, Джейм Киранс, Джон Карпентер, Доннча Краули, Пэт Лаффан, Бруно Бичир, Марк Доэрти, Джон КэвэнаПеревод: Многоголосый профессиональный, авторский (одноголосый закадровый)Субтитры: русские (полные), испанские (полные)Продолжительность: 01:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4E2FCB4CB7624D3EC3B3383EE0008DA990E2DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370692   (894710) от 28.03.2020
-
-Бладшот / Bloodshot (2020) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Корпорация RST возвращает к жизни недавно убитого солдата Рэя Гаррисона. Армия нанороботов в его крови превратила Рэя в бессмертного Бладшота, наделенного сверхчеловеческой силой и способностью мгновенно самоисцеляться. Контролируя тело Рэя, компания влияет на его разум и воспоминания. Но герой пойдет на все, чтобы выяснить правду.Производство: США, Китай | Sony Pictures Entertainment, Bona Film GroupЖанр: Фантастика, Боевик, ДрамаРежиссер: Дэйв УилсонАктеры: Вин Дизель, Сэм Хьюэн, Эйса Гонсалес, Талула Райли, Тоби Кеббелл, Гай Пирс, Ламорн Моррис, Йоуханнес Хёйкьюр Йоуханнессон, Сиддхартх Дхананджай, Алекс ЭрнандезПеревод: Профессиональный многоголосый (HDrezka Studio)Субтитры: Русские (Forced, Full), украинские (Full), английские (Full, SDH)Продолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A35C95F7B19314D62BBECFCF0459C559481D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370700   (894696) от 28.03.2020
 
 Бладшот / Bloodshot (2020) WEBRip [H.264/1080p] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894696.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894673.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894640.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894610.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894602.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894601.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894576.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894537.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894527.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894522.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894425.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894330.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894172.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894152.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894039.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894001.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893960.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893935.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893833.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893819.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893811.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893560.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893558.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893550.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE482C9B6DD2F0B43A559BB52D88FA1011D387A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493535   (893339) от 04.09.2021
+
+Подлодка U-235 / Torpedo (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разгар Второй Мировой войны. Группе храбрых и дерзких бойцов сопротивления необходимо переправить в Америку угнанную нацистскую подводную лодку, на борту которой находится секретный груз, способный изменить ход войны. Преследуемые флотом Гитлера, они должны уйти от смертоносных эсминцев, которые не остановятся ни перед чем, чтобы не дать подлодке дойти до берега.Производство: Бельгия / 10.80 Films, A Team Productions, atlas International FilmЖанр: Боевик, приключения, военный, историяРежиссер: Свен УйбрехтсАктеры: Коэн Де Боу, Туре Рифенштейн, Элла-Джун Генрард, Йорен Селдеслахтс, Свен Де Риддер, Стефан Персеваль, Берт Халфут, Руди Мукенди, Жиль Десхрейвер, Робрехт Ванден ТоренПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBBD89DA54878A333B9AD051A7BDA295ABEB790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492752   (893336) от 04.09.2021
+
+Спецслужба: Восстание Черного лебедя / Спецслужба: Сигнал тревоги / SAS: Red Notice (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент спецслужб Том всё никак не может выкроить времени на свою девушку. Когда он наконец решает сделать ей предложение, в его планы вмешивается небольшая группировка, которая угоняет поезд под Ла-Маншем, на котором они едут в Париж.Производство: Великобритания, Венгрия, Нидерланды, Швейцария / Altitude Film Entertainment, Creativity Capital, Electric Shadow Company, The, Ingenious Media, J3 Film Finance, Lip Sync Productions, Parabolic Pictures Inc., Periwinkle Pictures, Silver Reel, Sky, Sky Originals, Vertigo FilmsЖанр: Боевик, триллерРежиссер: Магнус МартенсАктеры: Сэм Хьюэн, Руби Роуз, Энди Серкис, Ханна Джон-Кэймен, Том Хоппер, Ноэль Кларк, Овайн Йомэн, Джин Лу, Рэй Пантаки, Ричард МакКейбПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced, Full), Украинские (Full), Английские (Full)Продолжительность: 02:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0CA063A380180804CBFCD400C64E15568DB8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

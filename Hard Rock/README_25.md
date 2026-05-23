@@ -6,7 +6,7 @@ Days Of Jupiter - Secrets Brought To Life (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327655.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326711.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326708.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ AC/DC - POWER UP (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323699.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Trishula - 3 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323482.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nazareth - The Singles(2CD) (2012) [MP3|320 кб/с]<Hard Rock, Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322350.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Striker - Striker (1978) Reissue, 2014, Hard Rock Diamonds [MP3|320 Kbps] <Melod
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321161.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Bon Jovi & Queen - FM Broadcast (2020) [MP3|320 Kbps] <Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319540.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Shakra - Snakes & Ladders (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319202.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Lionsheart - Heart of the Lion (2019) 5CD Box Set [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318490.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ AC/DC - Rock Or Bust (2014) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317785.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) Japanese Edition [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317569.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Whitesnake - Love Songs (2020) 2020 Remix [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317412.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Incround - Down on Your Knees (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314041.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ JD Miller - Afterglow (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314037.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Dream Company - The Wildest Season (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314013.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Danger Zone - Don't Count on Heroes (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313999.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Aerosmith - Collections (2007) [MP3|~225 кб/с (V1)]<Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309953.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Black Sabbath - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308722.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Black Stone Cherry - The Human Condition (2020) [MP3|320 Kbps] <Hard Rock, South
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308342.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Juicy Lucy - Do That And You'll Lose It (2006) [MP3|320 кб/с]<Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307971.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Jet - Get Born (2003) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307888.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Turbowolf - The Free Life (2018) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307621.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Rainbow - Best Ballads (1998) [MP3|320 кб/с]<HardRock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307060.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Vanilla Fudge - Out Through The In Door Tribute To Led Zeppelin (2016) [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306569.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Accept - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306196.jpg" />
 </div>
 
 

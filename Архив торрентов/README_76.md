@@ -6,7 +6,7 @@ Privacy Eraser Free 5.8.0 Build 3816 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034670.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mountain Duck 4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034665.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Q-Dir 9.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034645.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Sandboxie 5.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034641.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034627.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ PrivaZer 4.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034624.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ PotPlayer 210127 (1.7.21419) DC210201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034623.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ PotPlayer 1.7.21419 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034613.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DP Animation Maker 3.4.34 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034610.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AIMP 4.70 Build 2242 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034588.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ foobar2000 1.6.4 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034581.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ PotPlayer 1.7.21419 (x64) DC 210201 Stable RePack (& portable) by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034554.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Music Collection 3.5.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034537.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PDF Shaper Professional 13.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034528.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DxO FilmPack 6.9.0 Build 11 Elite (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034527.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CamScanner 5.35.0.20210126 Mod by AjeethK [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034512.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ FileOptimizer 16.20.2771 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034500.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Adobe Photoshop Lightroom Classic 12.2.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034495.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.4 Build 9 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034492.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BusyCal 3 v3.12.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034479.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ AudioSwitcher 3.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034477.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ NCH Prism Plus 7.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034476.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ File Cabinet Pro 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034474.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ eMail Address Extractor 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034473.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Slidepad 1.0.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034472.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ World Clock Deluxe 4.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034470.jpg" />
 </div>
 
 

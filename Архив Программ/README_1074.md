@@ -6,7 +6,7 @@ Windows 7 Manager 4.1.3 Final [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502174.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Display Driver Uninstaller 15.4.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502137.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual Studio 2019 Enterprise 16.2.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502129.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502103.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Notepad++ 6.8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502081.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ xrecode II Build 1.0.0.226 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502073.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Windows 10 Pro VL 1903 [Build 18362.267] x64 by ivandubskoj (30.07.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502036.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Tor Browser Bundle 2.2.38-2 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502027.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Corel WordPerfect Office X6 v 16.0.0.388 SP1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502023.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mirillis Splash PRO EX RePack/Portable by Boomer 1.13.0 [Русский/Англ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502020.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ O&O Defrag Pro v15.8 Build 801 Final RePack by elchupacabra [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502018.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TuneUp Utilities 2013 13.0.1100.1 Beta 5 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502011.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ GIMP 2.8.2 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502008.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ QuarkXPress 2015 11.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501998.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Driver Easy Pro тихая установка by moRaLIst 4.0.6.22634 [Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501961.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ OnThreeSeas Personalization v2.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501950.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ O&O ShutUp10 1.0.1345 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501924.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ LogMeIn Hamachi 2.1.0.215 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501899.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ZBrush 4R4 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501881.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Cockos REAPER 6.64 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501480.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ CrystalDiskInfo 8.17.4 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501471.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ WinSnap 5.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501464.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ CrystalDiskInfo 8.17.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501462.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Calibre 6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501452.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Q-Dir 7.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501374.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Google Chrome 76.0.3809.87 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501368.jpg" />
 </div>
 
 

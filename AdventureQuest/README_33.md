@@ -1,29 +1,3 @@
-###  Публикация: 1073443   (619296) от 26.06.2017
-
-Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, 3DЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F2C388537D9840EDF0AA17E8CCD8FD97A187FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101837   (617583) от 27.06.2017
 
 Virginia (2016) [Ru/Multi] (1.02a) License GOG
@@ -32,7 +6,7 @@ Virginia (2016) [Ru/Multi] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617583.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616872.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Bohemian Killing (2016) [En/Pl] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616798.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615996.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614824.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614821.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614136.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614132.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613556.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613014.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612546.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPla
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612537.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ The Way (2016) [Ru/Multi] (1.07b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612071.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610894.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Please (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610708.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610353.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Tales from the Borderlands (2014) [En] (1.0.0.1) License CODEX [Episode 1-3: Zer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610171.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608302.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Lucius II: The Prophecy (2015) [Ru/En] (1.0.150601.b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608211.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) License RELOADED [Episodes 1-7
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607786.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.301136/dlc) SteamRip Let'sPlay [Gold 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607270.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604039.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604018.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603641.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602801.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:453FA3EB7ED253C549CADDF62463570EB92B74D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000761   (602799) от 08.07.2017
+
+Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Might and Delight приглашает вас переступить порог сказочного мира Shelter. Представляем Paws! Тьма сгущается упруго, лес сбивает вас с пути, но гораздо легче с другом.. к дому вместе добрести... Paws – это история о том, как двое симпатичных и необычных героев пробиваются к дому через всевозможные трудности и опасности, которые таит в себе дикая природа. Игра сочетает (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11968B67DC16BE407EDC09C54FD6823A7134F2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

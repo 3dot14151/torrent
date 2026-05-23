@@ -1,59 +1,3 @@
-###  Публикация: 526257   (598978) от 23.07.2012
-
-Командный дух / Teen Spirit (2011) DVDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Фэнтези, Драма, КомедияРежиссер: Джил ДжангерАктеры: Крис Зилка, Линдси Шоу, Кэсси Сербо, Рода Гриффис, Елена ВарелаПеревод: Любительский одноголосыйЯзык субтитров: Русские (на песни)Продолжительность: 01:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED922FAE03983914EE61198E1C61260ABE2CD1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526226   (598977) от 23.07.2012
-
-Багровые реки 2: Ангелы апокалипсиса / Crimson Rivers 2: Angels of the Apocalypse (2004) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Капитан Пьер Ниман — полицейский. Чертовски хороший полицейский. Один из лучших. Его работа требуется в особенных случаях. Он умный и храбрый, за словом в карман не полезет. Он любит работать один, но зачастую ему требуется напарник, а то и два. Он ненавидит собак, но имеет свою собственную — йоркширского терьера.
-
-Ему доставляет радость воздать по заслугам бандитам и убийцам, тем более, что они верят в свою безнаказанность, пока не перейдут дорогу Пьеру Ниману. Ниман расследует дело о человеке, замурованном в стену с загадочными знаками. В это время Реда, молодой капитан полиции, находит у дверей церкви полумёртвого двойника Иисуса Христа. Реда полагает, что эта история как-то связана с расследованием Нимана, учеником которого он был в полицейской школе.
-
-В округе продолжаются убийства: таинственные монахи, обладающие сверхъестественной силой, убивают случайных встречных и исчезают бесследно. При помощи Мари, специалистки по истории религий, Ниман и Реда пытаются найти ответы на все вопросы…Жанр: Боевик, Триллер, КриминалРежиссер: Оливье ДаанАктеры: Жан Рено, Бенуа Мажимель, Кристофер Ли, Камилль Натта, Джонни Халлидей, Габриель Лазюр, Огустен Легран, Серж Рябукин, Андре Пенверн, Франсис РеноПеревод: Дублированный, авторский одноголосый (А. Гаврилов)Язык субтитров: Русский, АнглийскийПродолжительность: 01:39:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526167   (598961) от 23.07.2012
 
 Спаун [Режиссерская версия] / Spawn [Director's Cut] (1997) DVD5 [BD->DVD]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598961.jpg" />
 </div>
 
 
@@ -89,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598892.jpg" />
 </div>
 
 
@@ -115,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598891.jpg" />
 </div>
 
 
@@ -142,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598888.jpg" />
 </div>
 
 
@@ -170,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598882.jpg" />
 </div>
 
 
@@ -196,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598809.jpg" />
 </div>
 
 
@@ -222,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598795.jpg" />
 </div>
 
 
@@ -249,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598792.jpg" />
 </div>
 
 
@@ -276,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598720.jpg" />
 </div>
 
 
@@ -303,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598707.jpg" />
 </div>
 
 
@@ -329,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598704.jpg" />
 </div>
 
 
@@ -355,7 +299,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRemux 3D [
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598600.jpg" />
 </div>
 
 
@@ -381,7 +325,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) Blu-ray 3D [
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598591.jpg" />
 </div>
 
 
@@ -407,7 +351,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598585.jpg" />
 </div>
 
 
@@ -433,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598421.jpg" />
 </div>
 
 
@@ -459,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598419.jpg" />
 </div>
 
 
@@ -486,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598390.jpg" />
 </div>
 
 
@@ -512,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598318.jpg" />
 </div>
 
 
@@ -539,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598283.jpg" />
 </div>
 
 
@@ -568,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598244.jpg" />
 </div>
 
 
@@ -596,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598156.jpg" />
 </div>
 
 
@@ -622,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598144.jpg" />
 </div>
 
 
@@ -648,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597902.jpg" />
 </div>
 
 
@@ -674,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597857.jpg" />
 </div>
 
 
@@ -685,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFDCDE00501973B8C7CAD2212F5C955B57B4BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149004   (597855) от 12.07.2017
+
+Война дронов / Drone Wars (2016) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597855.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одно мгновение вторжение началось и закончилось. Заполненное дымом и огнем, небо теперь усеяно инопланетными объектами, парящими над планетой в разных направлениях. Эти корабли истощают Землю добывая различные полезные ископаемые. В то время как дроны патрулирует разрушенные города, уничтожая все, что они считают угрозой. Выжившие группируются в группы, отчаянно (   Читать дальше...   )Производство: СШАЖанр: Фантастика, БоевикРежиссер: Джек ПерезАктеры: Корин Немек, Уитни Мур, Натин Батлер, Шон Гуннелл, Сонни Кинг, Джеймс Эстон Лэйк, Джолин Андерсен, Mark Haptonstall, Верона Блу, Джеймс ТакерПеревод: Многоголосый закадровый, профессиональный (ТВ3)Субтитры: отсутствуютПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D040EECDA850E9F457F78D808E671630C2A9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232519   (597771) от 25.06.2018
+
+Операция «Шаровая молния» / Entebbe (2018) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1976 году самолет, следовавший из Тель-Авива в Париж, был захвачен террористами и совершил вынужденную посадку в аэропорту Энтеббе в Уганде с целью обмена заложников на осужденных преступников. Дипломатического решения вопроса за 7 дней найти не удалось. Тогда был разработан весьма изобретательный и крайне смелый план спасения…Производство: Великобритания, США / Participant Media, Pellikola, Working Title FilmsЖанр: Триллер, драма, криминал, историяРежиссер: Жозе ПадильяАктеры: Розамунд Пайк, Даниэль Брюль, Эдди Марсан, Бен Шнетцер, Нонсо Анози, Марк Иванир, Дени Меноше, Хуан Пабло Раба, Анхель Бунани, Бронтис ХодоровскиПеревод: Профессиональный многоголосый (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C72CF061DA4CD750B4D1CB969136C08E3475BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1784089   (25196) от 09.03.2025
-
-Tech Store Simulator (2024) [Ru/Multi] (1.5) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Управляйте собственным магазином электроники! Заполняйте полки новейшими техническими гаджетами, устанавливайте цены, чтобы привлечь покупателей, обрабатывайте платежи, нанимайте и управляйте персоналом, а также настраивайте планировку магазина. Tech Shop Simulator - это увлекательный симулятор от первого лица, где каждый аспект управления магазином электроники воплощается (   Читать дальше...   )Тип издания: RepackРазработчик: AstrasoftЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142B2F30726AD19587559A6FF53DDF8BCDCF858B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784085   (25190) от 09.03.2025
 
 The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
@@ -32,7 +6,7 @@ The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25190.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25188.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Everhood (2021) [Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25186.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Granblue Fantasy Versus: Rising (2023) [Multi] (2.01/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25175.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Season 2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25172.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Scene Rune [Supernova
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25169.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (67402/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25154.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Eternal Cylinder (2022) [Ru/Multi] (1.0.3.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25135.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25134.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25081.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25070.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Hell Division (2022) [Ru/Multi] (1.0b) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25060.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25058.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Bonesaw (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25056.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25055.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25051.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25041.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Sons of the Forest (2023) [Ru/Multi] (53951) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25024.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ House of Caravan (2015) [Ru/Multi] (1.0.1) Scene PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25009.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24971.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24953.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24944.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Nightmare: The Lunatic (2024) [Ru/Multi] (1.2.1d) Repack Let'sРlay [Soundtrack 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24940.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Trans-Siberian Railway Simulator (2024) [Ru/Multi] (Build 17516909) Repack Wante
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24939.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ WWE 2K25 (2025) [Multi] (1.03/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24938.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ WWE 2K25 представляет вам непревзойденный сост
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9611965B66B539CC4BE3F4E6B487AC3779707C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784620   (24937) от 12.03.2025
+
+Remnant II (2) (2023) [Ru/Multi] (453.438/dlc) Repack seleZen
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remnant 2 - это атмосферная и брутальная комбинация динамичного экшена и мрачных ужасов выживания. Сиквел развивает и дополняет традиции и игровые механики оригинала. Вы отправитесь в совершенно новое приключение, которое охватит множество захватывающих миров, каждый из которых кишит уникальными врагами, грозными боссами и сложными задачами. Независимо от того, решите (   Читать дальше...   )Тип издания: RepackРазработчик: Gunfire GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448D75D464330A3180F852C205CA3C6C1E7C5E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

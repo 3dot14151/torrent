@@ -1,32 +1,3 @@
-###  Публикация: 1748525   (44020) от 10.09.2024
-
-Наталия Андросова | Сборник вебинаров по архитектурке, строительству и ЖКХ (2022-2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-✅Техническое регулирование в области обеспечения безопасности зданий и сооружений
-✅Область применения и особенности расчета железобетонных конструкций
-✅Физико-механические характеристики и деформативность бетона в железобетонных
-конструкциях(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 05:08:09Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749674   (43452) от 15.09.2024
 
 George Vondriska | Изготовление ящиков: «ласточкин хвост» и замки для ящиков (2015) WEBRip [EN, RU / EN Sub]
@@ -35,7 +6,7 @@ George Vondriska | Изготовление ящиков: «ласточкин �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43452.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43318.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42760.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42083.jpg" />
 </div>
 
 
@@ -142,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41488.jpg" />
 </div>
 
 
@@ -171,7 +142,7 @@ George Vondriska | Делайте качественные двери (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41244.jpg" />
 </div>
 
 
@@ -197,7 +168,7 @@ remontkv.pro, Александр Смолин | Новейший курс по �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39446.jpg" />
 </div>
 
 
@@ -223,7 +194,7 @@ George Vondriska | Необходимые техники заточки (2015) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39314.jpg" />
 </div>
 
 
@@ -249,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37540.jpg" />
 </div>
 
 
@@ -278,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32951.jpg" />
 </div>
 
 
@@ -307,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32949.jpg" />
 </div>
 
 
@@ -336,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32676.jpg" />
 </div>
 
 
@@ -362,7 +333,7 @@ chemelova.design, Кристина Чемелова | Курс по стройк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32645.jpg" />
 </div>
 
 
@@ -391,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32603.jpg" />
 </div>
 
 
@@ -420,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30713.jpg" />
 </div>
 
 
@@ -449,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28823.jpg" />
 </div>
 
 
@@ -478,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28772.jpg" />
 </div>
 
 
@@ -507,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28658.jpg" />
 </div>
 
 
@@ -536,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28654.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28473.jpg" />
 </div>
 
 
@@ -594,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28269.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27948.jpg" />
 </div>
 
 
@@ -648,7 +619,7 @@ Skillbox, Наталья Бондаренко, Юрий Новожилов | Л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27868.jpg" />
 </div>
 
 
@@ -675,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27646.jpg" />
 </div>
 
 
@@ -704,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27506.jpg" />
 </div>
 
 
@@ -716,6 +687,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:921DDE02D937250E0B6D0B15C57B42ABCF5AC49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780013   (27462) от 16.02.2025
+
+Артем Крылов | Проектирование в Revit и Лира-сапр многоэтажного жилого дома с подземным паркингом. Разделы КР, КЖ (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27462.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы научитесь проектировать полный раздел КР и КЖ, используя REVIT и ЛИРА-САПР, а также освоите расчет на прогрессирующее обрушение. В процессе обучения вы разберетесь в работе с программами REVIT, ЛИРА-САПР, AutoCAD и САПФИР.
+
+Что вы получите после прохождения курса:Практические навыки от инженеров-практиков.
+Курс создан профессионалами, которые не (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 51:42:32Реклама: Ватермарки на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE88B3E1E65D4B06792E38B3F1134AEE9D1FBF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

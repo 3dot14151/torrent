@@ -6,7 +6,7 @@ Rosetta Solenne - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Pop, Ballad
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066812.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rudolf Kinski Project - XV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066709.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anya Blaze & Deepone - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Italod
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066706.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hanwave - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Disco, Italo-Disco,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066569.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Daniele Gazzarin - Favorites Collection Part 9 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066567.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Lenivo. Soviett Chill (2022) [MP3|320 Kbps] <Chillout, Downtempo, Nu-Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066440.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Italo Disco Dance Party Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066437.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - ЕвроХит Топ 40 Europa Plus 17.04.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065940.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Listen on repeat (2026) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065797.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ai - Russian poets covers 5 (2026) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065789.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Daniele Gazzarin - Favorites Collection Part 8 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065788.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Russian Hits 2022 [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065775.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ai - Russian poets covers 3 (2026) [MP3|320 Kbps] <Other, Covers>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065750.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Лучшие хиты ,,НАЗАД в СССР 3,, В современно�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065707.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ai - No Name Compilation Simply listen music Part 89 Just Cover (2026) [MP3|320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065654.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Daniele Gazzarin - Favorites Collection Part 7 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065652.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Daniele Gazzarin - Favorites Collection Part 5 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065649.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ai - Russian poets covers 4 (2026) [MP3|320 Kbps] <Cover, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065530.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Russian Rock 2015-2016  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065318.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ai - Russian poets covers 2 (2026) [MP3|320 Kbps] <Other, Covers>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065317.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rosetta Solenne - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Pop, Ballad
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065316.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Abi Z - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Pop, Dance, RnB, Othe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065280.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Daniele Gazzarin - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065277.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Rudolf Kinski Project - XII (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065275.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Rudolf Kinski Project - XI (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065274.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Rudolf Kinski Project - X (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065273.jpg" />
 </div>
 
 

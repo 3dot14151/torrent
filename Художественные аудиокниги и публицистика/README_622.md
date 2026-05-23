@@ -1,81 +1,3 @@
-###  Публикация: 1581684   (326253) от 06.10.2022
-
-Юрий Москаленко | Сила магии (Книга 3 часть 3). Путь одарённого. Ученик мага (2021) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Третий день пьянки. Это много, очень много, и девок, и пойла, и потраченных денег. Но деньги пыль… впереди, опасное предприятие и снова на острие удара, лучшие люди капитана.Жанр: фантастика, фэнтезиПродолжительность: 05:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14513EE969288B4B3A000E6A762EE1C57295A2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581695   (326248) от 06.10.2022
-
-Андрей Дашков | Пропуск (2022) [MP3, Андрей Зверев, Юлия Шустова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сплав динамичного триллера, боевика и роуд-стори, а также притча о девушке-бродяге, случайно оказавшейся за рулем автобуса с двенадцатью детьми-сиротами в салоне. Она странствует в землях, где господствует террор, а такие понятия, как закон, милосердие и право, давно забыты. Она – плоть от плоти этого жестокого мира, однако постепенно в ней просыпается человечность. (   Читать дальше...   )Жанр: МистикаПродолжительность: 03:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9446447C3BF5C9931527978D4CDD14F5F91E6B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581681   (326239) от 06.10.2022
-
-Юрий Москаленко | Сила магии (Книга 3 часть 2). Путь одарённого. Ученик мага (2021) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-– …и ты хочешь сказать, что пацан – маг??? – Взволнованный хриплый шёпот…Жанр: фантастика, фэнтезиПродолжительность: 05:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F08346C3F8EEA047500380E0EADCC6D8BC3932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581706   (326237) от 06.10.2022
 
 Робин Хобб |Мир Элдерлингов. Сага о Фитце и Шуте (Книга 1). Убийца шута (2022) [MP3, Сергей Кирсанов]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326237.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326195.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326182.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325917.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325890.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325813.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325750.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325734.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325646.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325590.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325583.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325503.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325496.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325495.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325456.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325452.jpg" />
 </div>
 
 
@@ -512,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325447.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325437.jpg" />
 </div>
 
 
@@ -564,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325435.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325372.jpg" />
 </div>
 
 
@@ -616,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325366.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325280.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324881.jpg" />
 </div>
 
 
@@ -680,6 +602,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2583EF2F2A0836A2812117B6194B3C5606C99331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958029   (324875) от 20.11.2015
+
+Артур Конан Дойль | Вокруг красной лампы (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помимо знаменитых рассказов о Шерлоке Холмсе, перу Артура Конан Дойля принадлежат многие исторические романы, новеллы и сборники рассказов. «Вокруг красной лампы» - один из таких сборников. Он знакомит читателей с различными эпизодами из жизни английских врачей начала двадцатого века. Высокая требовательность к себе, профессионализм, мужество, самопожертвование - (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B970E4D7B44542CF304E65A779D48C93DD69351C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958001   (324722) от 20.11.2015
+
+Донна Тартт | Тайная история (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в небольшом колледже в Вермонте, куда девятнадцатилетний Ричард Пейпен приезжает изучать древнегреческий язык. Новые друзья Ричарда – четверо молодых людей и одна девушка – умны, раскованы, богаты и так увлечены античной культурой, что рассматривают себя чуть ли не как особую касту ее хранителей. Их дружба не выдерживает, однако, натиска современного (   Читать дальше...   )Жанр: ТриллерПродолжительность: 20:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ADE1AD2542A805D92C60CAB0A781ECD1F43E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582128   (324410) от 08.10.2022
+
+Игорь Гатин | Лихие 90-е (2022) [MP3, Платон Беседин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая российская государственность рождалась в муках беззакония, безвластия и свободы, граничащей с анархией. После длительного застоя 70-х-80-х, усыпивших пару поколений советских людей, события вдруг приобрели пугающую быстроту. Требовалось бежать, чтобы оставаться на месте, и очень быстро думать и принимать решения, чтобы опережать энтропию. Большинство было к (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 09:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6BAA9EC8FBF1526C67D0DAC823CB3E37B77EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

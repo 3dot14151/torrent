@@ -1,55 +1,3 @@
-###  Публикация: 1337243   (275750) от 09.11.2019
-
-Искусство самообороны / The Art of Self-Defense (2019) BDRip [H.264/1080p] [EN / RU, EN Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Стеснительный 34-летний бухгалтер с женственным именем Кэйси Дэвис как-то ночью отправляется за собачьим кормом. По дороге на него совершают нападение неизвестные на мотоциклах и сильно избивают, да так, что парень несколько дней вынужден пролежать в больнице. Встав на ноги, Кэйси отправляется покупать пистолет, и пока бумаги на огнестрельное оружие проходят одобрение, (   Читать дальше...   )Производство: США / End CueЖанр: Комедия, спорт, драма, триллерРежиссер: Райли СтернсАктеры: Джесси Айзенберг, Алессандро Нивола, Имоджен Путс, Стив Терада, Филлип Андре Ботельо, Каролин Амиге, Аполло Бакала, Хауке Бар, Джейсон Бёрки, Джастин ИтонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (FOCS), АнглийскиеПродолжительность: 01:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A90ACAA2A2F16832BB35550EB5CF9E9F4336361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273559   (275721) от 21.12.2010
-
-Хронос / Cronos (1993) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Хронос» — это чудесное маленькое устройство, которое, сбежавший из Испании в Мексику гениальный алхимик Умберто Фальконелли, изобрел в 1536 году. Устройство, дарующее бессмертие… Правда, в 1937 году жизнь алхимика все-таки оборвалась в результате трагической случайности. Потому что «Хронос» обещал вечную жизнь при условии, что владелец будет собственной кровью питать его… Имущество особняка, где жил алхимик, было продано с молотка. И вот однажды хозяин антикварного магазина старик Хесус Грис расковырял фигурку ангела и, обнаружив внутри странную коробочку, привел в действие ее заводной механизм… Так у «Хроноса» появился новый владелец, но не только ему был известен секрет бессмертия…Жанр: Ужасы, ДрамаРежиссер: Гильермо Дель Торо /Guillermo del Toro/Актеры: Федерико Луппи /Federico Luppi/, Рон Перлман /Ron Perlman/, Клаудио Брук /Claudio Brook/, Маргарита Исабель /Margarita Isabel/ и др.Перевод: Профессиональный (многоголосый,закадровый) / Оригинальный (испанский)Продолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB37DF9920572226482D619AD70C6147D438149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081555   (275682) от 14.12.2016
 
 Женюсь на первой встречной / Wedding Daze (2006) WEB-DLRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275682.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275659.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275649.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275645.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275643.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275641.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275635.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275633.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275631.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275624.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275620.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275596.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275558.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275556.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275551.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275543.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275541.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275448.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275444.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275437.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275431.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275412.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275410.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275406.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D73AFA5F78235B335C52C82C04D0F64FF3CCBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188087   (275388) от 01.12.2017
+
+Невидимый гость / Contratiempo (2016) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой бизнесмен Эдриан Дориа просыпается в закрытом изнутри номере отеля рядом с бездыханным телом своей любовницы. Его обвиняют в убийстве, но он, не считая себя виновным, решает воспользоваться услугами Вирджинии Гудман, лучшего в стране специалиста по выходу из самых сложных ситуаций. В течение одной ночи консультант и её клиент будут работать, чтобы найти разумное (   Читать дальше...   )Производство: Испания / Atresmedia, Atresmedia Cine, Colosé Producciones, Movistar+Жанр: Триллер, криминал, детективРежиссер: Ориол ПаолоАктеры: Марио Касас, Хосе Коронадо, Барбара Ленни, Ана Вахенер, Франсеск Орелья, Кристиан Валенсиа, Пако Тоус, Бетси Тунес, Давид СельвасПеревод: Профессиональный многоголосый (AlexFilm)Субтитры: АнглийскиеПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3E377FEBC06B5F242F0BF40886C3AD1895384C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188211   (275383) от 01.12.2017
+
+Конг: Остров черепа / Kong: Skull Island (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275383.jpg" />
+</div>
+
+
+###  Подробнее
+
+На неизвестный остров в Тихом океане попадает команда ученых, военных и искателей приключений. Они вторгаются во владения могучего Конга и тем самым развязывают сражение между человеком и природой. Очень скоро исследовательская миссия превращается в игру на выживание, ее участники вынуждены буквально прорубать себе путь к спасению.Производство: США / Legendary PicturesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джордан Вот-РобертсАктеры: Том Хиддлстон, Сэмюэл Л. Джексон, Джон Гудмен, Бри Ларсон, Тянь Цзин, Тоби Кеббелл, Джон Ортис, Кори Хоукинс, Джейсон Митчелл, Ши УигхэмПеревод: Дублированный (Лицензия BD EUR), Авторский (одноголосый, закадровый) (Дохалов)Субтитры: Русские (full, forced), английскиеПродолжительность: 01:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB1E36B9A31251F4B38BAF4247CABCCEAB3C7E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

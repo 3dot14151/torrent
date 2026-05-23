@@ -6,7 +6,7 @@ Multitouch 1.27.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671068.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Scrutiny 10 v10.4.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671067.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SuperDuper! 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671066.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WiFi Explorer 3.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671065.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Music Tag Editor Pro 6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671064.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Text Workflow 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671063.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Alfred 4 Powerpack 4.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671062.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ SQLPro Studio 2022.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671060.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ NeoFinder 6.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671057.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BetterZip 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671028.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Swift Publisher 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671026.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Auto Highlight 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670981.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Soulver 3 v3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670978.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ PullTube 1.7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670971.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Navicat Premium 16.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670966.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sparkle 1.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670960.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Translator App : Linguist 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670882.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SQLPro for MSSQL 2022.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670881.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WiFi Explorer Pro 3 v3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670879.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ SuperDuper! 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670866.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Permute 3 v3.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670847.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Downie 3 v3.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670842.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670833.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ ForkLift 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670813.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Paw 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670783.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ App Tamer 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670701.jpg" />
 </div>
 
 

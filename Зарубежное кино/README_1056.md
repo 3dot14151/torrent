@@ -1,55 +1,3 @@
-###  Публикация: 352861   (537989) от 04.09.2013
-
-Трудная мишень / Hard Target (1993) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мужественный герой неутомимого Ван Дамма пытается помочь молодой красавице найти ее отца, ветерана вьетнамской войны, пропавшего без вести не на полях сражений, а в родной стране, а в результате — вынужден не на жизнь, а на смерть схватиться с бандой патологических злодеев, которые используют несчастных бездомных в качестве жертв своей жестокой и опасной игры.Производство: США, Universal Pictures, Alphaville Films, Renaissance PicturesЖанр: Боевик, триллерРежиссер: Джон ВуАктеры: Жан-Клод Ван Дамм, Янси Батлер, Лэнс Хенриксен, Арнольд Вослу, Уилфорд Бримли, Уилли С.Карпентер, Кейси Леммонс, Чак Пфаррер, Роберт Аписа, Дуглас Форсайт Рай, Майк Лейнерт, Ленор Бэнкс, Барбара Таскер, Рэнди Шерами, Элиотт Кинер, Роберт Павлович, Марко Ст.Джон, Джо Уорфилд, Жанетт Контомитра, Тед Рэйми, Том Люпо, Жуль Сильвестр, Дэвид Эфрон, Коди СкоттПеревод: Многоголосый закадровый, "Карусель"Субтитры: ОтсутствуютПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363421F177A34277F55500ABB899DCB44FC1E8FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532388   (537967) от 07.08.2012
-
-Неуловимый / Vanishing Point (1997) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ковальски, ветеран «Бури в пустыне», перегоняющий машины из Нью-Йорка в Айдахо, узнает, что его беременная жена оказалась в больнице, а жизни ее и будущего ребенка угрожает опасность. Он немедленно поворачивает домой, но полиция останавливает его за превышение скорости. Не сумев понять отчаянное состояние водителя, они пытаются его задержать. Вспомнив предыдущий несправедливый арест за самооборону и потерянное время, Ковальски преступает закон, и начинается безумная погоня…Жанр: Боевик, Мелодрама, ПриключенияРежиссер: Чарльз Роберт КарнерАктеры: Вигго Мортенсен, Кристин Элиз, Стив Рейлсбэк, Родни А. Грант, Питер Мёрник, Джеймс МакДональд, Пол Бенджамин, Джино Сильва, Джон Доу, Пета УилсонПеревод: Одноголосый закадровый - Ю. ЖивовПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5562A1B4341A22C0D47112BF7EF46C03EA539A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311723   (537919) от 01.07.2019
 
 Сильнейший удар: Бой до смерти / Shootfighter: Fight to the Death (1992) BDRemux [H.264/1080p] [GER Transfer]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537919.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537881.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537858.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537850.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537810.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537764.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537750.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537745.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537744.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537665.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537658.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537657.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537634.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537628.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537565.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537561.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537540.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537527.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537486.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537476.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537336.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537310.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537220.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537211.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:902D4187AD8BABF769F497A7185F67B421D558AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557858   (537207) от 17.06.2022
+
+Вестсайдская история / West Side Story (2021) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, конец 1950-х. История противостояния двух уличных банд и невозможной любви юноши и девушки из враждующих группировок.Производство: США / 20th Century Studios, Amblin Entertainment, Amblin PartnersЖанр: Мюзикл, драма, мелодрама, криминалРежиссер: Стивен СпилбергАктеры: Рэйчел Зеглер, Энсел Элгорт, Майк Фейст, Ариана ДеБос, Дэвид Альварез, Кори Столл, Брайан Д`Арси Джеймс, Рита Морено, Джош Андрес Ривера, Эзра МинасПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские (FOCS), английские, (Full, SDH)Продолжительность: 02:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3C8F471643318726B3937E68CA743FE0EDE231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818794   (537155) от 05.09.2014
+
+Машина / The Machine (2013) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за нестабильной обстановки в мире британское министерство обороны нуждается в получении нового оружия. Ведущий ученый Винсент МакКарти предоставляет свое решение этого вопроса, «Машина» — андроид с непревзойденными физическими способностями. Когда программная ошибка заставляет опытный образец разрушить его лабораторию, МакКарти вербует эксперта по искусственному (   Читать дальше...   )Производство: ВеликобританияЖанр: Фантастика, ТриллерРежиссер: Карадог В. ДжеймсАктеры: Кейти Лотц, Тоби Стивенс, Сэм Хэзелдайн, Дэнис Лосон, Сиван Моррис, Ли Николас Харрис, Суле Рими, Бен МакГрегор, Хелен ГриффинПеревод: Многоголосый закадровый, профессиональный (лицензия R5)Продолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD29C45F36C1D130763304F12AF3FFEE65B9E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ AusLogics BoostSpeed 5.5.0.0 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150080.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OpenVPN 2.6.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150050.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Data Recovery 4.11.210 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150007.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PDF Shaper Premium 8.9 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150002.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BlueStacks HD App Player 2.0.2.5623 MOD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149996.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ HashMyFiles 2.17 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149965.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Force Deleter 1.48.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149931.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MAGIX Vegas Pro 21.0 Build 187 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149918.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BestReminder v2018.12.22.22 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149908.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wise System Monitor 1.4.8.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149900.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ WizFile 2.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149837.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ActivePresenter Professional Edition 7.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149832.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Maxon ZBrush 2024.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149820.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Wise Memory Optimizer 3.6.3.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149814.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Wise Folder Hider Pro 4.2.4.164 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149782.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Acronis True Image Home 2013 16 Build 5587 + PlusPack [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149773.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Q-Dir 9.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149725.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ DirPrintOK 4.71 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149503.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ MAGIX Video Pro X10 16.0.1.242 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149470.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Wise Windows Key Finder 1.0.1.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149464.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ uTorrent 3.5.5 Build 44954 (Ad-Free) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149441.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Krita 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149434.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Universal USB Installer 1.9.8.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149431.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VueScan Pro 9.7.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149418.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Nox App Player 7.0.2.0000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149356.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ IsoBuster Pro 4.3 Build 4.3.0.00 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149353.jpg" />
 </div>
 
 

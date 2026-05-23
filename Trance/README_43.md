@@ -6,7 +6,7 @@ VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262147.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262146.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262144.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262141.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Vocal Trance 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262102.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Best Of Vandit (Mixed by Jardin) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261996.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261989.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261985.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261979.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261828.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Extrema Global Music - Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261593.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261539.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261501.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261500.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Trancendence, Vol. 06 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260996.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The Best Of Suanda Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, Trance, E
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257986.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257744.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257740.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257737.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256853.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - 10 Years of Dreamstate (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256852.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - The Best Trance Tunes Of 2025 Vol. 2 - Mixed by Roan Gosling (2025) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256849.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - D.Trance 112 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256666.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Black Hole Trance Music 11-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255882.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - A State of Trance: Future Favorite - 2025 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255657.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Female Vocal Trance Legends - Best Of The Best (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254944.jpg" />
 </div>
 
 

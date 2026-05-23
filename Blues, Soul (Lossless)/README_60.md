@@ -6,7 +6,7 @@ Aretha Franklin - What You See Is What You Sweat (1991) [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561535.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Buddy Guy - Born To Play Guitar (2015) [FLAC|image+.cue]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560813.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anthony Geraci - Blues Called My Name (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559856.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bad Daddy - It's a Mad Mad Bad Dad World (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559723.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Andy Lindquist - Eighty One (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559581.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Alexander Narrator Tsyganok - Drifting Among the Crowd (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559580.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Absent Sons - A Distant Signal (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559578.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ace Monroe - Shelter in Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559577.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Blindstone - Rise Above (2010) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558909.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Blodwyn Pig - Ahead Rings Out (1994) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558828.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Luther Vandross - Give Me the Reason (1986) [FLAC|Lossless|image + .cue] <Funk, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558201.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Stoney Curtis Band - 2 Альбома (2005, 2010) [APE|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558197.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Bullfrog - Clearwater (2014) [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557015.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Keb Mo - Live - That Hot Pink Blues Album (2016) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556282.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ James Brown - At His Best (1989) [FLAC|Lossless|image + .cue] <Funk / Soul, Pop>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555474.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Aretha Franklin - The Very Best Of (1994) [FLAC|Lossless|tracks] <Electronic, Fu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554725.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Travis Bowlin - Secundus (2018) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554264.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Richard Van Bergen & Rootbag - Walk On In (2017) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553835.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Unlimited Voice Company - Gospels und phantasievolle Lieder (1995) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553534.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Nanna Baudelaire - Wild Ones (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553117.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Carl Anderson - Heavy Weather Sunlight Again (1994) [FLAC|Lossless|image + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553061.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Royal Southern Brotherhood - 5 альбомов (2012 - 2016) [FLAC|Lossless|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552412.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Simon McBride - 4 альбома (2008 - 2012) [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552400.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Gospel Gold Singers - Gospel Gold (1999) [FLAC|Lossless|image + .cue] <Gospe
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550452.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550355.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Magic Slim & The Teardrops - Chicago Blues Session Vol.3 (1986 - 1987) 1993, Wol
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550253.jpg" />
 </div>
 
 

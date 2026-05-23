@@ -1,32 +1,3 @@
-###  Публикация: 1353812   (990428) от 19.01.2020
-
-VA - Ecoutez La Musique De L'amour (2020) [MP3|320 Kbps] <Chanson, Pop Lyric, Soul>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-001. Antoine Elie - Clopes, Sky-Cola
-002. Collectif - Camarade
-003. De Palmas - Sur La Route
-004. Serge Gainsbourg - La Femme Des(   Читать дальше...   )Жанр: Chanson, Pop Lyric, SoulПродолжительность: 08:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3C32D506689D6D56254419F1107DBC56A9F876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353789   (990416) от 19.01.2020
 
 VA - Winter House Party: Deep Edition (2020) [MP3|320 Kbps] <Deep House>
@@ -35,7 +6,7 @@ VA - Winter House Party: Deep Edition (2020) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990416.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Everybody Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990368.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Club Dubstep №27 (2013) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990337.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ VA-Двигай Попой! Часть 6 (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990303.jpg" />
 </div>
 
 
@@ -163,7 +134,7 @@ VA - Cosmospace House (2020) [MP3|320 Kbps] <Progressive, Deep, Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989891.jpg" />
 </div>
 
 
@@ -192,7 +163,7 @@ VA - Интернациональный сборник популярной му
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989858.jpg" />
 </div>
 
 
@@ -227,7 +198,7 @@ DJ Stinger - Minimix For Time2Bass Radio-Show (Time 2 Bass) (12.05.2010) [MP3|16
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989612.jpg" />
 </div>
 
 
@@ -262,7 +233,7 @@ VA-Сотка любимой музыки. Зимний выпуск 50/50 (2013
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989442.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ VA-Союз Русских Новинок (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989425.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ VA-Зарубежный Союз Новинок (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989338.jpg" />
 </div>
 
 
@@ -367,7 +338,7 @@ VA - Дискотека : Зимний Mix Отрыв 50/50 (2013) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989227.jpg" />
 </div>
 
 
@@ -402,7 +373,7 @@ VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989060.jpg" />
 </div>
 
 
@@ -431,7 +402,7 @@ VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambie
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989043.jpg" />
 </div>
 
 
@@ -460,7 +431,7 @@ VA - World songs. Night in Paris (2005) [MP3|224 kbps]<Chanson>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988895.jpg" />
 </div>
 
 
@@ -489,7 +460,7 @@ VA - Роза Января (2020) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988868.jpg" />
 </div>
 
 
@@ -518,7 +489,7 @@ VA - DJ's Choice: Best Electronic Lounge (2015) [MP3|320 кб/с] <Club, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988657.jpg" />
 </div>
 
 
@@ -547,7 +518,7 @@ VA - Sounds & Cocktails (2015) [MP3|320 кб/с] <Electronic, Downtempo, Trip-ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988627.jpg" />
 </div>
 
 
@@ -576,7 +547,7 @@ VA - Kontor Top Of The Clubs 2016.01 (2015) [MP3|320 кб/с] <Bigroom, Nu Disco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988594.jpg" />
 </div>
 
 
@@ -605,7 +576,7 @@ VA - 100 Platinum Hits Dance & Masters Workout (2015) [MP3|320 кб/с] <Commerc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988496.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ VA - The Official UK Top 40 Singles Chart (27-01-2013) [MP3|320 кб/с]<Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988292.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ VA - Angel In My Soul (2020) [MP3|320 Kbps] <Country, Folk, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988010.jpg" />
 </div>
 
 
@@ -692,7 +663,7 @@ VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987660.jpg" />
 </div>
 
 
@@ -721,7 +692,7 @@ VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987658.jpg" />
 </div>
 
 
@@ -750,7 +721,7 @@ VA - Emotions: Extended Deep House Party (2020) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987631.jpg" />
 </div>
 
 
@@ -779,7 +750,7 @@ VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987623.jpg" />
 </div>
 
 
@@ -793,6 +764,35 @@ VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7568D61DC5B12766318958D4BABB1F58568572FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971101   (987538) от 02.01.2016
+
+VA - 2016 Alive Project (2016) [MP3|320 кб/с] <Disco, Vocal, Euro, Latin Music, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.A.R.5 & Mg King - Work It Out (Club Mix) 04:17
+02. Malena Gracia - Despertar (Club Mix) 05:13
+03. Dj Gio - You & Me (Extended) 05:22
+04. Beatghosts Feat. Yuli - Spell (Extended Version) 04:52(   Читать дальше...   )Жанр: Disco, Vocal, Euro, Latin Music, DanceПродолжительность: 03:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826539610D21EB1A2D3EA9087908A168F98555D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

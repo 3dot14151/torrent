@@ -1,29 +1,3 @@
-###  Публикация: 1357326   (974012) от 03.02.2020
-
-Outbreak (2017) [En] (1.18.0/dlc) License PLAZA [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Найди припасы и сразись с нежитью в Outbreak - олдовый survival-horror. Ограниченный инвентарь, орды нежити охотятся на тебя. Выбирай между приобретением дополнительного оружия, целительных предметов или необходимых инструментов для развития. У тебя только одна жизнь. Смирись с этим! Deluxe Edition включает в себя игру Outbreak и 8 наборов анимированных косметических (   Читать дальше...   )Тип издания: LicenseРазработчик: Dead Drop Studios LLCЖанр: Action, Shooter (Top-Down 2D), Adventure (Survival, Horror)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A0C3211E2DB3F693E779B7FB65C59DAA44F59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357344   (974008) от 03.02.2020
 
 60 Parsecs! (2018) [Ru/Multi] (1.2.1.151/dlc) License PLAZA
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974008.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) License PLAZA [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973999.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973885.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (L) 2009-2010
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973053.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Black Mirror Anthology / Антология. Чёрное зеркало [Ru/En]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973046.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ The Secret Order 8: Return to the Buried Kingdom / Тайный орден 8: В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972992.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Labyrinths of the World 3: Changing the Past (2016) [En] Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971933.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: За маской (2015) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971743.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Haunted Legends 6: The Dark Wishes / Ожившие легенды. Темные
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971688.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Goat Simulator (2014) [Ru/Multi] (1.4.52198/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971582.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) Repack R.G. Мех
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971564.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Flower (2019) [Ru/Multi] (1.45) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971524.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Slaughter 3: The Rebels (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971455.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430) Repack xatab [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971442.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Witches' Legacy 9: The City That Isn't There / Наследие ведьм 9: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970469.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Indivisible (2019) [Ru/Multi] (40093/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970450.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Kentucky Route Zero (2013) [Ru/Multi] (22.0) Repack Other s [PC Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970263.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Warlock. Master Of The Arcane [Ru/En/Multi6] (L/1.4.1.56/5 DLC) 2012 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970173.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Detectives United 3: Timeless Voyage (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969642.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Utawarerumono: Mask of Deception (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969399.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Utawarerumono: Mask of Truth (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969304.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ The Wild Age (2020) [Ru/Multi] (1.02.001) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969294.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Tharsis (2016) [En/Multi] (1.0) License HI2U
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969230.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Sol 0: Mars Colonization (2016) [En] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969163.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ FIFA 13 [Ru/En] (Repack/1.7) 2012 | a1chem1st
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969081.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ FIFA 13 воплощает драматизм и накал страстей н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:822F6AC115622ED7CAF3C10078AC70DBD54B7D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356330   (968339) от 08.02.2020
+
+AO Tennis 2 (2020) [Ru/En] (1.0.1422) Repack xatab
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968339.jpg" />
+</div>
+
+
+###  Подробнее
+
+AO Tennis 2 — уникальная игра, сделанная любителями тенниса для любителей тенниса. Создавайте собственных игроков, стадионы и проводите легендарные матчи. Участвуйте в соревнованиях и займите первую строчку мирового рейтинга в карьерном режиме.Тип издания: RepackРазработчик: Big Ant StudiosЖанр: Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB460ADDC6A9AAB41BF8188A6D60899E3BF3BCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

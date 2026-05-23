@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167489.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Allavsoft Video Downloader Converter 3.21.0.7286 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167488.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BELOFF [dp] 2020.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167483.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Opera 93.0.4585.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167476.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GeoGebra 6.0.749.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167469.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167465.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Windows 10 Manager 3.5.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167451.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PrivaZer 3.0.84 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167449.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ FanControl V140 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167448.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SQL Dynamite 2.5.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167446.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Trimble Tekla Structural Design Suite 2020 SP5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167439.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Notepad++ 8.1.9.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167434.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Spectrasonics Omnisphere Software 2.8.2c (x64) RePack by vkDanilov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167416.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HitPaw Video Converter 2.6.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167411.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ WinUtilities Professional 15.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167405.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167404.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AIMP 5.10 Build 2417 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167397.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ditto Clipboard Manager 3.24.220.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167395.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Opera GX 64.0.3417.150 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167372.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NirLauncher Package 1.23.68 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167356.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167346.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WhatsApp 2.2146.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167338.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ XnViewMP 1.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167333.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Care 365 Pro 6.4.1.618 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167324.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Internet Download Manager 6.40 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167320.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Adobe Animate 2021 21.0.1.37179 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167309.jpg" />
 </div>
 
 

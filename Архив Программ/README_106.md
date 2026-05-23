@@ -6,7 +6,7 @@ AutoRuns 13.100 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019583.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paint.NET 4.2.16 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019579.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Bat! Professional 9.3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019575.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PDF-XChange Editor Plus 9.0.354.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019553.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Acrobat Pro DC 2021.001.20150 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019540.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CameraBag Pro 2021.1.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019452.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Windows 10 Manager 3.4.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019451.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VueScan Pro 9.7.53 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019444.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SUMo Pro 5.12.11.488 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019439.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ KStars 3.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019431.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rufus 3.14 (Build 1781) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019422.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ uTorrent 3.5.5 Build 45988 Stable RePack by SanLex [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019396.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Acrobat Reader DC 2021.001.20150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019388.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Acrobat Pro DC 2021.001.20150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019378.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ArchiCAD 23 Build 6004 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019376.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ ArchiCAD 22 Build 7000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019372.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adguard 7.6.1 (7.6.3583.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019366.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ JetBrains PhpStorm 2021.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019360.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ StartIsBack++ 2.9.11 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019257.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Kaspersky Secure Connection 21.3.10.391 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019232.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ uTorrent 3.5.5 Build 45988 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019206.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Bandicam 5.1.0.1822 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019201.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5149.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019179.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Mirillis Action! 4.17.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019146.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Q-Dir 9.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019143.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Opera 75.0.3969.243 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019122.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Tenants (2021) [Ru/Multi] (1.2.9/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176229.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Base One (2021) [Ru/Multi] (1.4.0.8_e41965c41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175744.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174930.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174362.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173432.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.3.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173286.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172753.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ocean Pressure (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172726.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170782.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170623.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Urbek City Builder (2022) [Ru/Multi] (1.0.22.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168570.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AirportSim (2023) [Multi] (1.0.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163889.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162489.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Unpacking (2021) [Ru/Multi] (1.41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162244.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Little Big Workshop (2019) [Ru/Multi] (2.0.14042.1/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161863.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Teno
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160727.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Secret Government (2020) [Ru/Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156559.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154770.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.5.766.8713/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153711.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Autonauts (2019) [Ru/Multi] (140.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153673.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151887.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151113.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146547.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.47) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146339.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142953.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138133.jpg" />
 </div>
 
 

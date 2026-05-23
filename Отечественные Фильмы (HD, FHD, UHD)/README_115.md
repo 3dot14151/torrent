@@ -1,81 +1,3 @@
-###  Публикация: 1521074   (137868) от 31.12.2021
-
-Покупай (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Трогательная, одновременно смешная и грустная история любви и расставания, уместившаяся в один эфир программы «Магазин на диване». Что это – яркий срез современных тенденций или старая, как мир, история отношений мужчины и женщины? Он – недостаточно амбициозен, она – недостаточно романтична, и, конечно, между ними есть кто-то третий. История одной любви, проданная (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, мелодрамаРежиссер: Данила КозловскийАктеры: Данила Козловский, Паулина АндрееваСубтитры: ОтсутствуютПродолжительность: 00:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D15EB80E271621DCE85738186D3F5C35869928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854973   (137726) от 31.12.2014
-
-День дурака (2014) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ванька работает швейцаром в гостинице. Он ненавидит ее обеспеченных постояльцев, но при этом мечтает пожить их роскошной жизнью. А пока вынужден жить в машине, купленной в кредит, так как из съемной квартиры его выгнали за неуплату. В этой и без того непростой ситуации на голову парня сваливается коллектор Сергей Сергеевич, который твердо решил выбить из Ваньки долг. (   Читать дальше...   )Производство: Россия, Базелевс ПродакшнЖанр: Комедия, ПриключенияРежиссер: Александр БарановАктеры: Алексей Веселкин, Александр Лыков, Светлана Чуйкина, Сергей Беляев, Сергей Удовик, Александр Воробьев, Игорь Кистол, Дмитрий Белоцерковский, Антон Васильев, Антонина ДивинаПеревод: Не требуется (DVD R5)Субтитры: ОтсутствуютПродолжительность: 01:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0492816466AF4A04FA70D8EB0EEF5D541F9C1F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679440   (137518) от 25.11.2023
-
-Флэшка (2022) WEBRip [VP9/2160p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Трое бандитов приходят к парню, чтобы забрать у него украденную флешку с биткоинами.Производство: РоссияЖанр: Короткометражный, криминал, комедияРежиссер: Антон МищенкоАктеры: Евгений Бандурин, Роман Лиде, Олег Солодухин, Алексей БардашСубтитры: отсутствуютПродолжительность: 00:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286BB81E47FD58B92B165A654C123D2BC42264FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970713   (137463) от 31.12.2015
 
 SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/720p-LQ]
@@ -84,7 +6,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/720p
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137463.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137396.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/1080
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137379.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137293.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137229.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137176.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137087.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137078.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137037.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136997.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136995.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136810.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136572.jpg" />
 </div>
 
 
@@ -423,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136062.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134726.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134711.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134703.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134656.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134026.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133749.jpg" />
 </div>
 
 
@@ -611,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133652.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133611.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132985.jpg" />
 </div>
 
 
@@ -674,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5422554EC141765BF32CCA89D426B91559F6062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681581   (132622) от 03.12.2023
+
+Чай сам себя не выпьет (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей уже добился признания как художник, поэт, фотограф. Сняв свой первый полнометражный фильм в качестве режиссера, он готовится к новой волне успеха, но что-то идет не так.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Сергей СуховейАктеры: Анатолий Григорьев, Егор Овечкин, Лариса Решетько, Алина Новикова, Алексей КрыжановскийСубтитры: русскиеПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CBFCAF2EB39498A96CBB8F201A151AC70537FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680257   (132501) от 03.12.2023
+
+Лёгкое знакомство (2023) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина и женщина знакомятся в курортном городе. Он — профессиональный психолог. Она — странная незнакомка, подошедшая к нему в ресторане.
+Кто она? Представительница древнейшей профессии или утонченная искательница приключений, действительно ли он ей понравился, или обаятельная красотка просто хочет заработать? Напоминающие психологический поединок отношения этих (   Читать дальше...   )Производство: Россия, Отдых МедиаЖанр: мелодрамаРежиссер: Александр КрестниковАктеры: Дмитрий Орлов, Лиза Климова, Дмитрий Колчин, Михаил Шамков, Ксения Чигина, Елизавета Летюк, Александр Токаревский, Анна Хвостова, Лев Комаров, Роман ПроскуряковСубтитры: отсутствуютПродолжительность: 01:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B208457FEF1C95471C16588CFC470ADD9105365D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681896   (132183) от 04.12.2023
+
+Конь в пальто! Или недалекие родственники... (2023) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канун Нового года подготовка к юбилею местного депутата. Через несколько дней, в самый разгар празднования к юбиляру заявляется представитель прокуратуры и вручает ему повестку. Вместе с соседями и родственниками, почувствовавшими что дела у местного короля теперь плохи, нечистый на руку региональный чиновник попадает в стремительный водоворот событий, а его красавица (   Читать дальше...   )Производство: Россия, Инвест-МедиаЖанр: комедияРежиссер: Дмитрий МакаровАктеры: Александр Песков, Николай Валуев, Юлия Юрченко, Сергей Бадюк, Марина Барсукова, Антон Батырев, Наталья Батова, Владимир Фигуровский, Виталий Хаев, Ольга Хохлова, Петр Королев, Евгений КосыревСубтитры: отсутствуютПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A17353E8A789BAE53D60B19962DDB6B7795D5B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

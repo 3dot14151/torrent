@@ -1,82 +1,3 @@
-###  Публикация: 1081081   (280433) от 11.12.2016
-
-Марина Дяченко, Сергей Дяченко | Горелая Башня (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обычный парень Гай случайно встречает странного, пугающего человека, Крысолова. Все бы ничего, если бы не договор, на первый взгляд, совершенно простой и незамысловатый. Но отчего тогда говорят, что заключать сделку с Крысоловом может только безумец? А договор нужно выполнять - и Гаю придется делать самый главный выбор в жизни...Жанр: ФэнтезиПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0653E9019E1D55021E64FD66E5406820203C1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081352   (280421) от 11.12.2016
-
-Андрей Максимов | Как не стать врагом своему ребёнку (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую вы сейчас держите в руках, без сомнения - уникальна.
-Ее автор - не профессиональный педагог. Это известный писатель и телеведущий, автор нескольких книг по психологии общения Андрей Максимов. По его собственному признанию, он работает в жанре "высказывания". "Высказывания" Максимова о наших взаимоотношениях с детьми многим могут (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8603CC8A487953DFDA43D30E543283516D9504F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336270   (280338) от 06.11.2019
-
-Иван Тургенев и др. | Классика русского рассказа. Сборник [5 выпусков из 5] (2005-2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Антология русского классического рассказа , выпущенная издательством Союз в серии "Литературный аудиоальманах". От издателя: "Русская классическая литература - это литература, исследующая личность, сознающая ценность любой индивидуальности, но одновременно убежденная в существовании вечных ценностей. Это литература, устремленная к вечной гармонии в (   Читать дальше...   )Жанр: КлассикаПродолжительность: 33:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FDEA80E6D79E79FA22A921D3A8741B203D6CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336255   (280334) от 06.11.2019
 
 Андрей Белянин | Пуля для императора (2019) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280334.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280272.jpg" />
 </div>
 
 
@@ -142,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280259.jpg" />
 </div>
 
 
@@ -170,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280186.jpg" />
 </div>
 
 
@@ -196,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280183.jpg" />
 </div>
 
 
@@ -222,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280172.jpg" />
 </div>
 
 
@@ -249,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280169.jpg" />
 </div>
 
 
@@ -275,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280029.jpg" />
 </div>
 
 
@@ -301,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280019.jpg" />
 </div>
 
 
@@ -329,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280015.jpg" />
 </div>
 
 
@@ -355,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279960.jpg" />
 </div>
 
 
@@ -382,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279901.jpg" />
 </div>
 
 
@@ -409,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279464.jpg" />
 </div>
 
 
@@ -436,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279456.jpg" />
 </div>
 
 
@@ -462,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279442.jpg" />
 </div>
 
 
@@ -488,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279400.jpg" />
 </div>
 
 
@@ -514,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279346.jpg" />
 </div>
 
 
@@ -541,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279250.jpg" />
 </div>
 
 
@@ -568,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279197.jpg" />
 </div>
 
 
@@ -594,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279183.jpg" />
 </div>
 
 
@@ -620,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279156.jpg" />
 </div>
 
 
@@ -648,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279104.jpg" />
 </div>
 
 
@@ -675,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279070.jpg" />
 </div>
 
 
@@ -686,6 +607,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A22572400FF1307059807A2F011EC873C6CB030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336634   (279064) от 07.11.2019
+
+Павел Астахов | Инвестор (2019) [MP3, Александр Слуцкий]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279064.jpg" />
+</div>
+
+
+###  Подробнее
+
+История на первый взгляд банальна. Молодая женщина Дарья Шахова попала в беду, и ей срочно понадобились деньги. Она повелась на супервыгодное предложение «Прайм-банка» и отнесла туда все свои сбережения. Несколько милейших людей поступили точно так же. Вскоре деньги всех вкладчиков бесследно исчезли. Как, собственно, и сам банкир. Дарья попросила у адвоката Павлова (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F27312BBAD29E487E39A4B13839F7EE5C49407C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264534   (279031) от 24.11.2018
+
+Олег Дивов | Чужая Земля (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279031.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Земля-Два» – одно из главных открытий человечества. Она может стать для нас новым домом или же местом погибели. Она способна дать необходимые для жизни ресурсы или забрать все до последнего… Когда земляне впервые ступили на новую планету, встреча с туземцами стала для них неожиданностью. Теперь нужно либо найти с ними общий язык и сосуществовать в мире, либо же (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 08:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C5547AE4902D9A9AC7AFD233ACE458A7A1A033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081773   (279005) от 12.12.2016
+
+Джон Мильтон | Потерянный рай (2006) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига по эпопее видного английского поэта, публициста и политического деятеля XVII века Джона Мильтона «Потерянный рай» (англ. «Paradise Lost», впервые издана в 1667 в десяти книгах). В основу этой христианской эпопеи положен библейский сюжет о восстании ангелов и падении человека. Психологическая картина борьбы неба и ада перекликаются с бурными политическими (   Читать дальше...   )Жанр: Поэзия, философияИздательство: Студия "Преображение"Продолжительность: 19:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C718711AC2DFB4E469893551DEBFB053F06EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

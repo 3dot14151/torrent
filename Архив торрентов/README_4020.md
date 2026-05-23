@@ -6,7 +6,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.24 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189271.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Driver Booster Pro 10.0.0.65 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189270.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BELOFF [dp] 2022.11.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189267.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ OneCommander Pro 3.52.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189257.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FileMenu Tools 8.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189238.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft .NET 7.0.11 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189228.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ SplitCam 10.7.18 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189225.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Microsoft .NET 6.0.22 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189224.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Microsoft .NET 8.0.0 RC1 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189214.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Duolingo: изучай языки 5.119.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189211.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189202.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Melon VPN - Secure Proxy VPN 7.9.273 Mod By ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189196.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Uninstall Tool 3.7.3 Build 5718 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189186.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Topaz Video AI 3.4.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189184.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Capture One 23 Pro 16.2.4.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189183.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ NVIDIA GeForce Desktop Game Ready 537.34 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189181.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189177.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ MEmu 9.0.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189171.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ GPU-Z 2.55.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189160.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Honeyview 5.51 Build 6240 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189149.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ CCleaner 6.16.10662 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189132.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ PrivaZer 4.0.58 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189130.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ CCleaner 6.16.10662 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189104.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Brave Browser 1.45.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189096.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Windows 11 (9in1) by Updated Edition (12.09.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189080.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189077.jpg" />
 </div>
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 1642439   (196442) от 27.06.2023
-
-Железный человек 2 / Iron Man 2 (2010) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit, Hybrid]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Прошло полгода с тех пор, как мир узнал, что миллиардер-изобретатель Тони Старк является обладателем уникальной кибер-брони Железного человека. Общественность требует, чтобы Старк передал технологию брони правительству США, но Тони не хочет разглашать её секреты, потому что боится, что она попадёт не в те руки.
-
-Между тем Иван Ванко — сын русского учёного, когда-то (   Читать дальше...   )Производство: США / Paramount Pictures, Marvel Entertainment, Marvel StudiosЖанр: фантастика, боевик, приключенияРежиссер: Джон ФавроАктеры: Роберт Дауни мл., Микки Рурк, Гвинет Пэлтроу, Дон Чидл, Сэм Рокуэлл, Скарлетт Йоханссон, Кларк Грегг, Сэмюэл Л. Джексон, Джон Слэттери, Гарри ШендлингПеревод: Дублированный (Лицензия, Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full)Продолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B323D617A9147306698270673034F422E1F401BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642895   (196439) от 29.06.2023
-
-Ради Лесли / To Leslie (2022) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет назад мать-одиночка Лесли выиграла в лотерею и с тех пор спускала все деньги на алкоголь и наркотики... Потратив последний цент, она возвращается домой в Западный Техас... Семья не особо рада её появлению, немногочисленные друзья отворачиваются. Лесли понимает, что может остаться на улице, и находит 20-летнего сына Джеймса... Чтобы заслужить второй шанс, (   Читать дальше...   )Производство: США, BCDF Pictures, Baral Waley Productions, Shaken Not StirredЖанр: драмаРежиссер: Майкл Моррис (I)Актеры: Андреа Райзборо, Эллисон Джэнни, Оуэн Тиг, Стивен Рут, Марк Мэрон, Мэтт Лауриа, Джеймс Хеберт, Андре Ройо, Мэгги Карни, Мак БрандтПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (Jaskier, с ненормативной лексикой), английскиеПродолжительность: 01:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF85B2B7E7564488A5E57919B962E6B8778D9F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642366   (196428) от 27.06.2023
 
 Лесной разбойник / Der Rauber Hotzenplotz / The Robber Hotzenplotz (2022) BDRemux [H.264/1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196428.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196425.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196423.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196422.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196420.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196418.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196409.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196399.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196394.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196390.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196379.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196377.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196376.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196369.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196364.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196360.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196359.jpg" />
 </div>
 
 
@@ -504,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196356.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196354.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196352.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196351.jpg" />
 </div>
 
 
@@ -608,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196347.jpg" />
 </div>
 
 
@@ -634,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196346.jpg" />
 </div>
 
 
@@ -660,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196345.jpg" />
 </div>
 
 
@@ -671,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AC78DF247648DA76CB91EA07E5D69AA169C7911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643406   (196343) от 01.07.2023
+
+Ёлка-убийца / The Killing Tree (2022) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196343.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества вдова произносит древнее магическое заклинание, чтобы оживить казнённого мужа, обвинённого в серии убийств. И маньяк действительно возвращается к жизни. Вот только покойный супруг воскресает в облике огромной и очень злобной ели. И поскольку ёлка одержима жаждой мести, она жестоко покарает своих обидчиков, забывших об истинном значении светлого (   Читать дальше...   )Производство: Великобритания, Dark Abyss ProductionsЖанр: ужасы, комедияРежиссер: Рис Фрейк-УотерфилдАктеры: Сара Т. Коэн, Сара Александра Маркс, Лорен Стерк, Элла Старбак, Джиллиан Бродерик, Маркус Мэсси, Джуди Черняк, Келли Райан Сэнсон, Мэй Келли, Николай ЛеонПеревод: любительский двухголосыйЯзык озвучки: русский, английскийСубтитры: русские (Княжна), английскиеПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D514E65DB677EE3A2A0C1F7B00AE3838107C9C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642460   (196340) от 29.06.2023
+
+Торнадо / Суперсмерч / Supercell (2023) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям всегда хотел пойти по стопам своего отца, легендарного охотника за торнадо Билла Броуди, погибшего во время сильнейшего урагана. Он находит старые дневники отца и сбегает из дома, чтобы начать исследовать торнадо. Наследие его отца теперь превратилось в туристический бизнес, которым управляет жадный и безрассудный бизнесмен Зейн Роджерс. Теперь он использует (   Читать дальше...   )Производство: США / Bay Point Media, Buffalo 8 Productions, Short Porch PicturesЖанр: боевик, драма, приключенияРежиссер: Херберт Джеймс УинтерстернАктеры: Дэниэл Димер, Алек Болдуин, Скит Ульрих, Энн Хеч, Джордан Кристин Симон, Анжул Нигам, Майкл Клингер, Ричард Ганн, Джейн Линд, Джек АйманПеревод: Дублированный (Позитив)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C092FA9137CD3B68387D0D3B299287916B8571E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

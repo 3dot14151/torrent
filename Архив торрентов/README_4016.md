@@ -6,7 +6,7 @@ Omni Recover 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189798.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Downie 4 v.4.6.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189785.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MusicBrainz Picard 2.9.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189777.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ GeoGebra 6.0.801.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189775.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mozilla Thunderbird 115.2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189770.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Vivaldi 6.2.3105.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189769.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Q-Dir 11.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189761.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Chromium 116.0.5845.180 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189759.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Fix My iPhone 2.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189750.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MyFitnessPal: Счетчик калорий 23.17.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189748.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ZEDGE 8.16.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189747.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ WPS Office + PDF 18.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189745.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ doPDF 11.9.423 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189741.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ K-Lite Codec Pack Update 17.2.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189740.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Softany WinCHM Pro 5.496 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189726.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Aiseesoft Video Converter Ultimate 10.5.50 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189723.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Sumatra PDF 3.5.15488 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189721.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Joplin 2.12.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189720.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ RadioMaximus 2.30.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189717.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ App Builder 2023.52 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189715.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Topaz Video AI 3.4.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189714.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ForkLift 4 v.4.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189711.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Ungoogled Chromium 116.0.5845.180-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189709.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AIMP 5.10 Build 2412 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189708.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ OCCT 11.0.16 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189706.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Infuse PRO 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189697.jpg" />
 </div>
 
 

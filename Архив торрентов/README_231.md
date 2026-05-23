@@ -6,7 +6,7 @@ Vivaldi 4.1.2369.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003611.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RogueKiller Anti-Malware 15.0.9 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003604.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MovieSherlock 6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003603.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cisdem DVDBurner 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003602.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wretch 32 - Upon Reflection (2019) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003600.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Serif Affinity Publisher 1.10.0.1127 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003597.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ CrystalDiskInfo 8.12.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003591.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Blender 2.93.2 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003584.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ PotPlayer 210729 (1.7.21526) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003583.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ PC Cleaner Pro 8.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003581.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Serif Affinity Photo 1.10.0.1127 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003580.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ AirRadar 5 v5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003576.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ WebVideoHunter Pro 6.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003575.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ TurboCollage 7 v7.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003574.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Bolt Gun & Uboa - Uboa & Bolt Gun (2019) [FLAC|Lossless|Web-DL|tracks] <Noise, I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003568.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Skepta - Ignorance Is Bliss (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Grime
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003566.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003562.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003559.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ AOMEI Partition Assistant Technician Edition 9.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003552.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ TrustViewer 2.7.2.4085 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003551.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ PotPlayer 210729 (1.7.21526) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003549.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ MacPilot 11 v11.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003537.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Fox - Juice Flow (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Reggae, Dancehal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003536.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ iDatabase 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003534.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Video Editor MovieMator Pro 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003532.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ PhoneRescue for Android 3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003528.jpg" />
 </div>
 
 

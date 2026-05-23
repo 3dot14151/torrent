@@ -6,7 +6,7 @@ HiBit Uninstaller 3.1.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030742.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Swinsian 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030730.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Sensei 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030729.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Cleaner for Xcode 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030728.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Disk PLUS 1.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030727.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ON1 HDR 2021.1 v15.1.0.10101 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030726.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Picture Colorizer Pro 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030723.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Opera 74.0.3911.144 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030722.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CSV Converter Pro 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030720.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ ON1 Resize 2021.1 v15.1.0.10100 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030719.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Opera 74.0.3911.144 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030716.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ON1 Effects 2021.1 v15.1.0.10100 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030715.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Opera GX 73.0.3856.400 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030714.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Capture One 21 Pro Beta 2 v14.1.0.196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030713.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ TG Pro (Temperature Gauge Pro) 2.55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030704.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ON1 Portrait AI 2021 2021.1 v15.1.0.10100 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030703.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Artweaver Plus 7.0.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030689.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MediBang Paint Pro 26.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030688.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Microsoft Edge 88.0.705.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030686.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Telegram Desktop 2.5.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030685.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Magic Uneraser Home  / Office / Commercial Edition 5.7 RePack (& Portable) by Tr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030682.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ save2pc Ultimate 5.6.3.1615 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030676.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ DP Animation Maker 3.4.35 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030667.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Psiphon 3 build 162 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030666.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Windows 10 Manager 3.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030661.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Bootstrap Studio 5.5.2 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030659.jpg" />
 </div>
 
 

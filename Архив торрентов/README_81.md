@@ -6,7 +6,7 @@ Adobe InCopy 2021 v16.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033784.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ON1 Resize 2021 v15.1.0.10035 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033783.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Aesop Rock - Spirit World Field Guide (2020) [FLAC|Lossless|tracks + .cue] <Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033782.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ras Kass - I'm Not Clearing Shxt (2020) Limited Edition [FLAC|Lossless|tracks + 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033781.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Affinity Designer 1.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033777.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Affinity Photo 1.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033771.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Sketch 70.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033767.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ AnyTrans for iOS 8.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033764.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ The 5th Galaxy Orchestra - Disko Exotika (2012) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033757.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Firefox Browser ESR 78.7.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033755.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Chromium 88.0.4324.146 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033752.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Ed Lynam - Second Wave Sessions 001-005 (2020-2021) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033750.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ FireAlpaca 2.4.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033749.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ ON1 Portrait AI 2021 v15.1.0.10035 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033745.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ WhatsApp 2.2102.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033744.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Opera GX 73.0.3856.389 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033741.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Adobe XD v36.2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033739.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Comedy Баттл (05.02.2021) DVB [H.264] (сезон 11, выпуск 3)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033738.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Google Chrome 88.0.4324.150 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033733.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Microsoft Edge 88.0.705.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033732.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Comodo Dragon 87.0.4280.141 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033730.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Firefox Browser 85.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033727.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ WhatsApp 2.2102.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033722.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Google Chrome 88.0.4324.150 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033712.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ NoMachine 7.1.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033707.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Geekbench 5.3.2 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033699.jpg" />
 </div>
 
 

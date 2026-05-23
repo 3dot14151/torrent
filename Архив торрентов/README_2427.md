@@ -6,7 +6,7 @@ ReGen - Password Generator 2015 2.3.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510936.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Amazing Carousel Enterprise Commercial 4.1 RePack (& Portable) by TryRooM [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510908.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TapinRadio Pro 2.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510904.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ uMark 6.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510902.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510885.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PDF-XChange Viewer Pro 2.5.314.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510867.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510866.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Eric Burdon - 'Til Your River Runs Dry (2013) [FLAC 2.0 24/96|tracks (WEB-DL)] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510864.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Drake - If You're Reading This It's Too Late (2015) [FLAC|tracks + .cue] <Hip Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510861.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SoftPerfect Network Scanner 6.0.7 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510859.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ RarmaRadio Pro 2.72.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510845.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Machete 5.0 Build 44 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510832.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ AdwCleaner 5.004 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510783.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PhotoMill X (aka Reformator) 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510778.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ PDF-XChange Viewer Pro 2.5.314.0 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510776.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Bandicam 2.3.1.840 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510770.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ PowerISO 6.3 RePack by cuta (26.08.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510769.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ O&O DiskRecovery 14.1 Build 137 Tech Edition RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510758.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510737.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Ultra Adware Killer 4.0.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510724.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Wise Game Booster 1.32.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510718.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Aiseesoft FoneLab for Android 1.1.6 Portable by Joo Seng [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510716.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Infinite Flight Simulator v15.08.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510711.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MCS Drivers Disk 19.6.28.1485 (12.07.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510704.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510700.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ LibreOffice 5.0.1 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510655.jpg" />
 </div>
 
 

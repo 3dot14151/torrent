@@ -1,55 +1,3 @@
-###  Публикация: 1344567   (169311) от 11.12.2019
-
-Великий уравнитель / The Equalizer (2014) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бывший агент ЦРУ, пожилой афроамериканец Роберт Маккол, решил начать жизнь заново, оставить непростое прошлое и смотреть в будущее, как и обещал покойной жене. Он уже нашёл обычную работу продавца в магазине. Однажды Маккол вступается за юную проститутку Тери, с которой болтал в местной закусочной и которая находится под контролем русской мафии.Производство: США /  Columbia Pictures, LStar Capital, Village Roadshow PicturesЖанр: боевик, триллер, криминалРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Мартон Чокаш, Хлоя Грейс Морец, Дэвид Харбор, Хейли Беннетт, Билл Пуллман, Мелисса Лео, Дэвид Мюнье, Джонни Скуртис, Алекс ВидовПеревод: Дублированный (Лицензия), авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (форсированные, полные), английские (полные, SDH)Продолжительность: 02:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549DC805C09D811E6D2ED663BD91BC88F0623AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344535   (169301) от 11.12.2019
-
-Подсобка дьявола / The Shed (2019) WEB-DL [H.264/1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Стэн рано лишился родителей и теперь живёт с грубым дедом, который только и делает, что пьёт и кричит на внука. В школе парню вместе с другом Доммером постоянно приходится отбиваться хулиганов, так что жизнь ребят нельзя назвать увлекательной. Однажды Стэн в собственном сарае для инструментов обнаруживает злобное существо — плотоядное порождение ночи — и с этого (   Читать дальше...   )Производство: США / A Bigger Boat, Sideshow PictureЖанр: ужасы, драмаРежиссер: Фрэнк СабателлаАктеры: Джей Джей Уоррен, Коуди Костро, София Хаппонен, Фрэнк Уэйли, Тимоти Боттомс, Шиван Фэллон, Крис Петровски, Франциско Бургос, Ули Шлезингер, Му-Шака БенсонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6586103D8A62F2453F2A15E16EB5052FC5A17C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344608   (169272) от 11.12.2019
 
 К звёздам / Ad Astra (2019) BDRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169272.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169266.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169249.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169245.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169221.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169206.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169178.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169176.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169165.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169157.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169149.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169141.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169132.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169118.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169107.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169038.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169032.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169007.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169003.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168960.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168952.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168938.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168905.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168901.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEB09CE7AAF889EDA251794D4B4D7F0D201DE79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672355   (168847) от 28.10.2023
+
+Папа из спецназа / Пенсионный план / The Retirement Plan (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спасаясь от разъяренного криминального босса Эшли со своей маленькой дочерью Сарой вынуждена обратиться к единственному человеку, способному ей помочь — Мэтту, ее отцу, которого она не видела уже очень давно. Мэтт кажется обычным пожилым пляжным бездельником, но та эффективность, с которой он раз за разом легко избавляется от вооруженных до зубов преследователей, (   Читать дальше...   )Производство: Канада / Darius Films Inc.,Productivity MediaЖанр: боевик, триллер, комедия, криминалРежиссер: Тим БраунАктеры: Николас Кейдж, Эшли Грин, Талия Кэмпбелл, Рон Перлман, Джеки Эрл Хейли, Эрни Хадсон, Грейс Байерс, Линн Уитфилд, Джоэль Мур, Джордан Джонсон-ХиндсПеревод: Дублированный (Lucky Production)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BCC80E16B92C16A20F3AC9D6C22B19711F9AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596661   (168824) от 11.12.2022
+
+Библиотекарь 3. Проклятие Иудовой чаши / The Librarian: The Curse of the Judas Chalice (2008) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть захватывающих приключений Флина Карсена, в которой ему вновь предстоит спасти мир, но уже от угрожающего всеобщему спокойствию воскрешения Графа Дракулы. Находясь в отпуске, Флин знакомится с умопомрачительной красоткой Симоной, которая узнаёт в нем Библиотекаря и обращается к нему за помощью. Вместе они пытаются опередить русского злодея в поисках Чаши (   Читать дальше...   )Производство: США, Electric EntertainmentЖанр: фэнтези, драма, мелодрама, комедия, приключения, боевик, триллерРежиссер: Джонатан ФрейксАктеры: Ноа Уайли, Брюс Дэвисон, Стана Катик, Боб Ньюхарт, Джейн Кертин, Дикран Тулейн, Джейсон Дуглас, Элизабет Бурвант, Джо Кнезевич, Дэвид Борн...Перевод: профессиональный многоголосый (Союз видео)Субтитры: русские, английскиеПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3740C645B480EE41A57CB295AB0385F69B8EB489
 ```
 
 https://mybot314.ru/tekegram_catalog/

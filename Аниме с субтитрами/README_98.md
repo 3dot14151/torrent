@@ -6,7 +6,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204584.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Renai Flops / Love Flops / Любовные неудачи [2022, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204564.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Peter Grill and the Philosopher's T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204493.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убойный а
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204351.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mahou Tsukai Sally | Sally the Witch | Ведьма Салли [ТВ-1] [1966, T
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204349.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kidou Senshi Gundam: Suisei no Majo | Мобильный доспех Ганда
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204302.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203940.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203877.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203870.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203866.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203865.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203859.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Maetel Legend / Легенда Мэйтел [2000, OVA, 2 из 2] DVDrip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203576.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203554.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Seiken Densetsu: Legend of Mana - The Teardrop Crystal | Легенда свят
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202530.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202097.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201826.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201825.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201719.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mairimashita! Iruma-kun (2022) | Добро пожаловать в ад, Иру
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201696.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Fumetsu no Anata e Season 2 | To Your Eternity Season 2 | Для тебя, Бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201342.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Toutotsu ni Egypt Shin 2 | Oh, Suddenly Egyptian God 2 | Ух ты, египет
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201232.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Idolish Seven: Third Beat! | Idolish 7: Third Beat! | Семёрка идоло�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200934.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Revenger | Мститель [2023, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200874.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Koori Zokusei Danshi to Cool na Douryou Joshi | Ледяной парень и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200872.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Tensei shitara Slime Datta Ken Movie: Guren no Kizuna-hen | That Time I Got Rein
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200871.jpg" />
 </div>
 
 

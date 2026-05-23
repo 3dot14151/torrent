@@ -1,38 +1,3 @@
-###  Публикация: 185777   (884850) от 23.03.2010
-
-VA - Русский Рок На Все Времена (2010) [MP3|128-256 kbps]<Русский Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Ддт - Дождь
-002. Б. Гребенщиков - Никита Рязанский
-003. Чайф - Не Спеши
-004. Аквариум - Скорбец (Radio Edit)
-005. Ундервуд - Парабеллум
-006. Тараканы! - Кто-То Из Нас Двоих
-007. Смысловые Галлюцинации - Вечно Молодой
-008. Ария - Воля И Разум 2005 (+бутусов, Кинчев, Самойловы И Шевчук)
-009. Танцы Минус - Город
-010. Мумий Тролль - Это По Любви(   Читать дальше...   )Жанр: Русский РокПродолжительность: 11:05:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640515   (884842) от 08.04.2013
 
 VA - Electro Life 24 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Electro Progressive>
@@ -41,7 +6,7 @@ VA - Electro Life 24 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Electro Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_884842.jpg" />
 </div>
 
 
@@ -69,7 +34,7 @@ VA - Soulful Nights-The Dance Music Playlist (2016) [MP3|320 кб/с] <Nu Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884796.jpg" />
 </div>
 
 
@@ -98,7 +63,7 @@ VA - Chill House Diamonds Vol.2 (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884752.jpg" />
 </div>
 
 
@@ -127,7 +92,7 @@ VA - Coming Personal Holiday - Promotion (2016) [MP3|203-320 кб/с] <UK Garage
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884717.jpg" />
 </div>
 
 
@@ -156,7 +121,7 @@ VA - Vocal Tech House: Party March (2016) [MP3|320 кб/с] <Vocal, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884710.jpg" />
 </div>
 
 
@@ -185,7 +150,7 @@ VA - Hits 2016 See You Uptown (2016) [MP3|212-320 кб/с] <Club, Funky, Nu Disc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884706.jpg" />
 </div>
 
 
@@ -214,7 +179,7 @@ VA - Relaxez-vous (2016) [MP3|320 кб/с] <Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884700.jpg" />
 </div>
 
 
@@ -243,7 +208,7 @@ VA - Блатная жизнь с радио Шансон (2016) [MP3|256-320 к
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884623.jpg" />
 </div>
 
 
@@ -272,7 +237,7 @@ VA - Jazz Juice: Vocal Compilation (2016) [MP3|320 кб/с] <Jazz, Modern jazz, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884492.jpg" />
 </div>
 
 
@@ -301,7 +266,7 @@ VA - Guitar Collection 3 (2016) [MP3|320 кб/с] <Instrumental, Blues-Rock, Aco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884219.jpg" />
 </div>
 
 
@@ -330,7 +295,7 @@ VA - Powerful 100 Hits Delight (2016) [MP3|256-320 кб/с] <Indie Dance, Club, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883809.jpg" />
 </div>
 
 
@@ -359,7 +324,7 @@ VA - Absolute Dance Spring (2016) [MP3|320 кб/с] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883807.jpg" />
 </div>
 
 
@@ -388,7 +353,7 @@ VA - Вспоминая СССР. По-новому о главном [6CD] от
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883805.jpg" />
 </div>
 
 
@@ -417,7 +382,7 @@ VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883647.jpg" />
 </div>
 
 
@@ -446,7 +411,7 @@ VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883642.jpg" />
 </div>
 
 
@@ -475,7 +440,7 @@ VA - Музыкальное потрясение зимы от Русского 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883640.jpg" />
 </div>
 
 
@@ -504,7 +469,7 @@ VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883639.jpg" />
 </div>
 
 
@@ -533,7 +498,7 @@ VA - Музыкальное зимнее настроение. Русский с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883638.jpg" />
 </div>
 
 
@@ -562,7 +527,7 @@ VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883631.jpg" />
 </div>
 
 
@@ -591,7 +556,7 @@ VA - Зимние лучшие блатные песни. Выпуск 7 (2017) 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883550.jpg" />
 </div>
 
 
@@ -620,7 +585,7 @@ VA - Золотые песни 90-х (2009) [MP3|256 кб/c]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883540.jpg" />
 </div>
 
 
@@ -646,7 +611,7 @@ VA - Хиты в тачку. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883517.jpg" />
 </div>
 
 
@@ -675,7 +640,7 @@ VA - Двигай Попой 17 (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883505.jpg" />
 </div>
 
 
@@ -704,7 +669,7 @@ VA - Лучшие блатные хиты года от радио Шансон 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883504.jpg" />
 </div>
 
 
@@ -733,7 +698,7 @@ VA - Big Workout Hits 2017  [MP3|320 Kbps] <Dance, Club, Electro, Funky>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883457.jpg" />
 </div>
 
 
@@ -747,6 +712,35 @@ VA - Big Workout Hits 2017  [MP3|320 Kbps] <Dance, Club, Electro, Funky>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2A1FB7C7101517494C800DFC8FF8FA67C2C544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103825   (883455) от 13.02.2017
+
+VA - Музыкальные Новинки Интернета. Зимний Выпуск 50х50 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883455.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alvaro Soler - Animal (Radio Edit) 3:34
+002. Ansel Elgort - Thief 3:41
+003. Armin Van Buuren & Garibay feat. Olaf Blackwood - I Need You (Filatov & Karas Remix) 3:08
+004. Dave Ramone feat. Minelli - Love On Repeat (Filatov & Karas Radio Edit) 2:59(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71ADD80A040E048CFC3226ACDA4D7B14F6646EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

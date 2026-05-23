@@ -1,83 +1,3 @@
-###  Публикация: 1597823   (165218) от 16.12.2022
-
-Джон МакКрэй | Червь (Книга 10). Паразит (2022) [MP3, Adrenalin28]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 03:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6089A229C564563C35397F285B8DC9D14722FCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516648   (165213) от 12.12.2021
-
-Александр Шувалов | Агент ГРУ (Книга 5). Чистодел (2017) [MP3, Максим Доронин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Агенту ГРУ Зотову по прозвищу Чистодел поручено найти электронный носитель, на котором злоумышленники, совершившие финансовую аферу государственного масштаба, хранят ценную информацию. Дело усложняется тем, что в число мошенников входят министр и вице-премьер, а у них, как известно, возможности практически безграничны. Выполняя задание, Зотов буквально балансирует (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 08:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A60FE9AA189137750860824AFCB17513A5AD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516789   (165194) от 12.12.2021
-
-Джефф Нун | Вирт (Книга 01). Вирт (2021) [MP3, Сергей Оробчук]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Вирт» - фантастический роман британского писателя Джеффа Нуна, получивший в 1994 году премию Артура Кларка.
-Роман рассказывает историю Скриббла и его команды «Тайные Райдеры».
-Действие романа происходит в альтернативной версии Манчестера, где общество сформировано «виртом» - общей альтернативной реальностью, доступ в которую можно получить, употребив галлюциногенный (   Читать дальше...   )Жанр: КиберпанкПродолжительность: 08:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169E15ACD9C8FEE55BA3FF243BFE31D707FB0AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516644   (165191) от 12.12.2021
 
 Александр Шувалов | Агент ГРУ (Книга 4). Некто по имени Никто (2017) [MP3, Максим Доронин]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165191.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165172.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165153.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165151.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165137.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165135.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165134.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165126.jpg" />
 </div>
 
 
@@ -294,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165086.jpg" />
 </div>
 
 
@@ -320,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165084.jpg" />
 </div>
 
 
@@ -347,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165074.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165049.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165043.jpg" />
 </div>
 
 
@@ -427,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165034.jpg" />
 </div>
 
 
@@ -453,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165014.jpg" />
 </div>
 
 
@@ -479,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164990.jpg" />
 </div>
 
 
@@ -505,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164983.jpg" />
 </div>
 
 
@@ -532,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164982.jpg" />
 </div>
 
 
@@ -558,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164951.jpg" />
 </div>
 
 
@@ -584,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164940.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164931.jpg" />
 </div>
 
 
@@ -638,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164929.jpg" />
 </div>
 
 
@@ -664,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164927.jpg" />
 </div>
 
 
@@ -675,6 +595,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CCACD33E3DEED34DEAE5CE77C9068EF7571E4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432164   (164918) от 16.12.2020
+
+Алексей Мухин | Механоид (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир изменился. Мы не заметили, как это произошло, но вдруг оглянувшись, стало понятно – сейчас уже все по-другому. Мы действительно вошли в эпоху умных машин и автоматизированного труда. Игры стали с полным погружением в выдуманный мир. Мы сами тоже изменились, стали больше полагаться на умных помощников и меньше пользоваться своей головой. Решил поиграть? Новая (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 15:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA093A46BBB0E63158007E0A208A7E3E8F07E428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345936   (164915) от 17.12.2019
+
+Михаил Елизаров | Земля (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Земля» рассказывает о Кроте, «русском Танатосе», а другими словами – мастере похоронного дела. Его зовут Кротышев Владимир Сергеевич, и с самого раннего детства в его жизни присутствует смерть. Ее символы постоянно преследуют Крота, а когда он начинает заниматься похоронным делом, то сам становится олицетворением смерти.
+История балансирует между серьезным (   Читать дальше...   )Жанр: Философская проза, мистикаПродолжительность: 12:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C5E729487E4F3E3D132861288E512FAF4508F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421659   (164898) от 01.11.2023
+
+Оноре де Бальзак | Шагреневая кожа (2006) [MP3, Валерий Захарьев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Зарубежная проза.
+В историю литературы Оноре де Бальзак вошел как создатель «Человеческой комедии» – единственной в своем роде художественной энциклопедии жизни Франции XIX века. Наиболее значительным и ярким произведением этой эпопеи является роман «Шагреневая кожа». Когда ты молод, влюблен и честолюбив, но знаешь, что все твои мечты обречены из-за отсутствия (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: АудиокнигаПродолжительность: 12:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E68C131714F029FDC9525463467A0249AAEABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

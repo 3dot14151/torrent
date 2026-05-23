@@ -1,55 +1,3 @@
-###  Публикация: 1653925   (213624) от 18.08.2023
-
-Дикие лошади / Touching Wild Horses (2002) DVD5 [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Марку 12 лет. Его семья попала в автокатастрофу, отец и сестричка погибли, а мама оказалась в коме. Мальчика отправляют жить к тетке Фионе. Дом Фионы расположен на острове, который знаменит остров тем, что на нем живут огромные стада диких лошадей...Производство: Канада, Великобритания, Германия / Animal Tales Productions Inc., ApolloMedia, Chesler/Perlmutter Productions, Grosvenor Park ProductionsЖанр: драмаРежиссер: Элинор ЛиндоАктеры: Марк Рендалл, Джейн Сеймур, Чарльз Мартин Смит, Глория Слэйд, Джеймс Макгоун, Даниэль Боффар, Эндрю Тарбет, Вики Папавс, Жеф Мэллори, Джей ХикманПеревод: многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: испанскиеПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CDD8CCDFD65FE586D03C7DA5DA22440CDB6724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514939   (213622) от 05.12.2021
-
-Клаустрофобы 2: Лига выживших / Escape Room: Tournament of Champions (2021) BDRip [H.264/720p-LQ] [Extended Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Зои и Бэн пытаются найти тех, кто заставил их принять участие в том садистском испытании, но вместе с другими четырьмя победителями смертельно опасных квестов вновь оказываются в игре. Прежние задания покажутся им сущими пустяками по сравнению с тем, что их поджидает на этот раз: игра стала еще опаснее и безжалостнее, а шансы на выживание стремятся к нулю.Производство: США / Columbia Pictures, Original Film, Shaken Not StirredЖанр: Боевик, приключения, ужасыРежиссер: Адам РобителАктеры: Тейлор Расселл, Логан Миллер, Дебора Энн Уолл, Томас Кокерел, Холлэнд Роден, Индия Мур, Карлито Оливеро, Matt Esof, Джеми-Ли Мани, Уэйн ХаррисонПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84C1675FB025A48CDAF28EF0C3C60CEFB997061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653934   (213611) от 18.08.2023
 
 Дон / Don / Offside (2006) DVD9 [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213611.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213602.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213583.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213574.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213570.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213565.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213564.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213563.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213559.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213557.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213536.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213534.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213532.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213528.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213526.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213525.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213520.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213519.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213499.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213487.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213412.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213409.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213404.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213392.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A192C68F3F60C575655165148AA318276E09D136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553376   (213380) от 13.06.2022
+
+Спартак / Spartacus (2004) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213380.jpg" />
+</div>
+
+
+###  Подробнее
+
+72 год до Рождества Христова. Великая Римская Империя правит античным миром своей железной рукой. Каждая новая страна, которую захватывают имперские центурионы, становится новым источником свежих рабов для жестоких римских хозяев.
+Проданный в рабство ещё ребенком Спартак прошел страшный путь лишений и истязаний, который закалил будущего вождя угнетённых и сделал (   Читать дальше...   )Производство: США / Nimar Studios, USA Network PicturesЖанр: боевик, драма, историяРежиссер: Роберт ДорнхельмАктеры: Горан Вишнич, Алан Бейтс, Энгус МакФадьен, Рона Митра, Иэн МакНис, Джеймс Фрейн, Генри Симмонс, Росс Кемп, Бен Кросс, Пол Кинмен, Пол Телфер, Крис ДжарменПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 02:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC315D0B0C651F542C31DFD0CD5B3987B9772867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557248   (213375) от 13.06.2022
+
+Роман служанки / Mothering Sunday (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия, 1924 год. Молодая служанка Джейн встречает харизматичного англичанина из семьи аристократов. Чувства между двумя людьми из разных социальных слоев вспыхивают как спички. Историю страсти, дружбы, нежной любви и доверия прерывает один судьбоносный день, который Джейн запечатлела в своей памяти в мельчайших деталях. Он и определил всю ее дальнейшую жизнь.Производство: Великобритания / British Film Institute (BFI), Film4, Lipsync ProductionsЖанр: Драма, мелодрамаРежиссер: Ева ХассонАктеры: Одесса Янг, Джош О’Коннор, Сопе Дирису, Гленда Джексон, Оливия Колман, Колин Фёрт, Нэйтан Честер Рив, Сэмюэл Барлоу, Декстер Рэггэтт, Пэтси ФерранПеревод: Дублированный (Кириллица)Субтитры: Английские (SDH)Продолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8A7CD16D7B199F18ACAF62F8296F065FC6C19B
 ```
 
 https://mybot314.ru/tekegram_catalog/

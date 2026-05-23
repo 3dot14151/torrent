@@ -6,7 +6,7 @@ Victoria 5.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004402.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004401.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Submerge 3 v3.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004388.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Eon Timer 2.8.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004384.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Chrono Plus - Time Tracker 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004383.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Contexts 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004381.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Serial Box & SerialSeeker 2021-08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004379.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Alfred 4 Powerpack 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004378.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ RAW Power 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004367.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Balabolka 2.15.0.794 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004364.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ NirLauncher Package 1.23.49 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004347.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ LDPlayer 4.0.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004346.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Freeplane 1.9.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004344.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ LibreOffice 7.1.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004343.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Brave Browser 1.27.109 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004334.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ MediaHuman YouTube Downloader 3.9.9.59 (2507) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004324.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ MAGIX Video Pro X13 19.0.1.117 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004320.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Yugen Blakrok - Anima Mysterium (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004308.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Kryder - Kryteria Radio 219 (Best Of 2019) 2020-01-01 [MP3|192 Kbps] <House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004307.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Kano - Hoodies All Summer (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Grime>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004306.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kaspersky Update Utility 4.0.0.287 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004293.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ AOMEI Partition Assistant Pro 9.3 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004290.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ GoodSync Enterprise 10.10.18.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004270.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Privacy Eraser Free 4.58.0 Build 3351 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004264.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Murlo - Dolos (2019) [FLAC|Lossless|Web-DL|tracks] <Future Bass, Grime, Dancehal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004260.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Process Lasso Pro 9.5.1.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004256.jpg" />
 </div>
 
 

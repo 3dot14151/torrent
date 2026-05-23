@@ -6,7 +6,7 @@
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795954.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Midnight Rhythm Disco: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795874.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 100 Greatest 00s Pop Hits (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795796.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Новая Русская Дискотека - 2 (2016) [MP3|320 кб/с] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795415.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Итоговый Еврохит TOP-100 от Европа Плюс за 201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795383.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hard
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795271.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Europop Music Sound: Nonstop FM Radio (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795230.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Дискотека 80-90 годов по-новому Modern Talking ( За
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795212.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Дискотека 80-90 годов по-новому C.C.Catch ( Зару�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795140.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Independent Pop Rock (2019) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795036.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Song Of The Most: Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794426.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Новая Русская Дискотека - 3 (2016) [MP3|256-320 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794290.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 100 Songs Part 1 (2018) [MP3|192 - 320 Kbps] <Pop, Rock, etc.>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793999.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - German Top 100 Single Charts 29.05.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793639.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Весенние заводные хиты выпуск № 2 (2017) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793614.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Billboard Hot 100 Singles Chart 07.05.2016 (2016) [MP3|128-320 кб/с] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793565.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Вспомним 90-2000 от Виталия 72 - 5 (2016) [MP3|320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793450.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Вспомним 90-2000 включая XXI - от Виталия 72 - 6 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793408.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Hits Cocktail vol.5 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793367.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Need For Speed Spring (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793320.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - German Top 100 Single Charts 14.01.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793048.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Shazam Хит-парад Russia Top 100 Май (2020) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792314.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - German Top 100 Single Charts 26.01.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791989.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Radio DFM Top D-Chart Май 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791733.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Hopes For Tomorrow (2020) [MP3|320 Kbps] <Pop Lyric, Romantic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791299.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Boney M - The Magic 2 CD (2019) (Compilation) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790949.jpg" />
 </div>
 
 

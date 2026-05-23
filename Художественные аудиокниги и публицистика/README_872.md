@@ -1,82 +1,3 @@
-###  Публикация: 1520608   (140646) от 29.12.2021
-
-Дэвид Болдаччи | Этли Пайн (Книга 2). Минута до полуночи (2021) [MP3, Александр Слуцкий]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В памяти у Этли Пайн, словно стальная заноза, засело воспоминание: ей шесть лет, и вторгшийся в их дом мужчина выбирает с помощью детской считалки между ней и Мерси, ее сестрой-близнецом. В итоге он останавливается на Мерси и уносит ее с собой. Больше Этли никогда не видела сестренку…
-Спустя тридцать лет специальный агент ФБР Пайн, отчаявшись вырвать признание у (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CD2CA0C85BD076933E79C172E7EB73D5C55D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520606   (140631) от 29.12.2021
-
-Дэвид Болдаччи | Этли Пайн (Книга 1). Где моя сестра? (2019) [MP3, Элнара Салимова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В памяти у Этли Пайн, словно стальная заноза, засело воспоминание: ей шесть лет, и вторгшийся в их дом мужчина выбирает с помощью детской считалки между ней и Мерси, ее сестрой-близнецом. В итоге он останавливается на Мерси и уносит ее с собой. Больше Этли никогда не видела сестренку… Теперь, спустя тридцать лет, специальный агент ФБР Пайн едет в тюрьму особо режима, (   Читать дальше...   )Жанр: ДетективПродолжительность: 13:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097B8BAAF0FFCC71F860E6F8968CBFA89945D036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272322   (140621) от 29.12.2018
-
-У Чэн-энь | Путешествие на Запад (Том 1) (2009) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Этот роман - жемчужина китайской классической прозы. Он написан более трехсот лет назад и стал неотъемлемой частью мировой культуры. Историческое ядро сюжета - путешествие буддийского монаха Сюань-цзана в Индию за священными сутрами. Реальное путешествие удивительно переплетается с фантастическими подробностями. Оригинальные сюжетные ходы, схватки с демонами и оборотнями (   Читать дальше...   )Жанр: КлассикаПродолжительность: 29:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4A7ED76570A088E4A7446015C8A8A671885E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272744   (140597) от 29.12.2018
 
 Тарас Асачёв | Страх (2018) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140597.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140570.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140548.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140460.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140447.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140437.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140423.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140422.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140382.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140361.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140354.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140353.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140342.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140296.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140288.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140270.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140241.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140216.jpg" />
 </div>
 
 
@@ -562,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140203.jpg" />
 </div>
 
 
@@ -588,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140159.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140153.jpg" />
 </div>
 
 
@@ -640,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140140.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140137.jpg" />
 </div>
 
 
@@ -678,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5B00F86C2F4BBCCD3A9ED92ABEEF511BF4A03B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520612   (140113) от 29.12.2021
+
+Виктор Тюрин | Ангел с железными крыльями (Книга 1) (2021) [MP3, Константин Корольков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сознание умирающего юноши переносится в тело потерявшего память поручика-артиллериста. Идет 1915 год. Вначале герой воспринимает новое тело как подарок судьбы, ведь, пролежав большую часть жизни на больничной койке, он получил в свое распоряжение целый мир и теперь ему надо наверстать все, что было упущено в той жизни. Герою придется схватиться с уголовным миром (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DD8CCE7F5F050DDFEBFB68901B6E2851ECAABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679196   (140076) от 24.11.2023
+
+Ричард Осман | Выстрел мимо цели (2023) [MP3, Наталья Гребенкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нераскрытое дело десятилетней давности — звучит как вызов для Клуба убийств по четвергам! А если добавить, что исчезнувшую Бетани Уэйтс, восходящую звезду местного телевидения, так и не обнаружили, то получится загадка, мимо которой Элизабет, Джойс, Ибрагим и Рон просто не могут пройти. Успешно начавшиеся поиски омрачает внезапное появление врага Элизабет, который (   Читать дальше...   )Жанр: детектив, триллерИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 12:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA0908FE0F4748B88FF1A351972020F011033A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349154   (140032) от 30.12.2019
+
+Сергей Александрович Непушкин | Зажги Звездочку (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не потеряйся в этом мире. Помни начало своего пути: свой отчий дом.Жанр: прозаПродолжительность: 00:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5246CC562009957BA41EE98565A3D2FE232A1F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

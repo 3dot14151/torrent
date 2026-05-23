@@ -1,55 +1,3 @@
-###  Публикация: 1521682   (764102) от 03.01.2022
-
-Заложники Марса / Settlers (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2078 год. Жизнь на Марсе стала реальностью. Ремми родилась на этой планете и никогда не была на Земле. Её семья живёт в изолированной колонии, ограниченной кислородным куполом. Но когда на их дом нападают вооруженные захватчики, Ремми вынуждена столкнуться с тем, от чего её уберегали родители, и узнать, что на самом деле скрывает Марс.Производство: Великобритания, ЮАР / Brittle-Star Pictures, Film Constellation, Jericho Motion PicturesЖанр: Фантастика, триллер, драмаРежиссер: Уайатт РокфеллерАктеры: София Бутелла, Исмаэль Крус Кордова, Бруклин Принс, Нелл Тайгер Фри, Джонни Ли Миллер, Натали Уолш, Мэттью Ван ЛеевеПеревод: Дублированный КинопоискHDСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E6E3372A506FB4D44BB0165079ACE71DD739AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357780   (764101) от 03.01.2022
-
-Волны / Waves (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После смерти матери от передозировки героином, Тайлер Уильямс и его младшая сестра Эмили воспитываются властным отцом Рональдом, старающимся уберечь детей от глупостей. Из-за этого у старшего сына складываются очень напряженные отношения с родителем, а общий язык он находит только со своей мачехой Кэтрин. Старшеклассник встречается с симпатичной Алексис Лопес, которая (   Читать дальше...   )Производство: США, Канада / BRON Studios, JW FilmsЖанр: Драма, мелодрама, спортРежиссер: Трей Эдвард ШульцАктеры: Келвин Харрисон, Лукас Хеджес, Тейлор Расселл, Алекса Деми, Рене Голдсберри, Стерлинг К. Браун, Криша Фэйрчайлд, Нил Хафф, Клифтон Коллинз мл., Билл УайзПеревод: Дублированный, двухголосый любительскийСубтитры: Русские (forced, full х2), украинские (forced, full), английскиеПродолжительность: 02:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DBD734F4539C4C67D165C432FF504C51069098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126861   (764099) от 19.04.2017
 
 Афера по-английски / Trespass Against Us (2016) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764099.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764092.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764085.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764083.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764052.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764049.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764047.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763939.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763930.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763903.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763896.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763895.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763888.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763858.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763857.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763842.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763668.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763633.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763399.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763396.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763393.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763390.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763345.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763320.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31C66E219D0CE28826A28457DF43289E2FB2C36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279755   (763319) от 01.02.2019
+
+Мозг Гиммлера зовется Гейдрихом / HHhH (2017) BDRip [H.264/720p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о стремительном восхождении Рейнхарда Гейдриха — государственного и политического деятеля нацистской Германии, одного из инициаторов «окончательного решения еврейского вопроса», который был убит Яном Кубишем и Йозефом Габчиком — чехословацкими диверсантами, агентами, специально подготовленными англичанами.Производство: США, Франция, Великобритания, Бельгия / Echo Lake Entertainment, Cutting Edge Group, Légende FilmsЖанр: Триллер, ВоенныйРежиссер: Седрик ЖименесАктеры: Розамунд Пайк, Миа Васиковска, Джек О’Коннелл, Джек Рейнор, Джейсон Кларк, Томас М. Райт, Энцо Чиленти, Джофф Белл, Ноа Джуп, Барри АтсмаПеревод: Авторский (одноголосый, закадровый) А.ВаженинСубтитры: английскиеПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233EC7DF9579D7C2FF09C02A8F88A16E5A2961B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326884   (763222) от 04.01.2022
+
+Не уходи / Don't Go (2018) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен опустошён смертью своей дочери в ужасной катастрофе. Ему постоянно снится сон, в котором его дочь жива и он может общаться с ней. Вскоре Бен перестает различать грань между сном и явью и всё чаще уходит в призрачный мир по ту сторону реальности.Производство: Ирландия, Wide Eye Films, Amasia EntertainmentЖанр: ДетективРежиссер: Дэвид ГлисонАктеры: Стивен Дорфф, Мелисса Джордж, Саймон Делани, Эйвин Макгиннити, Grace Farrell, Гэвин О’Коннор, Лалор Родди, Дес Кейв, Люк Гриффин, Шарлотта БрэдлиПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced), английскиеПродолжительность: 01:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1D0A1950F4AF12741E8CFC674083C912EEF364
 ```
 
 https://mybot314.ru/tekegram_catalog/

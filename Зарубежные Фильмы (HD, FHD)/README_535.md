@@ -1,55 +1,3 @@
-###  Публикация: 697235   (535556) от 05.09.2013
-
-Элитное общество / The Bling Ring (2013) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В поисках адреналина и приключений пятеро отчаянных подростков ради прикола стали навещать богатые особняки в окрестностях Голливуда. Наведываясь в гости к Линдси Лохан, Орландо Блуму, Пэрис Хилтон и другим голливудским звездам, девушки, конечно, больше интересовались дизайнерской одеждой и драгоценностями, а юноши — просто деньгами. Совершив десять краж со взломом, (   Читать дальше...   )Производство: США, Великобритания, Франция, Германия, ЯпонияЖанр: Драма, КриминалРежиссер: София КопполаАктеры: Израэль Бруссар, Кэти Чанг, Эмма Уотсон, Таисса Фармига, Клер Элис Жюльен, Гэвин Россдэйл, Джорджия Рок, Лесли Манн, Карлос Миранда, Стэйси Эдвардс...Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBE2C1BAFB9715B68E40B8EFDFB74951010608E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557942   (535454) от 18.06.2022
-
-Синоптик / The Weather Man (2004) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дэйв Спиртс - один из тех счастливчиков, которым принято завидовать. Популярный ведущий прогноза погоды, он получает приглашение работать в крупном нью-йоркском телешоу. Деньги, признание, отличные перспективы - удача явно на его стороне. Но мысль об этом почему-то больше не греет. Пока «глашатай морозов и дождей» покорял профессиональные вершины, его личная жизнь (   Читать дальше...   )Производство: США, Германия / Paramount Pictures, Escape Artists, Kumar Mobiliengesellschaft mbH & Co. Projekt Nr. 2 KGЖанр: Драма, комедияРежиссер: Гор ВербинскиАктеры: Николас Кейдж, Майкл Кейн, Хоуп Дэвис, Джеменн де ла Пенья, Николас Холт, Майкл Рисполи, Гил Беллоуз, Джудит МакКоннелл, Крис Маррс, Дина ФэклисПеревод: Многоголосый профессиональный (5 канал)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EBE826E3EC87ACC4CDA4484CFD630AD3366EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818815   (535443) от 06.09.2014
 
 Улыбка Моны Лизы / Mona Lisa Smile (2003) BDRip [H.264/720p-LQ] [Hi10P]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535443.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535355.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535353.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535335.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535124.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535123.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535121.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535116.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535114.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535108.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534862.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534860.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534843.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534840.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534826.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534743.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534742.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534649.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534621.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534612.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534606.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534565.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534220.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534109.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312143   (534074) от 03.07.2019
+
+Давилка / The Mangler (1995) BDRemux [H.264/1080p] [GER Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывалый детектив Джон Хаттон вызван расследовать страшные и непонятные события в мрачных стенах старинной прачечной, чьи работники становятся жертвами гигантской гладильной машины. Кажется, что сам демон повелевает древними механизмами, заставляя их перемалывать кости невинных людей.
+Цинику Джону трудно поверить, что ему противостоят могущественные силы зла, но странное (   Читать дальше...   )Производство: ЮАР, Великобритания / Distant Horizon, Filmex, Allied Film Productions (II)Жанр: Ужасы, ДетективРежиссер: Тоуб ХуперАктеры: Роберт Инглунд, Тед Левайн, Дэниел Мэтмор, Джереми Кратчли, Ванесса Пайк, Деметре Филлипс, Лиза Моррис, Вера Блэкер, Эшли Хейден, Дэнни КеогПеревод: Двухголосый профессиональный, АвторскийСубтитры: АнглийскиеПродолжительность: 01:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086CD42E020AA5E66C3C2A1D016ADEBD4E4B7B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050995   (534043) от 10.09.2016
+
+Черепашки-ниндзя 2 / Teenage Mutant Ninja Turtles: Out of the Shadows (2016) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгое время черепашки-ниндзя скрывались от людей в лабиринтах городской канализации. На протяжении нескольких лет учитель Сплинтер обучал их боевым искусствам и прививал им чувство справедливости. В один прекрасный момент им пришлось подняться наверх, чтобы спасти Нью-Йорк от Шредера, предводителя Клана Футов, захватившего власть в Нью-Йорке. Вместе с отважным репортером (   Читать дальше...   )Производство: США, Гонконг, Китай, Канада / Canadian Film or Video Production Tax Credit Program, Paramount PicturesЖанр: фантастика, боевик, комедия, приключенияРежиссер: Дэйв ГринАктеры: Меган Фокс, Стивен Амелл, Алан Ричсон, Лора Линни, Уилл Арнетт, Ноэль Фишер, Стефен Фаррелли, Алессандра Амброзио, Брэд Гэррет, Тайлер ПерриПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, Английский, Арабский, Малазийский, Китайский, Чешский, Греческий, Эстонский, Иврит, Хинди, Исландский, Корейский, Венгерский, Латышский, Литовский, Польский, Португальский, Румынский, Словацкий, Тайский, Турецкий, УкраинскийПродолжительность: 01:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2270EC2462857E72C1B69B442A51D182B67DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

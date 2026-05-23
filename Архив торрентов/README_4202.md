@@ -6,7 +6,7 @@ Valentina Studio Pro 12.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159835.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Duplicate File Finder Pro 7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159833.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Telegram Desktop 4.11.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159832.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Audacity 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159828.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ExamDiff Pro 14.0.1.15 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159823.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Easy Data Transform 1.38.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159822.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PotPlayer 231109 (1.7.22036) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159817.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159814.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PotPlayer 231110 (1.7.22037) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159812.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159809.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ RSS Guard 4.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159805.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VueScan Pro 9.7.96 (22.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159803.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159802.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Opera One 104.0.4944.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159798.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Macrorit Partition Expert 7.3.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159793.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Capture One 23 Pro 16.3.1.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159790.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ JetBrains WebStorm for Mac 2023.2.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159784.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159782.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Opera One 104.0.4944.54 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159780.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VPN Russia - VPN сервера в России 1.182 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159774.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NIUBI Partition Editor 9.3.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159772.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ MediaInfo 22.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159771.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ant Download Manager Pro 2.10.6 Build 86573 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159770.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ IObit Uninstaller Free 12.2.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159762.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.2.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159761.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ TreeSize Free 4.6.3.520 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159760.jpg" />
 </div>
 
 

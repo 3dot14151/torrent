@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ simplewall 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733332.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Movavi Photo Editor 6.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733302.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.5.015 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733300.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ESET NOD32 Internet Security 13.2.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733296.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ESET NOD32 Antivirus 13.2.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733250.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kaspersky Offline Update 14.0.0.4651 (g) (24.05.2014) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733096.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AOMEI Partition Assistant Pro 9.6 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733038.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ K-Lite Codec Pack Update 15.6.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732916.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WhatsApp 2.2031.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732910.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WhatsApp 2.2031.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732904.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ FinePrint Software (FinePrint 10.35 / pdfFactory Pro 7.35) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732877.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Calibre 4.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732876.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VueScan Pro 9.7.29 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732871.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Privacy Eraser Free 5.20.0 Build 4150 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732711.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ SUMo Pro 5.14.10.518 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732696.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Black Salt Audio All Plug-Ins 1.1.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732690.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Yum Audio Everything Bundle 1.2.1 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732689.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Muramasa Audio - MorphVerb 2.1 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732686.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Inkscape 1.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732670.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Don't Sleep 8.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732664.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ UnHackMe 13.30.2022.0111 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732661.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Advanced Installer 19.1 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732659.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ LibreOffice 7.3.0.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732657.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Sandboxie 5.55.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732562.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ GeoGebra 6.0.687.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732536.jpg" />
 </div>
 
 

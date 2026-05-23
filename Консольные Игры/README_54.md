@@ -1,107 +1,3 @@
-###  Публикация: 1571041   (240316) от 20.08.2022
-
-LEGO Worlds (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.19 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-LEGO® Worlds - это скопление миров, сделанных полностью из блоков LEGO. Все миры можно свободно менять и населять моделями из LEGO. Создавайте всё, что придёт вам в голову: строить можно по одному блоку или при помощи масштабных ландшафтных инструментов, которые позволят вам сделать целые горные хребты или усеять мир тропическими островами. Мир можно украсить на (   Читать дальше...   )Тип издания: LicenseРазработчик: TT Games, Traveller's TalesЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741A8E2BCB311E2E8DDAF436E7315EDFD3F14461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545431   (240226) от 21.04.2022
-
-Chernobylite (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.09] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Chernobylite — научно-фантастическая ролевая игра в жанре ужасов с элементами выживания от студии The Farm 51. Отправляйтесь в невероятно реалистичную зону отчуждения, воссозданную с помощью 3D-сканеров, и играйте за ученого-физика Игоря Химинюка, ранее работавшего на Чернобыльской АЭС. Он вернулся в Припять, чтобы узнать, куда исчезла его невеста 30 лет назад. На (   Читать дальше...   )Тип издания: LicenseРазработчик: The Farm 51Жанр: Survival horrorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BA6E9C4579DFCC94095426F0005EA68751C637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571012   (240225) от 20.08.2022
-
-Bugsnax (2020) [PS4] [USA] 5.05 [HEN] [License / 2.08] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В Bugsnax вас ждет чудное приключение на Вкусняшном острове, где обитают легендарные жуконямки — наполовину насекомые, наполовину вкусные угощения. По приглашению отважной исследовательницы Элизаберт Мегафиг вы прибываете на остров и обнаруживаете, что её нигде нет, в её лагере беспорядок, а её голодная живность разбрелась по всему острову! Решайте сами, хотите ли (   Читать дальше...   )Тип издания: LicenseРазработчик: Young HorsesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7D5B152BF4BE4D3DB6A77F13534DF114624BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572417   (239028) от 26.08.2022
-
-Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-«Кенгуренок Као» — это невероятно красивый 3D-платформер, полный веселья, приключений и загадок! Отправляйтесь на поиски отца вместе с энергичным кенгуренком Као, попутно разгадывая множество загадок и тайн. Сражайтесь, решайте головоломки и преодолевайте препятствия в невероятно красочных локациях. Исследуйте загадочный мир и раскройте все его тайны.Тип издания: LicenseРазработчик: Tate Multimedia S.A.Жанр: AdventureЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3353D6E5F6B2D711BBCA397ADEBAC8693622024D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548993   (237176) от 05.05.2022
 
 Just Dance 2022 Mod (2021) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [Repack] [En] [MOVE]
@@ -110,7 +6,7 @@ Just Dance 2022 Mod (2021) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237176.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ EFootball PES 2021 Season Update (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.03] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235423.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ The Sims 4 (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.50 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233046.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Monster Energy Supercross - The Official Videogame 5 (2022) [PS4] [USA] 5.05 [HE
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232154.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Car Mechanic Simulator 2021 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.13 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230283.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ Conan (2007) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229486.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ X-Men: Destiny (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229414.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ SAW: The Video Game / Пила (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228325.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ Tornado Outbreak (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226662.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ Ori and the Will of the Wisps (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226450.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ Serious Sam Collection (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.1] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224783.jpg" />
 </div>
 
 
@@ -397,7 +293,7 @@ Super Mario 3D All-Stars (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.1.0] [E
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224662.jpg" />
 </div>
 
 
@@ -424,7 +320,7 @@ L.A. Noire (2017) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.2] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224497.jpg" />
 </div>
 
 
@@ -450,7 +346,7 @@ Mario + Rabbids - Sparks of Hope (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223985.jpg" />
 </div>
 
 
@@ -476,7 +372,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора (2010) 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223249.jpg" />
 </div>
 
 
@@ -502,7 +398,7 @@ Stormrise (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223248.jpg" />
 </div>
 
 
@@ -528,7 +424,7 @@ abgx360 1.0.6 + Offline Files (2012) [Xbox360] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223050.jpg" />
 </div>
 
 
@@ -554,7 +450,7 @@ Iconoclasts (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.15] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222027.jpg" />
 </div>
 
 
@@ -580,7 +476,7 @@ Iconoclasts (2018) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / 1.15] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221990.jpg" />
 </div>
 
 
@@ -606,7 +502,7 @@ Legendary (2008) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221829.jpg" />
 </div>
 
 
@@ -632,7 +528,7 @@ Battle Fantasia (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221786.jpg" />
 </div>
 
 
@@ -659,7 +555,7 @@ Rise of the Argonauts (2008) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221744.jpg" />
 </div>
 
 
@@ -670,6 +566,111 @@ Rise of the Argonauts (2008) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Unof
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AEE13221CDB0F589DDDCDFF3736FE77D184F789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938626   (221737) от 03.12.2019
+
+Eat Lead: The Return of Matt Hazard (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речь идет о шутере от третьего лица, главную роль в котором играет Мэтт Хазард – легендарный герой боевиков из 80-х. Фактически, Eat Lead: The Return of Matt Hazard – это первая игра серии, легенда про Мэтта Хазарда была выдумана разработчиками, чтобы показать фиктивную историю взлетов и падений главного героя и то, как он собирается вернуть себе популярность.
+Данная (   Читать дальше...   )Тип издания: LicenseРазработчик: Vicious Cycle SoftwareЖанр: Shooter, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20343EB0CCA380DD338E2BC6636231631ACEC287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965986   (221581) от 16.12.2015
+
+Tony Hawk's Pro Skater 5 (2015) [Xbox360] [RegionFree] FreeBoot [License] [En] | R.G. X360CLUB
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tony Hawk’s Pro Skater 5 - это очередная игра серии симуляторов скейтбордиста. Уровни можно проходить в одиночном режиме или в кооперативе с друзьями, доступны и соревновательные онлайн-режимы. Между онлайновым и оффлайновым режимом игры можно свободно переключаться. Игроку доступна возможность собирать пауэрапы и «стрелять объектами» — в отдельных миссиях.Тип издания: LicenseРазработчик: Robomodo и Disruptive GamesЖанр: Sport (Extreme sports), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E24EF374EA5C3495B72F726ECB3AAD6E22029B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424816   (221385) от 20.11.2020
+
+Hyrule Warriors: Age of Calamity (2020) [Switch] [USA] 10.2.0 [NSZ / 1.0.1] [License] [En]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба Хайрула висит на волоске. Командуйте союзниками на поле боя и сражайтесь с Бедствием Ганоном в этой ожесточенной борьбе за выживание. Hyrule Warriors: Age of Calamity объединяет динамичный геймплей с яркими пейзажами The Legend of Zelda: Breath of the Wild и создает нечто совершенно новое!Тип издания: LicenseРазработчик: Koei TecmoЖанр: Экшн, МусоуЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BEFF6E5A947E8EC9A3B6E11E8774F4E05A3101F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966217   (219535) от 17.12.2015
+
+Tony Hawk's Pro Skater 5 (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экстремальный спорт - это модное и красивое увлечение, однако не стоит забывать о переломах, увечьях и травмах. Виртуальные трюки выглядят ничуть не хуже настоящих, а зачастую намного зрелищней, а главное безопасней для себя и окружающих! В предлагаемой игре можно стать королем скейтбординга, не утруждаясь изнурительными тренировками и не вставая со стула.Тип издания: PSNРазработчик: RobomodoЖанр: Arcade, Sport (Extreme sports), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104571B924ED738D702E8E47D39167D28E37B740
 ```
 
 https://mybot314.ru/tekegram_catalog/

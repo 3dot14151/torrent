@@ -1,55 +1,3 @@
-###  Публикация: 1602796   (204343) от 07.01.2023
-
-Всевидящее око / The Pale Blue Eye (2022) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-1830 год. Уставшего от жизни детектива нанимают для расследования убийства курсанта военной академии «Уэст-Пойнт». Попав в тупик из-за кодекса молчания кадетов, он вербует одного из них, Эдгара Аллана По, чтобы тот помог распутать дело.Производство: США / Cross Creek Pictures, Grisbi Productions, Le, Streamline Global GroupЖанр: детектив, триллерРежиссер: Скотт КуперАктеры: Кристиан Бэйл, Гарри Меллинг, Саймон Макберни, Тимоти Сполл, Тоби Джонс, Гарри Лоути, Фред Хехингер, Джозеф Брукс, Шарлотта Генсбур, Люси БойнтонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские (full, SDH) и др.Продолжительность: 02:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C2F4B4CB3696D16A5C4DFAE7A7B4CB6D720A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602873   (204341) от 07.01.2023
-
-Средневековье / Medieval / Jan Zizka (2022) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Священная Римская империя погружается в кровавый хаос, пока претенденты сражаются за опустевший трон. Отважный лидер наемников по имени Ян нехотя соглашается на коварный ход в политической игре: похитить невесту влиятельного вельможи, чтобы преградить ему путь к власти. Но неожиданно Ян начинает испытывать чувства к заложнице и, чтобы освободить ее, бросает вызов (   Читать дальше...   )Производство: Чехия / J.B.J. Film, Genesy, Double Tree EntertainmentЖанр: биография, история, военный, драмаРежиссер: Петр ЯклАктеры: Бен Фостер, Софи Лоу, Майкл Кейн, Тиль Швайгер, Роланд Мёллер, Мэттью Гуд, Уильям Моусли, Карел Роден, Вернер Даен, Винценц КиферПеревод: Дублированный (Кириллица), Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 02:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206CD4A02B8FE4F4FF866345942DA60456CDEC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655526   (204340) от 26.08.2023
 
 Кунг-фу жеребец / Long ma jing shen / Ride On (2023) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204340.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204332.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204327.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204323.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204322.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204320.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204318.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204315.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204310.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204306.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204300.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204298.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204286.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204278.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204275.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204250.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204228.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204227.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204211.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204209.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204190.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204179.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204172.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204171.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EDB0D7850C2F64A4260D7C26C3AC6CD722F8FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603853   (204166) от 11.01.2023
+
+Ограбление на лайнере / The Black Square (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арт-мир потрясен: неизвестные украли знаменитый «Черный квадрат» Казимира Малевича, шедевр, стоящий миллионы. Это дело рук двух дерзких напарников, которые теперь с размахом отмечают свой триумф и планируют встречу с клиентами на круизном лайнере, на котором и состоится передача награбленного искусства. Однако все идет не совсем так, как планировалось — оказавшись (   Читать дальше...   )Производство: Германия / Port au Prince Film & Kultur Produktion, Frisbeefilms, FunDeMental StudiosЖанр: комедия, криминалРежиссер: Петер МайстерАктеры: Сандра Хюллер, Бернхард Шюц, Фелине Рогган, Якоб Маченц, Виктория Трауттмансдорфф, Кристофер Шерф, Оссейн Рахмани Манеш, Кристиан Эрих, Вольфганг Пакхёузер, Габриэль ХайнрихПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, немецкийСубтитры: Русские (Forced, full), английскиеПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9B74FC60F373A28F9D5C0D93F8BE02DA1A8599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655722   (204151) от 27.08.2023
+
+Мун из Алабамы / Alabama Moon (2009) BDRemux [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцатилетний Мун Блэйк провел большую часть своей жизни в лесах Алабамы со своим отцом антиправительственным радикалом, которому везде мерещатся заговоры и который никому не доверяет. Жизнь Муна резко меняется когда отец внезапно умирает. Зная только то, чему научил отец Мун решает следовать последним его наставлениям и добраться до Аляски.Производство: США / Alabama Moon Entertainment, Faulkner-McLean EntertainmentЖанр: драма, семейныйРежиссер: Тим МакКэнлисАктеры: Джимми Беннетт, Гэбриел Бассо, Юрайа Шелтон, Клинт Ховард, Джон Гудман, Дж.Д. Эвермор, Элизабет Джексон, Джон МакКоннелл, Майкл П. Салливан, Кенни МакЛинПеревод: одноголосый любительский (Вячеслав Прошин)Язык озвучки: русский, английскийСубтитры: русские, испанскиеПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1C6136F4994B69C5B50DE78D34B56AB6E17904
 ```
 
 https://mybot314.ru/tekegram_catalog/

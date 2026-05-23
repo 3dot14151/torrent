@@ -1,55 +1,3 @@
-###  Публикация: 1465177   (1019264) от 25.04.2021
-
-Выбивая долги / The Tax Collector (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Выбивая черный нал из должников, два коллектора перешли дорогу главе наркокартеля, практикующему шаманство. Спровоцировав конфликт между двумя бандами, который может обернуться кровавой бойней, коллекторы поставили под угрозу жизни своих семей.Производство: США, Cedar Park Entertainment, Cross Creek Pictures, Faster Horse PicturesЖанр: Криминал, боевикРежиссер: Дэвид ЭйрАктеры: Шайа ЛаБаф, Бобби Сото, Синтия Кармона, Хосе Конехо Мартин, Чейен Рэй Эрнандес, Кле Слоун, Ричард Мескита, Джордж Лопес, Брайан Мартин Ортега, Аалайя ЛопесПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A45E026BA1358957C78F5C58EE6FB51FE11D68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465235   (1019262) от 25.04.2021
-
-Наш отец / Padrenostro (2020) BDRip [H.264/720p-LQ] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Рим, 1976 год. Семья Ле Розе ведет зажиточный образ жизни. У них дом в элитном районе Рима, гувернантка, летом они отдыхают на море в Калабрии. Валерио 10 лет и, кажется, у него прекрасное детство. Но привычный уклад жизни рушится, когда на его отца совершается покушение. Именно тогда, как будто из ниоткуда, у Валерио появляется друг Кристиан, бездомный подросток, (   Читать дальше...   )Производство: Италия / Lungta Film, PKO Cinema & Co., Tendercapital ProductionsЖанр: ДрамаРежиссер: Клаудио НочеАктеры: Пьерфранческо Фавино, Барбара Рончи, Маттиа Гарачи, Франческо Геги, Леа Фавино, Джордано Де Плано, Паки Медури, Анна Мария Де Люка, Марио Пупелла, Элеонора Де ЛукаПеревод: Многоголосый профессиональный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D320D656BE399ABC4A16EFD6E78FD099B7F0E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465250   (1019261) от 25.04.2021
 
 Кулак легенды (Чэнь Чжэнь: Токийская битва) / Chen Zhen: The Tokyo Fight / Fist of Legend (2019) WEB-DLRip [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019261.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019260.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019258.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019252.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019249.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019246.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019242.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019227.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019219.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019216.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019214.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019210.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019205.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019202.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019198.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019196.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019194.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019190.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019189.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019188.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019187.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019124.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019111.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019107.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A6CD96BD811E635BBF703D0EA53D59FCC2E72A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459731   (1019097) от 26.04.2021
+
+Фотографии / Snapshots (2018) WEB-DL [H.264/1080p] [МVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героиня навещает свою бабушку на летних каникулах. В куче старых вещей и хлама девушка обнаруживает раритетный фотоаппарат и проявляет плёнку. Она не знает, что эти фотографии не только помогут воссоздать картину жизни своей бабушки, но и прольют свет на десятилетия обмана.Производство: США / Three Women in a Box FilmsЖанр: ДрамаРежиссер: Мелани МейронАктеры: Пайпер Лори, Брук Эдамс, Эмили Бальдони, Christopher McVay, Бретт Дир, Макс Адлер,Эмили Госс, Шеннон Коллис, Кэти ДеБуоноПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: АнглийскиеПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394011868A0484BD19C62676277482130CD06611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465506   (1019083) от 26.04.2021
+
+Иуда и чёрный мессия / Judas and the Black Messiah (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чикаго, 1968 год. Попавшись на угоне машины с поддельным удостоверением ФБР, преступник Уильям О’Нил соглашается на сделку с федералами. Он внедряется в отделение радикальной организации «Чёрные пантеры» и втирается в доверие к её лидеру Фреду Хэмптону, как раз когда тот начинает объединять местные этнические организации в «Радужную коалицию».Производство: США / BRON Studios, Bron Creative, MACROЖанр: Биография, драма, история, криминалРежиссер: Шака КингАктеры: Лакит Стэнфилд, Дэниэл Калуя, Джесси Племонс, Доминик Фишбэк, Эштон Сандерс, Элджи Смит, Даррел Бритт-Гибсон, Лил Рел Ховери, Доминик Торн, Мартин ШинПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EA2707F38DC46C560B730C8A003B8B16697C32
 ```
 
 https://mybot314.ru/tekegram_catalog/

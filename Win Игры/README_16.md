@@ -6,7 +6,7 @@ TerraScape (2024) [Ru/Multi] (2.0.0.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060585.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stellarcraft (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060559.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (3.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060437.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060436.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060435.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Thief (2014) [Ru/Multi] (1.7/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060433.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.1.1/dlc) Repack Wanterlude [Defini
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060432.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060431.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060429.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ GreedFall: The Dying World (2024) [Ru/Multi] (Build 21902359/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060427.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ L.A.Noire (2011) [Ru/Multi] (1.3.2675.1/dlc) Scene SKIDROW [The Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060303.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Weird RPG 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060289.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060288.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (2.0/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060230.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mirage 7 (2026) [Multi] (1.0.2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060144.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Craftlings (2026) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060143.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tiny Robots: Portal Escape (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060142.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Streetdog BMX (2026) [Ru/Multi] (1.0.31) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060141.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Big Hops (2026) [Ru/Multi] (21207) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060140.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Log.in (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060139.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (Build 21440516/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060138.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Kingdom Come: Deliverance Dilogy (2018-2025) [Ru/Multi] (1.9.6-404-504czj3/1.5.4
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060137.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Choice of Life: Samosbor (2025) [Ru/Multi] (Build 21269692) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060136.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Pioner (2025) [Ru/Multi] (Build 21335712/dlc) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060135.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Clothing Store Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060134.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Boat Together (2025) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060133.jpg" />
 </div>
 
 

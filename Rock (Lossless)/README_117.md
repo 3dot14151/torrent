@@ -6,7 +6,7 @@ Giorgio 'Fico' Piazza - Autumn Shades (2018) [FLAC|Lossless|image + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296925.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Elvis Presley - The Real... Elvis Presley At The Movies (2018) 3CD [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296853.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296746.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rockets - Wonderland (2019) [FLAC|Lossless|tracks + .cue] <Space Rock, Synth-pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296737.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Merryweather & Carey - Vacuum Cleaner (1971) 2016, Retro Disc International Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296399.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ D Sound - Balkan (2004) [FLAC|Lossless|image + .cue]<Progressive Rock, Space Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296244.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Grumblewood - Stories of Strangers (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296018.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Boneyard Dog - Bluesbound Train (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295991.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Darwin - Darwin 2: A Frozen War (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295928.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Rolling Stones - Blue & Lonesome (2016) [FLAC|Lossless|image + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295725.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Electric Light Orchestra - Zoom (2001) /2013, Avalon/ [FLAC|Image+.cue]<Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295018.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lunatic Soul (Mariusz Duda, ex.Riverside) - 3 Albums (2008 - 2017) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294885.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ V.A. - Classic Rock Presents: The Best Of 2014 (2014) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293805.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Smokie - 9 Albums (1975 - 1982) Remastered, 2016, Sony Music [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293287.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bryan Adams - Room Service (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293202.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292980.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292885.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ David Kilgour And The The Heavy Eights - Bobbie's A Girl (2019) [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291674.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Queen - News Of The World (1977) 40th Anniversary Edition (2017) 3CD [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291029.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Candice Night (Blackmore's Night) - Starlight Starbright (2015) [FLAC|Image+cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290737.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Creedence Clearwater Revival - Ultimate Creedence Clearwater Revival: Greatest H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290073.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Billy Sherwood - Citizen (2015) [FLAC|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287642.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Europe - Super Hits (1998) [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286892.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Beatles - 33 Albums, 3 Singles, 6 Box-Sets (1963-2013) Complete CD Discograp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_286767.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Neil Young - Peace Trail (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286451.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Luke Combs - This One's For You Too (2018) Deluxe Edition [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286298.jpg" />
 </div>
 
 

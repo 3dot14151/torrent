@@ -1,81 +1,3 @@
-###  Публикация: 1297049   (604746) от 21.04.2019
-
-Карлтон Меллик III | Озверевшие (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-ига написана в стиле киносценария. Вот несколько слов от автора: Я всегда фанател от дешевых фильмов ужасов и чем хреновее они были, тем лучше для меня. В самом типичном и одном из моих любимых фильмов напичканных клише участвует группа подростков в лесу, которых убивают одного за другим. Я захотел сделать нечто подобное, но со своими сюжетными поворотами. Ни в коем (   Читать дальше...   )Жанр: Мистика, УжасыПродолжительность: 04:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5CDEDA1A79925C55303650866193A83FF1E13D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297116   (604745) от 21.04.2019
-
-Сергей Недоруб | Личность клиента [S.T.A.L.K.E.R.] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив по имени Виктор Корнеев берется за необычное дело — найти человека, о котором знает всего три вещи: это девушка, она связана со сталкерским миром и уже обращалась к нему за помощью ранее. Но где и по какому вопросу — Виктору не известно. Детектив ввязывается в махинации обратной стороны Зоны, живущей по иным правилам — по жестоким законам обычного (   Читать дальше...   )Жанр: боевая фантастикаПродолжительность: 07:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FB659F48A96714B472411DBA1749E3E368AF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297225   (604744) от 21.04.2019
-
-Юрий Федосюк | Что непонятно у классиков, или Энциклопедия русского быта XIX века (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Без преувеличения можно сказать, что представляемая книга Ю.А. Федосюка (1920-1993) — явление уникальное. На протяжении десятилетий подвижнической исследовательской работы автор собрал колоссальный материал, отражающий в забытых или непонятных современному читателю словах материальную и духовную культуру русского народа. Примеры, взятые из широко известных произведений (   Читать дальше...   )Жанр: Образовательная литератураПродолжительность: 10:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BFA790E21AEA4E4974A4C51E8B95EFAF214682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297299   (604741) от 21.04.2019
 
 Сергей Павловский | Коготь химеры (S.T.A.L.K.E.R.) (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604741.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604738.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604391.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604329.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604315.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604310.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604308.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604267.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604261.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604252.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604139.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604125.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604093.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603988.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603983.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603980.jpg" />
 </div>
 
 
@@ -512,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603977.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603964.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603917.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603911.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603909.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603836.jpg" />
 </div>
 
 
@@ -670,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603691.jpg" />
 </div>
 
 
@@ -682,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E4E550D5F576A1C95E0A4B81D36461F043449B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297653   (603573) от 23.04.2019
+
+Чак Паланик | Сочини что-нибудь (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603573.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своем новом сборнике «Сочини что-нибудь» Чак Паланик делает то, что удается ему лучше всего, – приводит читателя в восторг и шокирует, смешивая эмоции, как ему заблагорассудится. Мы встретим здесь бывшего стриптизера, пожилого тусовщика, энтузиаста-вирусолога, отчаявшуюся раковую больную, озабоченного сексом школьника – десятки персонажей, одновременно гротескных (   Читать дальше...   )Жанр: Контркультура РассказПродолжительность: 09:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2946195FE0E0AF857902F68EC32DFAF3E167332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297634   (603569) от 23.04.2019
+
+Владимир Мукусев | Черная папка (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603569.jpg" />
+</div>
+
+
+###  Подробнее
+
+История бесследного исчезновения на дорогах бывшей Югославии двух советских телекорреспондентов Виктора Ногина и Геннадия Куринного, - одна из самых загадочных и трагических в летописи новейшей журналистики нашей страны. Среди всех сотрудников СМИ, погибших на балканской войне, только эти двое никогда так и не были найдены и опознаны; более того, официального заключения (   Читать дальше...   )Жанр: История одного журналистского расследованияПродолжительность: 07:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10517F034B72FE397864B998964F53DEE8D85E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148569   (603458) от 07.07.2017
+
+Андрей Волос | Возвращение в Панджруд (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Длинна дорога от Бухары до Панджруда, особенно если идти по ней предстоит слепому старику. Счастье, что его ведет мальчик-поводырь — где найти лучшего провожатого? Шаг за шагом преодолевают они назначенный им путь, и шаг за шагом становится ясно, что не мальчик зряч, а старик; и не поводырь ведет слепого, предостерегая от неожиданностей и опасностей пути, а слепой (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 16:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDCD86D1B9D8B42BA93DD303CC6E916C1787696
 ```
 
 https://mybot314.ru/tekegram_catalog/

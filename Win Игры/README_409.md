@@ -1,29 +1,3 @@
-###  Публикация: 1570164   (61786) от 26.03.2024
-
-As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-As Dusk Falls - это оригинальная интерактивная драма от INTERIOR NIGHT. В центре сюжета судьбы двух семей, за тридцать лет прочно переплетённые между собой. Действие начинается в 1998 году с неудавшегося ограбления. Это история о предательстве, стойкости духа и готовности пойти на жертвы. Жизни персонажей будут зависеть от ваших действий и решений.Тип издания: RepackРазработчик: INTERIOR NIGHTЖанр: AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FD6600DD7EC189F444207144A9349A2D4A1FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674146   (61784) от 26.03.2024
 
 Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
@@ -32,7 +6,7 @@ Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61784.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ REAL ESTATE Simulator - FROM BUM TO MILLIONAIRE (2024) [Ru/Multi] (3815219) Repa
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61773.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.0.12/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61769.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61768.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Vampires' Melody 2 (2023) [Multi] (20240319) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61763.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (20240217) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61757.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Cats Hidden in Georgia (2024) [Ru/Multi] (0313) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61750.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61744.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61738.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61684.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61664.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61649.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Silent Nights: The Pianist Collector's Edition / Безмолвные ночи. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61636.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61633.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61629.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61625.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Between Horizons (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61610.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Living Legends 11: The Red Trace / Живые легенды 11: Красный 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61603.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61591.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61583.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Millennia (2024) [Ru/Multi] (1.0.1.F/dlc) Scene FAiRLIGHT
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61571.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61560.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Once Upon a Jester (2022) [Multi] (1.1.2) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61558.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61544.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Distant Bloom (2024) [Multi] (1.0) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61542.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Distant Bloom – постарайтесь восстановить некогд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:218C89C574E24F2EF8CA2702ACE7D569A2BF975A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710779   (61538) от 28.03.2024
+
+Raw Metal (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проникните в центр горнодобывающего предприятия чужой планеты, чтобы спасти оборудование и противостоять нечестной транснациональной корпорации. Используйте инструменты и технику по максимуму в напряженных миссиях с применением маскировки и кинжала, оттачивая свои боевые способности в стремительных сражениях в этой современной ролевой игре, ориентированной на скрытность. (   Читать дальше...   )Тип издания: RepackРазработчик: Team CrucibleЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BC3321B59AECAAE0D01B183749B25395AAD794
 ```
 
 https://mybot314.ru/tekegram_catalog/

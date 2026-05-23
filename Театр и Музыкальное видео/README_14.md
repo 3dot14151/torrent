@@ -1,116 +1,3 @@
-###  Публикация: 436554   (978094) от 17.01.2012
-
-Серия "SOLOS: The Jazz Sessions" / Andrew Hill (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. East 19th Street
-02. Bent Forward
-04. Unsmooth
-05. Tough LoveЖанр: JazzПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973834   (977888) от 10.01.2016
-
-Deep Purple - Live In California 74 (2005) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Концерт в Калифорнии - Deep Purple - Live In California 74, это пожалуй самый грандиозный концерт культовой группы Deep Purple. (Очень даже приличное качество)01. Burn
-02. Might Just Take Your Life
-03. Lay Down Stay Down
-04. Mistreated(   Читать дальше...   )Жанр: Hard rockАктеры: David Coverdale (vocals), Glenn Hughes (bass), Jon Lord (keyboards), Ritchie Blackmore (guitar), Ian Paice (drums)Продолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED920478915D5E09C496DA5602057A38ED38BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742398   (977593) от 06.01.2014
-
-Легенды Ретро FM (2014) HDTV [H.264/1080i] [эфир от 05.01.2014]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-На Первом канале большая премьера - международный фестиваль "Легенды Ретро FM 2013
-Один из самых масштабных и популярных фестивалей в России приглашает телезрителей в незабываемое путешествие в эпоху суперхитов и суперзвезд!
-Шоу, состоявшееся в "Олимпийском" в предновогодние дни – особенное. Оно посвящено 10-летию радиостанции Ретро FM. Организаторы (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5959AB1229DB81539F3DF7C6F9E1077FAB8CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437633   (977475) от 17.01.2012
-
-Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRip, HDRip, WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Поп-музыка
-Продолжительность: 01:14:32Формат: AVI, MKV, MP4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0EE60B59A2D00B0978C5DBB59F0B3741958952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974493   (976878) от 11.01.2016
 
 #лучшийконцертгода (Лучший концерт года) / #кращийконцертроку (Кращий концерт року) +Бекстейдж (2015) SATRip
@@ -119,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976878.jpg" />
 </div>
 
 
@@ -148,7 +35,7 @@ Rage Against The Machine - Live at Finsbury Park (2010) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976705.jpg" />
 </div>
 
 
@@ -177,7 +64,7 @@ Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976658.jpg" />
 </div>
 
 
@@ -206,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976574.jpg" />
 </div>
 
 
@@ -235,7 +122,7 @@ Various ‎– Nightmoves (2008) 3 х DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976560.jpg" />
 </div>
 
 
@@ -264,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975641.jpg" />
 </div>
 
 
@@ -295,7 +182,7 @@ VA - Зимний марафон № 218: Зимняя волна новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975575.jpg" />
 </div>
 
 
@@ -324,7 +211,7 @@ U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975530.jpg" />
 </div>
 
 
@@ -352,7 +239,7 @@ Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <De
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975453.jpg" />
 </div>
 
 
@@ -381,7 +268,7 @@ Alice Cooper - Live at Montreux (2005) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975066.jpg" />
 </div>
 
 
@@ -416,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974857.jpg" />
 </div>
 
 
@@ -451,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974654.jpg" />
 </div>
 
 
@@ -481,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974536.jpg" />
 </div>
 
 
@@ -510,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974326.jpg" />
 </div>
 
 
@@ -539,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973262.jpg" />
 </div>
 
 
@@ -568,7 +455,7 @@ Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972478.jpg" />
 </div>
 
 
@@ -594,7 +481,7 @@ Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972461.jpg" />
 </div>
 
 
@@ -620,7 +507,7 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972353.jpg" />
 </div>
 
 
@@ -646,7 +533,7 @@ BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972350.jpg" />
 </div>
 
 
@@ -672,7 +559,7 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972275.jpg" />
 </div>
 
 
@@ -698,7 +585,7 @@ DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972200.jpg" />
 </div>
 
 
@@ -724,7 +611,7 @@ Bad Company - Don Kirshner's Rock Concert (1974) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972011.jpg" />
 </div>
 
 
@@ -738,6 +625,110 @@ Bad Company - Don Kirshner's Rock Concert (1974) VHSRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:152CE3A71D87C4E0E44A062CCB08123F52EEDE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617279   (971758) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video) HDTV-1080i
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве. :bou:Жанр: variousПеревод: ОтсутствуетПродолжительность: ~04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD7921D1462ED81DADC119B6D724C233A5CED4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617213   (971741) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video)1080i HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве, многоканальное аудио.Жанр: разныйПеревод: ОтсутствуетПродолжительность: ~ 01:30:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357851   (971726) от 05.02.2020
+
+Ани Лорак. DIVA / СК "Олимпийский" (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971726.jpg" />
+</div>
+
+
+###  Подробнее
+
+DIVA Ани Лорак – это фантастическая музыкальная история о Диве, живущей в разные времена и каждый раз умеющей удивлять. Дива – это женщина, сделавшая себя сама и наглядно доказавшая, что мечты способны сбываться. Дива – это та, что умеет вдохновлять, любить, прощать и делиться с другими тем, чем ее щедро наградила природа – женственностью, красотой, уникальным талантом (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7764F574B8B45197D8CD47DB6FE2219A31FCF5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616190   (971675) от 12.02.2013
+
+Romantic Collection (Hits 1983-2001)TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RockПродолжительность: 03:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECA9C545B6A3C14A8F51A3A1E03E809E12901FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Cocktail 9.3.4 (El Capitan Edition) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579409.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Webcam Settings 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577991.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Parallels Desktop for Mac Business Edition 12.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577275.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paste 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576997.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Hazel 4.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575780.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ MacDroid Pro 1.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573916.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ CleanMyMac X 4.10.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573654.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ WindowMizer 5 v5.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573078.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Parallels Desktop Pro Edition M1 17.1.3 (build 51565) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571720.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ FileSumo 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570932.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Together 3.5.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570929.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Toast Titanium Pro 16 (4745) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568331.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wi-Fi SpeedTest 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556776.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ WindowMizer 5 v5.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552151.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ SmartMemoryCleaner 2.3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552144.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Comburet 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551022.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Movavi Mac Cleaner 2 v2.4.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548920.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Caramba Switcher 2019.06.18 (beta) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548485.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Cleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546337.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ TinkerTool System 4.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545676.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Together 3.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544793.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ iTools Pro 1.7.9.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540078.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Vault 101 - password protect files and folders 1.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533344.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Disk Xray 2.8.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532049.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ iKuka 1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532048.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Voila 3.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531438.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mp3tag 2.95 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552921.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tipard Video Enhancer 9.2.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552917.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Uninstall Tool 3.5.0 Build 5506 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552909.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aiseesoft Video Converter Ultimate 9.2.62 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552882.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aiseesoft 4K Converter 9.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552874.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PicPick 4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552860.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Registry Cleaner Pro 10.2.3.683 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552812.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AutoPlay Menu Builder Business 8.0 build 2458 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552810.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ GoldWave 6.41 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552806.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Aiseesoft DVD Creator 5.2.38 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552803.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Bigasoft Audio Converter 5.1.3.6446 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552798.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Uninstall Tool 3.5.0 Build 5506 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552797.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ EZ CD Audio Converter 4.0.9.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552753.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FurMark 1.18.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552712.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TeamViewer 11.0.65452 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552703.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 10 Color Control 1.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552702.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Advanced SystemCare Pro (акция comss) 12.4.0.351 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552696.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Adobe Prelude CC 2015.4 (v5.0.1) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552667.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Foundry KATANA 2.5v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552662.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ InstallShield 2015 Premier Edition 22.0.0.330 SP1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552656.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ AdwCleaner 6.010 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552652.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Topaz Impression 2.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552650.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552576.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Chromium 69.0.3496.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552467.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Glary Utilities Pro 5.102.0.124 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552351.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Auslogics File Recovery 8.0.13.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552346.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 1002206   (848215) от 31.03.2016
-
-В сердце моря / In the Heart of the Sea (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада / Cott Productions, Enelmar Productions, A.I.E., Imagine EntertainmentЖанр: боевик, триллер, драма, приключения, биография, историяРежиссер: Рон ХовардАктеры: Крис Хемсворт, Бенджамин Уокер, Киллиан Мёрфи, Брендан Глисон, Бен Уишоу, Мишель Фэйрли, Том Холланд, Пол Андерсон, Фрэнк Диллэйн, Джозеф МоулПеревод: Дублированный (Лицензия BD CEE), Авторский (одноголосый, закадровый) Живов, ЕсаревЯзык субтитров: Русский, английский, украинский, испанский, португальский, хорватский, датский, голландский, шведский, румынский, греческийПродолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3AA3BF9818F5332154D9CD5C18C44BB59AFBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 192010   (848203) от 14.04.2010
-
-Беги без оглядки / Running Scared (2006) [H.264/720p-LQ] HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После того как была сорвана сделка наркоторговцев, в результате чего погибли несколько продажных полицейских, мелкому гангстеру Джоуи нужно было избавиться от оружия, оставшегося на месте перестрелки.
-Ситуация еще более осложнилась, когда сын его соседа завладел одним из пистолетов и выстрелил из него в своего отца. В итоге Джоуи вынужден был всю ночь разыскивать (   Читать дальше...   )Жанр: Боевик, Драма, КриминалРежиссер: Вейн Крамер / Wayne KramerАктеры: Пол Уокер, Кэмерон Брайт, Вера Фармига , Чазз Палминтери , Брюс Олтман , Дэвид Вачовски....Перевод: Русский дублированный + Оригинальный английскийЯзык субтитров: Русские и АнглийскиеФормат: MKVПродолжительность: 02:01:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 192110   (848192) от 14.04.2010
 
 Девственницы-самоубийцы / The Virgin Suicides (1999) DVDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848192.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848190.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848172.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848171.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848169.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848159.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848157.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848060.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848056.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847956.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847933.jpg" />
 </div>
 
 
@@ -353,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847926.jpg" />
 </div>
 
 
@@ -379,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847921.jpg" />
 </div>
 
 
@@ -405,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847914.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847821.jpg" />
 </div>
 
 
@@ -457,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847784.jpg" />
 </div>
 
 
@@ -483,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847782.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847776.jpg" />
 </div>
 
 
@@ -536,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847774.jpg" />
 </div>
 
 
@@ -562,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847768.jpg" />
 </div>
 
 
@@ -588,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847760.jpg" />
 </div>
 
 
@@ -614,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847757.jpg" />
 </div>
 
 
@@ -640,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847686.jpg" />
 </div>
 
 
@@ -666,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847682.jpg" />
 </div>
 
 
@@ -677,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E111884F0977980E9B142A2AB23C5115839A9FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378111   (847665) от 24.04.2020
+
+Подлинная история банды Келли / True History of the Kelly Gang (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1860-е, Австралия. Семья подростка Неда нищенствует, и мать не брезгует проституцией, чтобы прокормить детей. Когда отец умирает в тюрьме, куда он попал за украденную Недом коровью ногу, мальчик преисполняется чувством вины. Через некоторое время парень отправляется с новым знакомым матери Гарри Пауэром перегонять скот, но вскоре выясняет, что мать продала его бандиту, (   Читать дальше...   )Производство: Австралия, Великобритания, Франция / Porchlight Films, Daybreak Pictures, Film VictoriaЖанр: Криминал, Биография, Драма, Вестерн,Режиссер: Джастин КурзельАктеры: Джордж МакКэй, Расселл Кроу, Николас Холт, Эсси Дэвис, Шон Кинэн, Джейкоб Коллинс-Леви, Томасин МакКензи, Чарли Ханнэм, Клаудия Карван, Марлон УильямсПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3A6A8B532F2555827BD0700C3F31942239D5DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378220   (847655) от 24.04.2020
+
+Подлинная история банды Келли / True History of the Kelly Gang (2019) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847655.jpg" />
+</div>
+
+
+###  Подробнее
+
+1860-е, Австралия. Семья подростка Неда нищенствует, и мать не брезгует проституцией, чтобы прокормить детей. Когда отец умирает в тюрьме, куда он попал за украденную Недом коровью ногу, мальчик преисполняется чувством вины. Через некоторое время парень отправляется с новым знакомым матери Гарри Пауэром перегонять скот, но вскоре выясняет, что мать продала его бандиту, (   Читать дальше...   )Производство: Австралия, Великобритания, Франция / Porchlight Films, Daybreak Pictures, Film VictoriaЖанр: Криминал, Биография, Драма, Вестерн,Режиссер: Джастин КурзельАктеры: Джордж МакКэй, Расселл Кроу, Николас Холт, Эсси Дэвис, Шон Кинэн, Джейкоб Коллинс-Леви, Томасин МакКензи, Чарли Ханнэм, Клаудия Карван, Марлон УильямсПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB79561F5571DB9722F0437B5E4C03705D87822
 ```
 
 https://mybot314.ru/tekegram_catalog/

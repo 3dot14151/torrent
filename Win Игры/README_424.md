@@ -1,29 +1,3 @@
-###  Публикация: 1725252   (55683) от 23.05.2024
-
-Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Acolytes для настоящих любителей приключений и ролевых экшенов. История продолжает события первой части, где люди победили Гахару, но выяснилось, что она и ее прихвостни никогда не умирали по-настоящему. Они заснули и ждали своего часа, чтобы вернуться и восстановить свою силу. Ваша задача – в роли отважной (   Читать дальше...   )Тип издания: RepackРазработчик: Still RunningЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3723CCBAE6D647E06ACD2E596AE50125C34AF208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725253   (55672) от 23.05.2024
 
 Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Director's Cut]
@@ -32,7 +6,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55672.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55664.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BroodStar (2020) [En] (1.6.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55661.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Turbo Sloths (2022) [Ru/Multi] (13189048/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55656.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55645.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55639.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Scene FairLi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55636.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55631.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55590.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55574.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55572.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Vanishing of Ethan Carter (2015) [Ru/Multi] (1.05) Repack dixen18 [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55555.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Bloody Heaven 2 (2024) [Multi] (0.043) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55543.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55539.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ ASTLIBRA Revision (2022) [Multi] (1.3.7/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55529.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ CONSORTIUM (2014) [Ru] (1.26.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55522.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Vanishing of Ethan Carter (2014) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55518.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55489.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.03B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55488.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55481.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55463.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Besiege (2020) [Ru/Multi] (1.50/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55447.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Journey of AutUmn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55439.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55435.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.5r2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55412.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Turnip Boy Robs a Bank - это забавный двухмерный прикл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E63453AE5EEA27E2B96A71C8B92AF90138674C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725604   (55410) от 25.05.2024
+
+RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55410.jpg" />
+</div>
+
+
+###  Подробнее
+
+RKGK переносит игроков в мрачный нео-бруталистский мегаполис Кэп-Сити, находящийся под гнётом зловещей корпорации B Corp. Главная героиня Вал вместе со своей командой RKGK ставит перед собой цель освободить город, используя граффити как мощное средство сопротивления и самовыражения. Геймплей сочетает в себе элементы экшена, паркура и художественного творчества.Тип издания: RepackРазработчик: Wabisabi GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Испанский, ЯпонскийЯзык субтитров: Английский, Испанский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Испанский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBE8BD95E812EA1D6485CF8DB19E32B35CF3018
 ```
 
 https://mybot314.ru/tekegram_catalog/

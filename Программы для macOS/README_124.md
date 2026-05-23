@@ -6,7 +6,7 @@ Capture All 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239021.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RSS Menu 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238996.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FoneDog Data Recovery for Mac 1.3.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238992.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ beQUIET 3.21 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238893.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cisdem PDF Password Remover 5.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238892.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ getIRC - IRC Client 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238876.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Time Calc PRO 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238847.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Battery Charging Alert 3.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238800.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ rcmd • App Switcher 2.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238753.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Bootstrap Studio 6.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238749.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ToothFairy 2.7.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238745.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ X Djing - Music Mix Maker 2.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238672.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Apeaksoft Data Recovery for Mac 1.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238615.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ M3U Edit 1.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238579.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ ScreenSaverNow 1.70 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238540.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Clone Fighter 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238523.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ batchGIF 1.92 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238504.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ photo2movie 2.81 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238482.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Integrity Pro 10.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238459.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Word Count Icon 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238434.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ desktopCinema 3.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238426.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ HideAway 2.05 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238414.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ ScreenLog 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238406.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ CVS 2.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238392.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ FSNotes 5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238353.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Deliver Express 2.6.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238335.jpg" />
 </div>
 
 

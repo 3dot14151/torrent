@@ -1,55 +1,3 @@
-###  Публикация: 1099018   (906638) от 31.01.2017
-
-Алекс и Ева / Alex And Eve (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Алек молодой человек, коренной грек, исповедует православие и работает в местной школе учителем. Его семья поддерживаются всех религиозных канонов и пытается отыскать своему сыну девушку из их круга. Ева - юная мусульманка, со строгими верующими родителями, те так же стремятся найти дочери достойную пару. Как-то эти заблудшие души встречаются при нелепых обстоятельствах. (   Читать дальше...   )Производство: АвстралияЖанр: Мелодрама, КомедияРежиссер: Питер АндрикидисАктеры: Ричард Бранкатисано, Андреа Деметриадес, Рахель Абдулрахман, Райан О’Кейн, Зои Каридес, Тони Нико, Петар Гэтсби, Милли Сэмюэлс, Сьюзан Мари Галеб, Фонзи ГомесПеревод: Многоголосый закадровый, любительский (Синема УС)Продолжительность: 01:31:00Реклама: Присутствуют аудио и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7DE93C2AB1062390082F26E0C42BE27BE85380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491863   (906610) от 27.08.2021
-
-Двойное счастье / Figli (2020) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Никола и Сара давно женаты, но все так же влюблены друг в друга. У них шестилетняя дочь и спокойная жизнь, пока рождение второго ребенка не ставит все с ног на голову. Выдержит ли их пара испытание на прочность?Производство: Италия / The Apartment, Vision Distribution, Wildside MediaЖанр: КомедияРежиссер: Джузеппе БонитоАктеры: Паола Кортеллези, Валерио Мастандреа, Бабак Карими, Джанфеличе Импарато, Леле Маркителли, Стефано Фрези, Андреа Сарторетти, Паоло Калабрези, Лука Аморосино, Валерио АпреаПеревод: Многоголосый профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7418F83EA4B6877178932CDD4EBD05161BC7C802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491903   (906608) от 27.08.2021
 
 Судная ночь навсегда / The Forever Purge (2021) UHD WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906608.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906606.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906588.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906585.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906529.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906524.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906502.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906492.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906485.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906468.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906445.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906430.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906412.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906388.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906376.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906375.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906355.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906343.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906324.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906319.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906312.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906306.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906247.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906245.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FF5E2B3BA634E3F156B5DD9EFB0A64FAE957E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759770   (906241) от 22.02.2014
+
+Первопроходец / Pioneer (2013) BDRip [720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 1980-х гг. В Северном море обнаружены огромные запасы нефти и газа. В начале норвежского нефтяного бума власти намерены любой ценой доставлять на берег «черное» и «голубое золото» планеты по трубопроводу с глубины 500 метров, перед этим проводя разведку месторождения. Профессиональный дайвер Петтер, одержимый идеей достижения дна Норвежского моря, — полон (   Читать дальше...   )Производство: Норвегия, Германия, Швеция, Франция, ФинляндияЖанр: ТриллерРежиссер: Эрик ШёлдбьергАктеры: Уэс Бентли, Стивен Лэнг, Аксель Хенни, Джонатан ЛаПалья, Стефани Сигман, Ёрген Лангхелле, Эни Даль Торп, Андре Эриксен, Эндре Хеллествейт, Арни Линдтнер Нэсс ...Перевод: Одноголосый закадровый, любительскийСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, НорвежскийПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90FDCC5796062291BBF9ADDB8E5AE8075AEE54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759739   (906237) от 22.02.2014
+
+Как я теперь люблю / How I Live Now (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в недалеком будущем. Пятнадцатилетняя Дэйзи приезжает из Нью-Йорка в Лондон к тете с дядей. И влюбляется без памяти в своего кузена Эдмонда. Но на пути первой любви встает внезапно разворачивающаяся Третья Мировая Война.Производство: Великобритания | BFI Film Fund, Cowboy Films, Film4Жанр: Фэнтези, Драма, ПриключенияРежиссер: Кевин МакДональдАктеры: Сирша Ронан, Джордж МакКэй, Том Холлэнд, Харли Бёрд, Анна Чэнселлор, Сара Барнетт, Эми Доусон, Кори Джонсон, Наташа Йонас, Дэнни МакЭвойПеревод: Многоголосый закадровый, профессиональный + одноголосый любительский (А. Матвеев | ненормативная лексика)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский (Fill, SDH)Продолжительность: 01:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC1204BB7371122E892F6C20AD1809F3A5EFFA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

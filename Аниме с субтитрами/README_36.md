@@ -6,7 +6,7 @@ Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808878.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Eldlive / Эль Драйв [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808735.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808024.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807858.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nurse Witch Komugi-chan R / Медсестра-волшебница Комуги
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807101.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Garo: Honoo no Kokuin | Гаро: Печать пламени [2014, TV, 24] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806461.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Saenai Heroine no Sodatekata | Saekano | Как воспитать из обыч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806458.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806153.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Magi: The Kingdom of Magic / Magi 2 / Маги 2 [2013, TV, 25 эп.] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805812.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Chiruran: Nibun no Ichi / Чируран пополам [2017, TV, 12] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805011.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Trickster: Edogawa Ranpo "Shounen Tanteidan" yori / Обманщик: Клуб �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804787.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804164.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Otaku no Video / Фильм об отаку 1982 и 1985 [1991, OVA, 2 из 2] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803841.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tytania | Титания [2008, TV, 26 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803711.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Shounen Maid / Парень-горничная [2016, TV, 12 + SP] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803448.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Uchuu Senkan Yamato 2199: Hoshi-Meguru Hakobune | Odyssey of the Celestial Ark |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803417.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803080.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Piace: Watashi no Italian / Пьячэволе: Моя итальянская к
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803078.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ One Room / Одна комната [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803014.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Heroman | Хиромен [2010, TV, 26 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802735.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, ТВ, 25] HDTV 720p 10bit r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802361.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Charlotte | Шарлотта [2015, TV, 14 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801926.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801805.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Gintama. / Гинтама [ТВ-5] [2017, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801791.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801624.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Hi Score Girl | High Score Girl | Девчонка не промах [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801601.jpg" />
 </div>
 
 

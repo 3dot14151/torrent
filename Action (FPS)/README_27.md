@@ -6,7 +6,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407576.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407215.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Borderlands 3 (2019) [Ru/Multi] (5382210/dlc) License EMPRESS [Super Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406982.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406969.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Chivalry: Medieval Warfare [Ru] (Repack) 2012 | R.G Repacker's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405124.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ E.Y.E. Divine Cybermancy [Ru] (Repack/1.37) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403305.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ RAID: World War II (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402956.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402952.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Half-Life 2: Episode Two / Offshore [Ru] (Mod/P) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402821.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402093.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ RAID: World War II / RAID: World War 2 (2017) [Ru/En] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402078.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401991.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398270.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391425.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391390.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390962.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390952.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388760.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388705.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Crysis Warhead (2008) [Ru/Multi] (1.1.1.711) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388534.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Crysis / Wreckage [Ru/En/De] (RePack/Mod) 2012 | dr.Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386656.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383313.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Bulletstorm (2011) [Ru] (1.0.7147/dlc) Rip R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382510.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382494.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381370.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381235.jpg" />
 </div>
 
 

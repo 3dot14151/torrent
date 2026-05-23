@@ -6,7 +6,7 @@ Microsoft Windows 10.0.18362.1016 Version 1903 (Updated Aug 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690474.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Windows 10.0.18363.1016 Version 1909 (Updated Aug 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690321.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Windows 10.0.17763.1397 Version 1809 (Updated Aug 2020) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690164.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690016.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1397 (Updated Aug 2020) Ори
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690006.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 201
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689681.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Windows Server, Version 2004 (10.0.19041.450) (Updated Aug 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687894.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687883.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 201
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687717.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Recovery USB-flash for Sony VAIO SVF152A29V (SVF1521H1R) Windows 8 [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683685.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680554.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678684.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677896.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676140.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675741.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Microsoft Windows 10 10.0.17134.1 Version 1803 (Updated April 2018) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671091.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669178.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669092.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669084.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Windows Server, Version 20H2 (10.0.19042.1586) (Updated March 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669080.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668976.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Microsoft Windows 10.0.19044.1586, Version 21H2 (Updated March 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668966.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Windows 11 [10.0.22000.556], Version 21H2 (Updated March 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668717.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Windows 10.0.19044.1526, Version 21H2 (Updated February 2022)  - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666281.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Microsoft Windows 10.0.19044.1586 Professional Version 21H2 (Updated March 2022)
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665112.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658414.jpg" />
 </div>
 
 

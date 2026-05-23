@@ -6,7 +6,7 @@ Textify 1.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298469.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Registry First Aid Platinum 11.3.0 Build 2585 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298468.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Beyond Compare Pro 4.1.2.20720 Portable by BurSoft [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298456.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UC Browser 5.5.8071.1003 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298446.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Toolkit 2.6.3 Stable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298440.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kodi 17.6 Krypton [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298437.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ KMSAuto Lite 1.3.4 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298425.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Auslogics Windows Slimmer 1.0.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298418.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Zoner Photo Studio Pro 18 Build 4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298371.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ UFS Explorer Professional Recovery 5.18.4 RePack by Manshet [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298364.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ TeamViewer Free 11.0.52465 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298357.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Advanced SystemCare Ultimate 8.2.0.865 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298355.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Total Commander Ultima Prime 6.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298348.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Avast Internet Security 2016 11.1.2245 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298269.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Avast! Free Antivirus 2016 11.1.2245 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298267.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft .NET Framework 4.6.1 Final RePack by gora [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298263.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ KMSpico 10.1.9 Final + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298261.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Adobe Audition CC 2015.1 8.1.0.162 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298255.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DLL Suite 9.0.0.2190 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298236.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Windows 10 (66in1) Sergei Strelec x86/x64 1909 (build 18363.449) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298227.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Slimjet 12.0.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298139.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Windows XP Pro SP3 Rus VL Final х86 Krokoz Edition (обновления по 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298102.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Windows XP Pro SP3 Rus VL Final х86 Krokoz Edition (обновления по 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298085.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Disk Cleaner 9.33.653 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298056.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ WhatsApp 2.2045.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297947.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CoolUtils Total Image Converter 8.2.0.228 RePack (& Portable) by Dodakaedr [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297943.jpg" />
 </div>
 
 

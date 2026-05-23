@@ -1,57 +1,3 @@
-###  Публикация: 996378   (878689) от 14.03.2016
-
-На гребне волны / Point Break (1991) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Таинственная банда серфингистов, среди белого дня, совершает ограбления банков. Полиция и ФБР поражены профессиональностью и скоростью проведения преступлений.
- Следствие ведет молодой и претенциозный агент ФБР, который, рискуя жизнью, внедряется в банду и раскрывает это дело, но неожиданно для самого себя он осознает, что вернуться к нормальной жизни он уже не сможет.Производство: США / JVC Entertainment, Largo EntertainmentЖанр: Боевик, Триллер, КриминалРежиссер: Кэтрин Бигелоу / Kathryn BigelowАктеры: Патрик Суэйзи, Киану Ривз, Гэри Бьюзи, Лори Петти, Джон К. МакГинли, Джеймс ЛеГрос, Джон Филбин, Боджесси Кристофер, Джулиан Рейес, Дэниэл Бир...Перевод: Дубляж (Хлопушка + вставки MVO), Профессиональный многоголосый (ТВ3)Продолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A10201138550C9A91F078960D9EF1331FC2535F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996665   (878683) от 14.03.2016
-
-Белые цыпочки / White Chicks (2004) WEB-DLRip [H.264] [Unrated Edition] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Изрядно проштрафившиеся агенты ФБР (братья афро-американцы) решают обелить себя перед руководством. Причем как в переносном, так и в прямом смыслах. Их миссией становится защита двух сестер Уилтон, наследниц огромной гостиничной империи, от похищения во время их переезда из нью-йоркского аэропорта в отель Хэмптонс.
-Вновь переоценив свои способности, братья придумывают (   Читать дальше...   )Производство: США / Revolution Studios, Wayans Bros. Entertainment, Gone North ProductionsЖанр: Комедия, БоевикРежиссер: Кинен Айвори УайансАктеры: Шоун Уайанс, Марлон Уайанс, Джейми Кинг, Фрэнки Фэйзон, Локлин Манро, Джон Хёрд, Бьюзи Филиппс, Терри Крюс, Бриттани Дэниэл, Эдди ВелесПеревод: Авторский (одноголосый, закадровый) х2Язык субтитров: Русский, английскийПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A62CFC9A1C3E1DA737A61A8AC167408BE89CA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 511408   (878673) от 14.03.2016
 
 Вампиры / Vampires (1998) [1080p] BDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878673.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878669.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878662.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878637.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878612.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878608.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878604.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878590.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878583.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878580.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878579.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878574.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878572.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878540.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878537.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878515.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878474.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878472.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878470.jpg" />
 </div>
 
 
@@ -554,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878466.jpg" />
 </div>
 
 
@@ -580,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878464.jpg" />
 </div>
 
 
@@ -608,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878463.jpg" />
 </div>
 
 
@@ -634,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878356.jpg" />
 </div>
 
 
@@ -660,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878334.jpg" />
 </div>
 
 
@@ -671,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0CC0188D93F816E9E917932A62AD5B8E568764D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373806   (878330) от 07.04.2020
+
+Торжество / Festen / The Celebration (1998) DVDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878330.jpg" />
+</div>
+
+
+###  Подробнее
+
+В шикарном загородном особняке намечается торжество. На юбилей почтенного отца большого семейства съезжаются дети и родственники. В зале накрыт изумительный стол, откупорены изысканные вина. За столом нет только одной из дочерей юбиляра, покончившей с собой. Праздник начинается. Старший сын произносит первый тост. Никто не подозревает, что собравшимся нарядным гостям (   Читать дальше...   )Производство: Швеция, Дания / Nimbus Film Productions, Danmarks Radio (DR), Nordisk Film- & TV-FondЖанр: ДрамаРежиссер: Томас ВинтербергАктеры: Ульрих Томсен, Хеннинг Моритцен, Томас Бо Ларсен, Паприка Стин, Брите Нейманн, Трине Дирхольм, Хелле Доллерис, Теразе Глан, Клаус Бондам, Бьярне ХенриксенПеревод: Одноголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216D5DFE6EC05EF8130EEE0532EE6E9C44F5104C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373860   (878263) от 07.04.2020
+
+Поверьте мне. Похищение Лизы МакВей / Believe Me: The Abduction of Lisa McVey (2018) HDTVRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный мужчина похищает 17-летнюю Лизу Маквей. Девочка-подросток и маньяк остаются один на один. Лиза умоляет отпустить её, и, к удивлению девушки, нападавший выполняет её просьбу. Вернувшись домой, девушка рассказывает всем о произошедшем, но ей никто не верит — кроме одного детектива, который уверен в том, что Лизу похитил и отпустил серийный убийца.Производство: Канада / CINEFLIX INCЖанр: Драма, криминал, биографияРежиссер: Джим ДонованАктеры: Шелби Бэйн, Александра Кастилло, Кэти Дуглас, Дэвид Джеймс Эллиотт, Миган Фаленбок, Ким Хорсмэн, Deanna Interbartolo, Роберт Б. Кеннеди, Келси Клиппенштейн, Крис ОуэнсПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCAC5F982B298135B8A7987BC714665A4C4123E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Xilisoft Video Converter 7.7.2 build 20130122 [Английский + Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994000.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ CCleaner 3.27.1900 Free / Professional / Business Edition RePack (& Portable) by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993968.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ NOD32 Update Viewer 6.00.2 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993957.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Opera AC 3.8.0 Beta Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993944.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ LeaderTask 7.6.1.0 [Multi/Rus] RePack & Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993908.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Norton 360 2013 20.2.1.22 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993907.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Skype 6.1.32.129 Business Edition [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993905.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ CCleaner 3.27.1900 [Rus/Ukr/Eng] Business | Professional Edition RePack/Рortabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993902.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ManyCam Virtual Webcam 3.1.41 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993863.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Norton Internet Security 2013 20.2.1.22 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993841.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ KMSnano 15 Automatic By Heldigard [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993832.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993824.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bigasoft Total Video Converter 3.4.14.4261 [многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993726.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PicPick 3.2.2 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993679.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VSO Downloader Ultimate 3.0.0.16 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993673.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Radiocent 3.1.0.51 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993585.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Daum PotPlayer 1.5.35431 Stable (x86) Portable by SamLab [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993549.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Kaspersky Rescue Disk 10.0.31.4 (19.01.2013) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993541.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Xilisoft Video Converter Ultimate 7.0.1 build 1219 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993537.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ AnVir Task Manager 7.5.0 Final + Portable RePack by KpoJIuK [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993513.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Daum PotPlayer 1.5.35431 Stable Full & Lite by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993507.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ GoodSync Enterprise 9.4.3.4 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993446.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PerformanceTest 8.0 Build 1013 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993425.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ FeedReader 3.14 [ MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993394.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Tipard Total Media Converter Platinum 6.2.16 Platinum Portable by Invictus [Ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993379.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Mac Blu-ray Player 2.7.6.1120 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993370.jpg" />
 </div>
 
 

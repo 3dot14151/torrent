@@ -1,114 +1,3 @@
-###  Публикация: 628593   (936398) от 10.03.2013
-
-СупердискотЭка / Супердискотека 90-х. Москва (09.03.2013) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х - легендарный ретромегадэнс, собирающий ежегодно десятки тысяч человек в Санкт-Петербурге и Москве. Каждую СупердискотЭку 90-х в прямом эфире транслирует канал MTV, а в праздничные дни 1 января и 12 июня СупердискотЭку 90-х показывали по Первому каналу и ее смотрела вся Россия. СупердискотЭка 90-х возвращает в детство, когда мы обменивались на (   Читать дальше...   )01. Дискотека Авария - X.X.X.И.Р.Н.Р
-02. Дискотека Авария - Яйца
-03. Тотал - Бьет по глазам
-04. Примьер министр - Два бриллианта(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 03:11:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284388   (936346) от 05.02.2014
-
-The Police - Certifiable: Live in Buenos Aires (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-The Police вместе со Sting пластинку Certifiable записали в ходе двух концертов на стадионе River Plate Stadium в Буэнос-Айресе в декабре 2007 г., которые состоялись в рамках триумфального тура воссоединенных The Police, посвященного 30-летию группы. Первое выступление тура состоялось в Ванкувере 28 мая 2007 года. Henry Padovani присоединился к группе в финальном (   Читать дальше...   )Производство: США, A&M RecordsЖанр: RockПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:48:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628781   (936240) от 10.03.2013
-
-Вячеслав Бутусов. Юбилейный концерт (2013.03.10) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Творчество Вячеслава Бутусова всегда было востребовано. И в лихие годы перестройки, когда у целого поколения сменились жизненные ориентиры и приоритеты;01.Бриллиантовые дороги
-02.Взгляд с экрана
-03.Титаник
-04.Песня идущего домой(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:33:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628712   (936181) от 10.03.2013
-
-Юбилейный концерт группы А-Студио (2013.03.09) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-"A’STUDIO" – легендарный коллектив, обладающий уникальным для нашей поп-cцены чувством стиля, музыкальным вкусом и создающий интересные аранжировки безупречного качества.
-Группа A'Studio – долгожитель российско-казахстанской эстрады. С момента выхода первого успешного альбома "Джулия" выросло целое поколение, музыкальные вкусы которого сильно (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:19:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753282   (936157) от 05.02.2014
 
 Сборник клипов - VA - Various Music part. 50 (2014) WEBRip 720p, 1080p
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936157.jpg" />
 </div>
 
 
@@ -146,7 +35,7 @@ Danielle - Pat It Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935316.jpg" />
 </div>
 
 
@@ -172,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934618.jpg" />
 </div>
 
 
@@ -201,7 +90,7 @@ Nine Inch Nails - Another Version Of The Truth, part 1: The Gift (2008) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933973.jpg" />
 </div>
 
 
@@ -231,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933637.jpg" />
 </div>
 
 
@@ -261,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933535.jpg" />
 </div>
 
 
@@ -287,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932834.jpg" />
 </div>
 
 
@@ -316,7 +205,7 @@ Eric Clapton's Crossroads Guitar Festival (2010) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932806.jpg" />
 </div>
 
 
@@ -345,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931651.jpg" />
 </div>
 
 
@@ -374,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930596.jpg" />
 </div>
 
 
@@ -400,7 +289,7 @@ Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930557.jpg" />
 </div>
 
 
@@ -426,7 +315,7 @@ Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930513.jpg" />
 </div>
 
 
@@ -452,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930453.jpg" />
 </div>
 
 
@@ -481,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930427.jpg" />
 </div>
 
 
@@ -507,7 +396,7 @@ Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928018.jpg" />
 </div>
 
 
@@ -536,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927638.jpg" />
 </div>
 
 
@@ -562,7 +451,7 @@ Dead Can Dance / Toward The Within (1994), remastered 2001 4AD, DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927634.jpg" />
 </div>
 
 
@@ -588,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927621.jpg" />
 </div>
 
 
@@ -615,7 +504,7 @@ Big Love Show 2016. Грандиозный концерт ко Дню всех �
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927590.jpg" />
 </div>
 
 
@@ -644,7 +533,7 @@ VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927318.jpg" />
 </div>
 
 
@@ -673,7 +562,7 @@ U-ka saegusa IN db [one 1 Live] (2005) DVDRip [H.264/480p]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927119.jpg" />
 </div>
 
 
@@ -704,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927012.jpg" />
 </div>
 
 
@@ -718,6 +607,120 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36694F06EF8DC079E43DACAC8BAB19EAC7DE728A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365837   (926989) от 09.03.2020
+
+Дискотека 80-х (полная версия) (2019) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная дискотека страны состоялась уже в 18-й раз и, как и прежде, подарила зрителям невероятные визуальные эффекты, качественный звук и, конечно же, выступления самых любимых российских и зарубежных звезд диско на одной сцене.01. Альянс - На Заре
+02. Bad Boys Blue - Come Back And Stay
+03. Bad Boys Blue - Pretty Young Girl
+04. Bad Boys Blue - You’re a Woman(   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналПродолжительность: 03:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F940B091B4C2E35D70D4F2A439DE6B8512FCAC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095230   (926028) от 20.01.2017
+
+Жан Батист Мольер - Тартюф, и нет ему конца (1989) VHSRip (2 части)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионная фантазия по пьесе Жана Батиста Мольера "Тартюф, или Обманщик".
+В доме почтенного Оргона по приглашению хозяина обосновался некий г-н Тартюф. Оргон души в нём не чаял, почитая несравненным образцом праведности и мудрости: речи Тартюфа были исключительно возвышенны, поучения - благодаря которым Оргон усвоил, что мир являет собой большую помойную (   Читать дальше...   )Производство: СССР, Телеспектакль Ленинградского телевиденияЖанр: ТелеспектакльРежиссер: Михаил ФалкинАктеры: Владимир Осипчук, Анатолий Равикович, Ирина Соколова (II), Мария Тхоржевская, Сергей Мигицко, Ирина Селезнёва, Мурад Султаниязов, Ольга Белявская, Юрий Журин, Георгий ШтильПродолжительность: 2 х ~ 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C76484040EB644D4796E4353D40DCD6D8B40379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986825   (925912) от 17.02.2016
+
+Праздник для всех влюбленных на МУЗ-ТВ (2015.02.14) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925912.jpg" />
+</div>
+
+
+###  Подробнее
+
+День любви на МУЗ-ТВ. Звезды первой величины специально для тебя со сцены Кремля исполняют свои лучшие песни о любви в прямом эфире.Балет Аллы Духовой ТОДЕС - Русские народные танцы
+Бьянка - Кеды
+Бьянка и Мот - Абсолютно всё
+Мот - День и ночь(   Читать дальше...   )Телекомпания: МУЗЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC5C4F0F99916059856CF72208857EEACC79D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987294   (925843) от 17.02.2016
+
+10CC And Godley @ Creme. Greatest Hits And More. (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Good Morning Judge
+2	An Englishman In New York
+3	I'm Mandy Fly Me
+4	The Wall Street Shuffle (Live)(   Читать дальше...   )Производство: Universal Music TV, ЗАО "Юниверсал Мьюзик"  – 460502601073, RUS.Жанр: Rock, Soft Rock.Продолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D95E63867FB23FEDBFD4F0CD12052AC9E190E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

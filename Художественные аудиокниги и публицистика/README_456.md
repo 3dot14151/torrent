@@ -1,82 +1,3 @@
-###  Публикация: 1552710   (585727) от 22.05.2022
-
-Джек Лондон | Рассказы южных морей (2006) [MP3, Андрей Зарецкий]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Визитная карточка» Джека Лондона – приключения отважных золотоискателей на Аляске; однако, цикл его рассказов о Южных Морях – это не менее захватывающие истории о человеческом мужестве, стойкости и, конечно же, любви. Где ещё узнаешь о чувствах любимой женщины, как не в чудовищном прибое Канака? А жестокость бездушной красавицы ярче всего проявится именно в море, (   Читать дальше...   )Жанр: морские приключенияПродолжительность: 03:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4079A58420632C57395C6580FB501AFB3214568C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552861   (585724) от 22.05.2022
-
-Аркадий и Георгий Вайнеры | Следователь Тихонов (Книга 5).  Я, следователь... (2022) [MP3, Игорь Тарадайкин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Аркадий и Георгий Вайнеры – признанные мастера детективного жанра. В их произведениях, посвященных работе следователя уголовного розыска Станислава Тихонова, с одной стороны, всегда присутствует увлекательный, лихо закрученный сюжет, с другой – поднимаются сложные психологические и этические проблемы, без прикрас описаны будни сотрудника милиции. Не получается у (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F367CEBA3458F964C0AE08D6E46C4584C9FB3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552759   (585721) от 22.05.2022
-
-Эдгар Аллан По | Рассказы (2013) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами – сборник самых известных рассказов одного из величайших американских литераторов Эдгара Аллана По, ставших со временем визитной карточкой его литературного творчества. Рассказы писателя погружают в атмосферу леденящего ужаса и ночного кошмара преследующего вновь и вновь. Эти новеллы потрясают воображение яркостью описания загадочных событий.
-Аудиокнига (   Читать дальше...   )Жанр: мистикаПродолжительность: 05:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE803C601E75CEDAEDAEFEB0EE3C1E3B63C8319F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552751   (585658) от 22.05.2022
 
 Дмитрий Светлов | Снайпер разведотряда (Книга 3). Командир разведотряда. Последний бой (2022) [MP3, Алексей Воскобойников]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585658.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585615.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585464.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585427.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585357.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585352.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585339.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585208.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585183.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585129.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585127.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585029.jpg" />
 </div>
 
 
@@ -397,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584957.jpg" />
 </div>
 
 
@@ -423,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584922.jpg" />
 </div>
 
 
@@ -450,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584848.jpg" />
 </div>
 
 
@@ -476,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584762.jpg" />
 </div>
 
 
@@ -502,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584700.jpg" />
 </div>
 
 
@@ -528,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584635.jpg" />
 </div>
 
 
@@ -554,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584432.jpg" />
 </div>
 
 
@@ -580,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584428.jpg" />
 </div>
 
 
@@ -606,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584379.jpg" />
 </div>
 
 
@@ -633,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584170.jpg" />
 </div>
 
 
@@ -659,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584110.jpg" />
 </div>
 
 
@@ -670,6 +591,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:293A8E59D074E0E58A25E3137DC7C035C2C763C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919045   (584029) от 18.07.2015
+
+Вера Прохорова | Четыре друга на фоне столетия (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера Ивановна Прохорова (р.1918) - дочь последнего владельца Трехгорной мануфактуры Ивана Прохорова.
+Вы держите в руках мемуары удивительной женщины, которая создавала их на протяжении всей жизни. В этой книге много действующих лиц: Борис Пастернак и Михаил Булгаков, Константин Станиславский и Марина Цветаева, знаменитый профессор Московской консерватории Генрих (   Читать дальше...   )Жанр: ПрозаПродолжительность: 07:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D01CB6F0E93FA788CE422C568BA874898A69D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919140   (584022) от 18.07.2015
+
+Александр Водяной | Мечта (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учение о бессмертии является важным движущим фактором той ответственности, которую человек несет за себя, за других, за свои деяния, за свои слова и даже мысли. В человеке скрыты, закодированы величайшие возможности, превосходящие всю нашу земную жизнь. Поэтому их раскрытие ожидается лишь в процессе длительной эволюции и бесконечного становления духа. Но бесконечность (   Читать дальше...   )Жанр: Мистика, драмаПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569992549AC472CC793290821D2CEE6E739ED803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919036   (584021) от 18.07.2015
+
+Анатолий Ромов | Совсем другая тень (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584021.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе «Совсем другая тень» московские работники прокуратуры вступают в борьбу, завязавшуюся вокруг особо опасного преступления.Жанр: Детективный романПродолжительность: 09:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA162AEACBEBAAD78DBE4068B5B5223929BFAF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

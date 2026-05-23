@@ -6,7 +6,7 @@ Sarah Schachner - Call of Duty: Infinite Warfare (Original Soundtrack) (2016) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373679.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Caravelli - Caravelli in Moscow (1982) 1999, Reissue, Boheme Music [MP3|320 Kbps
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373007.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Roberto Danova - Panpipe moods (2001) [FLAC|Lossless|image + .cue] <Pop, Instrum
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372993.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chris Piorkowski - Piano: Romantic Collection (2011) [MP3|320 Kbps] <Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372992.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Popular Melodies of Russia (2011) [MP3|192 Kbps] <Other, Instrumental, Soun
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372657.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <P
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372639.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371566.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370985.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368682.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368298.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368216.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367890.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367474.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367406.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367283.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366531.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Mod
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366232.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366159.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366059.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366052.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366029.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|ima
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366028.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (19
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_365816.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365543.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365490.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Арабские ночи (Инструментальная музыка 2 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_365268.jpg" />
 </div>
 
 

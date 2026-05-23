@@ -6,7 +6,7 @@ WiFi Explorer Pro 3 v3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670879.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GeoGebra 6.0.693.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670871.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SuperDuper! 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670866.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Aly and Fila - Future Sound Of Egypt 185 (16-05-2011) [MP3|256 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_670862.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Pedro Del Mar - Mellomania Vocal Trance Anthems 157 (16-05-2011) [MP3|256 kbps]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670857.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Permute 3 v3.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670847.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Downie 3 v3.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670842.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670833.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Monster Jinx Beat Camp #02 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670832.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mozilla Firefox Quantum 66.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670831.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adobe Dreamweaver CC 2014.1.1 Build 6981 RePack by alexagf [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670824.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ R-Studio 7.6 Build 158796 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670821.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ ForkLift 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670813.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670809.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Mark Mothersbaugh - Safe / Защитник (2012) [MP3|320 кб/с]<OST>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670786.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Paw 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670783.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Total Uninstall 6.19.1 DC 12.05.2017 Professional Edition RePack by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670774.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Wise Data Recovery Pro 6.0.2.489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670729.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ App Tamer 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670701.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Mozilla Firefox Quantum ESR 60.6.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670691.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Librarian Pro 4 v4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670688.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670653.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670647.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Mozilla Firefox 14.0  Beta 7 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670644.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ SolveigMM Video Splitter 3.2.1206.13 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_670643.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670641.jpg" />
 </div>
 
 

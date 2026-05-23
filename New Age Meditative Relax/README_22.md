@@ -6,7 +6,7 @@ Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351518.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349436.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345841.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344579.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343923.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341973.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Robert Thies & Damjan Krajacic - Blue Landscapes II: Discoveries (2016) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340563.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338593.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335067.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333646.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mythos - Iridescence (1997) [OGG Vorbis|484 Kbps] <Pop, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333495.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333492.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333365.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333362.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333361.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329913.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329021.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328966.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary G
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328444.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326721.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326707.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [MP3|320 кб/с]<New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325619.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321152.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321008.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Medwyn Goodall - Dreamweaver (2014) [MP3|320 кб/с]<New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319269.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316589.jpg" />
 </div>
 
 

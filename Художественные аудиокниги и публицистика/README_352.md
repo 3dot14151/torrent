@@ -1,83 +1,3 @@
-###  Публикация: 1529056   (733549) от 04.02.2022
-
-Марина Дяченко, Сергей Дяченко | Заклинание (2022) [MP3, Happy]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В свое время - лет тридцать назад — Нимиридора Александровна учила прикладной магии самого Гостя. И, представляя старушку студентам, Гость не преминул об этом сообщить.
-Рассказ оставляющий после себя почву для размышлений. Еще больше смысла он приносит если внезапно на место Нимиридоры Александровны поставить близкого нам человека. Например наших родителей. Тогда (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF22A574BE2D74BC07E2E033897CE198986FEAB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528999   (733546) от 04.02.2022
-
-Андрей Левицкий, Алексей Бобл | Я — сталкер (Книга 1). Осознание (2018) [MP3, Александр Филиппов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что-то странное происходит в Зоне Отчуждения. Новая сила подчиняет мутантов, на ее стороне выступают сектанты Черного братства, даже обычные сталкеры постепенно покоряются ей.
-Егор Атилов, спец по электронике, торгующий в Зоне особыми устройствами, не знал, свидетелем каких невероятных событий станет. Встреча с заказчиком обернулась чередой непредсказуемых приключений: (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF16FFD4B0C5B6C4E9116C84AA6B199B0261377F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528929   (733532) от 04.02.2022
-
-Дмитрий Манасыпов | Мой 88-ой: назад в… (2021) [MP3, Дмитрий Хазанович]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Из 2020 - в 1988. Обычный офисный сотрудник, пишущий вечерами фантастику, в необычных обстоятельствах - без денег, без документов, без Википедии для справок, без профессии и мастерства, без везения и харизмы, как у Скалы, в общем, одетый, но как голый в толпе. И что делать? Спасать СССР? Ктулху упаси, без того дел предостаточно. Надо слиться с людьми, нужно найти (   Читать дальше...   )Жанр: Историческая фантастика, Попаданцы, Социальная фантастикаПродолжительность: 03:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33856B2EF355EF0CED6A7E3D9B51D11A92E8778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399419   (733421) от 31.07.2020
 
 Пётр Николаевич Краснов | От Двуглавого Орла к красному знамени (2020) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733421.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733344.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733307.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733059.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732941.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732717.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732707.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732673.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732572.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732570.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732569.jpg" />
 </div>
 
 
@@ -378,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732564.jpg" />
 </div>
 
 
@@ -404,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732557.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732550.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732494.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732472.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732454.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732438.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732326.jpg" />
 </div>
 
 
@@ -587,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732090.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732089.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732049.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_732048.jpg" />
 </div>
 
 
@@ -678,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:443C438FEDD82157A365447DE26A03054BA05ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021541   (731998) от 30.05.2016
+
+Николай Дмитриев | Третья причина (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731998.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том, что отец Викентия Иртеньева, героя романов «Венская сказка», «Межвременье» и «Дом в закоулке», был офицером российского Генерального штаба, читатель, возможно, помнит. Но ведь он тоже был разведчиком! О двух необычных, сложных и опасных рейдах к врагам Империи, предпринятых Иртеньевым-старшим накануне потрясений, обрушившихся на наше Отечество, рассказывается (   Читать дальше...   )Жанр: Военные приключенияПродолжительность: 04:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C8F7A451FBFDFBD81FE03DCC0E9FF6A82871BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021574   (731996) от 30.05.2016
+
+Александр Говоров | Последние Каролинги (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало средневековья, Франция, вторая половина IX века… Идет ожесточенная борьба за власть, которая ускользает из рук слабеющих потомков Карла Великого. На первый план выдвигается Эд, незаконнорожденный отпрыск династии. Ему суждено объединить страну для отпора норманнам, защитить Париж от их нашествия. Рядом с ним юная Азарика, которую молва несправедливо ославила (   Читать дальше...   )Жанр: Русская приключенческая литератураПродолжительность: 12:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C08506B34B194011370D1810BA3ED39E6614B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021543   (731995) от 30.05.2016
+
+Сесил Скотт Форестер | Пришпоренный (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямо из-за свадебного стола молодой капитан-лейтенант отправляется навстречу невероятным приключениям. Злому гению Бонапарта он противопоставит мужество, талант, опыт. С изумительным мастерством Форестер описывает морские сражения и погони, поединки крохотного шлюпа с фрегатами „Лаура“ и «Фелиситэ“, подъем сокровищ с затонувшего судна, тонкости европейской политики (   Читать дальше...   )Жанр: Морские приключения. Путешествия и географияПродолжительность: 21:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775E4B428428FE9AF345BD46601B0DAE3B7E529E
 ```
 
 https://mybot314.ru/tekegram_catalog/

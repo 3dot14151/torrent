@@ -6,7 +6,7 @@ VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881710.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878978.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878432.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Притяжение (Официальный Саундтрек) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873516.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871220.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Photek - Need for Speed (EA Games Soundtrack) (2016) [MP3|320 кб/с] <Electron
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871135.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869820.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865724.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860759.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854726.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854699.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854654.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850242.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846600.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846599.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846538.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Atom Music Audio - Heroes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846537.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Sco
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845012.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_844668.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842302.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840196.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Harry Manfredini - House & House II: The Second Story / Дом & Дом 2: Пр�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838395.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Jesper Kyd - Assassin's Creed: Brotherhood OST (2010) [MP3|320 kbps]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837304.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837216.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836890.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836786.jpg" />
 </div>
 
 

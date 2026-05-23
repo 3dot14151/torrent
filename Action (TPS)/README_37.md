@@ -6,7 +6,7 @@ Deer Avenger / Олень-мститель (1.0/2.0/3.0/4.0) (1998—2001) [En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211293.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211176.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Drunken Fist 2: Zombie Hangover (2022) [Ru/Multi] (1.0) License TiNYiSO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211161.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ El Matador (2006) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204692.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Prototype 2 (2012) [Ru] (Build 19788008/dlc) Repack Yaroslav98 [Radnet Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202395.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tomb Raider (2013) [Ru/Multi] (Build 9573671/dlc) Repack Other s [GOTY Edition /
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202237.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.71-2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201980.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201807.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Urban Chaos (1999) [En] (2.69) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201246.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.2/dlc) Repack FitGirl [20 Year 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200575.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Midnight Fight Express (2022) [Ru/Multi] (1.021) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200416.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199944.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198400.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196704.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Yakuza 4 Remastered (2021) [Multi] (1.003a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196660.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Yakuza 3 Remastered (2021) [Multi] (1.005a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196646.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Yakuza Kiwami 2 (2019) [Multi] (1.004a/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196644.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Yakuza Kiwami (2019) [Multi] (1.011a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196614.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Yakuza 0 (2018) [Multi] (1.015a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196602.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Yakuza 5 Remastered (2021) [Multi] (1.006a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196577.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Yakuza 6: The Song of Life (2021) [Multi] (1.009a/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196520.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Tomb Raider: Trilogy (2013-2018) [Ru/Multi] (1.1.838.0/1.0.1027/1.0.492.0/dlc) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195295.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Scarlet Nexus (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194364.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194032.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (6410) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193193.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192813.jpg" />
 </div>
 
 

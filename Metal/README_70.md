@@ -6,7 +6,7 @@ Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410411.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mad Max - Wings Of Time (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410408.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) [MP3|320 Kbps] <Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410237.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hammerschmitt - Dr. Evil (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410225.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Horncrowned - Rex Exterminii (The Hand of the Opposer) (2020) [MP3|320 Kbps] <Ex
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410104.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mindghost - The Anti-Citizen (2016) [MP3|320 Kbps] <Stoner Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410070.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Aephanemer - Memento Mori (2016) [MP3|320 Kbps] <Melodic Death Metal , MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409525.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Avenged Sevenfold - The Stage (2016) [MP3|320 Kbps] <Heavy Metal, NWOAHM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409270.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Axxis - Monster Hero (2018) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409191.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Behemoth - I Loved You At Your Darkest (2018) [MP3|320 Kbps] <Black Metal, Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409090.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408809.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blind Guardian - The God Machine (2022) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408739.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Megadeth - The Sick, the Dying... and the Dead! (2022) Deluxe Edition [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408578.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Arrant Saudade - The Peace Of Solitude (2015) [MP3|320 кб/с]<Funeral Doom, Do
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408267.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ektomorf - Aggressor (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408158.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Killing Joke - Pylon (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408148.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Grave Digger - Exhumation - The Early Years (2015) [MP3|320 кб/с]<Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408057.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ My Dying Bride - A Map Of All Our Failures (2012) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407255.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Made In Tribute (1997) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406431.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Daylight Dies - A Frail Becoming (2012) [MP3|320 кб/с]<Melodic Death/Doom Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406398.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Neurosis - Honor Found In Decay (2012) [MP3|320 kbps] <Post-Metal , Experimental
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405933.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Leka - 2 альбома (2011-2012) [MP3|320 кб/с]<Progressive Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401383.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Illdisposed - Sense The Darkness (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398207.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Desperado (Dee Snider) - Ace (2006) [MP3|320 Kbps] <Hard & Heavy>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396716.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Ruinside - The Hunt (2012) [MP3|320 кб/с]<Thrash metal, Speed metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395083.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Raventale - Planetarium (2017) [MP3|320 Kbps] <Atmospheric Black Metal, Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394035.jpg" />
 </div>
 
 

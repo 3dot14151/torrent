@@ -6,7 +6,7 @@ NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872339.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Гений Марии Кюри: женщина, осветившая мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872328.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872213.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Техногеника. Буран (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871602.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871051.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870801.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870266.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869958.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869830.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869825.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery. Города живые и мёртвые. Молога - Мышки�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869666.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869506.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869382.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868533.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Строительство небоскреба "Шард" / The Tall
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867693.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867540.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC. Точность и погрешность измерений / Precision: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866524.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866219.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865954.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Discovery. Города живые и мёртвые. Губаха HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865925.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865918.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Animal Planet:Дикие и опасные. Нападение леопарда 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865572.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NG: Суперспособности животных / Animal Superpowers (2012
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864413.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery. Города живые и мёртвые. Совза - Вытегр�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864261.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip (1-3 с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864193.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ History Channel. Мифы и правда о Карле Великом / Karl de
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864186.jpg" />
 </div>
 
 

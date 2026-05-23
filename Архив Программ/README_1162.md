@@ -6,7 +6,7 @@ Rufus 3.3 (Build 1399) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454532.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Panda Dome 18.06.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454528.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton Internet Security 22.8.0.50 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454495.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 10 Insider Preview Redstone 2 Build 10.0.14931 - Оригин�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454484.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe After Effects CC 2015.3 13.8.1.38 RePack by KpoJIuK (06.10.2016) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454478.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Serial KeyGen 1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454448.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WizTree 3.00 Portable by Kopejkin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454431.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Norton Internet Security 22.10.1.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454422.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ashampoo WinOptimizer 16.00.20 DC 27.08.2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454412.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Revo Uninstaller Pro 4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454406.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Office Professional 2003 SP3 (2018.09) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454403.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Rufus 2.17 (Build 1189) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454349.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Psiphon 3 bild 146 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454330.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454315.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454303.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ iZotope - RX 7 Audio Editor Advanced 7.00.218 VST/VST3/AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454300.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ CorelDRAW Graphics Suite 2018 v20.0.0.633 (x86) Portable by Gosuto [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454295.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Rufus 3.7 (Build 1570) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454233.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Windows 10 Корпоративная LTSC 2019 1809 [Build 17763.720] x64 by iv
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454215.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Photodex ProShow Producer 9.0.3776 RePack (& portable) by KpoJIuK + Effects Pack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454159.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Pixologic ZBrush 4R8 P2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454154.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ IcoFX 2.12 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453902.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Brave Browser 1.13.86 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453780.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Cyberfox 41.0.2 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453756.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Internet Download Manager 6.23 Build 23 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453735.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Macrorit Data Wiper 6.2.0 Unlimited Edition RePack (& Portable) by TryRooM [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453680.jpg" />
 </div>
 
 

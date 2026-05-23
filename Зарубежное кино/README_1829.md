@@ -1,56 +1,3 @@
-###  Публикация: 1666522   (179161) от 04.10.2023
-
-Гран туризмо / Gran Turismo (2023) WEB-DLRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Напряжённая спортивная драма, вдохновлённая одноимённой видеоигрой и основанная на реальной истории талантливого подростка-геймера Яна Марденборо, с детства увлекающегося автомобилями и видеоигрой «Gran Turismo», в которой он добился большого успеха. Наконец, Ян становится настоящим профессиональным автогонщиком после победы в серии соревнований Nissan благодаря (   Читать дальше...   )Производство: США, Япония / 2.0 Entertainment, Epic Films, Michael De Luca Productions, PlayStation Productions, Sony Pictures Entertainment, Trigger Street ProductionsЖанр: боевик, драма, приключенияРежиссер: Нил БломкампАктеры: Арчи Мадекве, Орландо Блум, Дэвид Харбор, Никхил Пармар, Мэйв Куртье-Лилли, Дэниэл Пуиг, Джимон Хонсу, Джери Халлиуэлл, Даррен Барнет, Джоша СтрадовскиПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3599B77BA10ECCA2565D36AB37E1629C5F66ADB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593908   (179158) от 29.11.2022
-
-Возвращение Супермена / Superman Returns (2006) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Возвратившись на Землю после своего многолетнего и загадочного отсутствия, Супермен обнаруживает, что его заклятый враг Лекс Лютор опять строит ему козни, а его возлюбленная Лоис Лэйн вроде бы уже устроила свою личную жизнь. Кроме того, Супермен понимает, что за то время, когда его не было, люди научились прекрасно обходиться без него.
-Чтобы защитить мир, который (   Читать дальше...   )Производство: США, Австралия / Warner Bros. PicturesЖанр: фантастика, боевикРежиссер: Брайан СингерАктеры: Брэндон Рут, Кейт Босворт, Кевин Спейси, Джеймс Марсден, Паркер Поузи, Фрэнк Ланджелла, Сэм Хантингтон, Ева Мари Сэйнт, Марлон Брандо, Кэл ПеннПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D680C7FC330B1B66A6E04FC02BCB46B8FDF752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666465   (179157) от 04.10.2023
 
 Великий уравнитель 3 / The Equalizer 3 (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179157.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179142.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179123.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179094.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179084.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179081.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179043.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179041.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179033.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179019.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179017.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179008.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179003.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178989.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178984.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178971.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178969.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178965.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178961.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178950.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178947.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178937.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178936.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178933.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F44FFBB150553DDEB052E451253934A43BA8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593979   (178927) от 29.11.2022
+
+Амстердам / Amsterdam (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 1933 год. Ветеран Первой мировой Бёрт Берендсен держит небольшую клинику и помогает таким же покалеченным войной бедолагам, как и он сам. Однажды его с лучшим другом и сослуживцем, адвокатом Харольдом Вудменом, нанимает дочь их бывшего полководца, чтобы провести вскрытие внезапно почившего отца, который только что прибыл из Европы и собирался выступить (   Читать дальше...   )Производство: США, Канада / 20th Century Studios, Canterbury Classic, Forest Hill Entertainment, Regency Enterprizes, Regency TelevisionЖанр: комедия, детектив, историяРежиссер: Дэвид О. РасселлАктеры: Кристиан Бэйл, Джон Дэвид Вашингтон, Марго Робби, Рами Малек, Андреа Райзборо, Аня Тейлор-Джой, Крис Рок,  Алессандро Нивола, Маттиас Шонартс, Майкл ШеннонПеревод: Дублированный (Jaskier)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 02:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4817CA8C623EEF9F04D09E10516856AA1B89658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594010   (178918) от 29.11.2022
+
+Гармония / Harmony (2022) WEBRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раненая в бою София обнаруживает, что госпиталь, в который ее поместили, предназначен не для ее выздоровления, а для чего-то гораздо более коварного. Поэтому она намеревается раскрыть истинную цель объекта под кодовым названием «Гармония».Производство: США / Hand Me Down FilmsЖанр: ужасы, фантастика, боевик, триллерРежиссер: Зак ГроссАктеры: Mark Frazier, Elliott Bales, Andrew S. Harper, Jessica Inzeo, Pry'ce Jaymes, Марили Межиа, Alexandra WehrПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD58C5FE6390D9FFBBCB730A111DF0D2D4A6B63
 ```
 
 https://mybot314.ru/tekegram_catalog/

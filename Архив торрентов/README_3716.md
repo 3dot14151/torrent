@@ -6,7 +6,7 @@ Windows 10 Pro VL x64 21Н2 (build 19044.1682) by ivandubskoj 07.05.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236533.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced Duplicate Cleaner 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236528.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Chromium 113.0.5672.64 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236526.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NirLauncher Package 1.30.2 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236525.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Performance Index 64 Pro 4.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236524.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Acorn 7 v7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236520.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ ProFind 1.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236517.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Dato 4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236508.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PTE AV Studio Pro 11.0.4 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236507.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ IObit Driver Booster Pro 10.4.0.128 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236503.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Blender 3.3.0 LTS Portable для Windows 7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236501.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ BluffTitler Ultimate 16.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236500.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ SiteSucker 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236497.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Contacts Journal CRM 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236493.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Apeaksoft Screen Recorder for Mac 2.1.36 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236489.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ System Dashboard 4.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236486.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Scrutiny 10 v10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236485.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FileOptimizer 16.30.2781 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236483.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ EssentialPIM Pro 11.5.1 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236479.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236478.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Data Creator 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236471.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ SQLPro Studio 2021.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236467.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wondershare UniConverter Ultimate 14.1.17.189 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236465.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Soulver 3 v3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236455.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ GraphicConverter 11 v.11.8 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236454.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ PatterNodes 2 v2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236447.jpg" />
 </div>
 
 

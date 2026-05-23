@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84615.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HitFilm Ultimate v1.1 Build 2412 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84604.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ieshua's Live-DVD/USB 2.06
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84575.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Malwarebytes' Anti-Malware v1.61.0.1300 Beta  Portable от СССР1 [Multi/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84572.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Microsoft WorldWide Telescope (WWT) 3.0.72.1 Beta [Мульти, есть рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84568.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84429.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84425.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ CorelDraw Graphics Suite X6 16.0.0.707 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84418.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Kaspersky Internet Security 2013 (Technology Preview) 13.0.0.2489 Beta [Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84407.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ DG Win&Soft Free SoftPack 2012 (Март)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84396.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84395.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ RadioBOSS Advanced 4.6.5.919 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84391.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Autodesk AutoCAD Architecture 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84376.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Sonic Academy - ANA 1.0.2.38 VSTi x86 x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84371.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ CyberLink PowerDVD Ultra 11.0.2608 RePack Lite by qazwsxe [Русский / Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84359.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84342.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Autodesk AutoCAD Architecture 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84336.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84255.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Autodesk AutoCAD 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84204.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Autodesk AutoCAD 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84191.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84184.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Serv-U File Server Gold Edition 11.3.0.0 [Multilingual]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84182.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kaspersky World 1.3.2.103 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84181.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84173.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Dicter 3.31 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84135.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 SP1 WPI Boot by OVGorskiy® 20.03.2012 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84012.jpg" />
 </div>
 
 

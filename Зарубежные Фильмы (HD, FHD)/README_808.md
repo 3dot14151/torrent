@@ -1,55 +1,3 @@
-###  Публикация: 1342086   (223284) от 02.12.2019
-
-Ибица / Ibiza (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Консервативный доктор-ортопед Филипп пытается расположить к себе двух детей-подростков своей новой возлюбленной. Он решает провести вместе с ними семейный отпуск у моря, и молодежь выбирает Ибицу, где любителю тихого отдыха придется непросто.Производство: Франция, Бельгия / Atelier de Production, Gaumont, France 2 CinémaЖанр: комедияРежиссер: Арно ЛеморАктеры: Кристиан Клавье, Халид Самата, Матильда Сенье, Леопольд Бухсбаум, Пили Груан, Джои Старр, Оливье Маршаль, Фредерик Бель, Луи-До де Ланкесэ, Виктор УэртасПеревод: Дублированный (iTunes)Субтитры: нетПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A0056FB5002D8822E2ED36B2222FCCFE030A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342444   (223275) от 02.12.2019
-
-Они ползут за тобой / Them That Follow (2019) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В глубине Аппалачей запрещенные отношения заставляют дочь пастора противостоять смертельной традиции ее общины. Пастор Лемюэль Чайлдс возглавляет изолированное сообщество хулиганских злодеев, малоизвестную секту пятидесятников, которые охотно принимают ядовитых змей, чтобы проявить себя перед Богом. Пока его преданная дочь Мара готовится к своему свадебному дню под (   Читать дальше...   )Производство: США / Amasia Entertainment, G-BASEЖанр: ТриллерРежиссер: Бриттани Поултон, Dan Madison SavageАктеры: Кейтлин Девер, Уолтон Гоггинс, Оливия Колман, Томас Манн, Джим Гэффиган, Льюис Пуллман, Элис Энглерт, Доминик Кансельер, Брэдли Галло, Энни ТедескоПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские (full), украинские (full), английскиеПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1749C0CEE31DDD86EB8F7E4C38CA8E308B4E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425135   (223268) от 19.11.2020
 
 Свистуны / La Gomera / The Whistlers (2019) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223268.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223257.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223243.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223238.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223231.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223197.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223184.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223145.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223119.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ SuperЗять / Le gendre de ma vie (2018) BDRip [H.264/1080p] [PR]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223115.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223088.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223087.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223067.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223051.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223046.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223037.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223022.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223011.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223009.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223002.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222995.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222967.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222957.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222956.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:732070DC8D9AED2F665CC7A1E62B8EE45D94630E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513579   (222936) от 29.11.2021
+
+Друзья по отпуску / Vacation Friends (2021) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маркус привык всё в жизни планировать и в долгожданном отпуске в Мексике он собирался сделать Эмили предложение, но его планы нарушает безумная парочка — Рон и Кайла. Они случайно разрушили приготовленный для Маркуса с Эмили номер в отеле, поэтому приглашают их пожить в своём. Так начинается сумасшедший отрыв, в который все четверо кидаются с головой, и вскоре даже (   Читать дальше...   )Производство: США / 20th Century Studios, Broken Road ProductionsЖанр: Комедия, приключенияРежиссер: Клэй ТэрверАктеры: Лил Рел Ховери, Ивонн Орджи, Джон Сина, Мередит Хагнер, Роберт Уиздом, Линн Уитфилд, Эндрю Бэчелор, Тоуни Ньюсом, Бэрри Ротбарт, Камал Анджело БолденПеревод: Двуголосый любительский (Pazl Voice)Субтитры: АнглийскиеПродолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9061CD0BDBAB1A8AB3052733CA4C980BF96B7355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984175   (222843) от 05.08.2023
+
+Хватай и беги / Freaks of Nature (2015) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о группе учеников старших классов, атакованных зомби. Пока ничего необычного. Однако в то время как школьники спасаются бегством, зомби подвергаются нападению вампиров. Все становится еще веселее, когда на Землю высаживаются инопланетяне. Теперь школьникам придется объединиться с зомби и вампирами, чтобы остановить вторжение на нашу планету.Производство: США, Columbia Pictures, Sony Pictures Entertainment (SPE)Жанр: ужасы, комедия, фантастикаРежиссер: Робби ПикерингАктеры: Николас Браун, Маккензи Дэвис, Джош Фэйдем, Дэнис Лири, Эд Вествик, Ванесса Энн Хадженс, Кигэн-Майкл Ки, Боб Оденкёрк, Джоан Кьюсак, Крис ЗилкаПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (forced, full, SDH)Продолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548104620DD2D738ECBB5EB01116102BD91AF20A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ HWiNFO 7.43 Build 5055 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239231.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239227.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ GraphicConverter for Mac 12.0.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239212.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GoodNotes 5.6.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239204.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ProPresenter 7.13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239203.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Total Commander 10.00 (26.04.2022) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239199.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Yate 6.2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239197.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Soulver 3 v.3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239196.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Red Button 5.93 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239195.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VideoProc Converter 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239190.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239176.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239173.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ FotoJet Photo Editor 1.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239167.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ TagScanner 6.1.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239161.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Mic Drop 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239159.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Filmage Converter-ConvertVideo 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239152.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Topaz Video AI 3.2.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239146.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Find Any File (FAF) 2.3.b1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239145.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Glary Disk Cleaner 5.0.1.291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239138.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Yoink 3.6.83 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239135.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ AIMP 5.03 Build 2398 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239134.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ DirEqual 3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239133.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ImgDrive 1.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239129.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Telegram for Android 9.6.1 (3333) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239128.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Microsoft Edge 91.0.864.48 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239125.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Scrivener 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239124.jpg" />
 </div>
 
 

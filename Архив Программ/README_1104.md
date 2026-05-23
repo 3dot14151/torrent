@@ -6,7 +6,7 @@ DVDFab Portable by PortableAppZ 8.2.1.0 Final [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485096.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4432.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485067.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CherryPlayer 3.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485001.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ DVDFab RePack-Portable by KpoJIuK 8.2.1.0 Final [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484962.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Serif Affinity Designer 1.8.5.703 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484912.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Coolutils Total Movie Converter 3.2.155 + Portable to Boomer [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484870.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ K-Lite Codec Pack Update 9.2.6 Build 2012-09-04 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484864.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Opera@USB 12.02 Build 1578 Final [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484855.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484809.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Wondershare Video Converter Ultimate 6.0.0.18 + Portable by Invictus [MULTi + Р
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484757.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windscribe VPN 1.83 build 20 [Multi/Ru] (акция COMSS 50Гб в месяц �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484674.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AusLogics BoostSpeed 5.4.0.10 DC 10.09.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484652.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AusLogics BoostSpeed 5.4.0.10 DC 10.09.2012 RePack (& portable) by KpoJIuK [Ру
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484651.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ JetBrains PhpStorm 4.0.3 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484647.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ DxO PhotoLab Elite 2.3.1 build 24039 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484579.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Firefox Browser 103.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484530.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Firefox Browser ESR 102.1.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484516.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ MInstAll Release by StartSoft 17-2019 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484451.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Total Commander 8.01 Final x86+x64 [MAX-Pack 2012.9.3] AiO-Smart-SFX [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484430.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Perfectly Clear WorkBench 4.1.2.2308 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484416.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Process Lasso Pro 10.4.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484415.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Opera 89.0.4447.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484400.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ RAM Saver Professional 22.7 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484397.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ IObit Smart Defrag Pro 8.0.0.149 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484395.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Dr.Web Security Space 7.0.1.09060 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484355.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Corel PaintShop Pro X5 15.1.0.10 SP1 Portable by BALISTA [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484352.jpg" />
 </div>
 
 

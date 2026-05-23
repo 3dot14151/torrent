@@ -6,7 +6,7 @@ NGW: Грозовые кошки / Storm Cats (2016) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442251.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Охота ягуара на побережье / Jaguar Beach Battle (2018
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442248.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Матриархат / Girl Power (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441303.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439983.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435147.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Волчья династия Йеллоустоуна / Yellowstone Wolf D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434953.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434704.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Волк против медведя / Wolf vs. Bear (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431043.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. Пропавшие города Амазонии: Легенда стано�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430738.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Зыбучие пески: невидимая опасность / Danger Qu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430550.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Мыши
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428933.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426998.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426996.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Дикая природа Аргентины. Безжалостные го
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426880.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NGW. Окаванго: Река мечты / Okavango: River of Dreams (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425182.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NG: Леопарды дельты Окаванго / Leopards of Dead Tree Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425073.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425064.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NGW: Невероятная Африка. Последний лес / Extraordin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424612.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423008.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW: Невероятная Африка. Назинга / Extraordinary Africa.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422458.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NGW: Невероятная Африка. Сокровища Восточног�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422452.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NGW: Африканские охотники / Africa's Hunters (2018) HDTVRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418667.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Запо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415421.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NGW: Пустынное море / The Desert Sea (2016) HDTV [H.264/1080i-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413190.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NGW: Зеленый ковбой из Австралии / Monster Croc Wrangler
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413188.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412300.jpg" />
 </div>
 
 

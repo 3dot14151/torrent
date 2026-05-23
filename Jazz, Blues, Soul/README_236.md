@@ -6,7 +6,7 @@ VA - The Exciting & Dynamic Sounds of the Hammond B3 Organ (2020) [MP3|320 Kbps]
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591202.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Starlight Searchers - Don't Bring The Kids (2014) [MP3|320 кб/с]<Blues, Count
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590997.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Albert Ammons & Meade Lux Lewis - The Complete Blue Note Recordings (1935 - 1944
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590784.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jacques Schwarz-Bart Quartet - The Art of Dreaming (2012) [FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590496.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jimmie Lunceford - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590492.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy Reed - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590489.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jimmy Witherspoon - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590488.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Herbie Hancock - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590458.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ike & Tina Turner - Jazz & Blues collection (1995) [MP3|320 кб/с]<Rhythm & Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590454.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ James Brown - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590405.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Western Swingin'. 85 Tracks From Three Golden Decades Of Western Swing (201
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590402.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590246.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590245.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kammerflimmer Kollektief - Teufelskamin (2011) [FLAC|Lossless|tracks + .cue] <Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590239.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kammerflimmer Kollektief - Désarroi (Desarroi) (2015) [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590227.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Nils Gessinger - Pass-ion (2011) [FLAC|tracks+.cue]<Jazz, Funk, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590001.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ David Michael Miller - Same Soil (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589999.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tanny Mas Band - True Illusions (2015) [MP3|320 кб/с]<Jazz-Fusion, Contempora
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589997.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Woody Herman - Four Classic Albums (1958 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589781.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Apollo Cruz - … Your Blues, John (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589641.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ King Oliver - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589612.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lester Young - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589611.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Melanie Durrant - Anticipation (2015) [FLAC|tracks+.cue]<Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589609.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Other Mules - Here With The Blues (2015) [MP3|320 кб/с]<Rockin' Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589604.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589585.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Burlesque (48 Best Of Tease & Drama) (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589573.jpg" />
 </div>
 
 

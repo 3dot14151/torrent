@@ -6,7 +6,7 @@ AnyDesk 9.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22642.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rufus 4.7 (Build 2230) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22627.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Master PDF Editor 5.9.89 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22619.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Uninstaller Pro 14.2.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22618.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RAM Saver Professional 25.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22611.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Firefox Browser ESR 115.22.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22597.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Duplicate File Detective 7.3.74.0 (x64) Professional / Enterprise / Server Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22589.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Firefox Browser 137.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22586.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FolderSizes 9.7.514 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22585.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Firefox Browser ESR 128.9.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22573.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SAS.Планета 250404 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22559.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Launcher for zapret 2.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22555.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ iTubeGo YouTube Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22529.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ KiCad 9.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22518.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 31.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22505.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ FreeCommander XE 2025 donor v927 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22500.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Calibre 8.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22498.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FanControl V219 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22496.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Wondershare PDFelement 11.4.12.3412 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22482.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Activation Program 1.09 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22454.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Internet Download Manager 6.42 Build 32 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22435.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (2903) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22427.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Malwarebytes Windows Firewall Control 6.14.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22412.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Master PDF Editor 5.9.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22405.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Any Video Downloader Pro 9.2.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22388.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ W10Privacy 5.2.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22384.jpg" />
 </div>
 
 

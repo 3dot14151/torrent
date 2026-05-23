@@ -1,58 +1,3 @@
-###  Публикация: 1420191   (333766) от 31.10.2020
-
-Дина Рубина | Одинокий пишущий человек (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дина Рубина «Одинокий пишущий человек» – шокирующая исповедь человека, дело жизни которого – «сочинение разных историй». У этой книги нет аналогов в современной русской литературе. Да и зарубежная в этом жанре предлагает обычно руководства по изготовлению литературных текстов или автобиографии знаменитых авторов бестселлеров. Книга Дины Рубиной «Одинокий пишущий (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 19:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E181938BCAAD9A541B6E7ED26A63788D255486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420358   (333239) от 31.10.2020
-
-Матвей Гречко | Тайные общества. Полная история (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Настоящая энциклопедия тайных обществ всего мира!
-Вся правда о масонах, иллюминатах и розенкрейцерах.
-
-Аудионига рассказывает, как через века и тысячелетия передавался древний «гнозис» – сокровенное знание, поведанное богами первым людям. О том, кто такие катары, розенкрейцеры, мартинисты и иллюминаты; чем отличаются карбонарии от кальдерариев; какими делами занимались (   Читать дальше...   )Жанр: Общая история, Популярно об истории, ПублицистикаПродолжительность: 15:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368D2CB87AC03325DDDCFAFBA0E0A489EDAC9D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955767   (332525) от 12.11.2015
 
 Петр Сытин | В Бульварном кольце (2008) [MP3]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332525.jpg" />
 </div>
 
 
@@ -88,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330951.jpg" />
 </div>
 
 
@@ -116,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329812.jpg" />
 </div>
 
 
@@ -145,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328883.jpg" />
 </div>
 
 
@@ -173,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326717.jpg" />
 </div>
 
 
@@ -199,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326655.jpg" />
 </div>
 
 
@@ -227,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325542.jpg" />
 </div>
 
 
@@ -253,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323433.jpg" />
 </div>
 
 
@@ -279,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323310.jpg" />
 </div>
 
 
@@ -305,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323306.jpg" />
 </div>
 
 
@@ -331,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321866.jpg" />
 </div>
 
 
@@ -357,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321856.jpg" />
 </div>
 
 
@@ -383,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321846.jpg" />
 </div>
 
 
@@ -409,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321655.jpg" />
 </div>
 
 
@@ -436,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318875.jpg" />
 </div>
 
 
@@ -463,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318553.jpg" />
 </div>
 
 
@@ -489,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318517.jpg" />
 </div>
 
 
@@ -515,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318364.jpg" />
 </div>
 
 
@@ -544,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316932.jpg" />
 </div>
 
 
@@ -572,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316154.jpg" />
 </div>
 
 
@@ -598,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316144.jpg" />
 </div>
 
 
@@ -624,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316136.jpg" />
 </div>
 
 
@@ -650,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314956.jpg" />
 </div>
 
 
@@ -676,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314702.jpg" />
 </div>
 
 
@@ -687,6 +632,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:027480DCF45899E024335E76B3AC1BC082D55745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260083   (314555) от 06.11.2018
+
+Елена Арманд | Блаженны чистые сердцем (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный роман "Блаженны чистые сердцем" позволяет читателю совпасть с абсолютной реальностью, пережив изнутри жизнь России с 1905 по 1925 год, а также узнать дальнейшие судьбы большинства героев. Взрослые и дети ведут дневники, пишут стихи, письма, а позже и воспоминания. Это и есть текст романа. Главное его событие - создание в голодном 1920 году (   Читать дальше...   )Жанр: Документальный романПродолжительность: 35:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7776143579B4387446BE2E51FBAB8DB7B17AC930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959231   (314554) от 25.11.2015
+
+Алесь Адамович | Сборник произведений [5 книг] (2013-2014) [OGG]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекса́ндр (Але́сь) Миха́йлович Адамо́вич (белор. Аляксандр (Алесь) Міхайлавіч Адамовіч; 3 сентября 1927, деревня Конюхи, Копыльский район, Минская область — 26 января 1994, Москва) — белорусский писатель, сценарист, литературовед, доктор филологических наук (1962), профессор (1971), член-корреспондент АН БССР (1980).
+Родился 3 сентября 1927 года (   Читать дальше...   )Жанр: Документалистика, художественная литератураПродолжительность: 74:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A810439463A6F5FA1AFB082A66448062922F750D
 ```
 
 https://mybot314.ru/tekegram_catalog/

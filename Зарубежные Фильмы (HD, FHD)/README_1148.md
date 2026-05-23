@@ -1,55 +1,3 @@
-###  Публикация: 667101   (8183) от 13.08.2025
-
-Неспящие в Сиэттле / Sleepless in Seattle (1993) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Однажды ночью в эфир радиостанции дозвонился мальчик, который искал маму для себя и жену для папы. На зов ребенка откликается множество женщин, в том числе и Эни, которая живет на другом конце материка, но после передачи начинает переписку с Джоном, отцом ребенка. Для того, чтобы встретиться, этим двоим придется преодолеть непростые преграды, но любовь все равно (   Читать дальше...   )Производство: СШАЖанр: Драма, Мелодрама, КомедияРежиссер: Нора ЭфронАктеры: Том Хэнкс, Мег Райан, Билл Пуллман, Росс Мэлинджер, Рози О`Доннелл, Гэби Хоффманн, Виктор Гарбер, Рита Уилсон, Барбара Гэррик, Кэри Лоуэлл, Дэвид Хайд ПирсПеревод: дублированный, профессиональный многоголосый (???), Авторский (Михалёв)Субтитры: русские, английскиеПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3480F3D13D27752F77CE094E5FAB0C1BF963C7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450343   (8164) от 13.08.2025
-
-Большая игра / Molly's Game (2017) BDRip [H.264/1080p] [CAN Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молли Блум называли Принцессой покера. Она построила самое дорогое подпольное казино в Голливуде. Каждую минуту здесь шли ва-банк кинозвезды, шейхи, миллиардеры. Большие деньги пахнут кровью. Как выжить, когда за тобой охотится мафия и ФБР?Производство: США, Канада, Китай / STX Entertainment, Huayi Brothers Pictures, The Mark Gordon CompanyЖанр: Драма, криминал, биографияРежиссер: Аарон СоркинАктеры: Джессика Честейн, Идрис Эльба, Кевин Костнер, Майкл Сера, Джереми Стронг, Крис О’Дауд, Дж.С. МакКензи, Брайан Д’Арси Джеймс, Билл Кэмп, Грэм ГринПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 02:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937232C3B616F515D0619A0789DC95E4AAAA0EB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812218   (8136) от 13.08.2025
 
 Чёрный чай / Black Tea (2024) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8136.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8122.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8120.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7913.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7905.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7804.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7609.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7580.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7548.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7545.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7525.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7519.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7486.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7485.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7475.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7409.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7408.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7396.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7389.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7361.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7344.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7273.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7154.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7130.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3117883084A8A546FCB9CC59F7EDD7F24C9D4414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813261   (7080) от 18.08.2025
+
+Сорокалетний девственник / The 40 Year Old Virgin (2005) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7080.jpg" />
+</div>
+
+
+###  Подробнее
+
+40-летний Энди Стицер добился в жизни многого. У него непыльная и хорошо оплачиваемая работёнка в магазине по продаже электронной бытовой техники, хорошие друзья, а также милая квартирка, в которой находится гордость Энди — коллекция игрушечных героев и комиксов. Однако его жизнь лишена простых человеческих радостей, которые доступны большинству людей его возраста. (   Читать дальше...   )Производство: США / Apatow Productions, Universal PicturesЖанр: комедия, мелодрамаРежиссер: Джудд АпатоуАктеры: Стив Карелл, Кэтрин Кинер, Пол Радд, Романи Малко, Сет Роген, Элизабет Бэнкс, Лесли Манн, Джейн Линч, Джерри Бедноб, Кэт Деннингс, Шелли Мэлил, Джорди Мастерсон, Челси Смит, Джона Хилл, Эрика Виттина ФиллипсПеревод: дублированный, профессиональный двухголосый (Tycoon)Язык озвучки: русский, английскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 02:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A579E5999DCA3A74B1EDD20D03651C3490053235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559523   (7008) от 19.08.2025
+
+Всё везде и сразу / Everything Everywhere All at Once (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Эвелин царит бардак. Она никак не может составить налоговый отчёт, пожилой отец постоянно требует внимания, муж витает в облаках, а ещё и дочка привела свою девушку знакомиться с семьёй. Во время визита в налоговую всё запутывается ещё сильнее — оказывается, Эвелин может скакать по параллельным вселенным и получать доступ к воспоминаниям и навыкам других (   Читать дальше...   )Производство: США / A24, AGBO Production, Hotdog HandsЖанр: Фантастика, комедия, боевик, приключения, драмаРежиссер: Дэн Кван, Дэниэл ШайнертАктеры: Мишель Йео, Джейми Ли Кёртис, Ке Хюи Куан, Стефани Сюй, Джеймс Хун, Тэлли Медел, Дженни Слейт, Гарри Шам мл., Бифф Уифф, Сунита МаниПеревод: Дублированный (CPI Films), Многоголосый профессиональный (Jaskier)Субтитры: Русские (Forced, 2x Full) Украинские (Forced), Английские (Full, SDH, Hardsub - на китайскую речь)Продолжительность: 02:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1326A85334E3BAE1DADBA8DF786C18FA9CCB08
 ```
 
 https://mybot314.ru/tekegram_catalog/

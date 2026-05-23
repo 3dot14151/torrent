@@ -6,7 +6,7 @@ SuperCopier 3.0.0.2 + Portable [Multi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990080.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 9.7.4 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990038.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GIMP 2.9.1 beta [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990005.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Reg Organizer 6.01 Final RePack (& Portable) by elchupacabra [Русский / �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990002.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Reg Organizer 6.01 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989996.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Internet Download Manager 6.15 Final RePack by KpoJIuK [Русский / Анг�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989994.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Boilsoft Video Joiner 7.02.2 Portable by SamDel [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989954.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ FastStone Image Viewer 4.7 Final + Portable Corporate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989909.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Glary Utilities Pro 5.136.0.162 Repack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989880.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Opera GX 64.0.3417.170 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989854.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Unity Pro 2018.4.15f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989849.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ SeaMonkey 2.49.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989841.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Aiseesoft Data Recovery 1.2.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989833.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ PrivaZer 3.0.88 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989827.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Kaspersky CRYSTAL 13.0.2.821 RC [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989826.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Boilsoft Video Joiner / Video Splitter 7.02.2 [Eng+Rus] + Portable [Rus] by Invi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989778.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ SeaMonkey 2.49.5 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989773.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Firefox Browser 72.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989771.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Mozilla Firefox Quantum ESR 68.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989766.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Glary Utilities Pro 5.136.0.162 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989765.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Unity Pro 2019 2.18f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989764.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Aiseesoft Video Converter Ultimate 9.2.82 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989760.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ AlterPDF Pro 4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989721.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ CrystalDiskInfo 8.4.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989694.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MAGIX SOUND FORGE Pro Suite 13.0.0.131 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989690.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ CrystalDiskInfo 8.4.0 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989676.jpg" />
 </div>
 
 

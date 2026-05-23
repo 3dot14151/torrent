@@ -1,81 +1,3 @@
-###  Публикация: 967526   (158237) от 22.12.2015
-
-Анатолий Грешневиков | Эра экологического апокалипсиса (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В книге писателя, заместителя председателя Комитета по экологии Государственной Думы России рассматриваются проблемы экологии: судьба российских лесов, состояние почвенного покрова земли, национальные интересы России в Арктическом регионе, угроза глобального потепления, обеспечение качественной питьевой водой, сохранение уникальной экосистемы Каспийского моря, жестокое (   Читать дальше...   )Жанр: Публицистика, ЭкологияПродолжительность: 28:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3E529E6BA9761FF8D984492D197C6003ABB76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967667   (158217) от 22.12.2015
-
-Октябрина Ганичкина, Александр Ганичкин | Все о саде и огороде (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Книга составлена из записок с вопросами, которые Октябрина Алексеевна собирала на встречах с садоводами и огородниками. Вытряхнув вопросы из мешка и разложив их по темам, Октябрина Алексеевна и Александр Ганичкины написали эту книгу, в которой с удовольствием делятся богатым многолетним опытом ведения дачного хозяйства. Каждый читатель — от новичка до заядлого дачника (   Читать дальше...   )Жанр: Сад и огородПродолжительность: 16:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75531C756E4B3D0386E967C51089020AA1ECF908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967713   (158184) от 22.12.2015
-
-Александр Иванов | Избранное у других (1986) [MP3, Александр Иванов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Александр Иванов пишет пародии не потому, что у него вредный характер, и вовсе не из-за желания кого-то подразнить, а во имя любви к настоящей литературе и настоящей поэзии. Поэтов такие пародии не унижают, они только заставляют задуматься. А что касается поэтов ненастоящих, то обижаться на пародиста им также не следует. Наоборот, уж ему-то они должны быть (   Читать дальше...   )Жанр: Юмор, пародияПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A4A6F7DC603DC619A7FFB2976BA80D28BEC01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433354   (158154) от 20.12.2020
 
 Вацлав Кайдош | Опыт (2020) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158154.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158137.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158062.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158052.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157979.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157859.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157829.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157827.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157806.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157765.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157747.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157725.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157695.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157663.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157646.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157645.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157638.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157635.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157617.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157581.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157565.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157553.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157549.jpg" />
 </div>
 
 
@@ -678,6 +600,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5072FE181FE209ABF980F3C3172231D1033662C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600474   (157519) от 27.12.2022
+
+Натали Смит | Блог Бабы Яги (Книга 1) (2022) [MP3, Лана Лето]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157519.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Со службы нельзя уволиться, нельзя умереть, нельзя не исполнять обязанности», – гласит контракт… Могущественная корпорация ООО «Лукоморье», раскинувшая свои сети далеко за пределы сказочного мира, заманивает и связывает нерушимым контрактом беспечных людей. Так в ловушку попала Янина, волею судьбы, против желания ставшая Бабой Ягой – проводником душ сказочного мира. (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 09:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12C51DC900BD4623BAC63552E690E07ECB6A4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270475   (157518) от 19.12.2018
+
+Мередит Митчел | Эмили (Книга 2). Леди и смерть (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистера Филиппа Рис-Джонса считают проклятым. Стоит ему сделать девушке предложение — и ее находят мертвой. Неудивительно, что этого джентльмена перестают принимать во многих домах, а матушки, имеющие дочерей на выданье, спешат перейти на другую сторону дороги, только бы не оказаться с ним рядом. И только Эмили, молодая, но наблюдательная леди, обращает внимание (   Читать дальше...   )Жанр: Исторические детективыИздательство: Нигде не купишьПродолжительность: 12:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3C7898D5D504A1B7649C3F2C20B192F4F37D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600246   (157508) от 27.12.2022
+
+Екатерина Вильмонт | Рыжий доктор (2022) [MP3, Ксения Бржезовская]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновляющая история про сильного человека, которая наглядно показывает – жизнь всегда дает второй шанс
+
+Он уже больше ни на что не надеялся. За спиной остались только руины: неудавшийся брак с мучительным разводом, козни на работе и, как результат – тремор и уход из профессии. Так думал Рыжий доктор, теперь уже в прошлом выдающийся кардиохирург. Что ему остается? (   Читать дальше...   )Жанр: Любовный романПродолжительность: 06:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B261C5E0DB0C3DBFDBDC7E4E3A3A024A42B861B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

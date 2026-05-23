@@ -6,7 +6,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183593.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Hookshot 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183589.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ OverPicture for Safari 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183579.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ SQLPro Studio 2020.104 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183567.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MacGourmet Deluxe 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183518.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Twitterrific 5 v5.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183501.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sensei 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183369.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ TechSmith Camtasia 2020 Studio v2020.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183308.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wondershare Recoverit 9.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183282.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ FontExplorer X Pro 7 v7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183228.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Movavi Picverse 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183186.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Downie 4 4.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182495.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sensei 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182486.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ EdgeView 2 v2.903 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182476.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Mirror for Sony TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182444.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Audiobook Builder 2 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182394.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Keka 1.2.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182386.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ X Lossless Decoder XLD 20201123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182291.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Microsoft Office 2021 for Mac LTSC 16.67 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182123.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Boom 3D 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182027.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ TablePlus 3.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181955.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Receipts 1.9.10b7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181680.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Smultron 12.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181676.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Privatus 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181672.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ PatterNodes 2 v2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181669.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Workspaces 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181666.jpg" />
 </div>
 
 

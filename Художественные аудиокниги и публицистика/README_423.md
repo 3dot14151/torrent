@@ -1,84 +1,3 @@
-###  Публикация: 1543188   (631676) от 10.04.2022
-
-Саймон Скэрроу | "Орел" Книга 3. Орел нападает (2022) [MP3, Александр Городиский]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Промозглой зимой 44 года от Рождества Христова римские силы в Британии с нетерпением ожидали наступления весны, чтобы возобновить кампанию по завоеванию острова. Непокорные бритты тем временем становились все более изощренными в своем сопротивлении, не гнушаясь нанести римлянам удар в спину.
-
-Захвачены в плен жена и дети генерала Плавта, центуриону Макрону и его (   Читать дальше...   )Жанр: Историческая литература, ПриключенияПродолжительность: 12:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DA10B4B755FFE8A42806124839F597AE98F147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228791   (631664) от 03.06.2018
-
-Александр Бачило | Академонгородок (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Нечистая сила становится Силой, только если в нее верят. А как прикажете заставить людей поверить в русалок и вурдалаков, если на дворе – 1957 год и на месте древнего города Демонов того и гляди начнут очередную коммунистическую стройку убежденные материалисты? Главному злодею – Стылому Мороку – предстоит долгая и кропотливая работа… В принципе, эта книга была бы (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 10:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B924895BA4C624FA432879502AB6CE06E2149FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143907   (631637) от 20.06.2017
-
-Станислав Родионов | Диско-бар (2017) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ленинградский писатель Станислав Родионов в своих остросюжетных повестях возвращается к давно волнующей его теме: расследованию преступлений. Причем нарушение закона автор исследует прежде всего как следствие нарушения нравственных, этических норм.
-Автора интересуют глубинные корни как общественных явлений, так и поступков каждого отдельного человека.Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 03:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B2762C6195C14DC308573303CE05DDA0A6F697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144086   (631627) от 20.06.2017
 
 Буало-Нарсежак | Жизнь вдребезги (2017) [MP3, Дарья Фролова, Александр Быков и др.]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631627.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631527.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631477.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631412.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631368.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631355.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631349.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631347.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631339.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631336.jpg" />
 </div>
 
 
@@ -351,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631202.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631200.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631198.jpg" />
 </div>
 
 
@@ -429,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631068.jpg" />
 </div>
 
 
@@ -455,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630871.jpg" />
 </div>
 
 
@@ -481,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630770.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630590.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630581.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630518.jpg" />
 </div>
 
 
@@ -590,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630512.jpg" />
 </div>
 
 
@@ -618,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630508.jpg" />
 </div>
 
 
@@ -645,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630506.jpg" />
 </div>
 
 
@@ -671,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630435.jpg" />
 </div>
 
 
@@ -684,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00960CD6169D33765AB8D63A632543F56ED3BF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035131   (630420) от 15.07.2016
+
+Иван Бунин | Жизнь Арсеньева (2016) [MP3, Илья Прудовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630420.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жизнь Арсе́ньева» — роман Ивана Бунина в пяти книгах, написанный во Франции. Бо́льшая часть произведения была завершена в 1929 году. Первые публикации отдельных глав начались в 1927 году в парижской газете «Россия». Через три года автор приступил к продолжению романа — заключительной части «Лика». Отдельной книгой «Жизнь Арсеньева» вышла в 1930 году (Париж, (   Читать дальше...   )Жанр: Русская классическая прозаИздательство: Нигде не купишьПродолжительность: 14:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B991841E3C489B6D64CFC9AEA5A5726C100A0D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035112   (630419) от 15.07.2016
+
+Оноре де Бальзак | Кодекс порядочных людей, или О способах не попасться на удочку мошенникам (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прежде чем начать выставлять на титульном листе свое имя, Оноре де Бальзак (1799–1850) опубликовал немало сочинений под псевдонимами или вовсе без подписи. Последующие произведения автора «Человеческой комедии» заслонили его раннюю прозу, а между тем многие особенности позднейшей манеры писателя присутствуют уже в этих первых пробах пера. Таков «Кодекс порядочных (   Читать дальше...   )Жанр: зарубежная прозаПродолжительность: 05:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE4ECCC92CDD4637A14E2A45783D6CD23CFD8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035102   (630415) от 15.07.2016
+
+Альфред Ван Вогт | Двойники (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая повесть, в которой главное действующее лицо кристалл, который таинственным образом дублирует людей. Вы только представьте множество дублей скопированных с одной и той же личности, каждый идёт по своему жизненному пути и не один не знает о существовании двойников. Всё сводится к поиску лучшего двойника...Жанр: Научная фантастикаПродолжительность: 02:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66DBCDC3725216E03B58CF17B0AC20BE62A20AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

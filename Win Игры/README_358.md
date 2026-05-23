@@ -1,29 +1,3 @@
-###  Публикация: 1596418   (169460) от 10.12.2022
-
-NecroBouncer (2022) [Multi] (1.0.1) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Возьми свой волшебный посох и стань некромантом, работающим вышибалой в ночном клубе. Самозабвенно ползайте по клубу подземелий и сталкивайтесь с множеством пьяных монстров, готовых приветствовать вас после каникул. Пришло время приступить к работе. Прорвитесь сквозь толпу и расправьтесь с несколькими боссами. Используйте силы, скрытые в драгоценных камнях, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Alchemy SheepЖанр: Экшны, RoguelikeЯзык субтитров: Английский, Немецкий, Испанский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1113D74068382CDF6E25A649D112A331A25182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596489   (169439) от 10.12.2022
 
 Togges (2022) [Ru/Multi] (1.03) License GOG
@@ -32,7 +6,7 @@ Togges (2022) [Ru/Multi] (1.03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169439.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ IXION (2022) [Ru/Multi] (1.0.0.3) Repack DjDI [Deluxe Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169437.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169278.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169154.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168955.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168953.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Strange Investigations 3: Secrets Can Be Deadly / Удивительные ра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168900.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Christmas Stories 11: Taxi of Miracles / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168895.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168879.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ This Is the President (2021) [Ru/En] (1.0c) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168855.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.f
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168838.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Bridge To Another World 10: Cursed Clouds / Мост в другой мир 10: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168762.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168649.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168647.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Chimeras 12: Inhuman Nature (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168637.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ DCOP (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168628.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168607.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Urbek City Builder (2022) [Ru/Multi] (1.0.22.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168570.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mini Metro (2014) [Ru/Multi] (202211171226) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168531.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Conqueror's Blade (2019) [Ru] (2.12.19) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168527.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168147.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168061.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Titan Station (2022) [Ru/Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167833.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167804.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8109/dlc) Repack R.G. М�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167731.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:358B545EC98D6AE52FBA8C7ED2594C8078755EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345047   (167677) от 13.12.2019
+
+Phoenix Point (2019) [Ru/Multi] (1.0.54518) Repack R.G. Механики
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phoenix Point - это новая стратегическая игра от создателя оригинальной серии X-COM. Игра состоит из пошаговых тактических боев и глобальной стратегии в битве против ужасающей, чужеродной угрозы. В Phoenix Point игрокам предстоит вступить в отчаянную схватку, чтобы защитить Землю от мутирующей инопланетной угрозы. В Phoenix Point вас ждут пошаговые тактические бои (   Читать дальше...   )Тип издания: RepackРазработчик: Snapshot GamesЖанр: Strategy (TBS), Tactical, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B8211420999A396C9CE8B9529C8572E29DA4EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,57 +1,3 @@
-###  Публикация: 185394   (887947) от 21.03.2010
-
-Скала / The Rock (1996) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Генерал элитных диверсионных спецсил США, за плечами которого опыт чуть ли не всех войн планеты, похищает со своими лучшими подчиненными ракеты со смертоносным газом и захватывает в заложники туристов в бывшей тюрьме «Алькатрас», находящейся на острове в бухте Сан-Франциско.
-
-Они требуют по миллиону долларов семьям погибших и кругленькую сумму себе. Для того, чтобы (   Читать дальше...   )Жанр: Боевик, Триллер, ПриключенияРежиссер: Майкл Бэй.Актеры: Шон Коннери, Николас Кейдж, Эд Харрис, Джон Спенсер, Дэвид Морс, Уильям Форсайт, Майкл Бьен, Ванесса Марсил, Джон К. МакГинли, Грегори Спорледер и др.Перевод: Продолжительность: 01:46:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371718   (887945) от 01.04.2020
-
-Хищные птицы: Потрясающая история Харли Квинн / Birds of Prey: And the Fantabulous Emancipation of One Harley Quinn (2020) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн рассталась с Джокером и через некоторое время сообщила об этом всему Готэму, взорвав тот самый химзавод. Девушка больше не тоскует по несостоявшимся отношениям — ей некогда, так как она также потеряла неприкосновенность, и теперь за ней охотятся разной степени криминализованности граждане, которым она когда-либо наносила вред. А в это время ставший крёстным (   Читать дальше...   )Производство: США / Clubhouse Pictures (II), DC Entertainment, Kroll & Co. EntertainmeЖанр: Боевик, Криминал, КомедияРежиссер: Кэти ЯньАктеры: Марго Робби, Джерни Смоллетт, Мэри Элизабет Уинстэд, Рози Перес, Элла Джей Баско, Юэн Макгрегор, Крис Мессина, Бояна Новакович, Али Вонг, Дэвид УриПеревод: ДублированныйСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEAC9259A2FB16C3A64E04692B0F128A9AC8DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994809   (887944) от 09.03.2016
 
 Отсчет жертв / Body Count (1998) DVDRip [H.264]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887944.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887883.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887838.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887830.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887775.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887763.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887758.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887725.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887650.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887637.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887628.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887532.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887520.jpg" />
 </div>
 
 
@@ -402,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887462.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887405.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887399.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887379.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887357.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887343.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887335.jpg" />
 </div>
 
 
@@ -585,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887334.jpg" />
 </div>
 
 
@@ -611,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887322.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887312.jpg" />
 </div>
 
 
@@ -663,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887309.jpg" />
 </div>
 
 
@@ -674,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0AEC29AE640A5D4C1AA10F1F66F184FCF069803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869556   (887244) от 17.02.2015
+
+Пляж / The Beach (2000) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_887244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ричард — американский юноша, жаждущий приключений — отправляется в Тайланд, где в дешевой гостинице знакомится со странным человеком. Этот человек передает ему карту таинственного острова, где «трава» растет как сорняк, а на пляже живет коммуна. Это и есть рай на Земле. Ричард знакомится с парочкой французов, и они втроем отправляются на этот остров.Производство: США, Великобритания / Figment FilmsЖанр: Триллер, Драма, Мелодрама, ПриключенияРежиссер: Дэнни Бойл.Актеры: Леонардо ДиКаприо, Виржини Ледуайен, Тильда Суинтон, Гийом Кане, Роберт Карлайл, Пэтерсон Джозеф, Зельда Тинска, Питер Янгблад Хиллз, Даниэль Кальтаджироне, Дэниэл ЙоркПеревод: ДублированныйПродолжительность: 01:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A2D654C378EED1A791CFAB2A7D084FF866ACFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494446   (887218) от 08.09.2021
+
+Выжить любой ценой / Кровь и деньги / Allagash / Blood and Money (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной ветеран на охоте натыкается на мертвую женщину и сумку, набитую деньгами.Производство: США / AllagashЖанр: Триллер, драмаРежиссер: Джон БаррАктеры: Том Беренджер, Кристен Хагер, Пол Бен-Виктор, Джимми ЛеБланк, Марк Сивертсен, Брайан Даффи, Ди Кевин Эйс Гибсон, Райан Хомчик, Каролина Порту, Эрика МакДермоттПеревод: Многоголосый профессиональный (Окко, Mallorn Studio), Двуголосый любительский (LakeFilms)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF72BDB36C7F4E1750A52BAD495BCD3A718AB64
 ```
 
 https://mybot314.ru/tekegram_catalog/

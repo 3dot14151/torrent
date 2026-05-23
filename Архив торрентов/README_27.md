@@ -6,7 +6,7 @@ iVI Video Converter 4 v4.742 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042050.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Money Pro - Personal Finance 2.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042049.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FileZilla 3.52.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042048.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DJ Eric Flash - Astralis (2008) [FLAC|Lossless|tracks + .cue] <Progressive Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042044.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Free Download Manager 6.13.1.3480 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042032.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Picture Collage Maker 3 v3.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042026.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ macOS Server 5.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042021.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Soft4Boost Document Converter 6.6.1.617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042017.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ PrivaZer 4.0.17 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042016.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ PrivaZer 4.0.17 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042015.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ulysses 21.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042009.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Brave Browser 1.18.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042004.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Glary Utilities Pro 5.158.0.184 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041993.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Wondershare Filmora Х v10.1.7.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041990.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Basilisk 2021.01.05 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041982.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Music Maker Jam v6.10.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041980.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Opera 73.0.3856.329 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041979.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ MKVToolNix 52.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041978.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Simplenote 2.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041976.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MEmu 7.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041974.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ ContaCam 9.9.14 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041967.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ EF Commander 20.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041963.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ IsMyLcdOK 4.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041962.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Phototheca Free 2020.12.5.318 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041959.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ USB Device Tree Viewer 3.5.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041958.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Elmedia Player Pro 7.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041957.jpg" />
 </div>
 
 

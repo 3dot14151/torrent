@@ -1,110 +1,3 @@
-###  Публикация: 1105806   (875034) от 18.02.2017
-
-Журнал | Vogue [Россия] №3 (март 2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Журнал Vogue поистине легенда в мире моды, ведь он издаётся уже более 120 лет. Журнал печатается в 19 странах мира, его аудитория огромна и он по праву занимает первое место. Меняются эпохи, а Vogue по-прежнему является для женщин путеводителем в мире моды. Лучшие модели, коллекции и тренды всё это можно найти на страницах Vogue.Жанр: Женские журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCB7A166BC0CA3997349340C6D01001222DBA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106093   (874829) от 18.02.2017
-
-Журнал | Лиза. Спецвыпуск. Как найти мужа (2017) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В каждом браке, который длится больше одной недели, всегда найдутся причины для развода. Фокус в том, чтобы снова и снова находить причины для брака.
-Роберт Андерсон.
-
-Собственный скан.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B8D5D9F35EE7687E057E1D81F4650823952056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766023   (873333) от 13.03.2014
-
-Журнал | Allure [Россия] №4 (апрель 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Allure - легендарный журнал о красоте. Для Allure работают лучшие парикмахеры и визажисты, снимают ведущие фотографы, пишут знаменитые авторы. За не предвзятые оценки и смелые сюжеты Allure признан мировым экспертом в индустрии красоты. Основные темы журнала: мода, красота, украшения, здоровье, диеты, интервью с известными женщинами, гороскоп.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D334FE849F15FD17406C52DE747CC88D26FE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766178   (873006) от 13.03.2014
-
-Журнал | Домашний очаг [Россия] №3 (март 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Каждый номер Домашнего Очага содержит множество ценных практических советов от экспертов: врачей, диетологов, педагогов, юристов, дизайнеров. Наряду с советами профессионалов в издании представлены и обычные люди – женщины, которые решают самые сложные вопросы и делятся своим опытом.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54F306D2009414826E7E12331080F71C4AD3BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106799   (871376) от 20.02.2017
 
 Журнал | Женские секреты №3 (март 2017) [PDF]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871376.jpg" />
 </div>
 
 
@@ -139,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871375.jpg" />
 </div>
 
 
@@ -157,32 +50,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 766390   (870973) от 14.03.2014
-
-Журнал | Cosmopolitan [Россия] №3 (март 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь и добивается (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D141DE122A657B0A455013541F9FCA60E7892EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766562   (870966) от 14.03.2014
 
 Журнал | Vogue [Россия] №4 (апрель 2014) [PDF]
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870966.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870315.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869828.jpg" />
 </div>
 
 
@@ -270,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869299.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868446.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868137.jpg" />
 </div>
 
 
@@ -348,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868136.jpg" />
 </div>
 
 
@@ -374,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868023.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867897.jpg" />
 </div>
 
 
@@ -426,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867885.jpg" />
 </div>
 
 
@@ -452,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864874.jpg" />
 </div>
 
 
@@ -478,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864873.jpg" />
 </div>
 
 
@@ -504,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864871.jpg" />
 </div>
 
 
@@ -530,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864787.jpg" />
 </div>
 
 
@@ -556,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864681.jpg" />
 </div>
 
 
@@ -582,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863857.jpg" />
 </div>
 
 
@@ -600,32 +467,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 767742   (863742) от 18.03.2014
-
-Журнал | Elle [Россия] №4 (апрель 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Elle - самый популярный журнал мод в мире. Его концепция уникальна: понятие «мода» выходит за привычные рамки и имеет отношение к образу жизни в целом. Elle - это новейшие тенденции в области lifestyle, самые горячие новости из мира моды и красоты, самые яркие звезды и самые актуальные статьи о психологии современной женщины, нацеленной на успех.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81B0DC36C2A996915452218DFF3B162F9084DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375631   (863608) от 15.04.2020
 
 Журнал | Добрые советы №5 (май 2020) [PDF]
@@ -634,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863608.jpg" />
 </div>
 
 
@@ -660,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858686.jpg" />
 </div>
 
 
@@ -671,6 +512,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111C6A649BA30752FF7AF54964A1AB8201B5460F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000710   (857442) от 26.03.2016
+
+Журнал | Похудей №4 (Апрель 2016) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857442.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пoхyдeй!» — это издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.
+Журнал состоит из трех основных разделов – фитнес, здоровье и диета.Жанр: Популярный журнал, диетика, здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC894A5C6532FA54252447D79B8B5B41B1D0730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001101   (855602) от 27.03.2016
+
+Журнал | Худеем правильно №4 (Апрель 2016) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855602.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Худеем правильно" - популярный женский журнал для тех, кто хочет стать стройнее, а значит, привлекательнее.
+Журнал предлагает уникальную систему импульсного похудения и управления весом. Эксклюзивные рецепты вкусных блюд для похудения; советы ведущих диетологов, психологов; анализ самых современных методик снижения веса и коррекции фигуры.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E111FB70185A514A1832B954C400D6AD40301617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647875   (855023) от 24.04.2013
+
+Журнал | Allure [Россия] №5 (май 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные темы журнала: мода, красота, украшения, здоровье, диеты, интервью с известными женщинами, гороскоп.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5F512FED7CE30F917F4B996660E43C57B147F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648274   (852822) от 25.04.2013
+
+Журнал | Women's Health [Россия] №5 (май 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852822.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Women’s Health" – качественное модное глянцевое издание о здоровом образе жизни в современном формате. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях. Издание ответит на популярные среди женщин вопросы, как вести здоровый образ жизни, как (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8442AE534AF2B6029744E20E507627D189C740FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002432   (848677) от 31.03.2016
+
+Журнал | Дарья. Спецвыпуск №44. Прощай, целлюлит! (2016) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной и летом худеть легче - это факт. Солнце дарит нам свою волшебную энергию, хочется больше гулять, больше двигаться, меньше есть жирной и калорийной пищи. Настроение само по себе становится лучше. Осталось избавиться от пары-тройки лишних килограммов, подтянуть мышцы и наконец-то избавиться от "апельсиновой корки"...Жанр: Женский журнал, здоровье, диетология, фитнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403775E46F37C0EE3D96CE351EB2F7E093574F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111702   (846566) от 06.03.2017
+
+Журнал | Караван историй. Коллекция №3 (март 2017) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846566.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Коллекция Караван историй» - это эксклюзивные материалы о жизни звезд, смелые признания в жанре романа, самые громкие материалы из архива «Каравана историй» и лучшие проекты фотохудожника Екатерины Рождественской. В каждом номере: 10 историй, которые потрясли мир: романы, мегаскандалы, загадочные катастрофы, а также эксклюзивные интервью со знаменитостями.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD90491596BF124D12E99F983C4288AF88502016
 ```
 
 https://mybot314.ru/tekegram_catalog/

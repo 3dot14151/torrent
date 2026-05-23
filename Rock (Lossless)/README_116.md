@@ -6,7 +6,7 @@ Chris Isaak - First Comes the Night (2015) Deluxe Edition [FLAC|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305442.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Firm - 2 альбома (1985 - 1986) Дискография [FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_305355.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Roger Waters - The Wall (2015) [FLAC|tracks + .cue] 2CD Live <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305309.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Fish (ex-Marillion) - Vigil In A Wilderness Of Mirrors (1990) [FLAC|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305156.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Dire Straits - New Collection (2008) Compilation, Unofficial Release [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304572.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Yes - Yes (1969) Reissue, 1989, Atlantic [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303531.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ K.P.M. (ex.Eloy) - Run For Cover (1997) [FLAC|image+.cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303504.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Metamorphosis - Nobody Cares (2003) [FLAC|image+.cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303481.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Here & Now (Gong Family) - 2 CD (1978, 1999) [FLAC|Lossless]<Psychedelic/Space R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_303468.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Bangles - Greatest Hits (1990) [FLAC|tracks+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303377.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Joe Cocker - The Life of a Man (The Ultimate Hits 1968-2013) (2015) 2CD [FLAC|Im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303080.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Twenty Sixty Six And Then - Reflections! (1972) [FLAC|Lossless]<Progressive, Kra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_303065.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Kentish Spires ‎– Sprezzatura (2019) [FLAC|Lossless|image + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302443.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ The Rolling Stones - Blue & Lonesome (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302410.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Lynn Stokes & The Sol Surfers - Terra Nocturne (2008) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301585.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ IQ - Resistance (Digipak) (2019) [FLAC|Lossless|image + .cue] <Neo-progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301444.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Fish (ex.-Marillion) - Sunsets On Empire (1997) [FLAC|image + .cue]<Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301238.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Pink Floyd - 1965 - Their First Recordings (2015) [FLAC|tracks + .cue]<Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301030.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ The Mahavishnu Orchestra - 6 CD (1971 - 1976) [FLAC|Lossless]<Jazz Rock Fusion>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_300902.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Violet District - Terminal Breath (1992) + Bonus 2CD, Remastered, 2000,Tempus Fu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300697.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Jakko M Jakszyk - Secrets & Lies (2020) [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300462.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Roy Orbison & The Royal Philharmonic Orchestra - A Love So Beautiful (2017) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298773.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Shine On You Crazy Diamond: A Tribute To Pink Floyd's Greatest Hits (2018) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298521.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Phog - This World (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298152.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ The Black Noodle Project - Ghosts & Memories (2013) [FLAC|image+.cue]<Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297215.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Fish (ex.-Marillion) - Fellini Days (2001)  [FLAC|image + .cue]<Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296989.jpg" />
 </div>
 
 

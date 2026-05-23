@@ -6,7 +6,7 @@ WonderFox HD Video Converter Factory Pro 26.9 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117289.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Photo AI 2.3.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117285.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Gigapixel AI 7.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117281.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Topaz Photo AI 2.3.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117279.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ HandBrake 1.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117278.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AllDup 4.5.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117277.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ CrystalDiskInfo 9.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117272.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SplitCam 10.7.32 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117271.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117267.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tablacus Explorer 24.2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117266.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Topaz Gigapixel AI 7.0.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117263.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wireshark 4.2.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117259.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Topaz Video AI 4.1.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117253.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft .NET 7.0.16 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117248.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sante DICOM Viewer Pro 14.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117244.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117243.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FanControl V181 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117238.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Brave Browser 1.62.165 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117237.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Google Chrome 121.0.6167.185 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117234.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WinSCP 6.3.0 Build 14793 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117231.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ LibreWolf 122.0.1-2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117226.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Google Chrome 121.0.6167.185 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117220.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Opera One 107.0.5045.21 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117216.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Opera One 107.0.5045.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117213.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Opera Crypto Browser 107.0.5045.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117212.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Brave Browser 1.62.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117207.jpg" />
 </div>
 
 

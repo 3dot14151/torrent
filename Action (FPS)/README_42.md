@@ -6,7 +6,7 @@ Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86236.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vietcong / Вьетконг [Ru/En] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85191.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85187.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warhammer 40 000: Fire Warrior [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84806.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84178.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Battlefield Vietnam [En/Ru] (P) 2004
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84010.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84006.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Left 4 Dead 2  [Ru/En] (Steam-Rip/2.1.0.2 build 4777) 2009 l R.G. Origins
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83397.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80222.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70609.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62728.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62385.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61684.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61625.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61583.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61352.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61264.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60728.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Bulletstorm (2017) [Ru/Multi] (1.0upd2/dlc) Repack dixen18 [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60632.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59688.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59323.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59263.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59243.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (1.1.2952) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59134.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59026.jpg" />
 </div>
 
 

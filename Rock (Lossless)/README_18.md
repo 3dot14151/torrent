@@ -6,7 +6,7 @@ Sinoptik - 5 Albums (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011135.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jeff Coffey - This Time Around (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011001.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nine Skies - 5.20 (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010493.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Georgia Satellites - Ultimate (2021) 3xCD, Box Set, Compilation [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010476.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Classic Rock Hits (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010315.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Soft Rock Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009999.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jeffrey Erik Mack - The Forgotten Earth (2021) [FLAC|Lossless|tracks + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009864.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pink Fairies - Resident Reptiles (2021) [WavPack|Lossless|image + .cue] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009725.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Rock and Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009713.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Rockers: Rock & Heavy Metal Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009704.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Single Celled Organism - Percipio Ergo Sum (2021) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009467.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Damn Truth - Now or Nowhere (2021) [FLAC|Lossless|image + .cue] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009314.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Alan Reed - First In A Field Of One (2012) [FLAC|Lossless|tracks + .cue]<Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009197.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bobby Shock - Street Angels (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009047.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ John Lennon/ Plastic Ono Band - John Lennon/ Plastic Ono Band (2021) 2CD, The Ul
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008817.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ringo Starr - Give More Love (2017) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008749.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ AmuZeum - New Beginnings (2020) [FLAC|Lossless|image + .cue] <Sympho Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008722.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Evership - The Uncrowned King: Act 1 (2021) [FLAC|Lossless|image + .cue] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008611.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Noisy Diners - The Princess Of The Allen Keys (The History Of Manto) (2021) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008481.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Winding Road - Winding Road (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008472.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Escape - Fire In the Sky (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008468.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ring Van Mobius - The 3rd Majesty (2020) [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008442.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Atlanta Rhythm Section - Atlanta Rhythm Section (1972) Remaster, 1991,  MCA Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008429.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Shooting Star - 2 Albums (1982 - 1983) Remastered, 2007, Renaissance Records [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008322.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lind - A Hundred Years: The Justification Of Reality. Part I (2021) [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008038.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Violent Silence - Twilight Furies (2020) [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008025.jpg" />
 </div>
 
 

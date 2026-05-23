@@ -6,7 +6,7 @@ NANO Антивирус Pro 1.0.134.90112 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631236.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics Disk Defrag Free 7.1.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631196.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AusLogics BoostSpeed 9.1.4.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631192.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Audition CC 2015 8.0.0.192 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631155.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Edge Animate CC 2015 6.0.0.400 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631143.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Dreamweaver CC 2015 7698 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631135.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mayan Dooms-Day Clock 1.0 Portable[Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_631119.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_631109.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Ultimate PID Checker v 1.1.2.512 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_631107.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Passcape Software Reset Windows Password Advanced Edition 5.1.5.567 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631100.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dr.Web Security Space 11.0.5.6130 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631070.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.92.4300 Final + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631056.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Process Monitor 3.02 Portable [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630984.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630979.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.92.4300 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630920.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Internet Download Manager 6.12 Beta Build 3 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630864.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AusLogics BoostSpeed 9.1.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630825.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.92.4300 Final RePack (& p
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630816.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Adobe Media Encoder CC 2017 (v11.1.2) Multilingual Update 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630814.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Master Commander 1.1.7 + Portable by Vasiliy799 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630680.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Kingsoft Antivirus 2012 SP3.5 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630678.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Cool Timer 5.2.1.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630465.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630354.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Junkware Removal Tool 6.9.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630321.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Junkware Removal Tool 6.9.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630314.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ ShareX 11.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630307.jpg" />
 </div>
 
 

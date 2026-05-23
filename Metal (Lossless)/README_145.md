@@ -6,7 +6,7 @@ Morpheus Descends - The Horror Of The Truth (1997) EP [FLAC|Lossless|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496803.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ With the Dead - With the Dead (2015) [FLAC|Lossless|tracks + .cue] <Doom, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496756.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Marlugubre - Maladie (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496752.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ With the Dead - Love from with the Dead (2017) Japan Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496751.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Oddland - Origin (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496677.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Psycrence - A Frail Deception (2014) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496674.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Stratovarius - Дискография (26 альбомов) (1989-2009) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496614.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Striker - Armed To The Teeth (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496330.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ektomorf - Black Flag (Limited Edition) (2012) Scene [FLAC|Lossless]<Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496326.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Slayer - Repentless (2015) [FLAC|Lossless|WEB-DL]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496286.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Slayer - Repentless (2015) Limited Edition [FLAC|image+.cue]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496156.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Stratovarius - Eternal (2015) [FLAC|image+.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496154.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Eluveitie - The Early Years (2012) [FLAC|Lossless]<Folk Metal/Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495598.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Organic Infest - Penitence (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494781.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ossuary Insane - Demonize The Flesh (1998) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494778.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Bells And Ravens - What Death Cannot End (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494675.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494674.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Demonica - Demonstrous (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494471.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ ReinXeed - 8 альбомов (2008-2013) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494327.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Slayer - Repentless (2015) Limited Box Set Edition 2CD [FLAC|image+.cue]<Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494035.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Dark Angel - Time Does Not Heal (1991) Reissue, 1999, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493703.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Belfegor - The Kingdom of Glacial Palaces (2000) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493352.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Monolithe - Okta Khora (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493350.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Dying Fetus - Reign Supreme (2012) [APE|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493259.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Wardenclyffe - Temple of Solomon (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492685.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Hammer Fight - Profound And Profane (2016) [APE|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492684.jpg" />
 </div>
 
 

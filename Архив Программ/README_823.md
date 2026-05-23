@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630300.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TagScanner 6.0.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630296.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Internet Download Manager 6.25 Build 23 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630295.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Freemake Audio Converter 1.1.8.3 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630292.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ oCam 294.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630291.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Photo Supreme 1.8.3.139 Final RePack by WYLEK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630240.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Internet Download Manager 6.25 Build 23 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630203.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VirtualBox 5.1.0 Build 108711 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630197.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ XYplorer 17.00.0100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630192.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TapinRadio Pro 1.70.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630119.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SlimBrowser 7.00 Build 120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630117.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Office 2013-2016 C2R Install 5.4 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630047.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DevID Agent 4.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630035.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ashampoo WinOptimizer 12.00.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630011.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ RadioGet Ultimate 4.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630007.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Glary Utilities Pro 5.99.0.121 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629963.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Microsoft Office 2013-2016 C2R Install 5.5 Full | Lite by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629934.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Freemake Video Converter 4.1.9.26 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629933.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Adobe components: Flash Player 22.0.0.209 + AIR 22.0.0.153 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629932.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AbleBits Ultimate Suite for Excel 2016.2.313.1175 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629925.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Daum PotPlayer 1.6.62377 Stable DC 14.07.2016 + Portable (x86/x64) by SamLab [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629924.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629922.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4841.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629920.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NVIDIA GeForce Desktop 368.81 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629919.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ FocusWriter 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629894.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ PowerISO 6.3 RePack by Pilot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629888.jpg" />
 </div>
 
 

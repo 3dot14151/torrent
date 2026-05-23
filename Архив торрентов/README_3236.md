@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335021.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Readiris Corporate 15.1.0 Build 7155 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335016.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TapinRadio Pro 1.71.2 Repack by VandIT [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335012.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MacX MediaTrans 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335006.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ RightFont 5 v5.7.0 (2726)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335005.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Amsterdam Dance Event (2019) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335004.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ JixiPix Hand Tint Pro 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335003.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Two Friends - Big Bootie Mix Vol.16 2019-10-11 [MP3|320 Kbps] <Electro House, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335001.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ SlimBrowser 11.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334999.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Photo Supreme 5.0.0.2436 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334993.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Nitrous Oxide - Avalon (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334988.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Airwave - I Want To Believe (Remastered Deluxe Edition) (2019) [MP3|320 Kbps] <T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334980.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334977.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ iMazing 2.12.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334939.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ FinePrint 9.20 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334938.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ IP-TV Player 49.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334917.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Mike Hammar and the Nails - Recipe for the Blues (2010) [APE|Lossless]<Blues-Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334908.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Karen Lovely - Still The Rain (2010) [APE|Lossless]<Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334897.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Adobe Flash Player 19.0.0.245 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334886.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Battle City 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334884.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Internet Download Manager 6.25 Build 3 + Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334879.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334877.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Icecream Ebook Reader PRO 2.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334876.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Raxco PerfectDisk Professional Bussines 14.0 Build 880 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334872.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334870.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Adobe Flash Player 19.0.0.245 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334868.jpg" />
 </div>
 
 

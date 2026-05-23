@@ -6,7 +6,7 @@ Sidify Apple Music Converter 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709006.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Duplicates Expert 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709005.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ CloudTV 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709001.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aiseesoft Video Downloader 6.0.76 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708999.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ StrokesPlus.net 0.5.6.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708988.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Aphex Twin - Windowlicker (1999/2017) Warp Records [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708978.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Wallpaper Wizard 2 v2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708977.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Gemini 2: The Duplicate Finder 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708973.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ IObit Uninstaller Pro 8.4.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708964.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708958.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AdwCleaner 4.203 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708955.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Novicorp WinToFlash Professional 0.9.0000 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708946.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ World of Tanks Mods (2015) [Ru] (0.9.7 #6) Mod Yusha [Сборка модов о
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708937.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ StartIsBack++ 2.9.2 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708920.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Andrew Rayel - Moments (2017) [MP3|320 Kbps] <Trance, Progressive Trance,House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708916.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Kazrog - True Iron 1.3.2 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708875.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Whale Browser 3.13.131.36 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708870.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Wise Disk Cleaner 10.8.3.803 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708865.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ EaseUS Data Recovery Wizard Professional 13.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708828.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Total Commander Ultima Prime 6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708802.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708788.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Replay Video Capture 8.8.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708780.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Coolmuster PDF Converter Pro 2.1.21 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708779.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ AnyMP4 Video Converter Ultimate 7.2.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708778.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ GZR (Geezer Butler, bass - Black Sabbath) - 3 альбома (1995 - 2005) Japan
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708767.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ ROSA Desktop Fresh R1 LXDE (Легкий дистрибутив) [i586, x86-64]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708761.jpg" />
 </div>
 
 

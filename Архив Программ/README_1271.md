@@ -6,7 +6,7 @@ Tor Browser Bundle 2.2.39-5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396633.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Classic Shell 3.6.2 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396630.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Take Command 21.01.53  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396618.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ CoolUtils Total PDF Converter 6.1.0.139 RePack (& portable) by elchupacabra  [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396617.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Internet Download Manager 6.29 Build 1  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396612.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Pepakura Designer 4.0.6b [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396611.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ BlueScreenView v1.46 + Portable [Eng+Rus(русификатор)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396586.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Internet Download Manager 6.29 Build 1  Final RePack by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396565.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AIDA64 Extreme/Engineer/Business Edition 2.70.2200 Final RePack (& portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396516.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396503.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Unchecky 1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396479.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Adobe Bridge CC 2017 (v7.0) x86-x64 Multilingual Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396475.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Readiris Corporate 12.0.5702 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396137.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Kaspersky Rescue Disk 10.0.31.4 (29.10.2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395975.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ CDRWIN 10.0.12.1019 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395903.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ashampoo Snap 6.0.1 Final RePack by KpoJIuK [Русский, английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395897.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ DU Meter 6.03 Build 3728 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395848.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Internet Download Manager 6.12 Build 23 Final [Rus/Eng] RePack/Portable by D!ako
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395780.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Internet Download Manager 6.12.23 Final RePack by KpoJIuK [Русский/Анг
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395713.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395635.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ashampoo Burning Studio 18.0.8.1 RePack (& Portable) by D!akov  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395630.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ CHT Seven Style [Ru/En] [Rainmeter скин]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395604.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Multi Flash Kit v.2.10.30 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395601.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ ReviverSoft Driver Reviver 4.0.1.36 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395599.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Universal Extractor 1.6.1.65 by gora [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395589.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Kinza Browser 4.2.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395584.jpg" />
 </div>
 
 

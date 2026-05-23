@@ -6,7 +6,7 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975548.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975474.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Luna - 3 альбома (1992-1998) [MP3|256-320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975351.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974801.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, Remastered, 2014, Sony Mus
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974358.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974339.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974336.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Песни нашего кино. Коллекция от Ридерз Да
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973413.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Manish Vyas - Atma Bhakti (2015) [MP3|320 кб/с] <New Age, World, Mantra>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973344.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973159.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973157.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973155.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973131.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973091.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972156.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Douglas Blue Feather - Rhythms of the Night (2015) [MP3|320 кб/с] <New Age, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972107.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971725.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971264.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971187.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Enigmatic Obsession - Secrets Of Seduction (2005) [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970810.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Jens Gad (ex.-Enigma) - Le Spa Sonique (2006) [FLAC|Lossless|tracks + .cue] <Dow
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970807.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970803.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970732.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970644.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970632.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970582.jpg" />
 </div>
 
 

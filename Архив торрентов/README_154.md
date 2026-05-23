@@ -6,7 +6,7 @@ BELOFF 2021.04 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020367.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FSNotes 4 v4.9.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020339.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NetShred X 5.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020336.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ System Toolkit 3.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020335.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PatterNodes 2 v2.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020334.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Switch 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020332.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WebScraper 4.15.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020328.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ DxO PhotoLab 4 ELITE Edition 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020325.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Skype 8.71.0.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020313.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Firefox Browser ESR 78.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020312.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Opera GX 73.0.3856.438 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020310.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Calibre 5.16.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020300.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ QuickEdit v1.8.1 Mod by Balatan, Alex.Strannik, VERGIL777 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020298.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Skype 8.71.0.36 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020296.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ ForkLift 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020293.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MusicBrainz Picard 2.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020285.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ RegCool 1.133 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020280.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Mozilla FireFox 88.0.0.7775 Portable by JolyAnderson [Multi/Ru] (авторск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020279.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BiglyBT 2.7.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020278.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Firefox Browser 88.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020276.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Your Universal MultiBoot Installer (YUMI) 2.0.8.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020265.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Multi Commander Full Edition 11.0 Build 2770 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020260.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AquaSoft Stages 12.2.04 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020259.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Windows 10 Manager 3.4.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020258.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020255.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - AnalogueTrash Records presents: Beat Cancer Series + Label Samplers - Colle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020254.jpg" />
 </div>
 
 

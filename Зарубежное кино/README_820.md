@@ -1,55 +1,3 @@
-###  Публикация: 1221495   (678712) от 02.05.2018
-
-Тебя никогда здесь не было / You Were Never Really Here (2017) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У сурового Джо непростая судьба. Он никого не боится, лишь вспышки воспоминаний заставляют его вздрагивать. Безжалостный герой-одиночка, идущий напролом ради спасения слабых. Для Нины, юной дочери сенатора, Джо - единственная надежда. И даже самые изощрённые и жестокие силы не должны помешать ему вызволить её из ада, в который она попала.Производство: Великобритания, Франция, СШАЖанр: триллер, драма, детективРежиссер: Линн Рэмси / Lynne RamsayАктеры: Хоакин Феникс, Екатерина Самсонова, Алекс Манетт, Джон Доумен, Джудит Анна Робертс, Алессандро Нивола, Данте Перейра-Олсон, Винисиус Дамассено, Нео Рэндолл, Фрэнк Пандо, Эдвард Лэтэм, Клер СюйПеревод: Многоголосый закадровый, профессиональный (iTunes), Многоголосый закадровый, любительский (HDRezka studio)Субтитры: русские (полные), английские (полные)Продолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D7D165274E02432AE2CDD722DC78394D7336D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135306   (678688) от 20.05.2017
-
-Дейв / Dave (1993) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Во время официальной поездки президента Соединенных Штатов Митчелла хватил удар. Да так не вовремя! Это случилось, когда Митчелл развлекался со своей любовницей. Помощники президента Алан Рид и Боб Алекзендер обратились к Дэйву Ковику, успешно руководившему агентством по найму, заменить президента на время его болезни. Дело в том, что действующий президент и Дэйв (   Читать дальше...   )Производство: США / Donner/Shuler-Donner Productions, Northern Lights Entertainment, Warner Bros. Pictures Co.Жанр: Комедия, МелодрамаРежиссер: Айвен РайтманАктеры: Кевин Клайн, Сигурни Уивер, Фрэнк Ланджелла, Кевин Данн, Винг Реймз, Бен Кингсли, Чарльз Гродин, Фэйт Принс, Лора Линни, Бонни ХантПеревод: Дублированный, Многоголосый, Авторский х2Субтитры: Русские, АнглийскиеПродолжительность: 01:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8023E26FA21863F340DC9AF2FFA80A6DD3810D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508771   (678640) от 10.06.2012
 
 Беглец / The Fugitive (1993) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678640.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678583.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678577.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678576.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678558.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678557.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678553.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678514.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678451.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678404.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678401.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678394.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678392.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678384.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678378.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678314.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678312.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678307.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678306.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678303.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678302.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678299.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678283.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678281.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536200   (678225) от 10.03.2022
+
+Правила съема: Метод Хитча / Hitch (2005) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекс «Хитч» Хитченс — легендарный нью-йоркский «доктор-сват». Множеству мужчин он помог добиться взаимности от женщин их мечты. Хитч не бескорыстен, он получает за свою работу гонорар, но предусмотрительно хранит в тайне свой способ зарабатывать на жизнь.
+Новый клиент Хитча — Альберт, робкий бухгалтер, без ума влюблённый в гламурную звезду Аллегру Коул. Для Хитча (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Overbrook EntertainmentЖанр: Мелодрама, комедияРежиссер: Энди ТеннантАктеры: Уилл Смит, Ева Мендес, Кевин Джеймс, Эмбер Валлетта, Джули Энн Эмери, Адам Аркин, Робин Ли, Натан Ли Грэхэм, Майкл Рапапорт, Джеффри ДонованПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A478E1230010EB9C48F9A4106C9019491F35338A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536232   (678190) от 10.03.2022
+
+Профессионал / Killer Elite (2011) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэнни Брайс - бывший наёмный убийца международного уровня. Но спустя год спокойной жизни он получает сообщение от посредника, из которого узнаёт, что его бывший напарник взят в заложники арабским шейхом. Теперь Дэнни обязан убить отставных бойцов элитного спецподразделения SAS, чтобы вызволить приятеля из темницы шейха.Производство: Великобритания, Австралия / Ambience Entertainment, Current Entertainment, International Traders, Omnilab Media, Palomar Pictures (II)Жанр: боевик, триллер, криминалРежиссер: Гэри МакКендриАктеры: Джейсон Стэйтем, Клайв Оуэн, Роберт Де Ниро, Доминик Пёрселл, Аден Янг, Ивонн Страховски, Бен Мендельсон, Адевале Акинойе-Агбаже, Дэвид Уайтели, Мэтью НэйблПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A4F6AE2F2D2D734D3B6EC99BEFD6E8BCC74ADE
 ```
 
 https://mybot314.ru/tekegram_catalog/

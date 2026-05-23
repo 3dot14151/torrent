@@ -6,7 +6,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597717.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crysis 2 Maximum Edition [Ru/En/Multi9] (Steam-Rip/1.9) 2011 | R.G. Киноза
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596704.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Whispers (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595546.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Crysis 3 (2013) [Ru] (1.3/dlc) Rip Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594669.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sublevel Zero Redux (2015) [Ru/Multi] (1.2.9875/13429) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593723.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584913.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584148.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581219.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (1.009/2.070/dlc) Repack/Mo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581176.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579697.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579043.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576633.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Hunt / Черная метка [Ru] (RePack) 2008 | R.G. Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575817.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.6.1) Repack Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575523.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572027.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ INVITATION (2019) [En/Ko] (1.0/upd3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570498.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) RePack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569139.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Blood Feed (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568338.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568337.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Enemy Front (2014) [Ru/Multi] (3.4.4.6290 Upd4/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567795.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Aliens versus Predator Classic 2000 (2000) [En] (20160330) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566424.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nether: Resurrected (2014) [Ru/En] (2016 April) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564563.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Painkiller: Resurrection / Painkiller: Воскрешение (2010) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564161.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Far Cry 2: The Fortune’s Pack [Ru] (RePack/1.3) 2008 l UltraISO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562173.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0.4/dlc) License GOG [The Collection]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559335.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Evolve (2015) [Ru/En] (1.0) RePack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558520.jpg" />
 </div>
 
 

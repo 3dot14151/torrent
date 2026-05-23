@@ -6,7 +6,7 @@ Glyphs 3 v3.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009826.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MacCleaner 2 PRO 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009825.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Zoner Photo Studio X 19.2103.2.324 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009798.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FastStone Capture 9.6 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009788.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PC Cleaner Platinum 8.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009774.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NVIDIA GeForce Desktop Game Ready 471.11 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009770.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FastStone Capture 9.6 RePack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009765.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ doPDF 11.0.170 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009719.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wise Care 365 Pro 5.7.1.571 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009718.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Firefox Browser 89.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009711.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Firefox Browser 89.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009706.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Video Snapshot&Collage for Mac 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009703.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ One Switch 1.20.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009699.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VueScan Pro 9.7.57 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009697.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ True Burner Pro 7.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009696.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AlterPDF Pro 5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009692.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Things 3 v3.13.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009691.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Product Manager 2 v2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009682.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ SamDrivers 21.6 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009676.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SupRemo 4.5.0.2706 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009674.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Adobe Animate 2021 21.0.7.42652 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009650.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Paragon Hard Disk Manager Advanced 17.20.0 RePack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009608.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Wise Care 365 Pro 5.7.1.571 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009585.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Kid3 3.8.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009580.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Wise Care 365 Pro 5.7.1.572 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009579.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - National Pop Dance Music (Vol.19) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009562.jpg" />
 </div>
 
 

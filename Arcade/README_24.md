@@ -6,7 +6,7 @@ Seasons after Fall (2016) [Ru/Multi] (25913) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533792.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ghostly Matter (2018) [En/Fr/It] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533064.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Oddworld Abe's Oddysee [Ru] (RePack) 1997 | Kirill Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531767.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Basingstoke (2018) [En] (101_built_842018_54725_pm) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531130.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530475.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mother Russia Bleeds (2016) [Ru/Multi] (1.0.1) Repack GAMER [Dealer Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530198.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530043.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Paranautical Activity (2015) [En] (4.5.4.162119) License GOG [Deluxe Atonement E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529475.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Redeemer (2017) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529351.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Pac-Man Championship Edition 2 (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528723.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ RIVE (2016) [En/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527714.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sine Mora EX (2017) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526258.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dead or Alive 5: Last Round (2015) [Ru/Multi] (1.10A/upd25/dlc) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526248.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Running Gods (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525904.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Lego Jurassic World / LEGO Мир Юрского периода (2015) [Ru/Multi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524694.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Phantom Trigger (2017) [Ru/Multi] (02082017) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524400.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Black The Fall (2017) [Ru/En/Ge] (5.5.2) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524391.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Toy Soldiers: War Chest (2015) [En] (1.0) Rip R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523769.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523041.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ TANGLEWOOD (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521926.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521020.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Jardinains 2! (2007) [Multi] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519969.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0/upd3) Repack Other s [Definitive
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516744.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Tyler Model 005 (2018) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515835.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513366.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Furi (2016) [Ru/Multi] (1.7.224/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513303.jpg" />
 </div>
 
 

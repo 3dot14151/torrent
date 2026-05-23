@@ -1,373 +1,3 @@
-###  Публикация: 1519261   (149981) от 23.12.2021
-
-VA - Centum (2021) [AAC|~331 Kbps] <Progressive House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Addo - Everything (D-Nox & Flow & Zeo Remix) (7:23)
-02. Stefan Addo - Weltschmerz (7:11)
-03. Ed Steele - Savour the Moment (7:36)
-04. Ed Steele - Fruit & Nut (7:41)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F83724E7186AD4C3901964DE4991A8FF61998F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519177   (149967) от 23.12.2021
-
-VA - Connecting The Dots (Alex Paterson) (2021) [AAC|~306 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Paterson - Connecting The Dots, Continuous Mix (1:31:21)
-02. Mohn - Schwarzer Schwan (6:17)
-03. Klimek - Milk (Edit) (6:39)
-04. Michael Mayer - Pensum (Markus Guentner Mix) (5:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0D8F4FDFEDCD8549E76B4A905A438B11B33D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519189   (149953) от 23.12.2021
-
-VA - Best of 2021 3rd Avenue (2021) [AAC|~335 Kbps] <Progressive House, Deep House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Mango Cult - Sequoia (Mass Digital Remix) (7:32)
-02. Analog Jungs - Punilla (Mariner + Domingo Remix) (8:00)
-03. Fabian Balino - Endless Story (8:41)
-04. Subnode - Levels (8:30)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 06:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51DBBA55E3EE88ED00D7A5F5A7592ADB327CF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519175   (149951) от 23.12.2021
-
-VA - Connecting The Dots (Jonathan Kaspar) (2021) [AAC|~324 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Jonathan Kaspar - Connecting The Dots, Continuous Mix (1:48:45)
-02. Jens-Uwe Beyer - Hands (2:22)
-03. Closer Musik - One Two Three (No Gravity) (7:40)
-04. Superpitcher - Moon Fever Remixe (Gluteus Maximus Mix) (9:34)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE67C6FA378F85FD4B8A8729C58B630B4295FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519174   (149932) от 23.12.2021
-
-VA - Connecting The Dots (Tobias Thomas) (2021) [AAC|~316 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Tobias Thomas - Connecting The Dots, Continuous Mix (1:46:15)
-02. Marcus Schmickler - Particle/Matter (16:57)
-03. Markus Guentner - In Moll 6 (6:53)
-04. Gregor Schwellenbach - Kaito’s Everlasting (5:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F29CB472EF97ED390FE61601A1FC037DA215BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519269   (149920) от 23.12.2021
-
-VA - FROZEN Purple (2021) [AAC|~305 Kbps] <Dub Techno, Deep House, Deep Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Lotech/Hijack - Detached (3:36)
-02. Narson Nelson - Fractals (Markus Masuhr Reduced Dub Edit) (7:00)
-03. Orde107 - Global Warming (Warning Version) (7:38)
-04. Substak - Theory (5:20)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Deep TechnoПродолжительность: 03:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2414FF9E8E20FF82E9EEDFAC7969E3FC16D82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519173   (149905) от 23.12.2021
-
-VA - Connecting The Dots (Robag Wruhme) (2021) [AAC|~305 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Robag Wruhme - Connecting The Dots, Continuous Mix (1:11:56)
-02. Ulf Lohmann - Because (4:32)
-03. Dettinger - Oasis 4 (6:58)
-04. Studio 1 - Rosa 1 (11:15)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDEEB3911EA8C9B139B795C297EC0C033771F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519184   (149892) от 23.12.2021
-
-VA - Classy Lounge (2021) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia Key - A Brazilian Doesn't Lie (3:13)
-02. Grand Central - Brassa (2:45)
-03. Ethos Senko - Space Boy (2:25)
-04. Cool Beach - Red Luna (2:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D9450489F7DEA7186CF8205C9D0F66C25F368A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519180   (149887) от 23.12.2021
-
-VA - 5 Years of Delights: Earthly Reflections (2021) [AAC|~321 Kbps] <Deep House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Shaun Benjamin - Desolat (LetKolben Remix) (8:04)
-02. Jacob Groening - Fask (5:32)
-03. Yør Kultura - Black Market (Holed of MoM Remix) (11:01)
-04. Roi Okev - Gosa (6:18)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BCC298869C7ADA8527442E5BDFF185E14849FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271552   (149857) от 23.12.2018
-
-Одержимость / Possession (2002) WEB-DL [1080p] ATV [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История двух ученых, которые узнают, что Рэндольф Эш, поэт Викторианской эпохи имел тайную внебрачную связь с другой менее известной поэтессой. Ученые начинают исследовать роман из прошлого, читая любовные письма влюбленных, чтобы собрать из осколков полную картину, и вскоре понимают, что сами не могут жить друг без друга…Производство: США, Великобритания / Focus Features, USA Films, Warner Bros. PicturesЖанр: Драма, Мелодрама, ДетективРежиссер: Нил ЛаБутАктеры: Гвинет Пэлтроу, Аарон Экхарт, Джереми Нортэм, Дженнифер Или, Лина Хиди, Холли Аирд, Тоби Стивенс, Тревор Ив, Том Хикки, Джорджия МакКензиПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английские, французские, немецкие, итальянские, испанскиеПродолжительность: 01:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519179   (149850) от 23.12.2021
-
-VA - Connecting The Dots (Denis Stockhausen) (2021) [AAC|~297 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Stockhausen - Connecting The Dots, Continuous Mix (1:21:01)
-02. Dubstar - Shining Through 1 (6:31)
-03. Michael Mayer, Matias Aguayo - Slow (6:16)
-04. Mikkel Metal - Rain (6:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7593988F3EDED27C522E14889DF4FB8F57717DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519181   (149805) от 23.12.2021
-
-VA - New Year’s Eve Songs - NYE Party 2022 (2021) [AAC|~324 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Levitating (3:24)
-02. Joel Corry, Mabel - I Wish (3:02)
-03. Ed Sheeran - Shivers (Dillon Francis Remix)Жанр: PopПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3895CCF2BB833ADFC93C2447C3844607667122B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271416   (149804) от 23.12.2018
-
-Сорняки / Mauvaises herbes (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ваэль (Керон), бывший беспризорник, зарабатывает на жизнь мелким мошенничеством со своей приёмной матерью и соучастницей Моник (Катрин Денёв). Когда этот нетрадиционный дуэт обманывает не того парня, Виктора (Андре Дюссолье), старого знакомого Моники, в настоящее время отвечающего за организацию поддержки для проблемных подростков, у него нет другого выбора, кроме (   Читать дальше...   )Производство: Франция / Païva Films, Mars Films, StudioCanalЖанр: КомедияРежиссер: КеронАктеры: Керон, Катрин Денёв, Андре Дюссолье, Луизон Бливе, Альбан Ленуар, Ингрид Доннадье, Лоран ПонсПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced, Full), Французские (Forced, SDH), Английские (Forced, Full)Продолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450F2BD23197E3F7F50A88541C33724E8AC17B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086304   (149732) от 25.12.2016
 
 Laura Pausini - Laura Xmas (2016) [AAC|256 Kbps]<Christmas, Pop, Jazz, Easy Listening>
@@ -376,7 +6,7 @@ Laura Pausini - Laura Xmas (2016) [AAC|256 Kbps]<Christmas, Pop, Jazz, Easy List
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149732.jpg" />
 </div>
 
 
@@ -405,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149212.jpg" />
 </div>
 
 
@@ -431,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149172.jpg" />
 </div>
 
 
@@ -457,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148700.jpg" />
 </div>
 
 
@@ -484,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148664.jpg" />
 </div>
 
 
@@ -510,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148625.jpg" />
 </div>
 
 
@@ -536,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148399.jpg" />
 </div>
 
 
@@ -562,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148349.jpg" />
 </div>
 
 
@@ -589,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148333.jpg" />
 </div>
 
 
@@ -616,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148166.jpg" />
 </div>
 
 
@@ -642,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148150.jpg" />
 </div>
 
 
@@ -668,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147860.jpg" />
 </div>
 
 
@@ -694,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147584.jpg" />
 </div>
 
 
@@ -705,6 +335,380 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3038E8645F71CFE377EA4F463E9E1418DB6E3F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519567   (147446) от 25.12.2021
+
+VA - Balance Presents Sunsetstrip (Hernan Cattaneo) (2019) [AAC|~343 Kbps] <Deep House, Downtempo, Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hernan Cattaneo - Balance Presents Sunsetstrip (Continuous Mix 1) (1:19:13)
+02. Hernan Cattaneo - Balance Presents Sunsetstrip (Continuous Mix 2) (1:19:14)
+03. Dar Pan - Blessing (1:50)
+04. Navar - Zion (8:14)(   Читать дальше...   )Жанр: Deep House, Downtempo, Progressive HouseПродолжительность: 06:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6C584DA0D4022F59AC15E95D467FD37F0E3906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519584   (147441) от 25.12.2021
+
+VA - Purobeach Essentials 2021 (2021) [AAC|~322 Kbps] <Deep House, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Javi Cascales - Purobeach Palma Essentials (Continuous Mix) (1:16:33)
+02. Victor Soriano - Purobeach Denia Essentials (Continuous Mix) (1:12:52)
+03. Maxime Groove - All Right (7:29)
+04. ColorJaxx - Something After This (5:21)(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 05:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9206BFC823FD1FE6E1F3DB2C67BEC9052D95217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519404   (147433) от 25.12.2021
+
+VA - When Friday Comes – Feel Good Friday Feeling (2021) [AAC|~322 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Dawe, KSI - Lighter (3:02)
+02. Clean Bandit, Topic, Wes Nelson - Drive (2:59)
+03. Joel Corry, Jax Jones, Charli XCX, Saweetie - OUT OUT (2:43)
+04. Alex Hosking, Majestic - Need Your Love (2:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D45D2CC07AED033949415894276A409D50D67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519581   (147398) от 25.12.2021
+
+VA - B2B Best of 2021 (2021) [AAC|~332 Kbps] <Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelina Manuhutu - Takes a Little Something (6:45)
+02. Manuel De La Mare - Evil (Knober Remix) (6:24)
+03. Moreno Pezzolato - Tunnel (5:36)
+04. Luigi Rocca, RUDE (IT) - Temptation (6:10)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 05:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3851CFA9591C660D334D46129EF69942808110F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519412   (147390) от 25.12.2021
+
+VA - Loulou Players presents Best Of Loulou Records 2021 (2021) [AAC|~319 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LouLou Players - Loulou Players presents Best Of Loulou records 2021 MIX (2:32:27)
+02. LouLou Players, Julio García - We Were So Good (5:45)
+03. Caio Cenci - The One (4:43)
+04. Dj Vartan, Techcrasher - Tell Me you Can Feel It (4:43)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8493EC6E7E1B65289DFCCE3B638F6F06B5F2BD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519572   (147379) от 25.12.2021
+
+VA - Finest NY House 2021, Pt. 1 (2021) [AAC|~333 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From P60, Lisa Shaw, Manoo - Magic (Unreleased Manoo Dub) (8:04)
+02. Ananda Project, Stan Zeff - Bahia (Unreleased Stan Zeff Dub) (6:22)
+03. Palamino, Jihad Muhammad - Oh My! (Unreleased Jihad Muhammad Percussion Dub) (5:48)
+04. Dj Kone & Marc Palacios, DOMy Gee - Gaga (Unreleased Alternative Mix) (5:15)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3188307B5169359DEB7DDFFB6F64A3517E0747B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519552   (147370) от 25.12.2021
+
+VA - Orbit O (2019) [AAC|~330 Kbps] <Deep House, Downtempo, Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypersleep - Reason With The Sky (Orbit Intro Mix) (3:04)
+02. Rory Gallagher, Moodwax, Gabriel Lynch - Cog In The Machine (Moodwax Remix) (6:07)
+03. Rory Gallagher, Arzuk, Thomas Gandey - Soul De Anima (Thomas Gandey Last Communication Remix Edit) (7:32)
+04. Kris Davis - Naive (Original Mix) (7:12)(   Читать дальше...   )Жанр: Deep House, Downtempo, Progressive HouseПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7B67AEEAD96E54A0C6725282BCDF5BC55FED6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519407   (147360) от 25.12.2021
+
+VA - Bedrock Collection 2021 (2021) [AAC|~322 Kbps] <Progressive House, Deep House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Mantzur, Khen - Where is Home (Matthias Meyer Remix) (7:21)
+02. Bedrock - Forge (Framewerk Full On Mix) (6:16)
+03. Quivver - Don't Say Anything (Rinzen Remix) (7:19)
+04. Edone - Cramp (7:02)(   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406E6E16E497BE683021F1F7B3374C8DA046198C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519575   (147355) от 25.12.2021
+
+VA - Finest NY House 2021, Pt. 2 (2021) [AAC|~325 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divas Of Color, Evelyn "Champagne" King, DJ Spen, Reelsoul - One More Time (Unreleased DJ Spen & Reelsoul New Jersey Turnpike Dub) (6:25)
+02. Duwayne Motley, Zandrina - I Get Lifted (Unreleased Dub) (5:48)
+03. Andy Bach, Venessa Jackson - Enough Is Enough (Unreleased Dub Mix) (6:33)
+04. Q Narongwate - What I Got (Unreleased Original Mix) (6:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC229B836ECCA13E107643A7B51E3052BC0C32E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519415   (147344) от 25.12.2021
+
+VA - The Purr Best Of Winter 2021 (2021) [AAC|~335 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beije - Searching (7:36)
+02. Distic - Totem Bird (6:59)
+03. Jelly For The Babies, Mariner + Domingo - Two of Us (7:25)
+04. Discognition - Montezuma (7:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BABFC80809C12A918E4D2A325DCB2A21C168B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519402   (147334) от 25.12.2021
+
+VA - Music That Moves You 2022 (2021) [AAC|~317 Kbps] <House, Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burns - Talamanca (3:07)
+02. Obskür - Bayside (Radio Edit) (3:17)
+03. John Summit, Echoes - Human (3:39)
+04. Diplo, SIDEPIECE - On My Mind (3:09)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288F6DF8083B9703415A659E66A73078F4E7105B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519414   (147322) от 25.12.2021
+
+VA - Selador Selected Works 2021 (2021) [AAC|~325 Kbps] <Progressive House, Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiz Pattison, Micah Paul Lukasewich, Robert Babicz - Beam Of Light (Robert Babicz Ambient Version) (5:35)
+02. Anthony Pappa, Jamie Stevens, Framewerk - Here We Go (Framewerk Remix) (9:12)
+03. Robert Babicz - Galactic Traveller (Original Mix) (5:16)
+04. Dave Seaman, Charles Webster - Racket Abuse (Charles Webster Remix) (6:24)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 04:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207D413B668CD541A6F7672AF9A1E3A368DA810F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087090   (147321) от 26.12.2016
+
+28 панфиловцев  (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенью 1941-го года немецкие части, стоявшие возле Волоколамска, отделяло от Москвы каких-нибудь два часа по шоссе. Однако, на этом шоссе стояла 316-я стрелковая дивизия под командованием генерала И. В. Панфилова. Этот военачальник обладал настолько высоким авторитетом среди личного состава, что бойцы дивизии сами называли себя панфиловцами. А дивизию — панфиловской.Производство: РоссияЖанр: Военный, драмаРежиссер: Ким Дружинин, Андрей ШальопаАктеры: Александр Устюгов, Яков Кучеревский, Азамат Нигманов, Олег Фёдоров, Алексей Морозов, Антон Кузнецов, Алексей Лонгин, Максим Белбородов, Дмитрий Мурашев, Виталий КоваленкоПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04B1B7D137D9071000CF1AD00DDB72B0DCC42A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

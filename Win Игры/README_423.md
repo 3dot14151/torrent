@@ -1,29 +1,3 @@
-###  Публикация: 1646693   (56223) от 18.05.2024
-
-Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack dixen18
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В Mass Effect: Andromeda вы окажетесь в галактике Андромеды, далеко за пределами Млечного Пути. Там придется сражаться на враждебной территории, где пришельцы - мы. Возьмите на себя роль Следопыта и возглавьте отряд опытных исследователей. Вас ждет захватывающая история с множеством вариантов развития. Это - новая глава в истории человечества, и только от выбора (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, RPG, ШутерыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DA08291001B9F654A7F3701A0C76BEE205C28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724001   (56183) от 18.05.2024
 
 What the Fog (2024) [Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56183.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Land Beneath Us (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56178.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Desolate Hope (2014) [Ru/En] (1.35) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56170.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56163.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56160.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Super Catboy (2023) [Ru/Multi] (1.0.4a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56122.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Last Faith (2023) [Ru/Multi] (1.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56120.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ AEW: Fight Forever (2023) [Multi] (1.10/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56097.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56090.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56087.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ StarCraft: Remastered (2017) [Ru/En] (1.23.9.10756) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56085.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lorelei and the Laser Eyes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56081.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Maid of the Dead (2024) [Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56076.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Tchia (2024) [Ru/Multi] (2.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56048.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55994.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Athenian Rhapsody (2024) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55955.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ It Happened Here 3: A Storm is Brewing / Это случилось здесь 3:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55953.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (4.2.33) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55902.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55862.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55856.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Kingdom Rush (2014) [Ru/Multi] (5.6.12) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55842.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55757.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55756.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55729.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55700.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5E9BB8901FECBD4BEC01D2CCB7F393EB977BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725252   (55683) от 23.05.2024
+
+Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack seleZen
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Acolytes для настоящих любителей приключений и ролевых экшенов. История продолжает события первой части, где люди победили Гахару, но выяснилось, что она и ее прихвостни никогда не умирали по-настоящему. Они заснули и ждали своего часа, чтобы вернуться и восстановить свою силу. Ваша задача – в роли отважной (   Читать дальше...   )Тип издания: RepackРазработчик: Still RunningЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3723CCBAE6D647E06ACD2E596AE50125C34AF208
 ```
 
 https://mybot314.ru/tekegram_catalog/

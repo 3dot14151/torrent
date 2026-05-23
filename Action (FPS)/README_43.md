@@ -6,7 +6,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58730.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (11830638) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58574.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.42c) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58527.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58518.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58409.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rise of the Triad (2013) [En] (1.5.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58390.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58354.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58117.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Unholy Village (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58079.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57020.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Soviet Soldier / История советского Солдата (2024) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56327.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55966.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55664.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55590.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55489.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54852.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54758.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54732.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54647.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54646.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54632.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54623.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54618.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54614.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54547.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ RIPOUT (2024) [Ru/Multi] (1.0:01) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54520.jpg" />
 </div>
 
 

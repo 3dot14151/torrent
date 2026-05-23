@@ -1,55 +1,3 @@
-###  Публикация: 716982   (4232) от 06.09.2025
-
-Прерванная жизнь / Girl, Interrupted (1999) HDTVRip [H.264/720p-LQ]  [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В конце шестидесятых дикие сердцем отправлялись в Вудсток, неудачники — на войну, а те, кому отправиться было некуда, — в бездну. После того, как Сюзанне поставили диагноз «пограничное состояние», девушка оказывается в закрытом психиатрическом учреждении, и чтобы подняться со дна пропасти к свету, она должна победить хаос в самой себе и в окружающем мире. Но так (   Читать дальше...   )Жанр: Драма, БиографияРежиссер: Джеймс МэнголдАктеры: Вайнона Райдер, Бриттани Мерфи, Анджелина Джоли, Клеа ДюВолл, Элизабет Мосс, Джаред Лето, Джеффри Тэмбор, Ванесса Редгрэйв, Анджела Беттис, Вупи Голдберг, Джиллиан Арменанте, Друси МакДэниэл, Элисон Клер, Кристина Майерс, Джоанна Кернс, Трэвис Файн, Глория Барнхарт, Джози Гэммелл, Брюс Олтман, Мэри Кей Плэйс, Рэй Бэйкер, КаДи Стриклэнд, Кристиан Монро, Кертвуд Смит, (   Читать дальше...   )Перевод: Профессиональный (многоголосый закадровый), Авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийФормат: MKVКачество: HDTVRipПродолжительность: 2:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02FBFB65529D7EB32328128FECDE2D8D3035327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816741   (4139) от 06.09.2025
-
-Викторина / Quiz (2012) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После своего последнего шоу ведущий викторины Лео Вандермолен сидит в ресторане и ждёт свою жену Сандру и дочь Монику. К нему подходит незнакомец. Он показывает фотографию жены и дочери Лео в наручниках и с заклеенными скотчем ртами. Сначала Лео думает, что это шутка, но мужчина доказывает, что он их похитил и что у него есть много личной информации о семье. Мужчина (   Читать дальше...   )Производство: Нидерланды / AVRO Television, Parachute Pictures, TDMPЖанр: драма, криминал, триллерРежиссер: Дик МасАктеры: Барри Атсма, Пьер Бокма, Сюзан Раддер, Ханна Вербум, Ким ван Котен, Люк Питерс, Рубен Бринкман, Дитер Джэнсен, Робин Риенстра, Дэйв МантелПеревод: любительский многоголосый (MVO True Cast)Язык озвучки: русский, нидерландскийСубтитры: нетПродолжительность: 01:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17494D6324F80D9F5080FF3C728870CEA1263AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 259368   (3998) от 07.09.2025
 
 Повелитель стихий / The Last Airbender (2010) [1080p] Blu-Ray
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3998.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3996.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3972.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3970.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3969.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3962.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3827.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3812.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3801.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3796.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3788.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3682.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3680.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3622.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3607.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3538.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3512.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3423.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3394.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3393.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3370.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3272.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3227.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3103.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B24D0F8829243670B99C4BF5C15912448BBD043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 803234   (3098) от 13.09.2025
+
+Танцующая в темноте / Dancer in the Dark (2000) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли Вы, что такое камера обскура? Это пропасть, обрывающая мир солнечного света и теней и ввергающая в царство мрачной, черной пустоты. Отчаяние, страх, недоумение и… надежда, ведь надежда, как известно, всегда умирает последней. Или вовсе не умирает… И музыка, звучащая отовсюду.Производство: Дания, Швеция, США, Аргентина, Великобритания, Германия, Исландия, Испания, Италия, Нидерланды, Норвегия, Финляндия, ФранцияЖанр: мюзикл, драма, криминалРежиссер: Ларс фон ТриерАктеры: Бьорк, Катрин Денёв, Дэвид Морс, Петер Стормаре, Джоэл Грей, Кэра Сеймур, Владика Костич, Жан-Марк Барр, Винсент Пэтерсон, Шиван ФэллонПеревод: ДублированныйСубтитры: Русские (на песни, полные), АнглийскиеПродолжительность: 02:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F491589B8C4E59764AD6F6A3B5F93543A86FE89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083779   (3094) от 13.09.2025
+
+Донни Дарко / Donnie Darko (2001) BDRip  [H.264/1080p] [Remastered, Directors cut]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3094.jpg" />
+</div>
+
+
+###  Подробнее
+
+К своим 16 годам старшеклассник Донни уже знает, что такое смерть. После несчастного случая, едва не стоившего ему жизни, Донни открывает в себе способности изменять время и судьбу. Перемены, случившиеся с ним, пугают всех, кто его окружает — родителей, сестер, учителей, друзей, любимую девушку. Научившись путешествовать в другие вселенные, Донни пытается приспособиться (   Читать дальше...   )Производство: США, Adam Fields Productions, Flower Films (II), Gaylord Films, Pandora CinemaЖанр: Триллер, Фантастика, Детектив, ДрамаРежиссер: Ричард КеллиАктеры: Джейк Джилленхол, Джена Мэлоун, Холмс Осборн, Мэгги Джилленхол, Дейви Чейз, Мэри МакДоннелл, Дрю Бэрримор, Джеймс Дюволл, Кэтрин Росс, Артур Таксиер, Патрик Суэйзи, Марк Хоффман, Дэвид Ст. Джеймс, Джолин ПардиПеревод: Многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EA08AA022B50B13D9947E52818AC8C4EA32283
 ```
 
 https://mybot314.ru/tekegram_catalog/

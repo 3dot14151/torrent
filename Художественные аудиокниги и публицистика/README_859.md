@@ -1,83 +1,3 @@
-###  Публикация: 1677402   (150944) от 17.11.2023
-
-Артуро Перес-Реверте | Итальянец (2022) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Я мечтал написать эту немыслимую и совершенно подлинную историю с тех самых пор, как мне в детстве рассказал ее отец», – говорит Артуро Перес-Реверте о романе «Итальянец», который на родине автора разошелся тиражом в несколько сотен тысяч экземпляров. Реальная история итальянских боевых пловцов, потопивших четырнадцать британских кораблей, – история торжества отдельных (   Читать дальше...   )Жанр: Морские приключенияИздательство: Нигде не КупишьПродолжительность: 11:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C460312A4CBDDA78BA40C57DF81E115E3E141E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677387   (150924) от 17.11.2023
-
-Иар Эльтеррус | Канатоходец (Книга 2). Затерянный замок (2023) [MP3, Алексей Алексеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бесконечно многогранен мир Дэлоуэ, по которому идут чародей Кейсав со своей ученицей Сейлой. Мир давно потерял знания Древних, люди деградировали, но ведь кому, как не чародеям, искать потерянные знания? Поиск долог и труден, но в конце его ждет награда - затерянный тысячелетия назад, давно всеми позабытый замок Наэрта, хранящий множество секретов и тайн. Какие из (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E02CD46116617138378C4996C8078B98702B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677262   (150915) от 17.11.2023
-
-Цезарий Збешховский | Рамма (Книга 1). Искажение (2023) [MP3, Никита Петров (Петроник)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-От автора книги «Всесожжение», лауреата премии SFinks (Польский роман года).
-
-Миротворческий контингент государства Рамма поддерживает порядок в Ремарке, пустынной стране, еще недавно охваченной войной. Поначалу люди, живущие тут, принимали рамманцев как освободителей, но сейчас считают главными врагами. В такой ситуации капрал Маркус Трент выживает на рутинной современной (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастика, Социальная фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 15:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC4C60DFEA9FBB8E591A024D208F6AF0FA9D41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601231   (150850) от 31.12.2022
 
 Любовь Огненная | Любить нельзя ненавидеть (Книга 1). Карамелька 1 (2022) [MP3, Ульяна Галич]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150850.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150848.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150829.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150821.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150814.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150744.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150743.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150742.jpg" />
 </div>
 
 
@@ -303,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150733.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150695.jpg" />
 </div>
 
 
@@ -358,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150694.jpg" />
 </div>
 
 
@@ -384,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150693.jpg" />
 </div>
 
 
@@ -410,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150692.jpg" />
 </div>
 
 
@@ -436,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150691.jpg" />
 </div>
 
 
@@ -464,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150690.jpg" />
 </div>
 
 
@@ -490,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150689.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150688.jpg" />
 </div>
 
 
@@ -543,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150687.jpg" />
 </div>
 
 
@@ -569,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150686.jpg" />
 </div>
 
 
@@ -596,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150685.jpg" />
 </div>
 
 
@@ -623,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150679.jpg" />
 </div>
 
 
@@ -650,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150674.jpg" />
 </div>
 
 
@@ -678,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150642.jpg" />
 </div>
 
 
@@ -689,6 +609,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EDDFC0D48576784DC9566BF2193EAE90C056560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677384   (150627) от 17.11.2023
+
+Роман Артемьев | Хроники Аскета (Книга 1). Вторжение (2023) [MP3, TED]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150627.jpg" />
+</div>
+
+
+###  Подробнее
+
+За все надо платить. За возможность достойно жить – потом и кровью, за силу и ловкость – болью в натруженных мышцах и временем, за власть и славу часто расплачиваются душой. Что отдаст человечество за возможность стать чем-то большим? Не слишком ли велика окажется цена? Выживет ли род людской, столкнувшись с совершенно отличным от своего разумом?
+Герой книги не хотел (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 12:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBF75A67A24BF6C0CB4276DD0296D450B69D6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353417   (150624) от 17.11.2023
+
+Евгений Баратынский | Избранная лирика (2006) [MP3, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150624.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокнигу вошли избранные стихотворения и поэмы Евгения Абрамовича Баратынского (1800–1844) – одного из крупнейших представителей русской философской поэзии, глубокого, тонкого лирика.
+
+Сей поцелуй, дарованный тобой,
+Преследует мое воображенье:(   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: МедиаКнига, 1С-ПаблишингПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFCE8012B49BFE12AB8662A9C99F8736B933641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677259   (150611) от 17.11.2023
+
+Александр Сухов | Дэн Шир (Книга 1). Обнулённый (2023) [MP3, TED]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150611.jpg" />
+</div>
+
+
+###  Подробнее
+
+За семьдесят два года своей бурной жизни он успел побывать в Афганистане, а также в качестве военного советника в Анголе Намибии, и других странах Африки, Азии и Латинской Америки. Был многократно ранен, но не смертельно. И все-таки Смерть нашла его уже в преклонном возрасте во дворе собственного дома. Однако Костлявая, как в былые времена, вновь над ним подшутила. (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: Клуб любителей аудиокнигПродолжительность: 08:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF8CB6B6A0493858C0D442A987985D12AF596EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

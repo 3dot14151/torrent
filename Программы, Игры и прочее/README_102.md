@@ -1,55 +1,3 @@
-###  Публикация: 1648668   (195237) от 24.07.2023
-
-CapCut - Видеоредактор 8.8.1 Mod by dimonx32, Айфона нет [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-CapCut - видеоредактор, что понравится поклонникам создания коротких роликов предназначенных для таких платформ, как TikTok и прочих. Здесь они найдут всё необходимое для продуктивной работы и с видео и с аудио стороной процесса. Удобная механика редактирования, обширный набор эффектов и цветовых фильтров, различные наклейки, наложение текста, переходы между кадрами (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 17.07.2023Разработчик: Bytedance Pte. Ltd.Поддерживаемая ОС: Android 5.0+ (Только для ARM64)Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84F05870AA871C869050E94940A97258FFE812A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648709   (195213) от 24.07.2023
-
-ViMu Media Player for TV 10.10 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-ViMu Media Player - это гибкий и удобный медиаплеер для медиа-приставок на Android TV и FireStick. Воспроизводит видео с внутренней памяти, SD-карты или с подключенного USB-накопителя. В плеере ViMu имеется поддержка сетевых протоколов SMB, WebDAV и DLNA. Поддерживает большинство видео и аудио форматов, встроенные субтитры и внешние плейлисты. Он также умеет воспроизводить (   Читать дальше...   )Тип издания: ModРелиз состоялся: 08.07.2023Разработчик: GTVBox.netПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0A17DEC1DB830876BBF7795AD801FEDF033185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573511   (195079) от 29.07.2023
 
 izi.TRAVEL v7.2.1.510 [Ru/Multi]
@@ -58,7 +6,7 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195079.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Persona: Бьюти-камера v1.6.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195017.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194996.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194993.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.5.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194917.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ AVG антивирус & Безопасность 23.15.0 Mod by DEXUNPACKER [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194838.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194652.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ AR Ruler  v2.5.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194645.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ MX Player Pro v1.68.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194513.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194506.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194462.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194432.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ Listen Audiobook Player v5.0.15 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194421.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ Titan - Home Workout & Fitness v3.6.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194383.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ SD Maid Pro v5.5.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194312.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ SmartTube Next 18.92 (Stable) Mod by armanych [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194240.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by alax1972 + Cassette Pack (Unpacked) [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194195.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ Kodi 20.2 (Nexus) for Android [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194178.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ Snap Camera HDR 8.10.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194157.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ Truecaller BETA: определитель номера 13.30.5 Mod by LITEAPKS [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194120.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ Truecaller: определитель номера 13.29.6 Mod by youarefinished 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194119.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ jetAudio HD Music Player Plus 11.2.6 Mod by derrin [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194103.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ Offline Maps / Офлайн карты для путешественников v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194044.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194025.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B8F62D8BC4BDDDEF8AA0C2E2028C592E631776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654664   (193997) от 22.08.2023
+
+VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРазработчик: Local networksПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654880   (193956) от 23.08.2023
+
+Радио онлайн - PCRADIO 2.7.2.2 Mod by NURIK [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радио онлайн - PCRADIO - отличный проект, что благодаря своим качествам завоевал весьма впечатляющих размеров аудиторию пользователей. Им предлагается удобная и функциональная платформа для поиска и прослушивания радиостанций и всего прочего потокового аудиоконтента. Порадует и серьёзная экономия трафика. Это обеспечивает совершенно невысокий уровень потребления (   Читать дальше...   )Тип издания: ModРелиз состоялся: 26.12.2022Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E3649FE3B370C31962B3EE020D6AE38F584B87
 ```
 
 https://mybot314.ru/tekegram_catalog/

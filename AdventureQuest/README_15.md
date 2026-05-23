@@ -1,29 +1,3 @@
-###  Публикация: 993593   (894997) от 05.03.2016
-
-Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вы путешествуете в прошлое, пытаясь помочь главному герою, неудачнику по жизни, исправить свою судьбу. Игра включает в себя сцены с перемоткой времени, где вам нужно будет использовать разные предметы, чтобы попробовать изменить будущее. Бывалым игрокам доставят удовольствие мини-игры, стилизованные под старинные игровые автоматы. Оригинальной особенностью геймплея (   Читать дальше...   )Тип издания: LicenseРазработчик: SiBearЖанр: Я ищу, Квест, Приключение, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8024DBFEABDA46D973E6BA61FC5192468D63B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101663   (893871) от 07.02.2017
 
 Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let'sPlay
@@ -32,7 +6,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893871.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Her Story (2015) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890707.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Stonefly (2021) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890174.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Find Out (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889069.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Aura 2: Sacred Rings / Аура 2: Кольца судьбы [Ru] (P) 2007
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886826.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886429.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885454.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885124.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884571.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6/dlc) Repack Other s [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884565.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Rewinder (2021) [Multi] (1.26.5) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884118.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883914.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Guest (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883908.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Guest (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883835.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Blues and Bullets - Episode 2 (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883821.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Figment (2017) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883140.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883051.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Last Will (2016) [En] (1.0) License HI2U [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882910.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882678.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882051.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Old City: Leviathan (2014) [Ru/En] (28.02.2016) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882039.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dreamfall Chapters (2014) [Ru/Multi] (5.4.1.1) SteamRip Let'sPlay [Special Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880965.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879637.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879390.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879262.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Dear Esther: Landmark Edition - улучшенная версии популяр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC20C9DF4DDB6EE9707829A533B8BACFADFFF706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105153   (877549) от 16.02.2017
+
+The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Almanac Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже первые встречи со старыми героями настраивают на знакомый ироничный лад. Принцесса Иво, которую против ее воли хотят выдать замуж, обнаруживает, что она… беременна. Причем, судя по всему, от святого духа - ведь Иво толком даже не знает, что такое секс, и консультируется по этому поводу то с птичкой, то с говорящим справочником по эльфийской медицине. Над Вильбуром, (   Читать дальше...   )Тип издания: LicenseРазработчик: KING ArtЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C518E28A53036C3A2083B548AD6EFBA29867C546
 ```
 
 https://mybot314.ru/tekegram_catalog/

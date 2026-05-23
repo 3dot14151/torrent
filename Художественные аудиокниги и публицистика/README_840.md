@@ -1,85 +1,3 @@
-###  Публикация: 1517874   (161606) от 17.12.2021
-
-Катриона Уорд | Последний дом  на Никчемной улице (2021) [MP3, Владимир Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Мужчина примерно двадцати семи лет, в браке не состоит.
-Безработный или же занят ручным трудом.
-В общественном плане маргинал.
-Скорее всего, ранее привлекался за насильственные преступления.(   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 12:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1D7CA8E9D924D459BC314AAE596A2D5D657ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517966   (161557) от 17.12.2021
-
-Михаил Ламм | Запасной ключ (2021) [MP3, Александр Овчинников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Я всегда пел, когда готовил. Только Ленка могла спокойно и даже весело переносить эти жуткие звуки. Она говорила, что надо иметь особый талант, чтобы петь так плохо. А любой талант нужно ценить.Жанр: ФантастикаПродолжительность: 00:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94DDACAF2A97488BED9345FFEC6F4EC2E641B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517962   (161510) от 17.12.2021
-
-Василий Сахаров | «Империя Оствер» Книга 7. Восточный фронт (2020) [MP3, Сергей Горбунов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Империя под ударом. Враги со всех сторон, а силы на исходе. Республиканцы на востоке. Ассиры на юге. Теократ Шаир-Каш на востоке. Пираты грабят побережье и сжигают города. А тут ещё великий герцог Ратина при поддержке эльфов поднимает мятеж, и, если его не подавить сейчас, государство остверов развалится.
-Император бросает все силы на борьбу с изменниками, а его (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 13:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BB1F835449FE430D89DA322F2A1A7490406E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517996   (161495) от 17.12.2021
 
 Робин Хобб | «Сага о живых кораблях» Книга 2. Безумный корабль (2021) [MP3, Сергей Кирсанов]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161495.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161444.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161408.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161361.jpg" />
 </div>
 
 
@@ -193,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161344.jpg" />
 </div>
 
 
@@ -219,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161335.jpg" />
 </div>
 
 
@@ -245,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161318.jpg" />
 </div>
 
 
@@ -272,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161257.jpg" />
 </div>
 
 
@@ -298,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161235.jpg" />
 </div>
 
 
@@ -324,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161230.jpg" />
 </div>
 
 
@@ -351,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161215.jpg" />
 </div>
 
 
@@ -379,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161198.jpg" />
 </div>
 
 
@@ -405,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161159.jpg" />
 </div>
 
 
@@ -431,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161129.jpg" />
 </div>
 
 
@@ -460,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161125.jpg" />
 </div>
 
 
@@ -486,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161121.jpg" />
 </div>
 
 
@@ -512,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161117.jpg" />
 </div>
 
 
@@ -540,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161113.jpg" />
 </div>
 
 
@@ -567,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161109.jpg" />
 </div>
 
 
@@ -595,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161084.jpg" />
 </div>
 
 
@@ -621,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161004.jpg" />
 </div>
 
 
@@ -648,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160963.jpg" />
 </div>
 
 
@@ -674,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160945.jpg" />
 </div>
 
 
@@ -685,6 +603,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:709DEAD295D8EE36F7D527BE032EA5C454EE9F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674798   (160860) от 06.11.2023
+
+Александр Дюма (отец) | Женская война (2018) [MP3, Ольга Андреева]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малоизвестный роман классика французской литературы Александра Дюма.
+1650 год, гражданская война во Франции. Королева Анна Австрийская воюет с принцессой Конде. Главный герой, барон Каноль, влюблен одновременно в двух женщин, которые находятся по разную сторону баррикад. К чему может привести жизнь между молотом и наковальней?..
+
+«Ковиньяк, поглощенный созерцанием (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романПеревод: Владимира Михайловича СтроеваИздательство: МедиаКнигаПродолжительность: 15:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A4C771634CFF2D5B161F218F3064A05D5A71EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674799   (160859) от 06.11.2023
+
+Александр Дюма (отец) | Кавалер Красного замка (2022) [MP3, Николай Орловский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Зарубежная классика.
+Аудиостудия «Ардис» предлагает вашему вниманию исторический роман Александра Дюма «Кавалер Красного замка», известный также как «Шевалье де Мезон-Руж».
+1793 год. После казни короля Людовика XVI в Париже, в мрачном застенке ещё бьется сердце несчастной королевы Марии-Антуанетты, чья участь, увы, почти предопределена. Группа заговорщиков-роялистов, (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Студия «АРДИС»Продолжительность: 17:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B90401C94C2E5DDE7232C3A9C9605C05590592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674608   (160853) от 06.11.2023
+
+Чингиз Абдуллаев | Дронго (Книга 73), Разорванная связь (2023) [MP3, Яна Качеровская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две супружеские пары решили пошалить – заняться грешными свингерскими забавами. Удовольствие оказалось сомнительным, а через день один из незадачливых свингеров был убит в номере отеля. Самое интересное, что в убийстве обвиняют… эксперта-аналитика Дронго. Для него теперь дело чести найти настоящего убийцу и этим спасти не только свою репутацию, но и свободу. Подозреваемых (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48555631BDBB0F61827C8C53D4454C5A61A5D3D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

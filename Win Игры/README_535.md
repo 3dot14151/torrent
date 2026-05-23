@@ -1,29 +1,3 @@
-###  Публикация: 1789840   (22320) от 06.04.2025
-
-Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-История мира изменилась в тот день, когда на земле нашли странный кристалл - осколок духовного камня. Поговаривали, будто он может исцелять любые болезни и даже возрождать умершую природу. Ну и конечно, началась грызня за власть - правители затеяли войны за новые осколки, фракции перессорились, а в довесок ко всему появились какие-то чудища. В общем, полный бардак. (   Читать дальше...   )Тип издания: RepackРазработчик: kingnagameЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Корейский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Корейский, Японский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B445F0C76DC4E7A4C1021439353955397204D58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765967   (22317) от 06.04.2025
 
 Master Key (2024) [Ru/Multi] (1.7.02) License GOG
@@ -32,7 +6,7 @@ Master Key (2024) [Ru/Multi] (1.7.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22317.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22298.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22293.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Vagrus: The Riven Realms (2021) [Ru/Multi] (1.2.00.0402Q/dlc) Repack FitGirl [Ce
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22245.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Commander Quest (2025) [Ru/Multi] (1.0.25.704) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22224.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Flight Catastrophe (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22207.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Trials of Innocence (2025) [Multi] (1.2.0.506) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22204.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sledders (2023) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22193.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22109.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Astrea Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22082.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22065.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ PEPPERED (2025) [Ru/Multi] (Build 18001699) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22063.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Factory Outlet Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22041.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19.0.6676/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22019.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22009.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22004.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Old Market Simulator (2024) [Ru/Multi] (1.5.5) Pepack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21999.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21986.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21980.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19/dlc) Repack FitGirl [Green Planet Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21977.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Making of Karateka (2023) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21925.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21922.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21906.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Scene FAiRLiGHT [Deluxe E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21905.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21904.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD06403B87B9EC8E25498AA17F588DCAB2BBC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751103   (21901) от 10.04.2025
+
+Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Funko Fusion - это экшн от третьего лица, посвященный фандому. Играйте с любимыми персонажами из сериалов, фильмов, игр и комиксов и исследуйте созданные вручную миры, вдохновленные «Миром Юрского периода», «Назад в будущее», «Челюстями», «Нечто», «Чаки», «Звездным крейсером «Галактика», «Типа крутые легавые», «Академией Амбрелла», «Пять ночей у Фредди», «Властелинами (   Читать дальше...   )Тип издания: RepackРазработчик: 1010 Games LtdЖанр: Экшены, ПриключенияЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB7127A3F24E794A0607DD2CDF67C00D87434AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

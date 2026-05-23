@@ -6,7 +6,7 @@ Avernum: Escape From the Pit (2012) [Ru/En] (1.0.1S) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443468.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-100601) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441300.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437555.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Arcania: Gothic 4 / Готика 4: Аркания [Multi5-] (L) 2010 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434109.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hades (2020) [Ru/En] (1.36032) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431248.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430372.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Realms of Arkania: Blade of Destiny (2013) [En/Ge] (1.36/dlc) License PROPHET [C
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429684.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429210.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Desktop Dungeons (2013) [En] (1.56/dlc) Repack R.G. Механики [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428626.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427171.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wasteland 2 (2014) [Ru/En] (1.0 u6/dlc) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426493.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425816.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425107.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ OCTOPATH TRAVELER (2019) [Multi] (1.0) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424982.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423253.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422717.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2476) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421849.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) License PLAZA [Fleet Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421714.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ King's Bounty II (2021) [Ru/Multi] (1.7/dlc) License GOG [Duke's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420564.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Darkwood (2017) [Ru/En] (1.1 Hotfix 4) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416314.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Noelle Does Her Best (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416079.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dragon Age - Anthology / Эпоха Дракона - Антология (2009-20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415636.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Pine (2019) [Ru/Multi] (Patch 13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415284.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415212.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415143.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413313.jpg" />
 </div>
 
 

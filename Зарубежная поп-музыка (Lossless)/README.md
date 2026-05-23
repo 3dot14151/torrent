@@ -7,7 +7,7 @@ Bananarama - Now Or Never (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070231.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Vanessa Williams - The Sweetest Days (1994) [FLAC|Lossless|tracks + .cue] <Conte
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070207.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Backstreet Boys - Millennium (1999) [FLAC|Lossless|tracks + .cue] <Funk / Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069973.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - 100 Greatest 00s: The Best Songs from the Decade (2019) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069770.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Neil Sedaka - All Time Greatest Hits (1988) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069259.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ CeeLo Green - The Lady Killer (2010) [FLAC|Lossless|tracks + .cue] <Funk, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069155.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Jessica Simpson - In This Skin (2003) CD, Album, Enhanced [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069152.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - 80s R&B Party (Awesome Dance Mix) (2008) [FLAC|Lossless|tracks + .cue] <Hip
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069036.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Andy Grammer - Andy Grammer (2011) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069034.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - The Essential Modern Soul Selection (1991) [FLAC|Lossless|tracks] <Funk, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069012.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gregorian Choir - Modern Hits (2004) [FLAC|Lossless|tracks] <Pop, Folk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069011.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Streisand, Kristofferson - A Star Is Born (1976) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068768.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Every Mother Counts 2012 (2012) [FLAC|Lossless|tracks + .cue] <Folk, World 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068408.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ After 7 - Reflections (1995) [FLAC|Lossless|tracks + .cue] <Funk / Soul, Contemp
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068197.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Carpenters - The Singles 1969-1973 (1973) Compilation, Reissue, 1995, A&M Record
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067971.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Carpenters - A Song For You (1972) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067700.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Cilla Black - You're My World - Her Greatest Hits (1995) Compilation [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067697.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Carpenters - Carpenters (1991) Compilation, A&M Records [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067695.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Shout-Out Pop (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067478.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sydney Youngblood - Sydney Youngblood (1990) [FLAC|Lossless|image + .cue] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066945.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Carpenters - Lovelines (1989) Remastered [FLAC|Lossless|image + .cue] <Pop, Soft
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066942.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sylvester - Mutual Attraction (1986) [FLAC|Lossless|image + .cue] <Electronic, F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066940.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Frank Duval - Rarities Volume 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066346.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Kenny Rogers - Kenny Rogers (1983) Reissue, 1986, RCA [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066001.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Thomas Anders - ZEITLOS (2026) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065983.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Annie Lennox - Songs of Mass Destruction (2007) [FLAC|Lossless|tracks + .cue] <S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065780.jpg" />
 </div>
 
 

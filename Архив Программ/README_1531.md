@@ -6,7 +6,7 @@ Microsoft  Visual C++ Runtimes AIO v0.73.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252249.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe After Effects 2023 23.4.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252238.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Premiere Pro 2023 23.4.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252235.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 16.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252228.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nik Collection by DxO 6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252210.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 7 Professional VL x64 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252147.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ StartAllBack 3.6.5 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252126.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Defender Remover Portable 12.4.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252108.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 7 Enterprise x64 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252088.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows 7 Ultimate x64 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252085.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Photoshop 2023 24.5.0.500 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252084.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Windows 10/11 PE (x86/x64) by Ratiborus v.8.2023 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252007.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Windows 10 Debloater 2.6.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251964.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PotPlayer 230523 (1.7.21916) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251961.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rufus 4.1 (Build 2045) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251891.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinRAR 6.22 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251871.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WinRAR 6.22 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251828.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Windows 7 Ultimate SP1 (x64) [The DNA7 Project v.1.6] (русская верси
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251599.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ U-he - Diva v.1.1 by DYNAMiCS x86.x64[VST][английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251590.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Driver Genius Professional 11.0.0.1128 DC 11.05.2012 RUS RePack/Portable by -=SV
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251576.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251575.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Open Hardware Monitor 0.4.0 Beta [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251557.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Big Aperture 1.0.0 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251545.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Geek Uninstaller 1.0.0.2 (portable) [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251518.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Reg Organizer 5.45 Beta 1 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251505.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Any Video Converter Ultimate 4.3.8 [Multi/Rus] + Portable *PortableAppZ*
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251469.jpg" />
 </div>
 
 

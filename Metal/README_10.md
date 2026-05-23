@@ -6,7 +6,7 @@ Temperance - Viridian (2020) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987031.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pyogenesis - A Silent Soul Screams Loud (2020) [MP3|320 Kbps] <Gothic Metal, Alt
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986977.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vicious Crusade - Freedom Comes (2009) [MP3|320 kbps]<Melodic Thrash>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986549.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Melechesh - Emissaries (2006) [MP3|~256 kbps] <Mesopotamian metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986542.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Annihilator - Ballistic, Sadistic (2020) [MP3|320 Kbps] <Heavy Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985963.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ In Extremo - 20 Wahre Jahre (2015) Rarities CD Compilation [MP3|320 кб/с]<Fol
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985765.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - 100 Greatest Metal (2020) [MP3|320 Kbps] <Metal, Heavy Metal, Alt. Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984753.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Nightfall - Cassiopeia (2013) [MP3|320 кб/с]<Melodic Death / Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984347.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Betray My Secrets - Betray My Secrets (1999) [MP3|320 kbps]<Atmospheric Ethnic G
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984169.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Melechesh - 3 albums (1996, 2001, 2003) [MP3|320 kbps] <Mesopotamian metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983116.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Raven - ExtermiNation (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980832.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Exmortus - Ride Forth (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980783.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Artificum Nex - Desert of Sins (2013) EP [MP3|320 кб/с] <Black Metal, Melodic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979315.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Serenity - The Last Knight (2020) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979115.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 к�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978936.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978902.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978901.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Mulla - Mulla (2020) [MP3|320 Kbps] <Black metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978623.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Stratovarius - Nemesis (2013) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978431.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Sarah Where Is My Tea - Desolate (2011) [MP3|320 кб/с]<deathcore/melodic meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977834.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Echoterra - The Law of One (2009) [MP3|~224 kbps]<Symphonic/Operatic Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977153.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Eleventh Hour - Memory Of A Lifetime Journey (2016) [MP3|320 кб/с] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976980.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Artificum Nex - Epitaph of Life (2014) [MP3|320 кб/с] <Black Metal, Melodic B
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976979.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Odyssea - Storm (2015) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976947.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Sybrid - Hetalony (2016) [MP3|320 кб/с] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976940.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Dark Matter - Nebula to Black Hole (2020) [MP3|320 Kbps] <Atmospheric Doom Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976771.jpg" />
 </div>
 
 

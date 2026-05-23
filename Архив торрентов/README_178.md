@@ -6,7 +6,7 @@ uTorrent 3.5.5 build 46010 Stable Repack by SanLex [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015903.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 10.00 Beta 10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015885.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ON1.Effects.2021.5 15.5.0.10403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015883.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Internet Download Manager 6.38 Build 25 Final + Retail + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015880.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015878.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v7.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015865.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Acrobat Pro DC 2021.001.20155 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015854.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015853.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ESET NOD32 Internet Security 14.1.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015848.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5161.1002 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015835.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Middle 1.5.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015823.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Valentina Studio Pro 11.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015820.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ KCNcrew Pack 05-15-21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015815.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TrebEdit 3.0.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015797.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015778.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Freeplane 1.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015763.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Game WideScreener 2.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015742.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Nox App Player 7.0.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015741.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ The 5th Galaxy Orchestra - The Old Book of Astronomy (2021) [FLAC|Lossless|WEB-D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015738.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Battery Widget Reborn Pro 3.2.13 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015726.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wise Registry Cleaner Pro 10.3.4.693 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015723.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ ON1 Photo RAW 2021.5 15.5.0.10396 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015712.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Viber 15.3.0.5 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015686.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy 05.2021 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015673.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Cookie 6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015663.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ eBookBinder 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015658.jpg" />
 </div>
 
 

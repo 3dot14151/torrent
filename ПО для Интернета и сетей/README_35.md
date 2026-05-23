@@ -6,7 +6,7 @@ MailStyler Newsletter Creator Pro 1.3.2.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330044.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Vuze 5.7.0.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329877.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Betterbird 102.3.2-bb19 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325316.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GreenBrowser 6.9.1223 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321308.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Incomedia WebSite X5 Professional 14.0.3.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320813.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Google Earth Pro 7.3.2.5495 Portable by PortableAppZ (x86/x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320632.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Becky! Internet Mail 2.74.03 RePack (& Portable) by TryRooM [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320462.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ TotalD Pro 1.5.8 Portable by Zeka [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320460.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ OpenCloner Stream-Cloner 1.60 Build 207 Final + Portable от SoftLab (2012) [М
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319605.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Network Administrator 5.7 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317687.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VideoCacheView 2.97 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313228.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311083.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ SmartSniff 2.25 Portable + Driver [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302916.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NetworkTrafficView 2.01 Portable + Driver [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302914.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ SysLog Collector 1.3 Portable [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301871.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Advanced Onion Router 0.3.1.5 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300681.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ YouTube Video Downloader PRO 5.8.2 (20161111) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291824.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Air Live Drive Pro 1.2.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291066.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Elcomsoft Cloud eXplorer Forensic Edition 2.22.34665 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288812.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Internet Download Manager 6.42 Build 56 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_287033.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ YouTube Video Downloader PRO 5.8.2 (20161111) RePack (& Portable) by Trovel [Mul
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282002.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WeChat 2.3.0.93 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278627.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ MEGA Sync Client 2.9.10 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278511.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Change MAC Address 3.7.0 Build 153 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277050.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Plex Media Server 1.10.0.4523 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270020.jpg" />
 </div>
 
 

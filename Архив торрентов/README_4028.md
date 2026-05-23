@@ -6,7 +6,7 @@ Windows 7 (3in1) x64 by Updated Edition (15.09.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188141.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Adobe Photoshop 2023 24.7.1.741 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188117.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WPS Office + PDF 18.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188075.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Text Editor Pro 27.6.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188054.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.0.71 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188040.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Telegram Desktop 4.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188034.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Sumatra PDF 3.5.15510 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188032.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ PortableApps.com Platform 26.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188007.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Gradient v2.9.75 Mod by KirillCXV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188003.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Subtitle Edit 4.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187994.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WPS Office + PDF 18.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187992.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Imagine 1.1.8 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187985.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ All-In-One Offline Maps v3.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187979.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ SD Maid v5.6.1 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187969.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DNS Changer 2.1.8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187920.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Clonezilla Live (stable) 3.1.0-22 [i686, i686-pae, amd64] 3xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187914.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Opera GX 92.0.4561.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187809.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Firefox Browser 107.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187786.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ FreeFileSync 11.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187784.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Cockos REAPER 6.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187781.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187777.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ISO Workshop 11.6 Pro RePack (& Portable) by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187771.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Glary Disk Cleaner 5.0.1.295 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187769.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Process Lasso Pro 12.0.0.24 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187768.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Google Chrome 117.0.5938.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187762.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Logic Pro X 10.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187757.jpg" />
 </div>
 
 

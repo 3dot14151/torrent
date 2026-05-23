@@ -1,111 +1,3 @@
-###  Публикация: 713686   (48329) от 31.07.2024
-
-А король-то голый (1992) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль по пьесе Евгения Шварца "Голый король".
-Пьеса Евгения Шварца основана на нескольких андерсеновских сказках: "Свинопас", "Принцесса на горошине" и "Новое платье короля".
-У Шварца "Голый король" - протест против глупости и ограниченности.
-В одном королевстве живет хорошенькая принцесса, в другом - старый (   Читать дальше...   )Производство: Телерадиокомпания "Петербург", Творческое объединение "Искусство".Жанр: Комедия, Сказка, МьюзиклРежиссер: Борис ГерштАктеры: Король- Николай Трофимов, Первый министр - Георгий Штиль, Принцесса - Юлия Соколова, Генрих - Александр Саюталин, Христиан - Олег Куликович, Министр нежных чувств - Борис Смолкин, Король-отец - Александр Демьяненко, Первая дама - Ольга Волкова, Мэр - Николай Поздеев, Камердинер - Евгений Тиличеев, Повар - Сергей Лосев, Ученый - Изиль Заблудовский, Портной - Александр (   Читать дальше...   )Продолжительность: 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E04E525BC4D41A081C005207ED63E1332DE7F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330626   (48325) от 31.07.2024
-
-Васса Железнова (1953) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Васса Железнова, владелица волжского пароходства "Храповы и Железновы", - умная, расчетливая женщина, умудренная жестоким жизненным опытом. Она не может не осознавать ничтожества и никчемности окружающих ее людей: мужа, брата, дочерей. Васса мучительно ищет приемника своему "делу" и находит его в маленьком Коле, своем внуке. Но за ним приезжает (   Читать дальше...   )Жанр: Телевизионный спектакльРежиссер: Константин Зубов, Леонид ЛуковВ ролях: Вера Пашенная, Михаил Жаров, Елизавета Солодова, Шамин НиколайФормат: AVIПродолжительность: 1:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C28581AF8F40B29F28A993117023FB22FB40E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772372   (48310) от 31.07.2024
-
-Виноватые (1987) TVRip (театр им. Моссовета)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Алексея Арбузова.
-В дом молодого юриста Леонтия Соколика нанимается домработница Мария Васильевна. Постепенно выясняется, что она - мать Леонтия, которого она бросила двадцать пять лет назад ради новой настоящей любви. Сейчас ее сын – успешный юрист – ради карьеры вынужден расстаться со своей любимой женой. Перед кем и за что виноваты герои пьесы? (   Читать дальше...   )Жанр: Телеспектакль, пьеса, драмаРежиссер: Андрей МеккеАктеры: Георгий Тараторкин, Галина Дашевская, Елена Валюшкина, Валерий Сторожик, МихаилПродолжительность: 02:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3C0FD1B5FC8374B408C08D5E45F8DF26779EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663060   (48304) от 31.07.2024
-
-В городе хорошая погода (1983) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-О деятельности председателя исполкома небольшого города - Павла Петровича Леднева. Не все ладится на работе и в личной жизни героя, но в любых ситуациях проявляются его высокие нравственные качества.Жанр: Киноповесть, мелодрама, телеспектакльРежиссер: Юрий КротенкоАктеры: Олег Ефремов, Елена Козелькова, Евгения Уралова, Людмила Полякова, Юлия Юльская, Александр Шаврин, Игорь Охлупин, Ольга Станицина, Евгений Евстигнеев, Аркадий КруглякПродолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B37E128DBD8C29EAECD376DC12DAA2E60BB9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 720585   (48302) от 31.07.2024
 
 В Номерах (1973) TVRip
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48302.jpg" />
 </div>
 
 
@@ -140,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48294.jpg" />
 </div>
 
 
@@ -166,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48256.jpg" />
 </div>
 
 
@@ -193,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48255.jpg" />
 </div>
 
 
@@ -220,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48254.jpg" />
 </div>
 
 
@@ -246,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48236.jpg" />
 </div>
 
 
@@ -275,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48232.jpg" />
 </div>
 
 
@@ -302,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48208.jpg" />
 </div>
 
 
@@ -329,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48203.jpg" />
 </div>
 
 
@@ -356,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48200.jpg" />
 </div>
 
 
@@ -383,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48130.jpg" />
 </div>
 
 
@@ -411,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48124.jpg" />
 </div>
 
 
@@ -440,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48113.jpg" />
 </div>
 
 
@@ -468,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48106.jpg" />
 </div>
 
 
@@ -496,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48100.jpg" />
 </div>
 
 
@@ -523,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48096.jpg" />
 </div>
 
 
@@ -550,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48084.jpg" />
 </div>
 
 
@@ -577,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48073.jpg" />
 </div>
 
 
@@ -603,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48018.jpg" />
 </div>
 
 
@@ -631,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47914.jpg" />
 </div>
 
 
@@ -659,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47885.jpg" />
 </div>
 
 
@@ -686,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47882.jpg" />
 </div>
 
 
@@ -698,6 +590,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07433B2FED4740E748C7D199A0FB8CD8B3776474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329779   (47836) от 05.08.2024
+
+Дядя Ваня (1986) DVDRip  (БДТ)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Большого Драматического театра им. М. Горького по пьесе А.П.Чехова "Дядя Ваня".
+Этот знаменитый спектакль БДТ был перенесен на пленку в достаточно нетрадиционной манере. Фактически это телефильм, снятый по спектаклю, и не в театральных декорациях, а на натуре. В старинном особняке разворачивается классическая чеховская трагедия русского (   Читать дальше...   )Жанр: Спектакль, драмаРежиссер: Георгий ТовстоноговВ ролях: Олег Басилашвили, Кирилл Лавров, Евгений Лебедев, Наталья Данилова, Татьяна Бедова, Николай Трофимов, Мария Призван-Соколова, Зинаида Шарко, Евгений ЧудаковФормат: AVIПродолжительность: 01:21:00 + 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76BE7593A828F2FE88011B6306CA2ABE56D71DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318782   (47835) от 05.08.2024
+
+Евгений Онегин (1967) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47835.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Он умер в час перед обедом,
+Оплаканный своим соседом,
+Детьми и верною женой
+Чистосердечней, чем иной.(   Читать дальше...   )Жанр: Литературные чтенияРежиссер: Сергей ЮрскийВ ролях: Сергей ЮрскийФормат: AviПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCBB1A9E173AB1C26C6F87CC91B43BCAFAC8947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32097   (47832) от 05.08.2024
+
+№ 13 / Out of oder
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в отеле… «Номер 13» вот уже третий десяток лет с успехом шествует по театральным подмосткам всего мира. Пьеса вошла в золотой фонд Британского театра, как одна из лучших английских комедий 20 века. Потрясает история, разворачивающаяся на сцене. Помощник премьер-министра Великобритании Ричард снял номер в гостинице, чтобы провести ночь со своей (   Читать дальше...   )Жанр: комедия/спектакльРежиссер: Владимир МашковАктеры: Евгений Миронов, Авангард Леонтьев, Александра СкачковаПеревод: ОригинальныйПродолжительность: 01:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA6EB0BDBD7D8E442C74B2C8DF2F56BF2322E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971425   (47827) от 05.08.2024
+
+Николай Гоголь - Нумер в гостинице города NN (Мертвые души) (2003) DVDRip (Центр им. Вс. Мейерхольда)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47827.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам поэмы Николая Васильевича Гоголя "Мертвые души".
+Чудаковатый Чичиков вселяется в крошечную комнатку, забитую странными вещами. Вдруг пространство вокруг него оживает: шепчут чушь занавески, хлопают дверцами шкафы, вкрадчиво поскрипывают половицы. Кажется, что Чичиков попал внутрь своей знаменитой шкатулки, и мертвые души, аккуратно им переписанные, (   Читать дальше...   )Производство: Россия, Центр им. Вс. Мейерхольда, ГТРК "Культура"Жанр: Телеспектакль, трагикомедияРежиссер: Валерий ФокинАктеры: Авангард Леонтьев, Валерий Еремичев, Игорь ЛяхПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3A9D58AFD05CCEFC9A690344E8BE0911328465
 ```
 
 https://mybot314.ru/tekegram_catalog/

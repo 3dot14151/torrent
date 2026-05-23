@@ -6,7 +6,7 @@ Slain: Back From Hell (2016) [En] (5.3.6.15686141) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538565.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533037.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0) Repack Covfefe
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528400.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.2) Lice
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527763.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Evil Genome (2017) [En/Ch] (1.2.022) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526822.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Toki Tori Dilogy (2010-2013) [Ru/Multi] (1.0.7526.8583/1.0.15191.9550) Repack Le
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526507.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ From Shadows (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525795.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Blazing Chrome (2019) [Ru/Multi] (0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519926.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Eets Munchies (2014) [En] (1.0) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519352.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | SEYTER
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517574.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | VANSIK
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517524.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rollcage: Dilogy / Rollcage: Дилогия (1999-2000) [En] (1.3.8/1.1.8) Repac
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514822.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Double Dragon Trilogy (2013) [Ru/Multi] (1.0/upd3) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513568.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Bit Trip Presents Runner 2: Future Legend of Rhythm Alien (2013) [En] (1.0/dlc) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512640.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Angry Birds: Anthology / Angry Birds: Антология (2011-2013) [En] (4.0 /
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512489.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Snowy: Treasure Hunter 3 / Снежок. Охотник за сокровища�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510237.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ PixelJunk Nom Nom Galaxy (2014) [En/Multi] (1.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509855.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509831.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509822.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509816.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mega Man Legacy Collection (2015) [Ru/Multi] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507767.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Cast of the Seven Godsends (2015) [Ru/Multi] (1.0/upd10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506840.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Guacamelee (2014) [Ru/Multi] (1.0) Repack R.G. Механики [Super Turbo Cha
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504101.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Azure Striker Gunvolt (2015) [Ru/Multi] (1.0.760608) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504092.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Valdis Story: Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503090.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ BGE Mario 2011 [En] (P) 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502984.jpg" />
 </div>
 
 

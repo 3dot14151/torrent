@@ -1,58 +1,3 @@
-###  Публикация: 1064371   (424056) от 21.10.2016
-
-Джулия Гарвуд | Добрый ангел (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Англия, XIII век. Время кровавых междоусобных войн. Неперимиримая вражда между англичанами и шотландцами. Можно ли надеятся обрести счастье, когда вокруг полыхает пожар? Прелестная молодая англичанка и суровый шотландский лаэрд бросают вызов судьбе, хотя единственное, что они могут противопоставить жизненным невзгодам и козням врагов, - их нежная и искренняя любовь.Жанр: Исторические любовные романыПродолжительность: 17:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3FA01DC2583F857F522CAF4A7245D7C518F83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572384   (423519) от 26.08.2022
-
-Вазген Гнуни | История на пальцах. Армения (2022) [MP3, Дмитрий Шабров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Увлекательный гид по Армении: история, культура и традиции.
-"Армения – это страна чудес… Если меня бы спросили, где на
-нашей планете можно встретить много чудес, то я первой назвал бы Армению…
-Невольно поражаешься тому, как на столь небольшом клочке земли можно встретить такие памятники и таких людей, которые способны украсить весь мир и стать предметом его (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 09:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2D1F5C90FFD9AD07C84E959BB6F429E1F98CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064687   (423473) от 21.10.2016
 
 Валентин Пикуль | Реквием каравану PQ-17 (2016) [MP3, Владимир Левашев]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423473.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422823.jpg" />
 </div>
 
 
@@ -115,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421914.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421048.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421045.jpg" />
 </div>
 
 
@@ -194,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420096.jpg" />
 </div>
 
 
@@ -221,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419589.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419458.jpg" />
 </div>
 
 
@@ -274,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419332.jpg" />
 </div>
 
 
@@ -300,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417700.jpg" />
 </div>
 
 
@@ -326,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417322.jpg" />
 </div>
 
 
@@ -353,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415746.jpg" />
 </div>
 
 
@@ -379,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415499.jpg" />
 </div>
 
 
@@ -406,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415005.jpg" />
 </div>
 
 
@@ -432,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414310.jpg" />
 </div>
 
 
@@ -458,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412081.jpg" />
 </div>
 
 
@@ -484,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409746.jpg" />
 </div>
 
 
@@ -510,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409454.jpg" />
 </div>
 
 
@@ -537,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409209.jpg" />
 </div>
 
 
@@ -564,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407637.jpg" />
 </div>
 
 
@@ -592,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407509.jpg" />
 </div>
 
 
@@ -618,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401328.jpg" />
 </div>
 
 
@@ -645,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400506.jpg" />
 </div>
 
 
@@ -671,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395902.jpg" />
 </div>
 
 
@@ -686,6 +631,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B649D8E3292BEA29CBA9C1A2AFDF0918372403E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171843   (394843) от 06.10.2017
+
+Олег Дорман | Подстрочник: Жизнь Лилианны Лунгиной (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лилианна Лунгина - прославленный мастер литературного перевода. Благодаря ей русские читатели узнали "Малыша и Карлсона" и "Пеппи Длинный чулок" Астрид Линдгрен, романы Гамсуна, Стриндберга, Белля, Сименона, Виана, Ажара. В детстве она жила во Франции, Палестине, Германии, а в начале тридцатых годов вернулась на родину, в СССР.
+История жизни этой (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 12:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96605B59528BEAA1D28FA6652749DF8589A6B922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173294   (390611) от 11.10.2017
+
+Морис Эрцог | Аннапурна - первый восьмитысячник (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390611.jpg" />
+</div>
+
+
+###  Подробнее
+
+История многолетней борьбы с горными гигантами изобилует волнующими событиями. Нелегко было вырвать победу французской экспедиции над первым восьмитысячником - Аннапурной; об этом ярко рассказывает руководитель экспедиции М. Эрцог. Победу над третьим полюсом Земли - Джомолунгмой (Эверестом) одержала английская экспедиция, руководимая Джоном Хантом. Нойс - ее непосредственный (   Читать дальше...   )Жанр: История, приключенияПродолжительность: 11:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62ADD30322E2C53CD6236FF34E24D18F12053F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

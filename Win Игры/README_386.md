@@ -1,29 +1,3 @@
-###  Публикация: 1693980   (121349) от 23.01.2024
-
-Around the World 2: Travel to Canada / Вокруг света 2: Путешествие в Канаду (2024) [Ru/En] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в уникальное путешествие по 30 самым захватывающим достопримечательностям Канады. Вы посетите величественные горы, покорите арктические просторы, погрузитесь в красоту канадских озер, исследуете шумные города и насладитесь природой национальных парков с помощью серии сложных головоломок, сцен поиска предметов и мини-игр.Тип издания: UnofficialРазработчик: Avi GamesЖанр: Я ищу, КазуальнаяЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E9A617B45AB2C8B3BD2F1E5D4B0FDA93C905B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693979   (121347) от 23.01.2024
 
 Luna's Fishing Garden (2021) [Ru/Multi] (1.2.1) License GOG
@@ -32,7 +6,7 @@ Luna's Fishing Garden (2021) [Ru/Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121347.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121224.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121219.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Apex Heroines (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121188.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120910.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120896.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120878.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ RIN: The Last Child (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120865.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Magic City Detective 4: Wrath of the Ocean (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120843.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120755.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120701.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Gloomhaven (2021) [Multi] (1.1.8307.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120582.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120572.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120565.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120558.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120556.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120550.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Noxia Somnia (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120538.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Cub (2024) [Multi] (1.0.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120534.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120397.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120392.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ GINSHA (2023) [Multi] (1.1.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120391.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Boyfriend Dungeon (2021) [Ru/Multi] (1.3.7294S/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120375.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Star Explorers (2018) [En] (5.4.4a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120347.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120333.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14EA086FFB3EAFC4466625452EEE1F95C34A87E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695402   (120303) от 29.01.2024
+
+Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Милвертона (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Ms. Holmes. Шарлотта Холмс всегда гордилась тем, что пошла по стопам своего знаменитого дяди. Однако в одной из газет появилась статья, поставившая под сомнение ее репутацию! Таинственный информатор утверждает, что располагает доказательствами того, что великий Шерлок Холмс на самом деле был преступником-мошенником. Неужели он и (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515E0A98D93C9DF62E44A3852553E8900AFA6E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

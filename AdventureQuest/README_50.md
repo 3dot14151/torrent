@@ -1,29 +1,3 @@
-###  Публикация: 422133   (289344) от 13.12.2011
-
-A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на фюрера. Операция "Валькирия" [Ru] (RePack/1.02) 2009 | SxSxL
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Операция "Валькирия" - знаменитый план Германского Сопротивления с целью убить Гитлера. Штандартенфюрер Майер, он же советский разведчик в управлении имперской безопасности, узнает о том, что гестапо вышло на след заговорщиков. Сделав все возможное, чтобы расследование дела поручили ему, он пытается пустить гестапо по ложному следу, переиграть самого группенфюрера (   Читать дальше...   )Тип издания: RePackРазработчик: SPLine GamesЖанр: Arcade / Adventure (Logic / Quest) / 3D / 3rd personЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0BEA85926BDDAAB174473690888BF02E3DDD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080788   (287577) от 07.12.2016
 
 The Descendant (2016) [Multi] (3.2/dlc) License PLAZA [Episode 1-5]
@@ -32,7 +6,7 @@ The Descendant (2016) [Multi] (3.2/dlc) License PLAZA [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287577.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287375.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ That Dragon, Cancer (2016) [En] (1.0) License PROPER-PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285733.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Her Majesty's SPIFFING (2016) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285416.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ To the Moon (2011) [Multi] (1.0.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285183.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285078.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mind: Path to Thalamus (2014) [Ru/En] (08.12.2015) Repack R.G. Механики 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285072.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Lost Horizon 2 (2015) [En] (08.12.2015) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285046.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ STASIS (2015) [Ru/Multi] (1.09.5) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283271.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282277.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281610.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Emily Wants To Play (2015) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281513.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Republique Remastered (2015) [Ru/Multi] (4.11) License SKIDROW [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280856.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Republique Remastered (2015-2016) [Ru/Multi] (4.11) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280499.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279897.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ The 9th Gate (2018) [En/Ch] (1.1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278909.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278108.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278104.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Art of Murder: Cards of Destiny / Смерть как искусство 3: Ка
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276782.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275637.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Moons of Madness (2019) [Ru/Multi] (1.01) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275547.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274499.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274333.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274146.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273281.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0F90271DD395C9461D8A5E88773B97C2F74E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188953   (271918) от 04.12.2017
+
+Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – управляющий дома, который… ШПИОНИТ за жильцами! Вы ставите жучки, обыскиваете квартиры, прослушиваете телефоны. Вы собираете компромат и строчите доносы. Или… Возможно, у вас есть другой выбор? В этом мрачном тоталитарном будущем жизни людей принадлежат Государству. Репрессивные законы и тотальная слежка пришли на смену свободе, равенству и братству.Тип издания: RepackРазработчик: Warm Lamp GamesЖанр: Adventure, Indie, StrategyЯзык озвучки: Английский, Испанский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
 ```
 
 https://mybot314.ru/tekegram_catalog/

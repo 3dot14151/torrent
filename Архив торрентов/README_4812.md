@@ -6,7 +6,7 @@ Reg Organizer 9.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39519.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 9.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39517.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VideoProc Converter AI 7.5 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39516.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39509.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Balabolka 2.15.0.879 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39503.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FontExpert 2025 20.0 Release 1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39491.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MeldaProduction - MCompleteBundle 17.02.01 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39468.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Malwarebytes AdwCleaner 8.5.0.574 Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39451.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tor Browser Bundle 14.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39449.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ StartAllBack 3.8.12 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39423.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Google Chrome 130.0.6723.70 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39422.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NVIDIA GeForce Desktop Game Ready 566.03 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39420.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Macrorit Partition Expert 8.3.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39407.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FontExpert 2025 20.0 Release 1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39406.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Files Inspector Pro 4.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39405.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ ISO Workshop 13.1 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39404.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AllDup 4.5.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39401.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ StartAllBack 3.8.12 build 5190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39399.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Ocenaudio 3.14.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39385.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WizTree Enterprise 4.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39380.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Vivaldi 7.0.3495.6 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39374.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ XYplorer 26.50.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39350.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ JetBrains PyCharm Professional 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39343.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.40.7100 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39331.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Jetbrains WebStorm 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39324.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ JetBrains PhpStorm 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39322.jpg" />
 </div>
 
 

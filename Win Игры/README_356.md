@@ -1,29 +1,3 @@
-###  Публикация: 1670041   (172191) от 19.10.2023
-
-Growth (2023) [Ru/Multi] (1.0rc2) License GOG
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приятная игра с шестиугольной картой и элементами стратегии. Используй уникальные способности животных, чтобы изучать и заселять процедурно генерируемый мир. Здесь спокойное исследование сочетается с решением сложных задач. Как преодолеть препятствия, например горы и реки, чтобы заселить плодородные земли? Как превратить пустыри в густые леса и луга? И это далеко (   Читать дальше...   )Тип издания: LicenseРазработчик: Voodoo DuckЖанр: Симулятор, Стратегия, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C934E2CF4F2DD05E6DFA0D8DF573E710F06F0C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670002   (172184) от 19.10.2023
 
 Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172184.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172153.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Paranormal Files: Silent Willow 9 / Паранормальные явления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172056.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172038.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Bish Bash Bots (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172023.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171978.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171972.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (7315520/dlc) Repack Decepticon 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171971.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171970.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Paranormal Files 10: Counterpart (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171885.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.04) Scene Tenoke [Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171831.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Hexarchy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171816.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Space Wreck (2023) [En] (1.3.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171814.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171802.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171791.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171671.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171640.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171481.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171479.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Gap (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171474.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171466.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171463.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Gloomy Tales 2: One-Way Ticket / Мрачные истории 2: Билет в 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171338.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171301.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Under The Waves (2023) [Ru/Multi] (1.0.5) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171290.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Under the Waves – это повествовательная приключен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CE204A751DA055C23D3F04E6EDA5FEB406F95F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661826   (171112) от 25.10.2023
+
+WWE 2K23 (2023) [Multi] (1.18/dlc) Scene Rune [Icon Edition]
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171112.jpg" />
+</div>
+
+
+###  Подробнее
+
+WWE 2K23 – это симулятор профессионального рестлинга. В нём сочетается аркадность и реализм. Благодаря наличию лицензий видеоигра позволяет участвовать в официальных ивентах и управлять настоящими рестлерами. Причем в этом продолжении девелоперы заметно расширили звездный состав. Также создатели улучшили в графику и переработали старые режимы. Здесь можно встретить (   Читать дальше...   )Тип издания: SceneРазработчик: Visual ConceptsЖанр: Sports, WrestlingЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2305CDF0FBDB5CD2A2197A96AFD848AD6FAB5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

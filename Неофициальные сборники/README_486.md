@@ -1,32 +1,3 @@
-###  Публикация: 1176718   (362996) от 25.10.2017
-
-VA - По волне моей памяти: Том 11 (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01.  Ефрем Амирамов - Молодая  4:32
-02.  Лев Лещенко - Белая береза  3:25
-03.  Алла Пугачёва - Ленинград (Памяти Лидии Клемент)  3:10
-04.  Вахтанг Кикабидзе - Цыганочка  3:19(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF21A5E0A8C5A8A208F3DDCEE349DCCFA0D93825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176615   (362994) от 25.10.2017
 
 VA - По волне моей памяти: Том 9 (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
@@ -35,7 +6,7 @@ VA - По волне моей памяти: Том 9 (2017) [MP3|320 Kbps] <По
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362994.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - По волне моей памяти: Том 10 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362992.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - По волне моей памяти: Том 13 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362989.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - По волне моей памяти: Том 14 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362986.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Tmg Gang Feat Sabi Miss, Manro, Angelika Gal - Оскал (2018) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362894.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Haddaway - What is Love (2011) Remix [MP3|192 Kbps] <Club, Dance, Techno>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362892.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ VA - Deep House Collection Vol.186 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362891.jpg" />
 </div>
 
 
@@ -232,7 +203,7 @@ VA - Deep House Collection Vol.187 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362888.jpg" />
 </div>
 
 
@@ -261,7 +232,7 @@ VA - ЕвроХит Топ 40 Europa Plus 16.10.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362859.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ VA - По волне моей памяти: Том 12 (2017) [MP3|320 Kbps] <П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362853.jpg" />
 </div>
 
 
@@ -319,7 +290,7 @@ VA - Dance Hits Collection 90s Vol.4 (2019) [MP3|320 Kbps] <Pop, Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362647.jpg" />
 </div>
 
 
@@ -348,7 +319,7 @@ VA - Beatport Tech House: Electro Sound Pack #187 (2020) [MP3|320 Kbps] <Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362595.jpg" />
 </div>
 
 
@@ -377,7 +348,7 @@ VA - Interior Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Background>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362584.jpg" />
 </div>
 
 
@@ -406,7 +377,7 @@ VA - Romantic Collection From Ovvod7 vol.1-3 (2017) [MP3|320 Kbps]<Pop, Rock> О
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362566.jpg" />
 </div>
 
 
@@ -432,7 +403,7 @@ VA - The Best Hits of 80s 1 (2005) [MP3|192-224 кб/с]<Pop, Disco, Retro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362495.jpg" />
 </div>
 
 
@@ -461,7 +432,7 @@ VA - Рок в Авто (Русский vol.5) (2012) [MP3|166-320 кб/с]<Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362486.jpg" />
 </div>
 
 
@@ -490,7 +461,7 @@ VA - Keep Calm and Listen to Trance Line (2016) [MP3|320 Kbps] <Trance, Melodic,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362130.jpg" />
 </div>
 
 
@@ -519,7 +490,7 @@ VA - Singles - November 07 (2016) [MP3|320 Kbps] <Electronic, House, Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362037.jpg" />
 </div>
 
 
@@ -548,7 +519,7 @@ VA - State Of Trance Civilization (2016) [MP3|320 Kbps] <Trance, Melodic, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361947.jpg" />
 </div>
 
 
@@ -577,7 +548,7 @@ VA - Попсовая соточка от Хит fm 4 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361942.jpg" />
 </div>
 
 
@@ -606,7 +577,7 @@ VA - Latin Hot Party Maria Bonita (2016) [MP3|146-320 Kbps] <Latin Dance, Pop Fo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361939.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ VA - in FABRIC style: House - Compiled by Mistik (2016) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361881.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ VA - Beatport Top 100 Techno October (2016) [MP3|320 Kbps] <Techno, Minimal Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361878.jpg" />
 </div>
 
 
@@ -692,7 +663,7 @@ VA - Попутчица: Сборник Русского Шансона (2016) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361870.jpg" />
 </div>
 
 
@@ -721,7 +692,7 @@ VA - Organic Trance Volume 10 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361751.jpg" />
 </div>
 
 
@@ -739,6 +710,40 @@ VA - Organic Trance Volume 10 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455B5299681150F30475C7AA19CF3B33D133979B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576877   (361690) от 18.11.2012
+
+VA - Danger Zone vol.24 (2012) [MP3|320 кб/с]<Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Daggers - Set You Straight
+ 02. The Anix - Endlessly] 03. Sepiamusic - Sweet Pollution
+ 04. Stateless - Miles to Go (instrumental version)
+ 05. Hacktivist - Blades
+ 06. Deftones - Poltergeist
+ 07. Exotype - Kilo
+ 08. Naive - Transoceanic
+ 09. Hidden Hospitals - Picture Perfect
+ 10. Pressure Recall - Guns And WordsЖанр: Alternative, Metal, RockПродолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3209F0CB8E8874360AD4DCE77C6E69528A61C557
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1533905   (604191) от 25.04.2022
-
-Старый Генри / Old Henry (2021) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фермер-вдовец по имени Генри и его сын приютили раненого человека с сумкой, набитой деньгами. Когда за деньгами приходит вооруженный отряд, Генри приходится держать оборону.Производство: США / Hideout Pictures, Shout! Factory, Shout! StudiosЖанр: Вестерн, боевикРежиссер: Потси ПончиролиАктеры: Тим Блейк Нельсон, Скотт Хэйз, Гэвин Льюис, Трэйси Эдкинс, Стивен Дорфф, Максимино Арсиньега, Брэд Картер, Кент Шелтон, Ричард Спейт мл.Перевод: 2x Профессиональный многоголосый, Любительский двухголосыйСубтитры: Русские (Full), Английские (Full)Продолжительность: 01:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BDD290D7C7B9E7E2A633C1CBE98FC708DDF107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546767   (604190) от 25.04.2022
-
-Личная пустота / Deserto Particular (Private Desert) (2021) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У преподавателя из полицейской академии все катится к чертям - приходится ухаживать за маразматиком-отцом, с работы уволили за то, что избил студента, а тут еще и девушка, с которой он познакомился через интернет, перестала выходить на связь. В надежде исправить хотя бы один из трех пунктов, он решается поехать на другой конец Бразилии в поисках этой самой девушки.Производство: Бразилия, Португалия, GRAFO audiovisual, Fado Filmes, AnacolutoЖанр: ДрамаРежиссер: Али МуритибаАктеры: Антонио Сабойа, Педро Фасанаро, Томас Акино, Лайла Гарин, Зезита Матос, Сандро Герра, Отавио Линьярес, Интия Сенек, Флавио Баураки, Лео МирандаПеревод: Авторский (Дмитрий Есарев) | В переводе содержится немного ненормативной лексики!Субтитры: Английские - отдельным файломПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0F94FB67FB5CA9F3F4DEF0BADFF8D3940A6097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 386255   (604188) от 25.04.2022
 
 Академия смерти / NaPolA - Elite Fur Den Fuhrer / Before the Fall (2004) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604188.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604187.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604169.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604168.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604105.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604099.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604096.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604094.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604087.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604085.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604084.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604082.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604081.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604077.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604032.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604029.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604017.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604004.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604000.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603998.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603991.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603890.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603853.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603845.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7F873E8236CF7C09E4AE5B52686687EBA2CC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148326   (603831) от 06.07.2017
+
+Репликант / Replicant (2001) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полиция сбилась с ног, разыскивая серийного убийцу, совершившего более десятка нападений на одиноких матерей с детьми. Безжалостный маньяк оставляет на месте преступления всегда одно и то же — истерзанный и сожженный труп женщины и практически никаких улик, позволяющих выйти на его след. На помощь полиции приходит национальная служба безопасности, по заданию которой (   Читать дальше...   )Производство: США / 777 Films Corporation, Artisan Entertainment, Millennium Films, Replicant PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Ринго ЛамАктеры: Жан-Клод Ван Дамм, Майкл Рукер, Катрин Дент, Брэндон Джеймс Олсон, Пэм Хайатт, Йен Робисан, Аллан Грэй, Джеймс Хатсон, Пол МакДжиллион, Питер ФлеммингПеревод: Дублированный (R5)Субтитры: Русские, Английские, Английские (SDH)Продолжительность: 01:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A14EB6E12B679C8B9FCB60DCA21BE35EEA5DC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148478   (603812) от 06.07.2017
+
+Охотники за кровью / Blood Hunters / One Drop (2016) WEBRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди обращаются в медицинские учреждения за помощью. Но героиня фильма оказалась там не по своей воле. Женщина приходит в себя пристегнутой на больничной койке. Она обнаруживает, что находится на последнем сроке беременности. Она пытается выбраться из отделения, но все ее попытки напрасны. Вскоре до смерти напуганная женщина узнает еще одну леденящую душу особенность (   Читать дальше...   )Производство: КанадаЖанр: Ужасы, ТриллерРежиссер: Тришиа ЛиАктеры: Лара Гилкрист, Бенжамин Артур, Торри Хиггинсон, Марк Тейлор, Джулиан Ричингс, Сэмюэл Фараси, Питер Бланкенштейн, Леа Дос, Брианна Бут,Перевод: Одноголосый закадровый (Хихидок)Субтитры: отсутствуютПродолжительность: 01:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD112C33AD21BDC7E9459BCA2BE32D6171EA668
 ```
 
 https://mybot314.ru/tekegram_catalog/

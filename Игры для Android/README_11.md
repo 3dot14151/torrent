@@ -6,7 +6,7 @@ Osmos HD 2.3.1 [RU/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362290.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Car Eats Car 3 v2.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357697.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FIFA 16 Ultimate Team v2.1.106618 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357282.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Doom: 1 и 2 части [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354947.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ XCOM: Enemy Unknown v1.1.01 + Mod Money [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354932.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Assassin's Creed Pirates  v2.4.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354927.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sonic Mobius Evolution 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349303.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sonic Lost Worlds 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348996.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dig Out!: Короли подземелий 2.17.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348656.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Action Strike Герои: Онлайн PVP FPS v0.9.33 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346679.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NBA JAM by EA SPORTS™ 04.00.80 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339720.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339575.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Aerofly 2 Flight Simulator v2.5.41 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339338.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FAR: Lone Sails  v1.27 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339335.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Simple Rockets 2 v0.9.506 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337682.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Sonic Back In Time 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337177.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336920.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Earthworm Jim Eternity 1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336798.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Cover Fire 1.17.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334319.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Path of Giants v2.2.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333760.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Deep Town: Шахтерская фабрика v4.6.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333667.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Five Nights at Freddy’s: HW v1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333402.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Defense zone 2 HD 1.5.1 [Ru/Multi] + mod
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331798.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mario Yoshis Island 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326396.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Angry Birds Rio 2.6.0 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326390.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323317.jpg" />
 </div>
 
 

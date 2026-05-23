@@ -1,55 +1,3 @@
-###  Публикация: 1722782   (109628) от 13.05.2024
-
-PhotoDirector - Редактор фото 19.2.0 Mod by maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.05.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90F7B982229C705B034BF4EA19F884C2F3A2A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723061   (109612) от 14.05.2024
-
-Fishing Knots Pro / Рыбацкие узлы Pro v8.6.38 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Рыбацкие узлы" - это программа, показывающая как надо вязать узлы. Среди множества узлов рыбаку необходимо выбрать и использовать правильный. В каждом случае - он свой. Как сильно конкретный узел ослабляет леску? Какие узлы использовать для тонких рыболовных лесок, а какие - для толстых? Какие узлы вязать на плетенках? В справочнике собраны узлы для: связывания (   Читать дальше...   )Тип издания: Paid / FullРелиз состоялся: 07.05.2024Разработчик: MP FishПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F785CEF7BEFF47E9324882A8790D2C2FC2B753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723058   (109596) от 14.05.2024
 
 ГдеПосылка v3.39 Mod by Alex.Strannik [Ru]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109596.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Pixolor - Живая Пипетка / Pixolor - Live Color Picker 1.4.19 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109593.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Video Converter Pro 0.2.37 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109590.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ AirBrush: ИИ Фоторедактор v6.5.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109588.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Video Converter Pro 0.2.37 Lite-Mod by Илья Ёжик [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109559.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Strava: бег, велоезда, хайкинг v359.19 Mod by ReVanced Team [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109508.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Busuu - изучение языков 31.22.0(1019875) Mod by maxi123444 [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109504.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Abstruct - Wallpapers in 4K 2.9 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109492.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ PowerDirector – Video Editor v14.0.0 b2405101 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109472.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Maximoff [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109471.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ PhotoRoom v4.9.6 b1399 Mod by RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109452.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109447.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109436.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Soul Browser 1.4.17 Mod by ateuffel [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109380.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Video Converter Pro 0.2.37 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109228.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109224.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109208.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ PhotoDirector - Редактор фото 19.2.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109184.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ FlipaClip: Create 2D Animation 3.9.1 (ARM64) Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109135.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ n7player Music Player 3.2.10-3002010 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108970.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ n7player Music Player 3.2.10-3002010 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108952.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ MyFitnessPal: Счетчик калорий 24.18.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108944.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ PhotoRoom 4.9.7 (b1411) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108791.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ OfficeSuite Pro + PDF v14.5.52368 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108584.jpg" />
 </div>
 
 
@@ -667,6 +615,61 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE171AE1CD91693F409475C7E15EF6023FD66CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727388   (108507) от 02.06.2024
+
+TapScanner v3.0.24 Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108507.jpg" />
+</div>
+
+
+###  Подробнее
+
+TapScanner — сканер документов, это простой сканер с камеры с высоким качеством вывода в PDF. Упростите сканирование и подпись документов, добавив пользовательские поля в документы.
+1. Сканирование документов, квитанций и визиток.
+2. Сканер документов автоматически определяет границы!
+3. Точная настройка изображения с множеством фильтров для улучшения(   Читать дальше...   )Тип издания: ProРелиз состоялся: 31.05.2024Разработчик: Tap-MobileПоддерживаемая ОС: Android 9.0+Жанр: БизнесЯзык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2918470FFF5E48C9487F03C6C84E87A242338B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728604   (108355) от 07.06.2024
+
+Acode - code editor | FOSS 1.10.3 (959) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acode - весьма и весьма удобный в контроле и работе текстовый редактор, что может стать для пользователя универсальной программой на все случаи жизни. В нём можно набирать обычные тексты, а так же работать при создании или редактировании кода. Минималистичный, но стильный дизайн и оформление, возможность выбора темы внешнего вида, подсветка синтаксиса, интуитивное (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 25.05.2024Разработчик: FoxdebugПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2816513B04F8AC5B433720103D01776B21C6DAE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

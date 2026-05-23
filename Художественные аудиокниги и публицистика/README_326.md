@@ -1,84 +1,3 @@
-###  Публикация: 1393586   (766937) от 01.07.2020
-
-Владислав Шпильман | Пианист. Необыкновенная история выживания в Варшаве в 1939–1945 годах (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига выдающегося польского пианиста и композитора Владислава Шпильмана рассказывает о тяжёлых испытаниях, выпавших на его долю в годы Второй мировой войны в Варшавском гетто.
-Он не просто пытался выжить, но по мере сил участвовал в сопротивлении врагу, пришедшему на родную землю. Однако впоследствии именно помощь немецкого офицера позволила ему спастись.
-Отрывки (   Читать дальше...   )Жанр: Документальная литератураПродолжительность: 07:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755BD15C452FE4320D4804884C539CAA7B7B67B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125765   (766883) от 16.04.2017
-
-Михаил Жванецкий | Женщины (2014) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Читая Жванецкого, слышишь его голос, и легко представить себе, как Михаил Михайлович выходит на сцену, вынимает из портфеля стопку страничек и читает их в своей оригинальной манере: с паузами и акцентами на отдельных словах. Но когда мы сами читаем его тексты, нам открывается иная глубина знакомых фраз и многовариантность их понимания.
-Юмор - самая притягательная (   Читать дальше...   )Жанр: Юмор, сборник миниатюрПродолжительность: 05:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7DFBF212B6A80E753E4C99A677E05771661685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278663   (766871) от 28.01.2019
-
-Владимир Высоцкий | О времени и о судьбе (1989) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мы много рассуждаем сегодня о скоростях века, не замечая иногда, что на откуп этим скоростям отдаем что-то, что не подлежит ускорению. Нельзя быстрее любить, быстрее надеяться, быстрее рожать детей, быстрее страдать. В стихах Высоцкого все летит и мчится, но как стихотворец сам он шел пружинистым и легким шагом, отмечая все вехи (в себе и вокруг), все приметы времени. (   Читать дальше...   )Жанр: Поэзия, моноспектакльПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1F4F10D8285D62D8190F3B6A363452E5997A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278871   (766865) от 28.01.2019
 
 Константин Седых | Даурия (2019) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766865.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766862.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766860.jpg" />
 </div>
 
 
@@ -168,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766859.jpg" />
 </div>
 
 
@@ -194,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766812.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766810.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766805.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766743.jpg" />
 </div>
 
 
@@ -301,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766742.jpg" />
 </div>
 
 
@@ -327,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766686.jpg" />
 </div>
 
 
@@ -353,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766685.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766681.jpg" />
 </div>
 
 
@@ -405,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766669.jpg" />
 </div>
 
 
@@ -431,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766635.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766633.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766616.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766570.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766564.jpg" />
 </div>
 
 
@@ -562,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766562.jpg" />
 </div>
 
 
@@ -588,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766528.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766362.jpg" />
 </div>
 
 
@@ -641,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766343.jpg" />
 </div>
 
 
@@ -668,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766318.jpg" />
 </div>
 
 
@@ -679,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC3D6AFC86A28005B81B7648128B4710E8526E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393812   (766266) от 02.07.2020
+
+Пётр Орловец | Шерлок Холмс в Сибири (2020) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения знаменитого лондонского сыщика продолжаются. Побывав во всех крупных центрах Европейской России, Шерлок Холмс вздумал посетить русские владения в Азии, куда его тянуло с давних пор. В Англии про Сибирь ходили целые легенды и масса самых необыкновенных рассказов. Неудивительно, что Холмс решил увидеть все собственными глазами. Ну а дальше, как всегда, (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 05:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFFC54EBF7080219C4F2359970DCFD61D3D2756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393811   (766257) от 02.07.2020
+
+Генри Джеймс | Крылья голубки (2020) [MP3, Андрей Курилов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые русскоязычные читатели получили возможность познакомиться с переводом романа "Крылья голубки", сделанным по наиболее полному академическому изданию. Текст дополняют авторское предисловие к изданию 1909 года, выдержки из записных книжек и писем Генри Джеймса. Англия, начало ХХ века. Небогатая молодая аристократка Кейт Крой, живущая на иждивении у (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: StorySide ABПродолжительность: 16:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815E22B6FCBFEAE68FDBA0D24FB1E0C3547AE8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126056   (766241) от 17.04.2017
+
+Ричард Матесон | Отзвуки эха (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спокойная жизнь в пригороде, да и в семье нарушена необычным случаем – муж после гипнотического сеанса начинает читать мысли соседей и раскрывать их порочные тайны. Мистерия развивается – Тома Уоллиса начинает посещать таинственная женщина, которая вынуждает его раскрывать правду давно забытой трагедии.Жанр: МистикаПродолжительность: 07:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7B2D6CC575911E35BE8E6A9C433CEFC936B27B
 ```
 
 https://mybot314.ru/tekegram_catalog/

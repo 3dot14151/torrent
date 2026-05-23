@@ -1,31 +1,3 @@
-###  Публикация: 1627951   (238767) от 22.04.2023
-
-Proprofiling, Алексей Филатов | Нейромаркетинг и психология потребителя (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Нейромаркетинг – это психология, нейробиология и управление поведением. Знание законов поведения других людей позволит вам быстрее достигать своих целей во всех областях жизни.
-
-Что такое Нейромаркетинг? Человек постоянно совершает выбор: товаров на полках, ужинать в ресторане или дома, способов отдохнуть и развлечься, и спутника жизни. Как происходит этот процесс (   Читать дальше...   )Производство: ProprofilingЖанр: маркетинг, психологияЯзык озвучки: русскийПродолжительность: 01:52:37Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166919FD4BA720BB21A2AFB00FAC3C87055E1AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631749   (235645) от 07.05.2023
 
 Джo Наварро | Искусствo влияния. Невербальные сигналы для достижения оптимального успеха (2016) CamRip [EN / RU Sub]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235645.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ Proprofiling, Алексей Филатов | Скрытые внушения в
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230935.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ Humanity-Life, Владлен Статный | Оперативная психо
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230712.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ PSY2.0, Михаил Филяев, Екатерина Пыхарева и др. 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230705.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230681.jpg" />
 </div>
 
 
@@ -170,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226822.jpg" />
 </div>
 
 
@@ -199,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226584.jpg" />
 </div>
 
 
@@ -226,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225212.jpg" />
 </div>
 
 
@@ -255,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213247.jpg" />
 </div>
 
 
@@ -286,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213234.jpg" />
 </div>
 
 
@@ -317,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213231.jpg" />
 </div>
 
 
@@ -348,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212994.jpg" />
 </div>
 
 
@@ -375,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212984.jpg" />
 </div>
 
 
@@ -404,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212823.jpg" />
 </div>
 
 
@@ -431,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211298.jpg" />
 </div>
 
 
@@ -460,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210750.jpg" />
 </div>
 
 
@@ -489,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210154.jpg" />
 </div>
 
 
@@ -516,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210103.jpg" />
 </div>
 
 
@@ -545,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210022.jpg" />
 </div>
 
 
@@ -571,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209680.jpg" />
 </div>
 
 
@@ -600,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208204.jpg" />
 </div>
 
 
@@ -629,7 +601,7 @@ Lectera, Lectera | Аналитическое мышление (2025) WEB-DL [RU
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202405.jpg" />
 </div>
 
 
@@ -656,7 +628,7 @@ Skillbox, Николь Шахбазян, Динара Фахретдинова |
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201843.jpg" />
 </div>
 
 
@@ -685,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201112.jpg" />
 </div>
 
 
@@ -713,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200992.jpg" />
 </div>
 
 
@@ -724,6 +696,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:443AA2F719EBA80D833C13B7A284E934A4B44EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620906   (200952) от 23.03.2023
+
+Институт современного НЛП, Михаил Антончик | Ловушки сознания. За пределами НЛП (2018) CamRip [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200952.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом тренинге мы не затронем ни одну из моделей, понятий или техник НЛП. Мы не будем говорить про субмодальности, якоря, раскрутки, подстройку и про всё то, что входит в курсы НЛП-Практик, НЛП-Мастер или в любой другой наш тренинг про манипуляции. Мы находимся в постоянном поиске новых моделей и технологий, мы всё время разрабатываем и проверяем новые темы и идеи, (   Читать дальше...   )Производство: Институт современного НЛПЖанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 06:13:59Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F0431EA8718E11478A4B3A751466ED0C3A307A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1210476   (775965) от 11.03.2018
-
-Вторжение / Breaking and Entering (2006) Blu-ray [VC-1/1080p] [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодой архитектор пейзажей Уилл переживает кризис, как в профессиональной, так и в личной жизни. Когда в офис, который находится в старой части Лондона, влезает вор, чтобы ограбить его, в жизни Уилла начинается новый период. Встреча с этим молодым вором-мусульманином, заставляет молодого архитектора переосмыслить всю свою жизнь. Он должен переоценить все свои жизненные (   Читать дальше...   )Производство: США, Великобритания, Mirage Enterprises, Miramax FilmsЖанр: Триллер, мелодрама, драмаРежиссер: Энтони МингеллаАктеры: Джуд Ло, Жюльетт Бинош, Вера Фармига, Робин Райт Пенн, Мартин Фриман, Рафи Гэврон, Поппи Роджерс, Рей Уинстон, Марк Бентон, Джульет СтивенсонПеревод: Многоголосый (профессиональный), Двухголосый (профессиональный)Субтитры: Русские, английские, японские, тайские, китайские, индонезийские, малайзийские, корейские, португальскиеПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E5FEBA59997EB7CA5711E1954EC064EE8D5FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212331   (775959) от 11.03.2018
-
-Ной / Noah (2014) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Библейские сюжеты давно и прочно вошли в нашу жизнь: вряд ли есть человек, не знающий о запретном плоде или о первородном грехе. Одной из наиболее известных историй, имеющих аналоги практически в любой религии и в мифологии разных народов, является история о Великом потопе — бедствии, которым Бог наказал человечество за его многочисленные грехи и покарал всех, кто (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, приключения, фэнтезиРежиссер: Даррен АронофскиАктеры: Рассел Кроу, Рэй Уинстон, Эмма Уотсон, Кевин Дюран, Дженнифер Коннелли, Логан Лерман, Энтони Хопкинс, Марк Марголис, Ник Нолти, Дуглас БутПеревод: Дублированный (iTunes)Субтитры: Русские полные, форсированные (отдельно)Продолжительность: 02:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81589C2EB5B1B52273E21E6E2A466E36602D34D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014703   (775956) от 08.05.2016
 
 Дэдпул / Deadpool (2016) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775956.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775942.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775929.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775920.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775918.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775880.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775874.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775873.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775871.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775744.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775700.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775664.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775662.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775652.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775632.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775591.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775589.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775588.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775584.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775579.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775571.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775567.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775559.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775553.jpg" />
 </div>
 
 
@@ -668,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:814A39509DA77E271A713D10FE0ED1092DDF4337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403343   (775549) от 21.01.2019
+
+Наркоз / Awake (2007) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычный криминальный триллер «Наркоз» местами напоминает видео-пособие по тому, как проводить операции, и что возможно чувствует при этом пациент на столе. Но только до того момента, пока не становится ясно, в чем вообще дело и почему так вышло, что главный герой лег под нож.
+Казалась бы, обыденная история, — сын (Хайден Кристенсен), мама и девушка. Все ж ясно, (   Читать дальше...   )Жанр: Триллер, Драма, Мелодрама, КриминалРежиссер: Джоби ХарольдАктеры: Хайден Кристенсен, Джессика Альба, Терренс Хауард, Лина Олин, Стивен Хинкл, Алекса Картер, Кристофер Мэгги, Кристофер МакДоналд, Сэм Робардс, Стюарт Саммерс, Ли ВонгПеревод: Профессиональный (дублированный)Формат: MPEG-4 AVC/H.264Продолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB28299028B8E5452DF1EF736464F3A3F4164B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621997   (775495) от 21.01.2019
+
+Экипаж / Flight (2012) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опытный пилот Уип Вайтекер чудом избегает крушения самолета, и, совершив аварийную посадку, сохраняет жизни практически всех пассажиров. Уипа чествуют, как героя, но чем больше появляется подробностей о катастрофе, тем больше вопросов возникает: что же на самом деле произошло на борту самолёта…Производство: США |  ImageMovers, Paramount Pictures, Parkes/MacDonald ProductionsЖанр: ДрамаРежиссер: Роберт ЗемекисАктеры: Дензел Вашингтон, Келли Райлли, Брюс Гринвуд, Дон Чидл, Джон Гудмен, Тамара Тюни, Брайан Джерати, Мелисса Лео, Надин Веласкес, Майкл Бисли ...Перевод: Дублированный (Лицензия) + многоголосый (Omikron) + авторский одноголосый (А. Дасевич) + оригинал (английский)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (R5, Forced, Janetta-SDH, Groby, Voronine), Украинский (Full, Forced), Английский (Full, SDH)Продолжительность: 02:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1E4FEA0F49F605232F820D585C9FE40C561D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,84 +1,3 @@
-###  Публикация: 1718497   (58588) от 25.04.2024
-
-Василий Маханенко | Закон джунглей (Книга 3) (2024) [MP3, Олег Кейнз]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Закон джунглей" - фантастический роман Василия Маханенко, третья книга одноименного цикла, жанр уся, боевое фэнтези, героическое фэнтези.
-Школа возвышения. Что может пойти не так, когда вокруг нулевой пояс, сильных противников уже нет, а сопряжённая пара искателей способна справиться с любым противником не только их этапа возвышения, но и начальных рангов (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 07:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F050372A9B53D8BD95BAFFD7A89205AA0D6AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718509   (58573) от 25.04.2024
-
-Рафаэль Дамиров | Курсант (Книга 8). Назад в СССР (2024). [MP3, Один]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-На дворе 1985-й год. Капитан милиции Андрей Петров, по прозвищу Курсант, попадает в переделку, которая чуть не стоила ему карьеры.
-Восьмой том напрямую пересекается с серией книг М. Гаусса и Р. Дамирова: «Спасти ЧАЭС».Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD09229263A6A6C64135B097AF5631F3909A8952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316743   (58470) от 26.04.2024
-
-Д.И. Иловайский | Царская Русь (2007) [MP3, Галина Самойлова, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Иванович Иловайский (1832–1920) – русский историк.
-В аудиокниге Царская Русь любопытнейший русский ученый Дмитрий Иванович Иловайский (1832-1920) рассказывает о последнем периоде правления первой русской царской династии – Рюриковичей. За прекращением этой династии следует перелом в русской политической жизни, известный под именем Смутного времени. Этот бурный (   Читать дальше...   )Жанр: Русская литература, история РоссииПродолжительность: 27:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1752292EC4163193FDD609898591CDF1A7DFDC83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296608   (58398) от 27.04.2024
 
 Борис Акунин | Приключения магистра (Книга 4). Сокол и ласточка (2011) [MP3, Сергей Кирсанов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58398.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58345.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58344.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58268.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58261.jpg" />
 </div>
 
 
@@ -222,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58174.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58155.jpg" />
 </div>
 
 
@@ -276,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58154.jpg" />
 </div>
 
 
@@ -302,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58128.jpg" />
 </div>
 
 
@@ -328,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58070.jpg" />
 </div>
 
 
@@ -354,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58058.jpg" />
 </div>
 
 
@@ -380,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58024.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58017.jpg" />
 </div>
 
 
@@ -434,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57952.jpg" />
 </div>
 
 
@@ -462,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57921.jpg" />
 </div>
 
 
@@ -491,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57805.jpg" />
 </div>
 
 
@@ -517,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57754.jpg" />
 </div>
 
 
@@ -543,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57625.jpg" />
 </div>
 
 
@@ -569,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57609.jpg" />
 </div>
 
 
@@ -597,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57505.jpg" />
 </div>
 
 
@@ -624,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57428.jpg" />
 </div>
 
 
@@ -650,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57420.jpg" />
 </div>
 
 
@@ -676,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57386.jpg" />
 </div>
 
 
@@ -687,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C3AA26BF46B2C7FF8A0BC4A4F8265802C66928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721441   (57355) от 07.05.2024
+
+Константин Соловьёв | Гниль (2024) [MP3, Екатерина Мишина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колонизация Луны произошла не так безоблачно, как ожидалось. Из лунного грунта на свободу была выпущена смертоносная болезнь, гроза и ужас XXI-го века. Официально ее именуют синдромом Лунарэ. Неофициально - Гнилью. В отличие от обычных болезней, Гниль не стремится сразу убить своего носителя. Она стремится его изменить, и внешне и внутренне. Превратить его в отвратительную (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 35:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE0B3903D5C288E2395DC2CC389A6E5A0030F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721427   (57312) от 07.05.2024
+
+Илья Рэд | Андервуд (Том 1) (2024) [MP3, Дмитрий Толстоухов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подземная метрополия Андервуд со своими колониями сожрëт и отрыгнëт любого.Абсолютно закрытый мир без неба над головой. Никто не знает, где выход: туннели и пещеры вокруг кишат монстрами. Так происходит давно. Магия, клановое общество и царство силы при формальной Республике. Во всë это попадает Ник. Только у него свои проблемы и назревает главный (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 07:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38039B53124B462EB4132B6F72782507BCE8BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721430   (57309) от 07.05.2024
+
+А. Райро | Клан Волка. (Том 1) Империя (2024) [MP3, Вячеслав Булавин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя фамилия – Волков.И даже в шестнадцать я бы стал одним из сильнейших боевых магов, если бы не болезнь, поразившая многих людей планеты. Чтобы выжить, мне пришлось рискнуть всем и отправиться в другой мир.Здесь тоже есть маги, есть разные расы и Восемь Великих Империй, есть Дома-Династии с их борьбой за власть, есть сто княжеств и даже своя маленькая «Япония».Но (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 09:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6827E4B5DACC6DA0F0192A91C48CBD17E8138D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

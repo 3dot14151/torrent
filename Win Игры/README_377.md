@@ -1,29 +1,3 @@
-###  Публикация: 1680541   (133585) от 30.11.2023
-
-Forgive Me Father (2022) [Ru/Multi] (1.4.4.60) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Forgive Me Father — мрачный, олдскульный шутер, созданный в стилистике комиксов по мотивам романов Г.Ф. Лавкрафта. Сможете ли вы продержаться достаточно долго в охваченном безумием мире, чтобы найти ответы и искупление? Следите за уровнем своего безумия, который динамически меняется и дает вам дополнительную силу. Выбирайте свои навыки в зависимости от стиля игры (   Читать дальше...   )Тип издания: RepackРазработчик: Byte BarrelЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936F13EA122FE3733994D728D7C8D887452D90BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601768   (133575) от 30.11.2023
 
 Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
@@ -32,7 +6,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133575.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133569.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133468.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Ms. Holmes 5: The Milverton Plot (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133397.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133272.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133259.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132978.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132952.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ Pro Basketball Manager 2024 (2023) [Ru/Multi] (1.22-20112023) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132915.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132887.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132872.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132864.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132863.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Zipp's Café (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132858.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Another Day (2023) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132824.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132823.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Christmas Wonderland 14 (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132330.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132182.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132161.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Big Adventure: Trip to Europe 6 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132037.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ World Racing 2 (2022) [Multi] (1.5.3-20231108) License GOG [Champion Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131930.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131921.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Basement Collection [En] (Repack) 2012 | R.G. Origami
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131885.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Little Inferno [En] (RePack) 2012 | R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131793.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131711.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ art of rally - раллийная игра от создателя игры Abso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67BD9DAF77858523CDA9093C36BC482BB032178D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682153   (131666) от 06.12.2023
+
+Waifu Fighter - Family Friendly (2023) [Multi] (20231116) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waifu Fighter - Family Friendly переносит игроков в уникальный мир, где женщины обладают невиданной силой на боевой арене. Главный герой, который провел два десятилетия в уединении, оттачивая мастерство боевых искусств, ставит перед собой конечную цель - завоевать первенство в борьбе с грозными соперницами, разбросанными по всему миру. В этой 2D-экшен игре для взрослых (   Читать дальше...   )Тип издания: SceneРазработчик: Happy Monster StudioЖанр: Казуальные игрыЯзык озвучки: Китайский (упрощенный)Язык субтитров: Английский, Китайский, Японский, Тайский и другиеЯзык интерфейса: Английский, Китайский, Японский, Тайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF4035AAF13458A9159057D9745EAF4A3216882
 ```
 
 https://mybot314.ru/tekegram_catalog/

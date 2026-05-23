@@ -1,55 +1,3 @@
-###  Публикация: 1102648   (888926) от 10.02.2017
-
-Бесценная / Priceless  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Джеймс, потерявший опеку над своей дочерью, соглашается на то, чтобы доставить посылку, проехав через всю страну, не задавая лишних вопросов. Но когда он понимает, что поставляет, то сталкивается с выбором, который изменит его жизнь...Производство: СШАЖанр: драма, мелодрамаРежиссер: Бен СмеллбоунАктеры: Джим Пэррак, Дэвид Кокнер, Бьянка А. Сантос, Эмбер Мидфандер, Джоэл Смолбон, Лора Каннингэм, Джоди Линн Томас, Сара Минник, Трэвис Хаммер, Кристен Рейкс, Люче Рэйнс, Диана ГайтирираПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ECD7AECBAB5ED2DFA4692FE2CEE753E1DD666A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494458   (888895) от 07.09.2021
-
-Сваха / Svaha: The Sixth Finger / Sabaha (2019) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Пастор Пак занимается разоблачением сект, которые как грибы после дождя появляются в Южной Корее каждый год. Он выходит на очередную подозрительную религиозную организацию, которая, как считает Пак, связана с недавно обнаруженными полицией телами подростков.Производство: Корея Южная / CJ E&M Film Financing & Investment Entertainment & Comics, CJ Entertainment, Filmmaker R&KЖанр: детектив, триллер, фэнтезиРежиссер: Чан Джэ-хёнАктеры: Ли Джон-джэ, Пак Чон-мин, Ли Джэ-ин, Чон Джин-ён, Чин Сон-гю, Ли Дэвид, Мун Сук, Хван Джон-мин, Чи Сын-хён, Мин Танака и д.р.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: русские (отдельно)Продолжительность: 02:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE23797DE81406376A2CFDCC1AEA48F045169D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102878   (888891) от 10.02.2017
 
 Перед закатом / Before Sunset (2004) WEB-DLRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888891.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888873.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888821.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888804.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888796.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888788.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888764.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888758.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888745.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888744.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888734.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888728.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888727.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888723.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888719.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888680.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888672.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888663.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888658.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888655.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888649.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888634.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888562.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888555.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:325474EA7B601AEC8C63AF9DBD8789DD996F5BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101848   (888540) от 10.02.2017
+
+Минута молчания / Schweigeminute (2016) HDTVRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888540.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного рассказа Зигфрида Ленца. 60-е годы, рыбацкий посёлок на Балтийском море. К началу учебного года после нескольких лет жизни в Англии в поселок возвращается Стелла и устраивается учителем английского в местную школу. Там и вспыхивает у нее бурный роман с 18-летним Кристианом...Производство: Германия, ДанияЖанр: Драма, историяРежиссер: Торстен ШмидтАктеры: Юлия Кошиц, Йонас Нэй, Туре Линдхардт, Уве Пройсс, Александер Хельд, Йоханнес Алльмайер, Нина Петри, Райнер Рейнерс, Хенни Реентс, Герман БейерПеревод: Одноголосый закадровый, любительский (Павел Морозов)Продолжительность: 01:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DB78FE39D67C72A9A4B25E79BC689E18DF5BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762375   (888516) от 04.03.2014
+
+Удивительная легкость / Amazing Grace (2006) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Уилберфорс - политик-смутьян, известный своим обаянием, умом и рвением. В отличии от большинства своих коллег, он уже в начале своей карьеры был признан человеком очень честным и смелым. Судьбоносная встреча с бывшим рабом Олаудау Эквиано побуждает Уилберфорса начать борьбу с антигуманной практикой работорговли - экономической силы, столь жизненно важной для (   Читать дальше...   )Производство: Великобритания, США, FourBoys Films, Walden MediaЖанр: Драма, мелодрама, биография, историяРежиссер: Майкл АптедАктеры: Йоан Гриффит, Ромола Гарай, Бенедикт Камбербэтч, Альберт Финни, Майкл Гэмбон, Руфус Сьюэлл, Юссу Н’Дур, Киаран Хайндс, Тоби Джонс, Николас Фэррел, Сильвестра Ле Тузель, Джереми Свифт, Стивен Кэмпбелл Мур, Билл Патерсон, Николас Дэй и др.Перевод: Профессиональный (двухголосый, закадровый)Язык субтитров: УкраинскийФормат: DVD5Продолжительность: 01:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABB5E01DB29E1866F10FF65D00B7F12119916B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1503010   (822578) от 17.10.2021
-
-Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAC8D15E2D2652C8AFA27AEFE98842AE92561C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198544   (804106) от 13.01.2018
 
 PGI Visual Fortran 12.10 [En]
@@ -32,7 +6,7 @@ PGI Visual Fortran 12.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804106.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ JetBrains Intellij IDEA 2018.3.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799278.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Atmel Studio 7.0.790 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797233.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Microsoft Visual Studio 2019 Professional 16.11.6 (Offline Cache, Unofficial) [R
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789592.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ PascalABC.NET 3.2.0.1417 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786049.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ SDL Passolo Collaboration 2016 16.0.391.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771465.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Radialix 3 3.00 Build 486 RePack by вовава [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767584.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ AutoHotkey 1.1.33.00 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762101.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Themida 2.4.6.0 RePack by CodeineWaterfall [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761132.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ AutoHotkey 2.0 - a115-f7c71ea8 Alpha Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760108.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Advanced Installer 13.0 Build 70330 RePack by loginvovchyk [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715433.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Atom 1.17.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668820.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 20.03.2019 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650019.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Advanced Installer 14.9 Build D1A66FF2F1 RePack by Alex Zaguzin [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639135.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Qt cross-platform framework 5.7 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635530.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Restorator 2018 3.90 Build 1793 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603627.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ DevExpress Universal Complete 17.2.7 Build 20180321 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602194.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ EhLib 8.0 Full Source [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595660.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Xilinx Vitis Unified Software Platform 2022.1 [En] (unpacked)
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587578.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ National Instruments LabView 2016 16.0 (x86/x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586085.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Microsoft Visual Studio 2013 (12.0.40629.0) Update 5 - Оригинальные 
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579609.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ LabView 2015 15.0 (x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578590.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Microsoft Visual Studio 2017 Professional 15.9.12 (Offline Cache, Unofficial) [R
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575634.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ PS4 4.50 SDK Offline Installer [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559194.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Wing IDE Pro 7.0.3.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550008.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Wing IDE - интегрированная среда разработки, пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270B09F7F29671B7486E47C9BCEA1B70CF582A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932298   (508805) от 29.08.2015
+
+SDL Passolo Professional 2015 SP1 15.1.316.0 [Ru/En]
+
+>>След.
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия SDL Passolo, самого дорогостоящего и самого мощного шаблонного редактора ресурсов — SDL Passolo 2015 SP1 v15.1.316.0. Без него не обойтись ни одному пользователю, который серьёзно занимается или собирается заняться локализацией программ. SDL Passolo – это ультрасовременная технология локализации, доказанная практикой простота применения на всех основных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032D3B16185C5B47B85F4F384584252B11F882D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

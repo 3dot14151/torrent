@@ -1,85 +1,3 @@
-###  Публикация: 1183635   (307682) от 14.11.2017
-
-Рени Найт | Все совпадения случайны (2017) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После переезда в новый дом Кэтрин Равенскрофт находит в спальне необычную книгу. Как она могла туда попасть? Ни сама Кэтрин, ни ее муж Роберт книгу не покупали. Начав читать, Кэтрин понимает, что главная героиня – это она сама, а трагические события, описываемые в романе, – темная тайна, которую знал только один человек, но он давно мертв. Прошлое вновь начинает (   Читать дальше...   )Жанр: Триллер, детективИздательство: Нигде не купишьПродолжительность: 09:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE57BE31237AEE6E1EE1B3202C1B9D7D417EEE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333029   (307645) от 23.10.2019
-
-Майкл Задурьян | В погоне за праздником (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Майкл Задурьян «В погоне за праздником» – пронзительный роман о последнем в жизни грандиозном приключении.
-Старость, в сущности, ничем не отличается от детства: все вокруг лучше тебя знают, что тебе можно и чего нельзя, и всё запрещают. Вот только в детстве кажется, что впереди один долгий и бесконечный праздник, а в старости ты отлично представляешь, что там впереди… (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 01:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F5D374EDAB8DEA2F5F9FBD18C276C09E5E70EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260481   (307616) от 09.11.2018
-
-Борис Кригер | Бездна (Книга 3). В Бездне (2018) [MP3, Яков Иванов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Третий роман трилогии "Бездна". Аудиокнига в исполнении Якова Иванова.
-…Нет ничего тайного,
-что не сделалось бы явным…
-Евангелие от Луки 8:17(   Читать дальше...   )Жанр: Философский детективИздательство: Аудиокнига своими рукамиПродолжительность: 06:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1439EB04F8EF9322D2ACF38632545E2DB5C3014A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260576   (307613) от 09.11.2018
 
 Мастер Чэнь | Любимый ястреб дома Аббаса (2018) [MP3]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307613.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307489.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307487.jpg" />
 </div>
 
 
@@ -166,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307460.jpg" />
 </div>
 
 
@@ -192,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307336.jpg" />
 </div>
 
 
@@ -218,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307295.jpg" />
 </div>
 
 
@@ -244,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307286.jpg" />
 </div>
 
 
@@ -270,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307210.jpg" />
 </div>
 
 
@@ -296,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306964.jpg" />
 </div>
 
 
@@ -324,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306905.jpg" />
 </div>
 
 
@@ -350,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306845.jpg" />
 </div>
 
 
@@ -377,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306748.jpg" />
 </div>
 
 
@@ -403,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306733.jpg" />
 </div>
 
 
@@ -429,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306650.jpg" />
 </div>
 
 
@@ -456,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306548.jpg" />
 </div>
 
 
@@ -482,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306485.jpg" />
 </div>
 
 
@@ -509,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306158.jpg" />
 </div>
 
 
@@ -535,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306152.jpg" />
 </div>
 
 
@@ -561,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306137.jpg" />
 </div>
 
 
@@ -588,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306033.jpg" />
 </div>
 
 
@@ -614,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306028.jpg" />
 </div>
 
 
@@ -640,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306013.jpg" />
 </div>
 
 
@@ -668,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305952.jpg" />
 </div>
 
 
@@ -681,6 +599,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05745614BD16B61FC5C355CDEAC6F9DC495ED7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422905   (305901) от 10.11.2020
+
+Алексей Калугин | Резервация (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305901.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине 21-го века, когда Земля находилась на грани гибели, была создана Сфера – гигантский мегаполис, отделенный от всего остального мира непреодолимым барьером поля стабильности. В процессе своего развития общество Сферы повторило все те ошибки, которые в свое время едва не погубили Землю.
+Власть имущие сражались за власть, а простые люди, отрезанные от мертвой, (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 14:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF089E8DDF4A281EA329372D6E9C916563AA583D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422921   (305785) от 10.11.2020
+
+Владимир Першанин | Русский гигант КВ-1. Легенда 41-го года (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их было не так и много, этих мощных тяжелых танков, всего две-три сотни машин на весь огромный фронт. Но они сумели стать настоящей легендой.
+
+Лейтенант Ерофеев сражался на КВ-1 весь 1941 год, прикрывая отход наших войск, защищая переправы и железные дороги. Несмотря на огромное численное преимущество противника, он сумел победить и выжить, буквально перемалывая (   Читать дальше...   )Жанр: Историческая литература, Книги о войне, БоевикПродолжительность: 07:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67BC99933671B4A8D115D93A122B5D56EAC6E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 121657   (305712) от 10.11.2020
+
+П.Г.Вудхауз | Не позвать ли нам Дживса? (2009) [MP3, DrLutz]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lutz Records, как-то раз попытавшись послушать эту книжку в исполнении Герасимова и не оценив этого исполнения, представляют:
+"Не позвать ли нам Дживса?" – роман, в котором находчивый Дживс помогает молодому графу Рочестерскому выпутываться из всевозможных передряг, пока его легкомысленный хозяин Берти Вустер учится самостоятельности в специализированной (   Читать дальше...   )Жанр: классика английского юмораПеревод: Инна БернштейнПродолжительность: 7:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA5251AC474AE39333D8DD86675251C1D2614A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

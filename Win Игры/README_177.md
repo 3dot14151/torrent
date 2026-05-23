@@ -1,29 +1,3 @@
-###  Публикация: 1224103   (668022) от 08.05.2018
-
-Edge of Reality 3: Fatal Luck / Край Реальности 3: Роковая Удача (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей серии игр Edge of Reality. Ребенком, Вас оставили в нескольких шагах от приюта с единственным ключом к разгадке Вашей личности. Годы спустя, эта подсказка приведет вас к двери Азарского игрового дома, где Вы соглашаетесь принять участие в секретном турнире, только самых удачливых игроков. Но вместо ответов, Вы оказываетесь вовлечены в опасную (   Читать дальше...   )Тип издания: UnofficialРазработчик: 4 Friends GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F1FCDDEBCCBC62FDAD99A2D1B6D564E90A447E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224151   (667965) от 08.05.2018
 
 Trailblazers (2018) [Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ Trailblazers (2018) [Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667965.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667952.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Redemption Cemetery 10: Embodiment Of Evil / Кладбище искуплени
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667648.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Redemption Cemetery 9: Night Terrors / Кладбище искупления 9: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667635.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667569.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667567.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lazaretto (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667566.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Dark Prophecy (2022) [Ru/En] (1.0.11) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667433.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Full Throttle Remastered (2017) [Ru/En] (1.1.879806) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667379.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Age of Wonders III / Age of Wonders 3 (2014) [Ru/Multi] (1.801) Repack xatab [De
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666938.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Singularity (2010) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666934.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666317.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Brutal Legend (2013) [Ru/Multi] (1.0/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666314.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Subaeria (2018) [Multi] (2.0.46r) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665889.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Contrast (2013) [Ru/En] (11736) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665829.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ City of Brass (2018) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665820.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Getting Over It with Bennett Foddy (2017) [Ru/Multi] (1.52) License HI2U
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665817.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Subaeria (2018) [Multi] (2.0.46r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665771.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Aragami (2016) [Ru/Multi] (01.09) Repack Other s [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665769.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665306.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Zombie Rollerz: Pinball Heroes (2022) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665137.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1/u3) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665043.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ DmC: Devil May Cry (2013) [Ru] (1.0r3/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665038.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Cadenza 5: The Eternal Dance / Каденция 5: Вечный танец (2017
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664853.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Lake Ridden (2018) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664670.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Lake Ridden (Озеро Риден) — игра-головоломка, осн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002B7834A9279C91AF99472C977503B93A613D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340203   (664543) от 22.05.2011
+
+The First Templar / The First Templar: В поисках Святого Грааля (2011) [En/Ru] (1.0.595.4005) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664543.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце XIII века от священного Ордена Тамплиеров осталось одно название. Нерушимые обеты, данные его основателями, забыты, а былые соратники в одночасье стали врагами. На Святой Земле пересеклись пути французского рыцаря Селиана д'Аристида и благородной Мари д'Ибелин, дочери тамплиера, объявленной Инквизицией еретичкой. И теперь эти неожиданные союзники должны будут проникнуть в самые сокровенные тайны Ордена Тамплиеров, сыграть свою роль в великом заговоре и раскрыть секрет Святого Грааля. А противостоять им будут могучие противники: сарацины, король Франции Филипп IV и Святая Инквизиция.Тип издания: RepackРазработчик: Haemimont GamesЖанр: Action (Slasher) / 3D / 3rd PersonЯзык интерфейса: Русский английский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

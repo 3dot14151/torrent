@@ -1,81 +1,3 @@
-###  Публикация: 1471426   (1015119) от 20.05.2021
-
-Опыт реконструкции (2014) WEBRip [H.264/1080p-LQ] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эксцентричный следователь Симаков расследует убийство некоего Бражникова. Убийство похоже на обычную «бытовуху», мотив и участники налицо, дело кажется раскрытым. Но у Симакова свои методы работы, которые одновременно восхищают и отталкивают его коллег, в первую очередь – молодого криминалиста Юлю. Чтобы найти виновных, он проводит свой знаменитый «опыт реконструкции».Производство: Россия / Всемирные Русские СтудииЖанр: ДетективРежиссер: Виталий ВоробьевАктеры: Кирилл Плетнёв, Агния Дитковските, Дана Агишева, Никита Зверев, Андрей Финягин, Татьяна Лютаева, Мария Палей и др.Субтитры: ОтсутствуютПродолжительность: 00:50:22 + 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7883C1063CAFB5CB128FAB70DC2849D6A0AB407E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471012   (1015021) от 20.05.2021
-
-Пальма (2020) WEBRip [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Овчарка по кличке Пальма вынужденно расстается с хозяином: тот улетает за границу, а верную собаку не берут на рейс и оставляют прямо на летном поле. Пальма прячется в аэропорту и каждый день встречает самолеты в надежде, что хозяин вернулся. Но время идет… 9-летний Коля — тоже новенький в аэропорту: он потерял маму и переехал к отцу-пилоту, которого почти не знает. (   Читать дальше...   )Производство: Россия, Япония, OKKO Studios, Телеканал «РОССИЯ 1», АМЕДИА, Марс Медиа ЭнтертейнментЖанр: Cемейный, ПриключенияРежиссер: Александр Домогаров мл.Актеры: Виктор Добронравов, Лили, Леонид Басов, Владимир Ильин, Валерия Федорович, Евгения Дмитриева, Игорь Хрипунов, Павел Майков, Владимир Симонов, Ян ЦапникПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D285F26A6C958869EF61627F3EAF67A2D822305D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471593   (1014933) от 21.05.2021
-
-Аляска. Потерявший лицо (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Добытчик мехов Субьенков прошел путь от идеалиста до преступника, выброшенного судьбой на земли Аляски. И вот теперь он сидит связанный в плену у туземцев. А возле него корчится от боли «Большой Иван», человек, которого он считал человеком без нервов. Субьенков находит выход для себя, рассказывая вождю индейцев о чудесном средстве, которое просто не даст ему умереть. (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драма, триллерРежиссер: Алексей МатвеевАктеры: Александр Конев, Валерий Скляров, Шахин Адыгезалов, Бобур Шавкатов, Алексей Воскресенский, Сарыада Никандрова, Андрей Топоев, Эдуард СабитовСубтитры: ОтсутствуютПродолжительность: 00:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C4748AA1AFE96E6ADB848C3D4435F42B18B5C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471825   (1014755) от 22.05.2021
 
 Август. Восьмого (2012) BDRip [H.265/1080p] [10-bit]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014755.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014583.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014343.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014007.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013744.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013431.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013309.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013029.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012986.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012946.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012943.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012891.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012850.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012844.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012641.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012623.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012621.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012500.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012248.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012233.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012187.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011946.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011551.jpg" />
 </div>
 
 
@@ -670,6 +592,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33622A2E55D2ABE33CE8B8F664779148E951DF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408732   (1011414) от 12.06.2021
+
+Русский ковчег (2002) BDRemux [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек — наш современник, неожиданно оказывается в Эрмитаже начала 1700 годов, не имея ни малейшего представления о том, как он туда попал. Осматривая залы, он встречает иностранца, в котором угадывает черты известного французского дипломата и путешественника XIX века.
+   Эти двое путешествуют по времени сквозь 300 лет российской истории, произведения искусства и памятники (   Читать дальше...   )Производство: Россия, Германия, Япония, Канада, Финляндия, Дания / AST Studio, Beauftragter der Bundesregierung für Angelegenheiten der Kultur und der Medien (BKM), Danmarks Radio (DR), Egoli Tossell Film AG, Filmbüro NW, Filmboard Berlin-Brandenburg (FBB), Filmförderung Hamburg, Фора Фильм, Koppmedia, Kulturelle Filmförderung Sachsen, Mariinsky Theatre, Министерство (   Читать дальше...   )Жанр: Фэнтези, драма, детектив, историяРежиссер: Александр СокуровАктеры: Сергей Дрейден, Леонид Мозговой, Максим Сергеев, Наталья Никуленко, Александр Малныкин, Мария Кузнецова, Светлана Свирко, Владимир Баранов, Анна Алексахина, Давид ГиоргобианиПеревод: Не требуется (русский)Субтитры: АнглийскиеПродолжительность: 01:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA10F4AFB24DEEF4E710B856E1EDB0215C38FA01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476878   (1011334) от 13.06.2021
+
+Мортэм (2020) WEBRip [H.264/720p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий спешит в аэропорт, и когда подъезжает такси, он быстро в него садится. Там он с удивлением замечает, что на заднем сидении уже есть пассажир - большеглазый мальчик. Молчаливый таксист не даёт никаких пояснений. Однако вскоре Дмитрий удивляется ещё больше: неожиданно на машину практически набрасывается молодая женщина, будто бегущая откуда-то. Совершенно игнорируя (   Читать дальше...   )Производство: Россия | Cinefog, Rapira ProductionЖанр: Короткометражный, драмаРежиссер: Анна МешковаАктеры: Алексей Терехов, Екатерина Щербакова, Денис Комлев, Глеб ЩербаковСубтитры: ОтсутствуютПродолжительность: 00:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8174A0C20C4AD45CE6F8E5E4AE3AD510ED6598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477050   (1011329) от 13.06.2021
+
+Тигр среди берёз (2019) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011329.jpg" />
+</div>
+
+
+###  Подробнее
+
+История немолодого портного, уставшего от рутинной супружеской жизни. Юрий Иванович тайком от жены шьет платье для вдохновившей его молодой девушки, которая не подозревает о его потаенных желаниях.Производство: РоссияЖанр: Короткометражный, комедия, мелодрамаРежиссер: Станислав СветловАктеры: Алексей Колубков, Елена Нестерова, Ирина Штерк, Ольга Благая, Николай Лавров, Евгений КолотиловСубтитры: ОтсутствуютПродолжительность: 00:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E6997604CCD2E6E407352EAEEFFC0CAA9B59AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

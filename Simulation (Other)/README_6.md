@@ -6,7 +6,7 @@ Ready for Take off A320 Simulator (2017) [Multi] (1.0.1) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768389.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Motorbike Garage Mechanic Simulator (2018) [Multi] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767224.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ This Is the Police (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766708.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Catch: Carp & Coarse (2020) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765893.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Farming Simulator 2009 / Фермер [Ru] (L) 2010
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765497.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765060.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764081.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Alien Invasion 3d (2018) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763855.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ EMERGENCY 20 (2017) [Multi] (4.2.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759742.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755044.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ On The Road - Truck Simulator (2019) [Ru/Multi] (1.1.3.49) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748037.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3618/dlc) Repack xatab (обнов
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746540.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20211020/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746155.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Crest - an indirect god sim (2018) [En] (1.2/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745833.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739943.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739937.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Birthdays the Beginning (2017) [Multi] (1.0.7) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738048.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737952.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Hydroneer (2020) [Ru/Multi] (1.3.6) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736484.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Transport Fever 2 (2019) [Ru/Multi] (29596) Repack xatab (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736480.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.3.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732356.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA-11 HALL-A: Cyberpunk Bartender Action (2016) [En] (1.2.1.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725748.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Demolish & Build 2018 (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722937.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Starfighter Origins (2017) [En] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719982.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Poly Bridge 2 (2020) [Ru/Multi] (1.20) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718538.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ SCRUTINIZED (2020) [En] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716611.jpg" />
 </div>
 
 

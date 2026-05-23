@@ -1,114 +1,3 @@
-###  Публикация: 1337812   (221105) от 04.12.2019
-
-Винтаж - Запретный мир (2015) HDTVRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Группа «ВИНТАЖ» создала свою реальность, в которой действительность пересекается с вымыслом, привычные законы бытия больше не нужны, и на их место приходят новые, дающие всем нам возможность заглянуть в самые потаенные глубины своей сущности. Это «ЗАПРЕТНЫЙ МИР», в который можно попасть, но вернуться из него прежним уже не получиться…Самураи, Великая Китайская стена, (   Читать дальше...   )01. Китайская стена
-02. Плохая девочка
-03. Boys
-04. Когда рядом ты(   Читать дальше...   )Производство: Россия, REi musicЖанр: Поп, шоуПродолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F000BFDA7A1C9A56BEA700830E5F52166A9CEFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650305   (220603) от 07.08.2023
-
-eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись второго концертного тура «The Live Experience» группы eRa, отгремевшего в конце 2022 года под руководством автора проекта Эрика Леви.
-Относительно дебютного тура 2019 года, здесь присутствуют несколько важных изменений: во-первых два новых участника группы - победительница большинства молодежных вокальных конкурсов последних лет Екатерина (   Читать дальше...   )Жанр: New-age, Symphonic metalПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A420FE6F8DC92830CC432F04B62C6874C7EE2FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207469   (220561) от 01.12.2021
-
-Михаил Рощин - Серебряный век (Сцены 1949 года) (2008) SATRip (2 части) (Театр им. Моссовета)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-ТВ-версия спектакля Театра им. Моссовета по пьесе Михаила Рощина в постановке Юрия Еремина. Положительный мальчик Миша, учащийся старших классов и начинающий поэт, проживает с мамой, честной советской труженицей в обычной коммуналке. Мамин ухажер, промышляющий мелкими коммерческими авантюрами, знакомит Мишу с одухотворенной интеллигентной Кирой Августовной. Она открывает (   Читать дальше...   )Производство: Россия, ГТРК Культура, Московский Государственный академический театр им. МоссоветаЖанр: Телеспектакль, социальная драмаРежиссер: Юрий Еремин, Любовь ТимофееваАктеры: Ольга Кабо, Ольга Остроумова, Георгий Тараторкин, Андрей Смирнов (VI), Валерий Ярёменко, Ирина Томская, Ирина Карташёва, Александр Леньков, Дмитрий ОшеровСубтитры: отсутствуютПродолжительность: 02:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D396114BF73347A7480A61E508E28F4F5AA663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585638   (220409) от 23.10.2022
-
-Квартирник у Маргулиса. Ирина Сурина (22.10.2022) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Ирина Сурина исполняет песни в стиле кантри-фолк, авторские песни и романсы. В 1989 году стала солисткой первой российской кантри-группы «Кукуруза», а в 2000 году начала сольную карьеру. В гостях у Евгения Маргулиса певица поделилась интересными воспоминаниями и исполнила хиты, любимые многими.00:00:05  Белая песня
-00:05:36  Знать-познать
-00:13:11  Ветер
-00:21:10  Порушка-Параня(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4307E82CB16074E35ADCAF19C1457451A742B81E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965967   (220019) от 17.12.2015
 
 Ровно двадцать с хвостиком / Рівно двадцять с гаком (1968) SATRip [H.264] [hand made colored]
@@ -117,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220019.jpg" />
 </div>
 
 
@@ -143,7 +32,7 @@ Queen: A Night At The Odeon - Hammersmith (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219859.jpg" />
 </div>
 
 
@@ -173,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219584.jpg" />
 </div>
 
 
@@ -203,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218734.jpg" />
 </div>
 
 
@@ -232,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218488.jpg" />
 </div>
 
 
@@ -258,7 +147,7 @@ ZZ Top - Live From Texas  (2008)  BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218374.jpg" />
 </div>
 
 
@@ -287,7 +176,7 @@ Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217765.jpg" />
 </div>
 
 
@@ -316,7 +205,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217716.jpg" />
 </div>
 
 
@@ -345,7 +234,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217664.jpg" />
 </div>
 
 
@@ -374,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217523.jpg" />
 </div>
 
 
@@ -403,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217330.jpg" />
 </div>
 
 
@@ -432,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217232.jpg" />
 </div>
 
 
@@ -463,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216564.jpg" />
 </div>
 
 
@@ -489,7 +378,7 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216540.jpg" />
 </div>
 
 
@@ -524,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216427.jpg" />
 </div>
 
 
@@ -550,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216386.jpg" />
 </div>
 
 
@@ -576,7 +465,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216123.jpg" />
 </div>
 
 
@@ -606,7 +495,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216052.jpg" />
 </div>
 
 
@@ -635,7 +524,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215436.jpg" />
 </div>
 
 
@@ -661,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215086.jpg" />
 </div>
 
 
@@ -687,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214830.jpg" />
 </div>
 
 
@@ -717,7 +606,7 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214808.jpg" />
 </div>
 
 
@@ -732,6 +621,115 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:093392801416DD4A88EDEEB617136F21CA628287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452921   (214765) от 04.12.2021
+
+Малыш и Карлсон, который живет на крыше (1971) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озорной Карлсон и доверчивый Малыш — герои всем известной сказки. Карлсон очень любит пошалить, а на все последствия шалостей у него есть «фирменная» отговорка: «Пустяки, дело то житейское!». Правда, родители Малыша так не считают, но все равно, скучать со своим летающим другом ему не приходится. То, лазая по крышам, друзья предотвращают крупную кражу (в роли жулика (   Читать дальше...   )Производство: СССР / ТО ЭкранЖанр: Телеспектакль, детский, комедияРежиссер: Маргарита Микаэлян, Валентин ПлучекАктеры: Спартак Мишулин, Татьяна Пельтцер, Михаил Защипин, Юрий Соковнин, Андрей Миронов, Наталья Защипина, Полина Казакевич, Елена Юргенсон, Константин РайкинСубтитры: ОтсутствуютПродолжительность: 01:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A958328CEF1C61F68505E7B20ED27E3CA65283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343889   (214707) от 08.12.2019
+
+Квартирник НТВ у Маргулиса. Zventa Sventana (07.12.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zventa Sventana — музыкальный проект российской певицы Тины Кузнецовой и продюсера Юрия Усачёва. Он разбивает стереотипы о народной музыке и сплетает танцевальную электронику с фольклором, инди-попом и даже неоклассикой. Музыканты стремятся показать современному миру, что народная музыка при правильной музыкальной подаче может быть интересна и за пределами конкурсов (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D008B3812B43E9CB7D38A8713338EAA42FFF26CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514545   (214661) от 04.12.2021
+
+Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'ame-stram-gram
+02. Je te rends ton amour
+03. Souviens-toi du jour...
+04. Optimistique-moi(   Читать дальше...   )Жанр: PopПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 02:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CDC377455F76BD9B2825BB519F3AD2E944595A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371898   (214554) от 16.08.2023
+
+Солярис (1968) DVD5 [Custom]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214554.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного романа известного польского писателя Станислава Лема.
+«Солярис» — телеспектакль в 2-х сериях.
+Малоизвестный ныне киноматериал, поскольку его полностью заслонил вышедший на несколько лет позже знаменитый фильм Андрея Тарковского (но как знать, не натолкнул ли Тарковского именно этот спектакль на мысль о своем фильме?). Однако, если не сравнивать (   Читать дальше...   )Производство: СССР / Iz Sobraniya Gosteleradio, Studio "Orlenok", Central Television USSRЖанр: фантастика, драмаРежиссер: Б.Ниренбург, Л.ИшимбаеваАктеры: Василий Лановой, Владимир Этуш, Антонина Пилюс, Владимир Зозулин, Вячеслав ДугинСубтитры: ОтсутствуютПродолжительность: 02:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614F0DE7E7884A15D546023B1B1C616D5162BF52
 ```
 
 https://mybot314.ru/tekegram_catalog/

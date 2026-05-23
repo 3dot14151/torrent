@@ -1,82 +1,3 @@
-###  Публикация: 1678662   (143844) от 22.11.2023
-
-Питер Акройд | Король Артур и рыцари Круглого Стола (2016) [MP3, Надежда Винокурова]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новая книга классика современной британской литературы Питера Акройда — увлекательный рыцарский роман, написанный на основе произведения Томаса Мэлори (XIV в.). Это виртуозный пересказ легенд о короле Артуре и первом рыцаре Ланселоте, о любви Тристрама и Изольды, о пророке Мерлине и злой Фее Моргане, об отважных рыцарях Круглого стола, о духовных и земных испытаниях (   Читать дальше...   )Жанр: Зарубежная литература, исторические приключенияИздательство: Нигде не купишьПродолжительность: 13:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F5470EC8C451DD027C0F6D3FC9E834B2BE9CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678725   (143832) от 22.11.2023
-
-Евгений Петров | Даровитая девушка (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Героиня этого рассказа послужила прототипом для появившейся позднее в известном романе Эллочки-Людоедочки Щукиной." (с)Жанр: Юмор, РассказИздательство: Аудиокнига своими рукамиПродолжительность: 00:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D059B3BBAB0754C6E83A75BE00BFA6B8060DF9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520183   (143814) от 27.12.2021
-
-Эмма Хоутон | Тьма (2021) [MP3, Юлия Бочанова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Один труп. Двенадцать подозреваемых. и абсолютная темнота.
-Личная трагедия окончательно выбила Кейт Норт из колеи, поэтому, когда ей выпадает шанс заменить врача на исследовательской станции в Антарктике, она с радостью соглашается, надеясь, что это поможет ей прийти в себя. Смена обстановки кажется Кейт идеальным решением. Даже несмотря на то, что ее предшественник, (   Читать дальше...   )Жанр: Современные детективыПродолжительность: 11:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D2F73CDFBC9650049C8DC04BF19B724991B588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195234   (143756) от 28.12.2017
 
 Андрей Шляхов | Криминальные будни психиатра (2017) [MP3, Сергей Кирсанов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143756.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143735.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143713.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143658.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143654.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143643.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143633.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143626.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143609.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143539.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143528.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143521.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143470.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143396.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143353.jpg" />
 </div>
 
 
@@ -479,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143339.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143301.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143292.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143204.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143146.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143142.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143118.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143097.jpg" />
 </div>
 
 
@@ -675,6 +596,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67309A200CE5A4B6D5F00F6682F83C6D2D7C92DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520294   (142966) от 27.12.2021
+
+Павел Корнев | Резонанс (Книга 2). Эпицентр (2021) [MP3, Алексей Воленко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой – выпускник гимназии. Ему семнадцать. В мире, где он живёт, царит беспощадный капитализм, причём всем управляют аристократы, поэтому перспектив немного. Но есть шанс пройти инициацию и получить управление сверхэнергией, что позволит герою разом достичь невиданных высот и возвеличиться над теми, кто считает себя хозяевами жизни. Но прохождение инициации (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Городское фэнтези, СтимпанкПродолжительность: 13:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD169BDA9F8FC67A653B3BB3D44ABB6FF964CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348663   (142788) от 28.12.2019
+
+Виктор Мишин | Выжить вопреки (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приказ ни шагу назад, голод, жара, холод, грязь – сможет ли наш современник выстоять?
+
+Андрей Морозов, волею судьбы оказавшийся в тысяча девятьсот сорок первом году, конечно, попадает на войну. Не считая свои знания обширными, он не обращается к властям, а просто следует велению судьбы и воюет вместе с другими бойцами Красной Армии. Начало войны – время тяжелое для (   Читать дальше...   )Жанр: фантастика попаданецПродолжительность: 08:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01552E665B08B6143D9A82811547AC366AE218F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195464   (142720) от 29.12.2017
+
+Аффинити Конар | Mischling. Чужекровка (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mischling. Чужекровка — один из самых ярких романов 2016 года, «Книга года» по версии New York Times. По историческому размаху и лиричности «Чужекровку» сравнивали с романом Энтони Дорра «Весь невидимый нам свет», а по психологической напряженности — с «Комнатой» Эммы Донохью.
+Итак, познакомьтесь с сестрами-близнецами Перль и Стасей.
+Перль Заморска отвечает за грустное, (   Читать дальше...   )Жанр: Психологическая драмаПродолжительность: 11:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB96D67CCE5D4B01006CF0B659EEB66818CE1F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

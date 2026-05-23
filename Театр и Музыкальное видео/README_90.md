@@ -1,107 +1,3 @@
-###  Публикация: 561416   (406071) от 17.10.2012
-
-Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ELECTRO-HOPПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9999D1B26954D2829CF75B5C29BB2A3F9A4323A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561894   (405774) от 18.10.2012
-
-Сборник клипов - VA - Various Music part. 35 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C925B1FF727A9A0A5BC91BDE09BE20A873647511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562332   (405647) от 19.10.2012
-
-DJMask - Hymn Of Angel (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Relax, Chill OutПродолжительность: 00:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D1D2E33E51A1D4C8014208F11CEF2F86D598B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562343   (405610) от 19.10.2012
-
-Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DCAA1A3FF393549BF120CD5A1B87FF069E7EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562346   (405601) от 19.10.2012
 
 Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
@@ -110,7 +6,7 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405601.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405599.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405472.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405470.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405428.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404307.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404232.jpg" />
 </div>
 
 
@@ -295,7 +191,7 @@ Ace Of Base - Greatest Hits (2008) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401864.jpg" />
 </div>
 
 
@@ -321,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401473.jpg" />
 </div>
 
 
@@ -347,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401138.jpg" />
 </div>
 
 
@@ -376,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400982.jpg" />
 </div>
 
 
@@ -405,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400950.jpg" />
 </div>
 
 
@@ -434,7 +330,7 @@ Aerosmith - What Could Have Been Love (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400031.jpg" />
 </div>
 
 
@@ -460,7 +356,7 @@ Robert Plant and the Strange Sensation - EXIT Festival July 12, 2007 (2007) DVDR
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399943.jpg" />
 </div>
 
 
@@ -489,7 +385,7 @@ The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399824.jpg" />
 </div>
 
 
@@ -524,7 +420,7 @@ Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399225.jpg" />
 </div>
 
 
@@ -556,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399016.jpg" />
 </div>
 
 
@@ -585,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398388.jpg" />
 </div>
 
 
@@ -614,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398290.jpg" />
 </div>
 
 
@@ -643,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398186.jpg" />
 </div>
 
 
@@ -672,7 +568,7 @@ The Doors - Live At The Bowl '68 (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397969.jpg" />
 </div>
 
 
@@ -698,7 +594,7 @@ Gregorian: Epic Chants - Live in Zagreb [Limited Edition] (2012) [H.264] DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397927.jpg" />
 </div>
 
 
@@ -712,6 +608,115 @@ Gregorian: Epic Chants - Live in Zagreb [Limited Edition] (2012) [H.264] DVDRip
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566534   (397815) от 28.10.2012
+
+Мельница - Дикие Травы в СК "Олимпийский" (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Фолк-РокРежиссер: Роман Бутовский, Юрий ФроловскийПродолжительность: 01:52:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566997   (397665) от 28.10.2012
+
+День выборов (спектакль) (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись одноименного спектакля «Квартета И».
+
+Коллектив «Как бы Радио» получает от олигарха-владельца радиостанции, могущественного Эммануила Гедеоновича новое задание – провести предвыборную кампанию и "сделать рейтинг" абсолютно бесперспективному кандидату в губернаторы одной из областей на Средней Волге. Приказы начальства не обсуждаются, они выполняются быстро и беспрекословно.Жанр: Спектакль, комедияРежиссер: Сергей ПетрейковАктеры: Леонид Барац, Александр Демидов, Ростислав Хаит, Анна Касаткина-Барац, Михаил Козырев, Дмитрий Марьянов, Камиль Ларин, Нонна Гришаева, Максим Виторган, Василий Уткин, Алексей Кортнев, Алексей Хардиков, Александр Жигалкин, Федор Добронравов, Георгий Мартиросян, Людмила Кругликова, Елена Шевченко, Максим Лихачев, Роман Мамаев, Павел Черемисин, Дмитрий Чувелев, Сергей Чекрыжов, Павел ГонинПродолжительность: 03:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891D749104A8A8AB7DF39AACB4CEC4A1FF7421A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715095   (397403) от 25.10.2013
+
+Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт «Fire it Up» состоялся в ходе европейского тура Джо Кокера на Lanxess Arena в Кёльне в апреле 2013 года. Джо Кокер - английский певец, работающий в жанрах блюз и рок. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «N'oubliez jamais».01. I Come In Peace Live
+02. Feelin' Alright Live
+03. The Letter Live
+04. When The Night Comes Live(   Читать дальше...   )Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-Rock, Blue-Eyed SoulРежиссер: Ник Викхэм / Nick WickhamПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221670D96B9035DFA1D595FAF0B7502BE65237B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567222   (396982) от 29.10.2012
+
+Вечно живые (2 серии из 2) (1976) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДрамаРежиссер: Олег ЕфремовАктеры: Олег Даль, Олег Ефремов, Станислав Садальский, Александр Вокач, Людмила Иванова, Юрий Богатырев, Марина Неёлова, Игорь Кваша, Елена Коренева Лилия ТолмачеваПродолжительность: 1 серия: 01:10:25,  2 серия: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F4700F195B38C7F3AC5A97B6490D58F14379F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

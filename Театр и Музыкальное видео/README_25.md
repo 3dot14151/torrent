@@ -1,116 +1,3 @@
-###  Публикация: 632787   (919480) от 20.03.2013
-
-Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AC95D15BDB86E412FEEE7614B712A83924C4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756997   (919358) от 15.02.2014
-
-The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. I Am The Walrus
-02. Hello, Goodbye
-03. Across The Universe
-04. Lady Madonna(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E95DC2E835EBBCE6C180A9B67EB804B8CECF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756987   (919301) от 15.02.2014
-
-The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Please, Please Me
-02. Twist And Shout
-03. From Me To You
-04. I Wont Belong(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590BAF711AB77AD4F637A3583953534F67B44013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490236   (918931) от 20.08.2021
-
-Beth Hart -  Live in Brezoi HIGH FIVE ROMANIA (2021) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Последнее выступление непревзойдённой Бет Харт, в Венгрии 12 августа 2021г.01. Isolation
-02. Sugar Shack
-03. Fatman
-04. If I Tell You I Luv Ya (эта вещь заслуживает отдельного внимания!)Жанр: BluesПродолжительность: 00:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DF262E6769A92C6A1A7E080FA9620DC190CB0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988892   (918847) от 21.02.2016
 
 Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/720p]
@@ -119,7 +6,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918847.jpg" />
 </div>
 
 
@@ -150,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918770.jpg" />
 </div>
 
 
@@ -176,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918683.jpg" />
 </div>
 
 
@@ -202,7 +89,7 @@ Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918498.jpg" />
 </div>
 
 
@@ -231,7 +118,7 @@ VA - Ultra Music Festival 2012 (Miami, USA) (2012) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917991.jpg" />
 </div>
 
 
@@ -260,7 +147,7 @@ Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917960.jpg" />
 </div>
 
 
@@ -286,7 +173,7 @@ Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917829.jpg" />
 </div>
 
 
@@ -312,7 +199,7 @@ Big Love Show. Грандиозный концерт ко Дню всех Влю
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917648.jpg" />
 </div>
 
 
@@ -338,7 +225,7 @@ Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917326.jpg" />
 </div>
 
 
@@ -364,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916761.jpg" />
 </div>
 
 
@@ -396,7 +283,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916610.jpg" />
 </div>
 
 
@@ -425,7 +312,7 @@ Led Zeppelin: The Song Remains The Same (2007) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916598.jpg" />
 </div>
 
 
@@ -452,7 +339,7 @@ Led Zeppelin: 2*DVD9 (2003)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916499.jpg" />
 </div>
 
 
@@ -478,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915994.jpg" />
 </div>
 
 
@@ -507,7 +394,7 @@ Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915656.jpg" />
 </div>
 
 
@@ -536,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915564.jpg" />
 </div>
 
 
@@ -562,7 +449,7 @@ Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915428.jpg" />
 </div>
 
 
@@ -591,7 +478,7 @@ Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915255.jpg" />
 </div>
 
 
@@ -620,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915150.jpg" />
 </div>
 
 
@@ -649,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915092.jpg" />
 </div>
 
 
@@ -678,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914828.jpg" />
 </div>
 
 
@@ -705,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913245.jpg" />
 </div>
 
 
@@ -719,6 +606,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B4F72C5C6DB5A403637F2AA16692E1BF7B216B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987719   (913032) от 24.02.2016
+
+The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014) BDRip [H.264/720p] (Criterion Collection) [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913032.jpg" />
+</div>
+
+
+###  Подробнее
+
+1964 год. Начало Битломании. "БИТЛЗ" дебютируют на американской сцене в шоу Эда Салливана. Режиссер Ричард Лестер делает первый фильм о группе, сняв его в жанре музыкальной комедии. "Вечер трудного дня" рассказывает фэнам группы об одном дне в жизни ВЕЛИКОЙ ЧЕТВЕРКИ...
+A Hard Day's Night - первый битловский фильм, снятый Ричардом Лестером, появился (   Читать дальше...   )Производство: ВеликобританияЖанр: Мюзикл, Комедия, МузыкальныйРежиссер: Ричард ЛестерАктеры: Ринго Старр, Пол Маккартни, Джон Леннон, Джордж Хэррисон, Уилфред Брэмбелл, Виктор Спинетти, Анна Куэйл, Норман Россингтон, Джон Джанкин, Дерик ГайлерПеревод: Одноголосый закадровый профессиональный (Максим Жолобов)Продолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482497B66EDE4397B0F13AC44FD5119527B00AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634136   (912961) от 24.03.2013
+
+Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2A9BC5481573712DDE0DFD31670048A65D0E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634324   (912944) от 24.03.2013
+
+Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D762673395D3CD0F98AD67CC87D842B9977C8F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633919   (912782) от 24.03.2013
+
+Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dubstep, SoulПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC7A926F092DECF6E09E9817127136D78834CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

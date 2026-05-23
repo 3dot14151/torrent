@@ -1,29 +1,3 @@
-###  Публикация: 1290163   (680429) от 19.03.2019
-
-Mystery of the Ancients 7: Black Dagger (2018) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На полицейский участок было совершено нападение, и Вас просят заняться расследованием этого дела. Но ситуация быстро принимает опасный поворот, когда улики указывают на древний кинжал и призрака, владеющего им! С таким опасным противником и бесчисленными семьями, оказавшимися в опасности, сможете ли Вы раскрыть происхождение дьявола и спасти всех?Тип издания: UnofficialРазработчик: MariaglorumЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7E076DAC38FC264A4729226CC695DD676C7A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290162   (680428) от 19.03.2019
 
 Hidden Expedition 16: The Golden Secret (2017) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Hidden Expedition 16: The Golden Secret (2017) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680428.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Enchanted Kingdom 3: Fog of Rivershire (2018) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680427.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Forgotten Fairytales 2: Canvases of Time (2018) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680424.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680115.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680024.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679943.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679841.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679835.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Objects in Space (2019) [En] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679829.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679828.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sable Maze 4: Twelve Fears (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679672.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Fierce Tales 3: Feline Sight / Жестокие истории 3. Кошачий
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679340.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678798.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Vanquish (2017) [Ru/Multi] (1.05) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678706.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Ghost Files: The Face of Guilt / Дело Призрака: Лики вины (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678586.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678438.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Spirit Of Revenge 4: Florry's Well (2016) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678168.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tales of Monkey Island: Chapter 2 The Siege of Spinner Cay / Tales of Monkey Isl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678037.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Goliath (2016) [Ru/En] (1.04/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677867.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677797.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Fate/EXTELLA LINK (2019) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677793.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (10100111001) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677788.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Antihero (2017) [Multi] (1.0.24/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677780.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Fever Frenzy (P) [En] 2007
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677052.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Fear for Sale 4: Phantom Tide / Страх на продажу. Призрак �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677037.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Fear for Sale 4: Phantom Tide / Страх на продажу. Призрак �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B9ED97B7346189CA6858D1DFC2B5F8F9FF549E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509209   (676645) от 11.06.2012
+
+Blacked out / Жуть (L) [Ru] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Там, где мир живых людей соприкасается с миром призраков, реальность более не поддаётся логике и привычному ходу вещей. Наши мысли, сильные желания, истинные порывы порой способны становиться неуправляемыми. Если для реализации своих намерений человек готов заключить сделку с колдовским миром, не один он будет отвечать за эту ошибку, но и все те, кто повстречает его на своём жизненном пути. Все эти люди попадут в мир проклятых, мир отверженных и отчаявшихся. Эта история поведает вам об узниках заколдованных картин, нарисованных сумасшедшим художником и обрёкшим их на вечное скитание между миром реальным и миром призрачным. В моменты соприкосновения этих миров вы можете разговаривать с духами. Каждая картина уникальна и опасна, так как для освобождения её духа требуется самому пройти в потусторонний мир и найти разгадку. Проклятые души коварны, и художник будет оберегать свои творения. Если вы достаточно смелы, чтобы бросить вызов колдовским силам, сделайте лишь шаг, и вы окажетесь в доме проклятого художника. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: NevosoftЖанр: Казуальная, Квест, Логическая, Я ищуЯзык озвучки: Русский (официальная версия)Язык интерфейса: Русский (официальная версия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219EF794B58D70DF45F87791D853C7AED197D5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

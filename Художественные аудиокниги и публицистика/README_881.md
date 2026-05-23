@@ -1,82 +1,3 @@
-###  Публикация: 1681447   (132649) от 03.12.2023
-
-Донато Карризи | Пьетро Джербер (Книга 3). Дом огней (2023) [MP3, Игорь Тарадайкин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Донато Карризи – известный итальянский писатель и сценарист, специалист в области криминалистики и поведенческих наук, лауреат итальянской премии Bancarella (2009), французской премии Prix SNCF du polar (2011) и других, автор бестселлеров, переведенных на 30 с лишним языков и расходящихся многомиллионными тиражами. Три свои книги – «Девушка в тумане» (2017), «Девушка (   Читать дальше...   )Жанр: Детектив, триллерИздательство: Азбука-АттикусПродолжительность: 11:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFBD8C2F26EDE583C4D180B58DC5930FF7B2EC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681554   (132629) от 03.12.2023
-
-Данте Алигьери | Божественная комедия (2011) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Данте Алигьери (1265–1321) поэт, литературовед, богослов и политический деятель эпохи Возрождения. Но в историю мировой литературы он вошёл как автор монументального эпического труда – «La divina commedia» («Божественная комедия»), отразившего взгляд с точки зрения христианской морали на бренную и короткую человеческую жизнь.
-Монументальное творение Данте Алигьери (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Нигде не купишьПродолжительность: 23:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A475771B2134BD0FC6E54ED9B6CBD039B6815F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681539   (132598) от 03.12.2023
-
-Фред Саберхаген | Берсеркер (Книга 3). Планета смерти (2023) [MP3, Сергей Оробчук]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пятьсот лет прошло с тех пор, как объединенный флот человечества разгромил армаду берсеркеров в битве у Каменной Россыпи. Но, хотя победа людей была бесспорной, одна из машин — убийц — полуразрушенная и обезоруженная — сумела скрыться в тайном убежище на планете под названием Охотник. Годы спустя на Охотнике возник новый культ — поклонение Смерти как единственному (   Читать дальше...   )Жанр: ФантастикаИздательство: аудиокнига своими рукамиПродолжительность: 05:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B39D3AC48B655E490DC4D40B4BB2BC9BA268235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681553   (132563) от 03.12.2023
 
 Денис Деев | Красная галактика (Книга 4) (2023) [MP3, Никита Степаненко]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132563.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132532.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132391.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132370.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132307.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132305.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132297.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132294.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132113.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132083.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132079.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131858.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131846.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131844.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131826.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131822.jpg" />
 </div>
 
 
@@ -510,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131815.jpg" />
 </div>
 
 
@@ -537,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131724.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131682.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131668.jpg" />
 </div>
 
 
@@ -616,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131650.jpg" />
 </div>
 
 
@@ -643,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131612.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131601.jpg" />
 </div>
 
 
@@ -684,6 +605,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6313CF7C7C129E7679D44A5695C0B1471A35B0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682497   (131472) от 07.12.2023
+
+Чингиз Абдуллаев | Тимур Караев (Книга 1). Хранители холода (2023) [MP3, Валентина Крылова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда у отставного полковника госбезопасности Тимура Караева бесследно пропал его близкий друг и коллега, а его самого попытались убить, он сразу почувствовал руку спецслужб. Ведь разведчики бывшими не бывают, рано или поздно они попадают в поле зрения «коллег». Вот только какая служба заинтересовалась ими? Чтобы это выяснить, пожалуй, придется встретиться с кое-какими (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE16B8D622CC49318AC8720D1F2F2C2C6EFCE08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682569   (131470) от 07.12.2023
+
+Александр Беляев | Изобретения профессора Вагнера. Чёртова мельница (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Вагнер изобретает "увечный двигатель", чем создал панику в отдельно взятой деревне.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90C631CEF3A8D23E17E1F6EFB9235FB2649944D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682397   (131459) от 07.12.2023
+
+Игорь Евдокимов | Доктор Фальк. Тайна серого монаха (2023) [MP3, Михаил Обухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь: доктор Василий Оттович Фальк. Эстет, педант, скептик, совершеннейший зануда – и сыщик поневоле. В дачном поселке на побережье Финского залива, куда он переезжает летом из Петербурга, найдена мертвой пожилая вдова. За день до гибели она жаловалась Фальку, что по ночам в ее саду появляется серый монах – верный предвестник смерти. Но доктор быстро понимает, (   Читать дальше...   )Жанр: Исторические детективыИздательство: ЛитРес: чтецПродолжительность: 05:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF446ECB29D7B029CD22C3492C8F5C44CC9F042
 ```
 
 https://mybot314.ru/tekegram_catalog/

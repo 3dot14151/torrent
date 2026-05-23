@@ -1,82 +1,3 @@
-###  Публикация: 1397799   (737460) от 22.07.2020
-
-Толмач (2019) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вышедшему из тюрьмы Олегу выпадает шанс исправить ошибки своего прошлого, для этого ему предлагают участие в эксперименте, который должен позволить предотвратить одно страшное событие в будущем.Производство: РоссияЖанр: Короткометражный, фантастика, драмаРежиссер: Вячеслав ВолковАктеры: Александр Ефремцев, Жанна Дементьева, Елена Кузнецова, Константин Мороз, Виталий АдасюкСубтитры: ОтсутствуютПродолжительность: 00:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DF9DBF8FF3C739A5A9FF9982A1CA9D867DB68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397974   (737018) от 23.07.2020
-
-Чертово колесо (2019) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-35-летний фотограф Ярослав, который провел много лет в поисках гармонии в Юго-Восточной Азии, возвращается домой, чтобы поздравить восьмилетнего сына Костю с днем рождения.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Роман БатаевАктеры: Игорь Лизенгевич, Максим Карушев, Александра Верхошанская, Александр Кульков, Юлия Мандрико, Юрий Гумиров, Антон Жиганов, Алексей Боченин, Алексей Добротин, Максим ДеричевСубтитры: английские (hardsub)
-Внимание! Присутствует ненормативная лексика.Продолжительность: 00:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C600A34FB29CDD74AE1D91FE2025905560393F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397850   (737007) от 23.07.2020
-
-Купи меня (2017) BDRip [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три девушки – три истории о том, как изменить свою жизнь и чем предстоит пожертвовать, чтобы стать «счастливыми». Порше, олигархи, секс, любовь и мечты о красивой жизни. Смогут ли героини добиться успеха, или они сломаются, так и не дойдя до цели?Производство: Россия / Art Pictures Studio, КинотрестЖанр: ДрамаРежиссер: Вадим ПерельманАктеры: Анна Адамович, Юлия Хлынина, Светлана Устинова, Евгения Крюкова, Иван Добронравов, Анатолий Кот, Микаэль Джанибекян, Сабина Ахмедова, Александр Обласов, Владимир КошевойПеревод: Не требуется (Лицензия BD GER)Субтитры: ОтсутствуютПродолжительность: 01:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D568CFD190183D73314F5F93990B48D89C0A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011883   (736950) от 23.07.2020
 
 Коробка (2015) WEB-DL [H.264/1080p-LQ]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736950.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736758.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736572.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736534.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736510.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736338.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735698.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735506.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735005.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734891.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734427.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733918.jpg" />
 </div>
 
 
@@ -397,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733053.jpg" />
 </div>
 
 
@@ -423,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732630.jpg" />
 </div>
 
 
@@ -450,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732304.jpg" />
 </div>
 
 
@@ -476,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731612.jpg" />
 </div>
 
 
@@ -502,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731349.jpg" />
 </div>
 
 
@@ -528,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730661.jpg" />
 </div>
 
 
@@ -554,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730202.jpg" />
 </div>
 
 
@@ -580,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729754.jpg" />
 </div>
 
 
@@ -607,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729671.jpg" />
 </div>
 
 
@@ -634,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729364.jpg" />
 </div>
 
 
@@ -660,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728549.jpg" />
 </div>
 
 
@@ -671,6 +592,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A5BD3A8559DAA3552E748CB8DA370AFB19E09D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128049   (728539) от 24.04.2017
+
+Невеста моего жениха (2013) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юля молода, красива и успешна в карьере, но личного счастья в ее жизни давно нет. Три года назад она отказалась уехать в провинцию со своим женихом Вадимом, предпочтя выгодную работу в столице, но найти ему достойную замену так и не смогла.
+После очередной неудачной попытки у Юли происходит переоценка ценностей и девушка решает вернуться к проверенному временем и (   Читать дальше...   )Производство: Россия / Кинокомпания "Русское"Жанр: МелодрамаРежиссер: Владимир ПотаповАктеры: Татьяна Федоровская, Александр Константинов, Мария Кононова, Людмила Гаврилова, Владимир Жеребцов, Екатерина Травова, Евгения Крылова, Юрий Мосейчук, Наталья Унгард, Ирина ПомеранцеваСубтитры: ОтсутствуютПродолжительность: 01:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEBEC8A95E08E640C4DD842487CC414324B0F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530825   (727723) от 12.02.2022
+
+Твою мать, Иннокентий ! (2020) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачник Иннокентий хочет покончить с собой, прыгнув с крыши. В момент, когда он уже почти делает шаг на крыше появляется главная героиня. Она смешным, дерзким иногда жестким, но очень логичным и в чем-то душевным разговором убеждает Иннокентия не прыгать, потому что помимо всего прочего, он еще не выполнил свое предназначение…Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Анна Колчина, Алексей Кузмин-ТарасовАктеры: Аглая Тарасова, Александр ГудковСубтитры: ОтсутствуютПродолжительность: 00:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD11E8242FBABF2BE206A204B3FF380AD60A567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738492   (727142) от 12.02.2022
+
+Географ глобус пропил (2013) BDRip [720p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой биолог Виктор Служкин от безденежья идет работать учителем географии в обычную пермскую школу. Он борется, а потом и дружит с учениками, конфликтует с завучем, ведет десятиклассников в поход — сплавляться по реке. Еще он пьет с друзьями вино, пытается ужиться с женой и водит в детский сад маленькую дочку. Он просто живет…Производство: РоссияЖанр: ДрамаРежиссер: Александр ВелединскийАктеры: Константин Хабенский, Елена Лядова, Александр Робак, Евгения Брик, Анна Уколова, Агриппина Стеклова, Евгения Крегжде, Максим Лагашкин, Анфиса Черных, Анастасия ЗолоткоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE421DF5521955E14308A01C4C77055790E03B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

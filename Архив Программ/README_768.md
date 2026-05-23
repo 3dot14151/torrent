@@ -6,7 +6,7 @@ Photodex ProShow Producer 7.0.3518 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659605.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Intel® Extreme Tuning Utility (Intel® XTU) 5.2.0.14 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659597.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pano2VR Pro 5.2.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659579.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Photodex ProShow Producer 7.0.3518 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659568.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.06.5219 Free | Professional | Business | Technician RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659559.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FurMark 1.20.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659544.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SamDrivers 18.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659542.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office Professional 2003 SP3 (2018.05) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659541.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Avast Premier 18.4.2338 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659539.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TwistedBrush Pro Studio 18.04 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659436.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Animated Wallpaper Maker 2.5.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659343.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Flash Player Pro v4.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_659324.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ IDrive 6.3.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659311.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Slimjet 14.0.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659284.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Sandboxie 5.55.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659239.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Junkware Removal Tool 6.8.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659224.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ QQ Browser 9.0.1745.400 Preview [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659219.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Download Master 6.4.1.1465 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659210.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ QQ Browser 8.1.3886.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659168.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Leibo 5.2.91.10096 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659165.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ CocCoc 42.0.2311.152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659164.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Liulanqi 7.4.100.1510 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659161.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sandboxie plus 1.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659155.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659148.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Firefox Browser 98.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659145.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ HDCleaner 2.021 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659142.jpg" />
 </div>
 
 

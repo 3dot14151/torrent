@@ -6,7 +6,7 @@ The Animal In Me - Helping Won’t Help (2017) [MP3|320 Kbps] <Post-Hardcore, Fe
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792814.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Machine Head - Catharsis (2018) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792752.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cremation - In The Maelstrom Of Time (2017) [MP3|320 Kbps] <Death metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792676.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lento - Earthen (2007) [MP3|320 Kbps] <post-metal, instrumental, ambient>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792530.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Anvil - Pounding The Pavement (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792218.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ In Vain - Currents (2018) [MP3|320 Kbps] <Melodic Black Metal, Progressive Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791633.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Ghost Inside - The Ghost Inside (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791333.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stitched Up Heart - 4 Альбома (2010-2020) [MP3|320 Kbps] <Alternative Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791329.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tribulation - Down Below (2018) [MP3|320 Kbps] <Progressive Death Metal, Gothic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791020.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Powerwolf - Metallum Nostrum (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790992.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Orphaned Land - Unsung Prophets & Dead Messiahs (2018) [MP3|320 Kbps] <Folk Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790978.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Obsidian Shell - Angelic Asylum (2010) [MP3|192-320 kbps]<Symphonic Power/Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790749.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790542.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ghost Brigade - 4 Альбома, 1 EP, 1 Компиляция (2007-2017) [MP3|
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789458.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ocean Of Grief - Nightfall's Lament (2018) [MP3|320 Kbps] <Doom-Death Metal, Mel
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787696.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Arch Enemy - Covered In Blood (2019) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787577.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Hypocrisy - Worship (2021) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787112.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rhapsody of Fire - Glory for Salvation (2021) [MP3|320 Kbps] <Symphonic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787064.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Currents - The Way It Ends (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786895.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Wise Man's Fear - Valley Of Kings (2020) [MP3|320 Kbps] <Metal, Post - Hardc
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786878.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Craven Idol - The Shackles Of Mammon (2017) [MP3|320 Kbps] <Blackened Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785821.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Havok - Conformicide (2017) Limited Edition  [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785795.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cromonic - Time (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785792.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Orphans Of Doom - Strange Worlds / Fierce Gods (2018) [MP3|320 кб/с]<Sludge M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785395.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Saxon - Thunderbolt (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785347.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ AngeLight - Singles (2020) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785167.jpg" />
 </div>
 
 

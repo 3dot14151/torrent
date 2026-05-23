@@ -6,7 +6,7 @@ Guards II (2): Chaos in Hell (2025) [Ru/Multi] (1.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7585.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7582.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Strategic Command WWII: War in the Pacific (2024) [Multi] (1.03.05/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7576.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Intravenous + Intravenous 2 (2021-2024) [Ru/Multi] (1.5.1/1.4.3/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7394.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack FitGirl [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7369.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7312.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ A Fistful Of Yankees (2025) [Ru/Multi] (1.42) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7143.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6576.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) Repack Let'sРlay [Deluxe Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6366.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.3/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6064.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6041.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Let'sРlay [Pre
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5910.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.5/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5767.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5473.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.9.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5455.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.16.03/dlc) License GOG [Field Marshal Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5300.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Old World (2022) [Ru/Multi] (79513/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5299.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.2/dlc) Repack FitGirl [
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5241.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4254.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.3 HF1/dlc) Repack Let's
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3099.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2883.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2274.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2272.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2123.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.04.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1402.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1261.jpg" />
 </div>
 
 

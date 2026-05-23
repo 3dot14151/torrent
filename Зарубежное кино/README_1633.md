@@ -1,55 +1,3 @@
-###  Публикация: 1343735   (215934) от 07.12.2019
-
-Соблазн / Sibyl (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Сибил — опытная и успешная женщина-психотерапевт, желающая отказаться от практики, чтобы воплотить давнее желание написать книгу. В тот момент, когда ей будет так нужно вдохновение, рядом окажется юная актриса Марго, ищущая помощи и поддержки. Сибил, очарованная новой пациенткой, будет всё глубже погружаться в чужую историю, не замечая, как её собственная жизнь перевернётся (   Читать дальше...   )Производство: Франция, Бельгия / France 2 Cinema, Les Films de Pierre, Page 114Жанр: Триллер, драмаРежиссер: Жюстин ТриеАктеры: Виржини Эфира, Адель Экзаркопулос, Гаспар Ульель, Сандра Хюллер, Лорэ Кэлами, Нильс Шнайдер, Поль Ами, Артур Харари, Adrien Bellemare, Jeane Arra-BellangerПеревод: Многоголосый закадровый (iTunes)Субтитры: Французские (Forced)Продолжительность: 01:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F34280D81A8A025544A4D5CAA6CC098806F68D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853169   (215929) от 25.12.2014
-
-Луни Тюнз: Снова в деле / Looney Tunes: Back in Action (2003) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Анимационные герои: Багс Банни и Даффи Дак — в реальной жизни! Поиски пропавшего человека и огромного мифического алмаза приводят Багса и Даффи сначала в Лас-Вегас, а затем в непроходимые джунгли АфрикиПроизводство: США, Германия |  Warner Bros., Baltimore Spring Creek Productions, Goldmann PicturesЖанр: Комедия, Приключения, Семейный, АнимацияРежиссер: Джо ДантеАктеры: Брендан Фрейзер, Дженна Элфман, Стив Мартин, Тимоти Далтон, Хэзер Локлир, Джоан Кьюсак, Билл Голдберг, Дон Стэнтон, Дэн Стэнтон, Дик Миллер, Роджер Корман, Кевин МакКарти, Джефф Гордон, Мэттью Лиллард, Мэри Воронов, Марк Лоуренс, Билл МакКинни, Джордж Мёрдок, Роберт Пикардо, Рон Перлман, Вернон Уэллс, Лео Росси, Арчи Хан, Аллан ГрафПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E847906C2D5ED810761B97418E6C12685927247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853171   (215917) от 25.12.2014
 
 Гордость / Pride (2014) BDRip    [1080p] [EN / EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215917.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215882.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215857.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215851.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215826.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215819.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215802.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215749.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215728.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215719.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215713.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215703.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215685.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215675.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215672.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215663.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215658.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215654.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215651.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215630.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215622.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215601.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215583.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215577.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C9026EE965513DCAA74E84386698E30A1081906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966975   (215574) от 19.12.2015
+
+Мошенники / Serving Sara (2002) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развод по-американски – это «развод» на деньги. Стоит только вытереть слезы и с помощью ушлого парня из адвокатской конторы «развести» бывшего муженька и его новую пассию на миллион долларов. Все, что для этого нужно – небольшая афера. Гордон и Сара Мур не совсем обычная супружеская пара. Сара – типичная англичанка, Гордон – типичный техасец. Благодаря совместным (   Читать дальше...   )Производство: СШАЖанр: Комедия, мелодрамаРежиссер: Реджинальд ХадлинАктеры: Мэттью Перри, Элизабет Хёрли, Винсент Пасторе, Брюс Кэмпбелл, Эми Адамс, Терри Крюс, Джерри Стиллер, Маршалл Белл, Дерек Саузерс, Алайна ХаффманПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE98F78CD60A884159333CE30E4E7AA5392E657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853111   (215573) от 25.12.2014
+
+Короткометражки Марвел / Marvel One-Shot (2011-2014) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия короткометражных фильмов, выпускаемых компанией Marvel Studios в рамках кинематографической вселенной Marvel. Главными героями стали агент секретной службы Щ.И.Т. Фил Колсон и его коллеги, а события, описываемые в роликах, рассказывают о буднях агентов и сюжетно связаны с одним из фильмов.Жанр: Короткометражный, Фантастика, ПриключенияРежиссер: Луис Д’Эспозито, ЛейтумВ ролях: Бен Кингсли, Скут МакНэйри, Лестер Спейт, Сэм Рокуэлл, Мэтт Джералд, Аллен Мальдонадо, Кристал Манки, Jose Abril, Billy Choi, Роб С. ГрэйПеревод: Многоголосый закадровыйСубтитры: русские, английские (вшитые, отключаемые)Язык субтитров: русский, английскийФормат: MKVПродолжительность: 00:11:21, 00:04:03, 00:03:57, 00:15:29, 00:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666C9D7468DA1E14A7F6D1ED7ECC3D0CF9C78334
 ```
 
 https://mybot314.ru/tekegram_catalog/

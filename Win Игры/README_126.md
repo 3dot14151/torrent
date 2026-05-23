@@ -1,29 +1,3 @@
-###  Публикация: 1450922   (794525) от 12.11.2021
-
-Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Одолей и разгроми убийственные легенды славянской мифологии в этой мрачно забавной ролевой игре, которая меняется каждый раз, когда вы играете. Играйте за Ивана, за невероятно невезучего однорукого кузнеца, который должен выполнить невыполнимые задачи, данные ему царём. В то время, как таинственная ведьма Баба Яга следит за судьбой Ивана.Тип издания: LicenseРазработчик: Breadcrumbs InteractiveЖанр: Ролевая игра, Экшн, КомедияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2D3AF283F3048FCB12C9079C200FAB78164E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200811   (794524) от 22.01.2018
 
 PLAY WITH ME (2018) [En/Pl] (1.20.6) Repack Other s
@@ -32,7 +6,7 @@ PLAY WITH ME (2018) [En/Pl] (1.20.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794524.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Even the Ocean (2016) [Multi] (1.024) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794519.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794514.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Apocalypse Hotel (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794419.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794347.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Origami [Definitive
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794343.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (5.3.2.14600335) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794293.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Wave of Time / Волна времени (2017) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794207.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.0.4) Crack
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794149.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793875.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ The Lightbringer (2021) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793848.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Greed 2: Forbidden Experiments / Жадность 2: Запрещённые эк
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793838.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ HellGate: London (2018) [En] (20181213) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793768.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ My Singing Monsters Playground (2021) [Ru/Multi] (2020.3.20.4310246) License TiN
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793737.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793700.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793676.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793675.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793654.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Motherland (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793637.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793531.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Pilot Brothers: Trilogy / Братья Пилоты: Трилогия (1997-2004
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793493.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Vesta (2018) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793492.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ The Bridge (2013) [Ru/Multi] (30.04.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793326.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Royal Detective 6: The Last Charm / Королевский детектив 6: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793282.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Cities in Motion Dilogy (2011-2013) [Ru/Multi] (1.0.0/1.6.3) Repack R.G. Мех�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793261.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Cities in Motion Dilogy (2011-2013) [Ru/Multi] (1.0.0/1.6.3) Repack R.G. Мех�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF6C7A06E0C7B2087A03EDB1FEF8B0FC3AE3D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012653   (793212) от 01.05.2016
+
+Prison Architect (2015) [Ru/Multi] (1.0/upd 6b/dlc) Repack Other s
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prison Architect - симулятор тюремного магната, с полным контролем всех аспектов жизни заключенных! Вашей задачей будет постройка и развитие самой настоящей тюрьмы. Создатели игры вдохновлялись такими хитами прошлых лет как Dwarf Fortress и Dungeon Keeper. Причём надо будет организовывать не только камеры для заключённых, но и заниматься постройкой различных служб, (   Читать дальше...   )Тип издания: RepackРазработчик: Introversion SoftwareЖанр: Strategy (Manage/Busin), Top-downЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7EF7A1E79E8957930D5ABE6C75F3B1BDE97046B
 ```
 
 https://mybot314.ru/tekegram_catalog/

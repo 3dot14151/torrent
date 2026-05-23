@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035417.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz DeNoise AI 2.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035416.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MEmu 7.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035411.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ EZ CD Audio Converter 9.2.1.1 (x64) Portable by Spirit Summer [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035407.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ dBpowerAMP Music Converter 17.3 (Retail) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035398.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Bat! Voyager 9.3.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035387.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Topaz Gigapixel AI 5.4.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035386.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe XD 36.2.32.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035384.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Glary Utilities Pro 5.202.0.231 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035367.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Aiseesoft Screen Recorder 2.7.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035366.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Glary Disk Cleaner 5.0.1.288 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035365.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Glary Utilities Pro 5.202.0.231 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035363.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Glary Disk Cleaner 5.0.1.288 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035361.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sumatra PDF 3.5.15336 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035360.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ RJ TextEd 15.82.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035359.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AOMEI Backupper Pro 6.4.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035351.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Lively Wallpaper 1.1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035343.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Glary Utilities Pro 5.202.0.231 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035333.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ R-Drive Image Technician 7.1 Build 7102 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035331.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ DesktopOK 10.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035330.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NetLimiter 5.2.2.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035327.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Glary Tracks Eraser 5.0.1.253 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035324.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ EZ CD Audio Converter 10.3.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035323.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Fort Firewall 3.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035322.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7102 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035319.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ ThunderSoft Video to GIF Converter 4.2.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035286.jpg" />
 </div>
 
 

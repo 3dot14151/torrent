@@ -1,29 +1,3 @@
-###  Публикация: 1166769   (423251) от 17.09.2017
-
-Need for Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сотрите грань между одиночным и многопользовательским режимом в постоянном соперничестве между гонщиками и полицией. Свободно войдите в мир, в котором ваши друзья уже участвуют в гонках и погонях. Забудьте об отдельных режимах игры. Никаких лобби, никакого ожидания. Вы и ваши друзья участвуете в одних и тех же гонках, ваши пути пересекаются, ваши игры сливаются.Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2B817794D6AE389AE5F42577CD6CE01EA0EEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064894   (422943) от 21.10.2016
 
 Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422943.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Grim Tales 19: Heritage (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422834.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Odallus: The Dark Call (2015) [Ru/Multi] (1.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422826.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422817.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Wolcen: Lords of Mayhem (2016) [Ru/Multi] (0.3.0 Hotfix) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422808.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Dark Tales 18: Edgar Allan Poe's The Devil in the Belfry / Тёмные исто
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422505.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ BPM: Bullets Per Minute (2020) [En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422424.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ CastleStorm 2 / CastleStorm II (2020) [Ru/Multi] (1.0) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422292.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ WWE 2K Battlegrounds (2020) [Multi] (1.0.3.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422291.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Whispered Secrets: The Story of Tideville Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422104.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2476) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421849.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) License PLAZA [Fleet Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421714.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Formula1 2012 / F1 2012 [Ru] (RePack/1.1) 2012 | Audioslave
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420795.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Tryst [En] (RePack) 2012 | SEYTER
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420785.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ Midnight Fight Express (2022) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420567.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ Robot Squad Simulator 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420459.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Breath of Darkness - Dollhaven Mystery (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420387.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Grim Tales 17: Guest From The Future / Страшные сказки 17: Гос�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420327.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ RAD (2019) [Ru/Multi] (1.0/upd1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420300.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420073.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420067.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420021.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ The Settlers®: Rise of an Empire (2008) [Multi] (1.71.4289/dlc) License GOG [Go
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420019.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Падшие неб�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419954.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Nevertales 4: Legends / Несказки 4: Легенда (2015) [Ru] Unofficia
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419904.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Nevertales 4: Legends / Несказки 4: Легенда (2015) [Ru] Unofficia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6008340644F05BC9E1A860C1BA4271A22221C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947216   (419621) от 16.10.2015
+
+Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лорд Подземелья возвращается! В Dungeons 2 вам придется уступить ненасытной жажде мести Лорда Подземелья и собрать страшных новых монстров со всех уголков подземного мира, чтобы выполнить его злую волю. В этот раз покорить подземный мир недостаточно - сейчас Лорд Подземелья распространит свое влияние на жалких людишек и попытается завоевать верхний мир!Тип издания: ЛицензияРазработчик: Realmforge StudiosЖанр: Add-on / Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B929B60238A27A2EA8EF48BE5735944E1F51739
 ```
 
 https://mybot314.ru/tekegram_catalog/

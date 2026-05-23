@@ -6,7 +6,7 @@ Dungeon Siege 3 Limited Edition + 5 DLC [Ru] (Repack/Upd2) 2011 | R.G. Packers
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512002.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ COPS 2170: The Power of Law / Власть Закона: Золотая колл
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511548.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Disgaea 6: Defiance of Destiny (2022) [Multi] (8848380/dlc) License SKIDROW [Com
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511387.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kyn (2015) [En/De] (1.0/upd4) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510610.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pesterquest (2019) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508872.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Gothic 3: Forsaken Gods / Gothic 3: Отвергнутые боги (2011) [Mult
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508765.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ I Shall Remain (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507739.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.18/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506709.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Risen: Дилогия / Risen: Dilogy [Ru] (Repack) 2009 - 2012 | {AVG}
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502982.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Dragon Forge (2022) [En] (1.0.8224) License FLT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502213.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Shadowrun: Dragonfall - Director's Cut (2014) [Ru/Multi] (2.09) Repack R.G. Ме
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501920.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Frozen State (2016) [Ru/Multi] (1.00.271) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495671.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0.0.1+FIX 0.8) 2012 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494750.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.69.4648
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494612.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Zenith (2016) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491433.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491258.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Animus - Stand Alone (2019) [Ru/Multi] (1.1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488403.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Tales of Hongyuan (2017) [En/Ch] (1.1.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487739.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Sword Coast Legends (2015) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487416.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6430.37816/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485395.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485393.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Darkwood (2017) [Ru/Multi] (1.3) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484469.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Immortals Fenyx Rising (2020) [Ru/En] (1.1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482039.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.17/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480480.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Vestaria Saga II: The Sacred Sword of Silvanister (2022) [Multi] (1.13.6) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479965.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Windbound (2020) [Ru/Multi] (1.0.36896.31/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478516.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1590032   (189250) от 12.11.2022
-
-Джиджи и Нэйт / Gigi & Nate (2022) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-cюжет картины рассказывает о Нейте Гибсоне, жизнь которого переворачивается с ног на голову после того, как он переносит серьезную болезнь и остается парализованным. Герой находится в отчаянии и не видит впереди просвета для себя, пока не встречает Джиджи — любопытную и умную обезьяну-капуцина, которая помогает Нейту обрести надежду.Производство: Швейцария, Великобритания, США / Free Turn, Tempo Productions LimitedЖанр: драма, семейныйРежиссер: Ник ХэммАктеры: Марша Гей Харден, Зои Маргарет Коллетти, Джозефина Лэнгфорд, Джеймс Белуши, Дайан Лэдд, Тара Саммерс, Ханна Аллигуд, Брент Секстон, Чарли Роу, Сара СтафферПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: английские (Full), (SDH)Продолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98C78AF66EE23A906CF6661A7AFE8FE419492A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590118   (189247) от 12.11.2022
-
-Пэрл / Pearl (2022) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-1918 год. В мире бушует Первая мировая война и пандемия «испанки», а на техасской ферме мается девушка Пэрл. Она мечтает вырваться из этой глухомани и стать танцовщицей, но вместо этого вынуждена подчиняться строгой матери, ухаживать за парализованным отцом и покорно дожидаться мужа с фронта. Когда Пэрл узнаёт, что в ближайшем городке будет проходить прослушивание (   Читать дальше...   )Производство: США, Канада / A24, Bron Creative, Little LambЖанр: ужасы, драмаРежиссер: Тай УэстАктеры: Миа Гот, Тэнди Райт, Эмма Дженкинс-Пурро, Алистэр Сьюэлл, Amelia Reid, Gabe McDonnell, Лорен Стюарт, Тодд Риппон, Grace Acheson, Дэвид КоренсветПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские (Full), (SDH)Продолжительность: 01:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9385D91D27B5D8169A38C90F403E7033360C6D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590006   (189239) от 12.11.2022
 
 Пассажиры ночи / Les passagers de la nuit / The Passengers of the Night (2022) WEB-DL [H.264/1080p] [Локализованная версия]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189239.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189235.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189229.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189221.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189218.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189194.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189192.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189169.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189161.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189152.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189148.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189145.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189142.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189135.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189131.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189129.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189120.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189117.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189112.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189111.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189110.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189106.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189105.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189103.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AA01FAE511719EEA2316D7183BD4FBDA22FA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660375   (189102) от 13.09.2023
+
+Девичник: Убойная ночь / Fear the Night (2023) WEB-DLRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восемь девушек отправляются на девичник на отдаленной ферме в Калифорнийских холмах. Во время вечеринки злоумышленники в масках окружают дом и начинают обстреливать гостей. Одна из тусовщиц Тесс, ветеран иракской войны, которая преодолевает свои травмы и борется с трудностями в общении с людьми, берет на себя руководство в противостоянии нападающим и пытается защитить (   Читать дальше...   )Производство: США / BondIt, Buffalo 8 Productions, Quiver DistributionЖанр: ужасы, боевик, триллерРежиссер: Нил ЛабутАктеры: Мэгги Кью, Кэт Фостер, Хайди Куан, Ито Агайере, Филип Берк, Джеймс Карпинелло, Крис Корбин, Джиа Кроватин, Трейса Гари, Трэвис ХаммерПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, УкраинскийСубтитры: отсутствуютПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A635F0319025CF235A5FF35C7FA8F44FF6A9A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660464   (189091) от 13.09.2023
+
+Гипнотик / Hypnotic (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель жизни детектива Дэнни Рурка — найти пропавшую дочь. Параллельное расследование серии преступлений, совершенных при необъяснимых обстоятельствах, все глубже погружает Рурка в ирреальность происходящего и ставит под сомнение все его принципы и убеждения. Заручившись поддержкой одаренного экстрасенса Дианы Крус, Дэнни вступает в смертельно опасное противостояние (   Читать дальше...   )Производство: США / Blue Rider Pictures, Double R Productions (II), Hoosegow ProductionsЖанр: Боевик, триллер, детектив, фантастикаРежиссер: Роберт РодригесАктеры: Бен Аффлек, Алиси Брага, Уильям Фихтнер, Дж.Д. Пардо, Дайо Окенийи, Джефф Фэйи, Джеки Эрл Хейли, Зейн Холц, Рубен Хавьер Кабальеро, Келли ФрайПеревод: Дублированный, Профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full)Продолжительность: 01:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62CDD364C456C997C4A9CD93AAAFF18CFD84453
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 735696   (229031) от 18.12.2013
-
-Довольно добрый человек / En ganske snill mann (2010) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Ульрик — довольно добрый человек. Он убил кое-кого, а кого-то покалечил. Но все это — просто неизбежные особенности работы гангстера. Так же, как и мотать срок.
-Ульрик вышел из тюрьмы. Без всякого удовольствия... На свободе его ожидает Йенсен — босс, который заботится о своих людях. Йенсен находит Ульрику жилье, работу и покупает пистолет — он требует, чтобы Ульрик (   Читать дальше...   )Производство: Норвегия, Paradox ProduksjonЖанр: Драма, комедия, криминалРежиссер: Ганс Петтер МоландАктеры: Стеллан Скарсгард, Йорунн Кьеллсби, Бьёрн Флоберг, Гард Б. Эйдсвольд, Яннике Крусе, Бьорн Сундквист, Хьерсти Холмен, Йон Ёигарден, Ян Гуннар Рёйсе, Юлия Бахе-Вииг, Пер Фриш, Фрэнк Иверсен, Хенрик Местад, Андерс Баасмо Кристиансен, Аксель Хенни и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: РусскийФормат: DVD9Продолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1F1E0672F3008BD9E0BF4A8302ABE48668B48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424303   (229023) от 16.11.2020
-
-Дети солнца (2019) WEBRip [H.264/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Четыре истории настоящих героев, которые столкнулись с такими диагнозами, как ДЦП, аутизм и синдром Дауна. История рассказывает, с какими сложностями ежедневно борются люди с инвалидностью, о тех, для кого жизнь – это борьба, постоянное испытание. Сложности они преодолевают собственным упорством, трудолюбием и силой воли.Производство: КазахстанЖанр: ДрамаРежиссер: Нияз АбдигапарАктеры: Азиз Бейшеналиев, Шарип Серик, Асемгуль Ибраева, Нияз Абдигапар, Ержан ТусуповЯзык озвучки: РусскийСубтитры: Казахские (hardsub)Продолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04259DBE9A929AF78434332ABEF200C56E5FD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586155   (228979) от 08.12.2012
 
 Молодожены / Just Married (2003) [H.264] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228979.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228976.jpg" />
 </div>
 
 
@@ -114,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228961.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228955.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228936.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228925.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228922.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228896.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228883.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228860.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228852.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228842.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228841.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228833.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228783.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228779.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228769.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228762.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228696.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228679.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228674.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228660.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228650.jpg" />
 </div>
 
 
@@ -667,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228648.jpg" />
 </div>
 
 
@@ -678,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE5FF54D4D63C2079D785D4BED406CFF0937465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586308   (228642) от 08.12.2012
+
+Взвейся в небо / Возвращение на базу / R2B: riteontu beyiseu / Al-too-bi: Riteon too beiseu / Soar Into The Sun / R2B: Return 2 Base (2012) HDTVRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летчик-истребитель Чжон Тэ-Хун, служащий в элитном отряде ВВС «Черный Орел», совершил дерзкий поступок, сорвав авиа-шоу. Что он сделал? Всего ничего, чтобы доказать свое мастерство управления истребителем, парень выполнил фигуру высшего пилотажа, которую никто ранее до него не мог исполнить. Все это обрушило на Тэ-Хуна большие неприятности и угрозу увольнения. После (   Читать дальше...   )Производство: Корея Южная / Zooomoney Entertainment, Red Muffler, CJ EntertainmentЖанр: боевик, драма, мелодрамаРежиссер: Ким Дон-вонАктеры: Рэйн, Ю Джун-сан, Ким Сон-су, Ли Ха-на, Ли Джон-сок, Чон Сог-вон, Пэк Пон-ги, Ха Су-хо, Чон Гён-хун, Щин Сэ-гёнПеревод: Двуголосый любительский (den904 и DeadSno)Субтитры: Русские (отдельным файлом *.srt)Продолжительность: 01:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FD88954F93998A4837D6C4CEAC38FA94AD5ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267835   (228622) от 09.12.2018
+
+Красавица и псы / Aala Kaf Ifrit (2017) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время студенческой вечеринки 21-летняя Мариам встречает симпатичного Юсуфа и уходит вместе с ним. Так начинается долгая ночь, в ходе которой девушке придётся бороться за свои права и достоинство. Это оказывается ещё сложнее, когда Мариам понимает, что закон находится на стороне её мучителей.Производство: Тунис, Франция, Швеция / Tanit Films, Laika Film & TelevisionЖанр: Триллер, Драма, КриминалРежиссер: Каутер Бен ХаньяАктеры: Мариам Аль Ферджани, Ганем Зрелли, Номен Хамда, Мохамед Аккари, Чедли Арфауи, Арисса Дауд, Мурад Гарсалли, Недер ГухатиПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 01:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65C46357E8E9A7DFFBF294F2939418630776B66
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043887.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lapis Re:LiGHTs | Лазурные огни [2020, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042780.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Houkago Teibou Nisshi | Diary of Our Days at the Breakwater | Рыбалка д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042770.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hachi-nantte, Sore wa Nai Deshou! | The 8th Son? Are You Kidding Me? | Вось�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042769.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Eikoku Koi Monogatari Emma | Emma: A Victorian Romance | Эмма: Виктор�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042110.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dr. Stone | Доктор Стоун [ТВ-1][2019, TV, 24 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040732.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Takamiya Nasuno Desu! Teekyuu Spin-off | Я - Насуно Такамия! [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040628.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040619.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Toaru Kagaku no Railgun T | A Certain Scientific Railgun T | Некий науч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040488.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный к
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040474.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Uzaki-chan wa Asobitai! | Uzaki-chan Wants to Hang Out! | Узаки хочет 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039814.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039797.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039335.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Project A-ko 3: Cinderella Rhapsody | Проект А-ко III: Рапсодия
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039318.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Fairy Gone 2 | Пропавшие феи 2 [2019, TV, 12 из 12] BDRip 1080p 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039301.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Fairy Gone | Пропавшие феи [2019, TV, 12 из 12] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039291.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Saiyuuki Reload Blast | Саюки: Новый взрыв [2017, TV, 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038765.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Galaxy Angel 4 | Galaxy Angel X | Галактический ангел Икс [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038348.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Galaxy Angel Rune | Галактический ангел: Руна [2006, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038337.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037126.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kunoichi Tsubaki no Mune no Uchi | In the Heart of Kunoichi Tsubaki | Тайна
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036977.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Cuckoo no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036975.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036652.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036308.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036298.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Bannou Bunka Nekomusume Dash! | All Purpose Cultural Cat Girl Nuku-Nuku Dash | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036282.jpg" />
 </div>
 
 

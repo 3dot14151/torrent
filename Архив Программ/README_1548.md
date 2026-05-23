@@ -6,7 +6,7 @@ Serif Affinity Photo 1.10.5.1342 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RogueKiller Anti-Malware 15.8.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245127.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OBS Studio 27.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245125.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.5 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245121.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PrivaZer Pro 4.0.63 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245095.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Wise Memory Optimizer 4.1.7.120 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245081.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PC Cleaner Pro 9.2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245080.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Perfectly Clear WorkBench 4.3.0.2408 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245062.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Opera 97.0.4719.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245059.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PanoramaStudio 3.6.6 Pro RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245042.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Samsung SSD Magician Tool 7.1.0.770 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245039.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wise Registry Cleaner Pro 10.8.2.703 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245033.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Internet Download Manager 6.41 Build 10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245032.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Mp3tag 3.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245021.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CrystalDiskInfo 8.17.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245015.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Display Driver Uninstaller 18.0.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245007.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ IObit Uninstaller Free 12.4.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245006.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Google Chrome 111.0.5563.111 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245005.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ WinTools.net Premium 22.7 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244998.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Kerish Doctor 2022 4.90 (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244992.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Blender 3.3.5 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244982.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Monkey's Audio 10.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244976.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Wise Care 365 Pro 6.3.3.611 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244975.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ OCCT 12.0.0.b8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244960.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Kerish Doctor 2022 4.90 (DC 31.03.2022) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244947.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Radiant Photo 1.1.0.257 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244943.jpg" />
 </div>
 
 

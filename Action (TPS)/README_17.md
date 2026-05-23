@@ -6,7 +6,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1) SteamRip R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691136.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bullet Witch (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690951.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ One Piece: World Seeker (2019) [Ru/Multi] (1.0.1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687723.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tomb Raider (2013) [Ru/Multi13] (1.01.748.0/16 DLC) RePack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685739.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684993.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (1.0) Rip R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683496.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680563.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680551.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Vanquish (2017) [Ru/Multi] (1.05) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678706.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677877.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676210.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Action Legion (2016) [En] (1.2.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675778.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Action Legion (2016) [En] (1.2.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675700.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Resident Evil 0 / BioHazard 0 HD Remaster (2016) [Ru/En] (1.0/dlc) Repack R.G. �
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675639.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Conflict: Anthology / Конфликт: Антология (2002-2008) [Ru]  Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674865.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673722.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Assassin's Creed Трилогия [Ru] (RePack) 2008-2011 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673606.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.767.2/dlc) License CPY [20 Year C
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670410.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.02) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670020.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Inversion (2012) [Ru/Multi] (5.48) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668812.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (20170523/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668702.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Brutal Legend (2013) [Ru/Multi] (1.0/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666314.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Aragami (2016) [Ru/Multi] (01.09) Repack Other s [Collector's Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665769.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665306.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Dead Rising (2016) [Ru/En] (1.0.0.1/u3) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665043.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ DmC: Devil May Cry (2013) [Ru] (1.0r3/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665038.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ornette Coleman - The Empty Foxhole (1966) /2015, Universal/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564633.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tiny Grimes - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564208.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stylus - Best Kept Secret (1978) 2014, EMI [FLAC|Lossless|tracks + .cue] <Funk ,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564104.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Alexis P. Suter Band - Be Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564100.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Marva Wright & The First Revolution Gospel Singers - Glory Glory Hallelujah (199
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564094.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tolga Trio - Point Of View (2011) [MP3|320 kbps] <Gypsy Jazz, Swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564055.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Golden Gospel Singers - Glory, Glory, Hallelujah (Unknown) [FLAC|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563974.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Matthew Gee All-Stars - Jazz By Gee! (1956) 1996, Original Jazz Classics[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563838.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dexter Gordon - 12 Classic Albums 1947-1962 (2015) 6CD, Enlightenment [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563831.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Walter Trout - The Outsider (2008) [MP3|320 kbps]<Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563807.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bobby Jaspar - Three Classic Albums Plus (1956, 1957) 2CD, 2017, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563746.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Milt Jackson - Quartet (1955) Remaster, 2013, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563745.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563742.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Fred Hersch - Songs Without Words (2001) 3CD, Nonesuch Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563635.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Judy Garland - Chasing Rainbows (1936 - 1939) 1989, Remember [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563620.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - This Is Vocal Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563370.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Awek - It's Rollin' (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563303.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Barrence Whitfield - Raw,Raw,Rough! (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563209.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Barbara Blue - Sell My Jewelry (2001) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563072.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Becca Langsford - Big Surprise (2011) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563062.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Jimmy McGriff - The Worm (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562853.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Luciana Souza - 6 Albums (2001-2009) [MP3|320 kbps]<Brazilian jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562806.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ George Gershwin - Rhapsody In Blue - An American In Paris (James Levine & Chicag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562699.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Bobby Bryant - Earth Dance (1969) 2011, EMI Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562276.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Hadley Caliman & Pete Christlieb - Reunion (2010) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562275.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ Ray Brown Trio - Live From New York To Tokyo (1987, 1989) 2CD, 2003, Concord Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562270.jpg" />
 </div>
 
 

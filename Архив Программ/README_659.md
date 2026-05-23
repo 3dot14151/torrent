@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717403.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SRWare Iron 51.0.2700.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717370.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CleanMyPC 1.7.4.258 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717369.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JetBrains DataGrip 2016.1.1 Build #DB-145.863 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717363.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NVIDIA GeForce Desktop 368.39 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717362.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Windows and Office ISO Download Tool 2.03 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717360.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tor Browser Bundle 6.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717353.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DVDFab 9.2.4.4 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717351.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ashampoo Photo Commander 16.0.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717294.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Advanced SystemCare Ultimate 9.1.0.710 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717248.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ KMS Tools Portable 07.06.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717240.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Autodesk 3ds Max 2017 SP1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717232.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Recuva 1.53.1087 Professional | Technician Edition RePack (& portable) by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717228.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SamDrivers 16.6 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717226.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Zoner Photo Studio Professional 17 Build 9 DC 27.04.2015 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717206.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Display Driver Uninstaller 15.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717201.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ashampoo Snap 10.0.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717173.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ashampoo Driver Updater 1.2.0.49468 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717167.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Macrium Reflect 7.1.2963 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717161.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Q-Dir 8.69 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717095.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ JetBrains WebStorm 10.0.2 Build #WS-141.728 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717088.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Video Thumbnails Maker Platinum 6.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717087.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ MyLanViewer 4.18.7 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717084.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.5023.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717037.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Office 2013 SP1 Standard 15.0.5023.1000 (2018.04) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717035.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Microsoft Office Professional 2003 SP3 (2018.04) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717029.jpg" />
 </div>
 
 

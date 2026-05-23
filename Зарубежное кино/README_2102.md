@@ -1,55 +1,3 @@
-###  Публикация: 1716727   (58710) от 24.04.2024
-
-Лучшие хиты / The Greatest Hits (2024) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Харриет пытается пережить страшную трагедию в своей жизни: ее парень Макс погиб в аварии. Она замечает, что прослушивание любимых песен, напоминающих о нем, переносит её в прошлое, притом буквально. Но в настоящем она знакомится с Дэвидом, который тоже недавно пережил утрату. Харриет начинает с ним сближаться, но не может отпустить Макса. И ей придется серьезно задуматься (   Читать дальше...   )Производство: США / Far Hills Pictures, Groundswell Productions, Searchlight PicturesЖанр: мюзикл, фэнтези, драма, мелодрама, комедияРежиссер: Нед БенсонАктеры: Люси Бойнтон, Дэвид Коренсвет, Джастин Х. Мин, Ретта, Джексон Келли, Кэндис Джу, Рори Кин, Остин Крут, Thomas Ochoa, Том ИПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанские, русские (forced, full)Продолжительность: 01:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB6B64650B96418CD5F73A871E77B245279D271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718274   (58700) от 24.04.2024
-
-Код 8: Часть 2 / Code 8: Part II (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Девушка с аномальными способностями случайно становится невольной свидетельницей жестокого убийства своего родного брата. Стремясь воздать убийцам по заслугам, она обращается за помощью к бывшему заключенному и его подельнику. Объединив силы, они быстро выходят на след убийц — коррумпированных полицейских, которые, чтобы защитить себя от разоблачения, используют (   Читать дальше...   )Производство: США, Канада / Collective Pictures, XYZ FilmsЖанр: фантастика, боевик, триллер, драма, криминалРежиссер: Джефф ЧанАктеры: Робби Амелл, Стивен Амелл, Аарон Абрамс, Джин Юн, Сирена Гуламгаус, Алекс Маллари мл., Натали Ликонти, Серена Пармар, Мо Жюди-Ламур, Mikayla SwamiNathanПеревод: Дублированный (укр. Le Doyen / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABD4D64DF8C8A471186D6D1FC9849405F3AC9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718275   (58698) от 24.04.2024
 
 Мятежная Луна, часть 2: Оставляющая шрамы / Rebel Moon - Part Two: The Scargiver (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58698.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58694.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58691.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58685.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58679.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58677.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58675.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58648.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58641.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58640.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58610.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58608.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58607.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58603.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58602.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58594.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58589.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58585.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58584.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ SуперКопы: Миссия «Бабушка» / 3 jours max / Only 3 Days L
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58583.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58579.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58568.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58549.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58543.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0220AB7D80EEEF9FB0A349381B2E3B72FF274B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683552   (58507) от 26.04.2024
+
+Создатель / The Creator (2023) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повсеместное применение искусственного интеллекта привело к тому, что в Лос-Анджелесе произошёл ядерный взрыв. С тех пор коллективный Запад во главе с США ведёт непримиримую войну на уничтожение ИИ, но блок стран Юго-Восточной Азии — Новая Азия — живёт в гармонии с роботами и сдаваться не собирается. В 2065 году спецназовец Джошуа находился в тылу врага, с целью (   Читать дальше...   )Производство: США / 20th Century StudiosЖанр: фантастика, боевик, драмаРежиссер: Гарет ЭдвардсАктеры: Джон Дэвид Вашингтон, Мэделин Юна Войлс, Джемма Чан, Эллисон Дженни, Кэн Ватанабэ, Стерджил Симпсон, Амер Чадха-Пател, Марк Менчака, Робби Танн, Ральф АйнесонПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27260ED202F1EBEF2DA1FEF5A5FCC1D7FE886F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718735   (58495) от 26.04.2024
+
+Городской охотник / Shiti Hanta / City Hunter (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на манге “Цукаса Ходзо”. Главный герой - Рё Саеба, мастер стрельбы и плейбой. Он объединяется с сестрой своего умершего партнера, чтобы расследовать ее смерть.Производство: Япония / Horipro Inc., Netflix Studios, Office ShirousЖанр: боевик, мелодрама, комедия, криминал, детективРежиссер: Юити СатоАктеры: Рёхэй Судзуки, Мисато Морита, Масанобу Андо, Фумино Кимура, Асука Ханамура, Исао Хасидзумэ, Тэтта Сугимото, Аямэ Мисаки, Такая Сакода, Моэми КатаямаПеревод: Двуголосый любительский (Zetflix)Язык озвучки: Русский, Японский, АнглийскийСубтитры: Русские, Украинские, Японские (forced, full, SDH), Английские (forced, full, SDH)Продолжительность: 01:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9588F49E0FD4779C2655DDD5B94416F5D3F57121
 ```
 
 https://mybot314.ru/tekegram_catalog/

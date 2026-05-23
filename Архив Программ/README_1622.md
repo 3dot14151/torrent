@@ -6,7 +6,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227098.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 7 Pro SP1 x86 JAWS15 для незрячих. 2015.12.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227091.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PC Cleaner Pro 8.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227085.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Loaris Trojan Remover 3.1.3.241 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227081.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Sandboxie 5.44.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227070.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ ScreenPresso Pro 1.7.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227068.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Photoshop 2023 24.7.0.643 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227065.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ EarthView 6.7.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227056.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Autorun Organizer 4.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227036.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Aiseesoft Video Converter Ultimate 10.1.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227034.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Bandicam 4.3.0.1479 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227031.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Futuremark 3DMark 2.15.7088 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227018.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 Manager 3.3.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227009.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ LibreOffice 7.2.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226989.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ eM Client Pro 7.2.37472.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226979.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ ContaCam 9.9.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226966.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ashampoo UnInstaller 10.00.12 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226956.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ USDownloader 1.3.5.9 Portable (30.11.2019) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226955.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ TechSmith SnagIt 2020.0.2 Build 4781 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226948.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Google Chrome 87.0.4280.66 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226947.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ iTunes 12.3.2.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226941.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Cockos - REAPER 5.99 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226918.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6739.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226916.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Emsisoft Emergency Kit 2019.10.0.9800 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226911.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ TweakPower 1.079 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226896.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VueScan Pro 9.7.37 (DC 16.11.2020) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226893.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1821578   (63971) от 02.10.2025
-
-Война будущего / The Tomorrow War (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Декабрь 2022 года. Во время финала чемпионата мира по футболу в Катаре на поле высаживается десант из будущего. Прибывшие заявляют, что через 30 лет Земля подвергнется инопланетному вторжению, и, если люди настоящего не помогут людям будущего, то человечество прекратит существование. Так начинается принудительная отправка граждан на войну, с которой возвращаются (   Читать дальше...   )Производство: США / Amazon Studios, Lit Entertainment Group, New Republic Pictures, Paramount Pictures,Жанр: фантастика, боевик, ужасыРежиссер: Крис МакКейАктеры: Крис Пратт, Ивонн Страховски, Дж.К. Симмонс, Бетти Гилпин, Сэм Ричардсон, Жасмин Мэтьюз, Эдвин Ходж, Райан Кира Армстронг, Кит Пауэрс, Мэри Линн РайскабПеревод: Дублированный (31 канал) + пара вставок HDRezka, многоголосый (''Favvora Film'')Язык озвучки: Русский, узбекскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D424DCD07343D07286D4567A3BCB0F0F353A36A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454938   (63936) от 03.10.2025
-
-Соседи сверху / Sentimental (2020) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Хулио и Ана больше 15 лет вместе. Между ними давно нет огня, только ежедневная перестрелка колкостями. Почти единственное, что их ещё сближает — обсуждение Сальвы и Лауры из квартиры этажом выше: что ни ночь, оттуда доносятся возмутительно страстные стоны. А однажды они заходят в гости с невероятным предложением. И жизнь всех четверых получает неожиданную встряску.Производство: Испания / Impossible Films, Institut Català de les Empreses Culturals (ICEC), Movistar+Жанр: КомедияРежиссер: Сеск ГайАктеры: Белен Куэста, Хавьер Камара, Альберто Сан Хуан, Гризельда СицилианиПеревод: Дублированный (iTunes)Язык озвучки: Русский, испанскийСубтитры: ОтсутствуютПродолжительность: 01:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688579775143DC3F63646C144C523A1BCEBED0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434161   (63934) от 03.10.2025
 
 Долгая помолвка / Un long dimanche de Fiancailles / A Very Long Engagement (2004) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63934.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63922.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63916.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63914.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63913.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63896.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63895.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63891.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63883.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63819.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63813.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63799.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63796.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63787.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63784.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63781.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63776.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63775.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63760.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63753.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63750.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63694.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63675.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63668.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8575484A8EA8E20EFA496C5558380B4B20E4FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407080   (63649) от 08.03.2024
+
+Интимный словарь / The Sleeping Dictionary (2003) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная островитянка становится добровольной наложницей английского чиновника. Девушек, подобных нашей героине, называют «интимными словарями»: они помогают колонистам осваивать местный язык и обычаи — в постели. Но на этот раз между обворожительным «интимным словарем» и ее хозяином вспыхивает любовь. К несчастью, влюбленных безжалостно разлучают. Спустя год молодой (   Читать дальше...   )Производство: Великобритания, США, Германия / Fine Line Features, Hat Trick Productions, New Line Productions Inc.Жанр: драма, мелодрамаРежиссер: Гай ДженкинАктеры: Джессика Альба, Хью Дэнси, Бренда Блетин, Боб Хоскинс, Кристофер Линг Ли Йен, Юникс Инокян, Майкл Джессинг Лангги, Мано Маниам, К.К. Могги, Эмили МортимерПеревод: Профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (Full), английскиеПродолжительность: 01:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A982412155F2844F9D69DF1A53A9FA8AF1C831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705278   (63648) от 08.03.2024
+
+Дьявол в деталях. Дело Миранды / Mirandas Victim (2023) BDRip [H264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина подверглась жестокому нападению. Как выяснилось, произошедшее — лишь одно из звеньев в цепочке нераскрытых преступлений, совершенных серийным убийцей. Виновен ли один из подозреваемых или все происходящее — это часть чьей-то хитроумной игры?Производство: США / All in Films, Bee Holder Productions, Navesink River ProductionsЖанр: Триллер, драма, криминал, биографияРежиссер: Мишель ДэннерАктеры: Эбигейл Бреслин, Райан Филипп, Кайл Маклоклен, Тэрин Мэннинг, Мирей Инос, Эмили ВанКэмп, Дональд Сазерленд, Нолан Гулд, Люк Уилсон, Джош БоуманПеревод: Дублированный (Paragraph Media), профессиональный многоголосый (TVShows, Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 02:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A757D002543C4811AE0DE0231F72BB9E73C28BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

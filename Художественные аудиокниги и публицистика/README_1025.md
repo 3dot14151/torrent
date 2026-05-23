@@ -1,84 +1,3 @@
-###  Публикация: 413476   (46969) от 13.08.2024
-
-Вадим Бурлак | Копьё судьбы (2006) [MP3, Виктор Зозулин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Романтика приключений и путешествий.
-Доктора философских наук Международной академии наук Сан-Марино, руководителя исследовательской программы «Тайны времен и народов», писателя и путешественника Вадима Бурлака всегда манило неизведанное, малоизученное. Названия его удивительных книг говорят сами за себя: «Рыцари мадам Авантюры», «Хранители древних тайн», (   Читать дальше...   )Жанр: Русская историческая литература, повестьИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 07:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE52AE2A0D2EBEA9619E1E109FD409B8DF8483C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413469   (46966) от 13.08.2024
-
-Вадим Бурлак | Хранители древних тайн (2005) [MP3, Вадим Бурлак]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Романтика приключений и путешествий.
-Более 130 экспедиций совершил по всему миру писатель путешественник Вадим Николаевич Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Писатель слой за слоем снимает для нас пласты веков, не утверждая и не навязывая свое мнение, но предлагая (   Читать дальше...   )Жанр: Русская историческая литература, новеллаИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 05:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5F09C3C2973766C0AB22ED748FE0DBF61ECA4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413466   (46943) от 13.08.2024
-
-Вадим Бурлак | Роковые маски (2007) [MP3, Евгений Маслак]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Тайны. Приключения. Путешествия.
-Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Николаевич Бурлак. Поэтому кому, как не ему, рассказать нам, оседлым жителям мегаполисов, о самом волнующем, о том, что потрясло бы наше воображение. В своих новеллах – одновременно и исторических, и фантастических – он вновь и вновь приоткрывает (   Читать дальше...   )Жанр: Русская историческая литература, новеллаИздательство: Говорящая книга, ООО «Авто-Книга»Продолжительность: 05:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10261443E6B602A773CD79A511056046EA1158D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742796   (46929) от 13.08.2024
 
 Иннокентий Белов | Слесарь (Книга 19). Черноземье 2 (2024) [MP3, Юрий Иванов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46929.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46911.jpg" />
 </div>
 
 
@@ -143,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46854.jpg" />
 </div>
 
 
@@ -171,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46848.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46837.jpg" />
 </div>
 
 
@@ -226,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46836.jpg" />
 </div>
 
 
@@ -254,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46797.jpg" />
 </div>
 
 
@@ -280,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46725.jpg" />
 </div>
 
 
@@ -307,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46720.jpg" />
 </div>
 
 
@@ -334,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46692.jpg" />
 </div>
 
 
@@ -363,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46687.jpg" />
 </div>
 
 
@@ -389,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46624.jpg" />
 </div>
 
 
@@ -415,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46553.jpg" />
 </div>
 
 
@@ -444,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46526.jpg" />
 </div>
 
 
@@ -472,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46511.jpg" />
 </div>
 
 
@@ -498,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46506.jpg" />
 </div>
 
 
@@ -526,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46501.jpg" />
 </div>
 
 
@@ -552,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46495.jpg" />
 </div>
 
 
@@ -578,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46487.jpg" />
 </div>
 
 
@@ -604,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46476.jpg" />
 </div>
 
 
@@ -630,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46439.jpg" />
 </div>
 
 
@@ -657,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46430.jpg" />
 </div>
 
 
@@ -683,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46416.jpg" />
 </div>
 
 
@@ -695,6 +614,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF005829E8741E61039F8A8670617EBA32B5D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743925   (46404) от 18.08.2024
+
+О.Шеллина (shellina), Amaranthe | Пётр Романов (Книга 1). Второй шанс (2024) [MP3, Богарт]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46404.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Велите сани запрягать, к сестрице своей, Наташеньке, поеду!»
+На этом жизненный путь императора Петра II закончился в нашем мире, но по воле случая, бога, магического артефакта, а может по ошибке, его заносит в параллельный мир, где Романовы никогда не правили, идут разборки влиятельных кланов между собой, развиты технологии, все близкие живы… и, да, тут есть магия. (   Читать дальше...   )Жанр: Попаданцы в магические миры, Бояръ-Аниме, Героическое фэнтезиИздательство: ЛитРес: Чтец, Автор
+Категория: 16+Продолжительность: 07:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE5DC7837C7157EE26287D319BC2D5A3B81E21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743927   (46385) от 18.08.2024
+
+О.Шеллина (shellina), Amaranthe | Пётр Романов (Книга 3). Клирик (2024) [MP3, Богарт]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пётр многому научился в монастыре. И это ему очень пригодится в дальнейшей жизни. Ведь пригодится же?Жанр: Попаданцы в магические миры, Бояръ-Аниме, Героическое фэнтезиИздательство: ЛитРес: Чтец, Автор
+Категория: 16+Продолжительность: 07:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9768CEF826E2F8E1F33847A577CFCE567341A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743814   (46371) от 18.08.2024
+
+Дмитрий Лифановский | Скиталец среди миров  (Книга 1) (2024) [MP3, Мухамет Закиров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я уже не помню сколько жизней прожил. Почти забыл самую первую. Но каждый раз умирая, воскресаю в новом мире в том самом теле семнадцатилетнего парня из маленького сибирского городка. И все приходится начинать сначала. Разве что накопленные в предыдущих жизнях знания остаются. А кем я только не был. Воином-кочевником, вождем первобытного племени, музыкантом-бардом, (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Боевое фэнтезиИздательство: Пересадочная станцияПродолжительность: 07:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9314191AC2E7E062D20448394BA1163FE0C3CE39
 ```
 
 https://mybot314.ru/tekegram_catalog/

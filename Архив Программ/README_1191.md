@@ -6,7 +6,7 @@ NetWorx 5.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439917.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Glary Utilities Pro 5.127.0.152 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439866.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Take Command 25.00.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439857.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinCatalog 2019 19.1.0.831 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439855.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Radiocamp 0.1.8.0 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439853.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox Quantum ESR 68.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439847.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BurnAware Professional 11.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439830.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ O&O SafeErase Professional + Workstation + Server 12.7.182 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439826.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Aiseesoft Video Converter Ultimate 9.2.52 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439816.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bulk Crap Uninstaller 4.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439808.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AusLogics BoostSpeed 10.0.16.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439807.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ FPS Monitor 5271 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439784.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Toolkit 2.6 Beta 4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439740.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Vit Registry Fix Pro 12.6.5 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439736.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ EF Commander 19.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439681.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Mozilla Thunderbird 68.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439677.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Far Manager 3.0 Build 5454 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439666.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Wise Disk Cleaner 9.7.9.696 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439636.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Malwarebytes AdwCleaner 7.2.4.0 Beta DC 21.09.2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439634.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Display Driver Uninstaller 18.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439632.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ WinX DVD Ripper Platinum 8.8.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439630.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Skype 7.12.32.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439561.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Office 2016 Install v4.4 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439559.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Sweet Home 3D 5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439547.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Pale Moon 25.7.2 + Portable + tools [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439546.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ CrystalDiskInfo 8.3.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439488.jpg" />
 </div>
 
 

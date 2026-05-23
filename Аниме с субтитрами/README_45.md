@@ -6,7 +6,7 @@ Ano Natsu de Matteru | AnoNatsu | Waiting in the Summer | Ждём тебя ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747000.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746848.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746213.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ To Heart 2 | ToHeart 2 | Для сердца 2 (TV 2) [2005, TV, 13 + 1 эп.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745567.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ToHeart2 | To Heart 2 OVA | Для сердца 2 OVA-1 [2007, OVA, 3 эп.] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745564.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ To Heart | ToHeart | Heart To Heart | Для сердца (TV 1) [1999, TV, 13 +
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745561.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gekijouban Card Captor Sakura|Fuuin Sareta Card / Cardcaptor Sakura: The Movie|T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745350.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Overman King Gainer | Король Гэйнер [2002, TV, 26 из 26] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744072.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ ReLIFE | ReLIFE Kanketsuhen | Повторная жизнь [2016, 2018, TV+OVA,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743128.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743054.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Dagashi Kashi 2 | Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743044.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Miira no Kaikata | How to Keep a Mummy | Как ухаживать за муми
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743043.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Fate/EXTRA Last Encore | Судьба: Дополнение - Последний
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743042.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь Святых Добр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742978.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Eldlive | Эль Драйв [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742731.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 из 12] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742728.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742702.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Centaur no Nayami | A Centaur's Life | Хлопоты кентавра | Бес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742691.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Onihei: Sono Otoko, Hasegawa Heizou | Онихэй: Этот человек, Х�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742644.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Akiba's Trip The Animation | Падение Акибы [2017, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742637.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Keppeki Danshi! Aoyama-kun | Clean Freak! Aoyama-kun | Чистюля Аояма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741360.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Rizelmine | Rizerumain | Моя Ризельмина [2002, TV, 24 из 24] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741334.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Onihei | Онихей: Криминальные истории периода Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741301.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Relife | Повторная жизнь [2016, TV, 17 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740633.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Pop Team Epic | Эпическая поп-команда [2018, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740539.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740418.jpg" />
 </div>
 
 

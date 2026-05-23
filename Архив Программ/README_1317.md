@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.7 (1310) RePack (& Portable) by ZVSRus [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368202.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cent Browser 3.6.8.58 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368194.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comfy Partition Recovery 1.0 Commercial Edition Portable by Valx [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_368178.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PrivaZer 3.0.79 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368156.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Slimjet 5.0.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368150.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ MAGIX Video Pro X8 15.0.3.107 RePack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368123.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Glary Utilities Pro 5.107.0.132 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368081.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Arturia - V Collection 6 6.2.1 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368046.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Wise Care 365 Pro 5.1.9.510 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368041.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Icecream Image Resizer 1.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368035.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Icecream Slideshow Maker 1.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368030.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Loaris Trojan Remover 3.0.96.234 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368011.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MassTube Plus 12.9.8.360 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368003.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Telegram Desktop 1.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367999.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367968.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Auslogics Driver Updater 1.16.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367939.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Spectrasonics - Omnisphere Software Update v2.5.1d & Patch Library Update 2.5.2c
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367934.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Uniblue SpeedUpMyPC 2013 Build 5.3.4.2 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_367913.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Icecream Screen Recorder PRO 2.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367888.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VueScan Pro 9.7.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367878.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Daum PotPlayer 1.7.14804 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367805.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ SamDrivers 18.10 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367791.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adobe Shockwave Player 12.2.1.171 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367771.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Glary Utilities Pro 5.37.0.57 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367769.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Maxthon Browser 5.3.8.1600 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367708.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ HP Service Pack for ProLiant 2019.09.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367705.jpg" />
 </div>
 
 

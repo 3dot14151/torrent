@@ -7,7 +7,7 @@ TagScanner 6.1.21 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070235.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MuseScore 4.7.1 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070188.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Abelssoft Tagman 2025.11.02 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069952.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Simple Audio Sweeper 2.0078.341 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069249.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Guitar Pro 5.2 + RSE
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068501.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ X Radio Stream Finder 2.1 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067710.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ RarmaRadio Pro 2.77.9 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067410.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ MuseScore 4.6.5 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067304.jpg" />
 </div>
 
 
@@ -211,32 +211,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867836   (1067064) от 27.04.2026
-
-Nucleer Coffee - My Music Collection 3.4.16.175 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-My Music Collection - это самый полный музыкальный каталог, предназначенный для организации и управления музыкальными коллекциями любого типа, включая CD-диски, MP3-файлы или виниловые пластинки. Этот музыкальный органайзер позволяет создать упорядоченную базу данных компакт-дисков и просматривать ее содержимое, даже если диск лежит на полке или одолжен у вашего (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B8E5869F9A2C90FD1C492B1966976B9BA00FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867843   (1067063) от 27.04.2026
 
 X Radio Stream Finder 1.9 Portable [En]
@@ -245,7 +219,7 @@ X Radio Stream Finder 1.9 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067063.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ X Radio Stream Finder 1.8 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066915.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ X Radio Stream Finder 1.7 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066738.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ X Radio Stream Finder 1.5 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066426.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ SpotiFLAC 7.1.5 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066162.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ X Radio Stream Finder 1.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065863.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ X Radio Stream Finder 1.1 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065529.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ SpotiFLAC 7.1.4 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065366.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ SpotiFLAC 7.1.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063217.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ ZP UI 2.0.0 [Ru] (авторский релиз)
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051794.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ ZP UI 1.0.7 [Ru] (авторский релиз)
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050590.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ RHVoice - синтезаторы речи SAPI 5  v4.0 - 4.8 для Balabolka [M
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048040.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ Music Collector 21.01 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037909.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ Denemo 2.6 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035529.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ IK Multimedia Miroslav Philharmonik Orchestra & Choir Workstation 1.1 [Eng][VST,
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998714.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ Similarity 1.8.1 build 1624 [Мульти/Русский]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996283.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ Adobe Audition FLT Filters 2012 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995361.jpg" />
 </div>
 
 
@@ -687,6 +661,32 @@ AC3Filter 0.2a
 Cool FAAC 1.28
 FLAC 1.3
 Lame(   Читать дальше...   )Название программы: Adobe Audition FLT FiltersЯзык интерфейса: Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292166   (906130) от 07.02.2011
+
+AP Guitar Tuner 3.08 [Английский]
+
+>>След.
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Phonics Guitar Tuner это быстрый и точный гитарный тюнер. Используя оригинальную технологию определения высоты тона, программа точно определяет ноты с задержкой, не превышающей 50 миллисекунд. К тому же алгоритм определения тона автоматически адаптируется к быстродействию процессора для более устойчивой работы. Программа проста в использовании, имеет красивый интерфейс и главное совершенно бесплатна. Мне кажется, это лучшая программа для настройки гитары с помощью компьютера!Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash

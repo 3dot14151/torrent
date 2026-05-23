@@ -1,29 +1,3 @@
-###  Публикация: 1747001   (44755) от 03.09.2024
-
-I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-I Wani Hug that Gator! погружает вас в жизнь Инко, старшеклассника, столкнувшегося с двойным ударом: неловкостью новой школы и особенностью быть единственным человеком среди динозавров. Проследите за социальными трудностями, зарождающейся дружбой и даже потенциальным романом, когда он будет ориентироваться в этой уникальной среде.Тип издания: SceneРазработчик: CavemanonЖанр: Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747206   (44697) от 04.09.2024
 
 Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
@@ -32,7 +6,7 @@ Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44697.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44694.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44689.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.17.22308.0/dlc) Scene Tenoke [Pr
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44684.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Monster Jam Showdown (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44667.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44666.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44665.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blocky Farm (2024) [Ru/Multi] (20240830-5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44653.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sunset Hills (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44631.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44629.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sunset Hills (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44624.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sentinel Girls2: Snezhinka (2024) [Multi] (1.1.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44560.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44557.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44551.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44543.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44541.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44525.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Lone Fungus (2022) [En] (1.1.14) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44516.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44478.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Resident Evil 3 (2020) [Ru/Multi] (1.07/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44471.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44463.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1648/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44455.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Motel Manager Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44421.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (1.02.18/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44382.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.106/dlc) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44367.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Punch Club 2: Fast Forward - это двухмерный экшен-файтин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0F3A174FB429639E4D089A9D2A7FE8995506BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728188   (44355) от 07.09.2024
+
+Three Kingdoms: The Last Warlord / Три королевства: Последний военачальник (2021) [Ru/Multi] (1.0.0.4003/dlc) Scene Tenoke
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Three Kingdoms: The Last Warlord - двумерная пошаговая стратегия, основанная на китайском историческом романе Троецарство. Три королевства: Последний военачальник рассказывает про разделение Китая между тремя государствами, среди которых Вэу, Шу и Ву. Каждая фракция имеет свои особенности, показывая различия между культурами. Стройте уникальные здания и применяйте (   Читать дальше...   )Тип издания: SceneРазработчик: LongYou Game StudioЖанр: Симуляторы, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B835D80CA5B43B014980C7248FC50A8DBA5DA78
 ```
 
 https://mybot314.ru/tekegram_catalog/

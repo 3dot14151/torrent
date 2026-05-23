@@ -6,7 +6,7 @@ Shardpunk: Verminfall (2023) [Multi] (1.1.9.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15419.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15394.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15383.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Starcom: Unknown Space (2022) [Multi] (21540-a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15326.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15324.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.66) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15319.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hellslave (2022) [Multi] (1.46) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15317.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [S
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15312.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Felvidek (2024) [Ru/Multi] (1.04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15299.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Rune Factory: Guardians of Azuma (2025) [Multi] (1.0.3/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15292.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dark Souls III (3) (2016) [Ru/Multi] (1.15.2/dlc) Repack seleZen [Game of the Ye
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15291.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DELTARUNE (2025) [Multi] (1.01A) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15281.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15232.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack FitGirl [Overture Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15216.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15020.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57069/dlc) Repack seleZen [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15003.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14889.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14809.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fort
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14542.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14491.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14471.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Prison Simulator (2021) [Ru/Multi] (1.4.3.18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14322.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14276.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11166) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14074.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Heads Will Roll: Reforged (2023) [Ru/En] (2.07b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13960.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Cryptmaster (2024) [Multi] (1.112) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13935.jpg" />
 </div>
 
 

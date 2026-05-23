@@ -6,7 +6,7 @@ Paint.NET 4.1.6 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675954.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 8.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675950.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675946.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cent Browser 3.9.2.33 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675937.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Boris RED 5.00.320 (x32x64-bit) [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675923.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675897.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Auslogics BoostSpeed 9.0.0.0 DC 24.06.2016 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675895.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Punto Switcher 4.2.6 Build 1275 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675894.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Cyberfox 47.0.2 for AMD/Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675892.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ IObit Driver Booster 4.0.0.160 Beta 1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675890.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nitro4D NitroBlast v2.0.1 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675889.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Auslogics Anti-Malware 2016 1.8.0.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675887.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TeamViewer Free 14.2.2558 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675855.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Total Commander 9.22 64bit 32bit VIM 36 Matros portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675852.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Viber 6.1.1.2 Portable by Portable-RUS [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675794.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Winstep Nexus 16.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675791.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ACDSee Pro 9.3 Build 545 (x86) Lite RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675788.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ ACDSee Ultimate 9.3 Build 673 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675783.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SafenSoft SysWatch Personal 4.0.0.23 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675780.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Adobe InDesign CC 2019 14.0.2.324 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675750.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wondershare PDFelement 5.9.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675712.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Symantec Endpoint Protection 12.1.7004.6500 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675709.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14376 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_675701.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ ACDSee Pro 9.3 Build 545 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675696.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WinSnap v4.0.5[English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675557.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ FlashFXP 4.2.4 Build 1783 Final [multilanguage/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675465.jpg" />
 </div>
 
 

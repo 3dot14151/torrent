@@ -1,29 +1,3 @@
-###  Публикация: 1338513   (269386) от 15.11.2019
-
-Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Спустя 300 лет после конца света надежда людей вновь обрести свое прошлое почти угасла. Ваша задача - найти пропавший город Хьюстон с помощью АРОРЫ, мощного ИИ, способного восстанавливать воспоминания людей, анализируя оставленные ими предметы. Вы играете за женщину-профессора, которая ведет поиски провалившегося под землю города Хьюстон. Для нескольких колоний, (   Читать дальше...   )Тип издания: RepackРазработчик: Galvanic GamesЖанр: Adventure, Action, 2DЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F194687CE1ABC86B8D06659C2DF79A72C8BD18F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338269   (269299) от 15.11.2019
 
 Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
@@ -32,7 +6,7 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269299.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Iron Man [Ru/En] (RePack) 2008
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269285.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269047.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Redemption Cemetery 15: The Stolen Time (2019) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268837.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Ghost Files 2: Memory of a Crime / Дело призрака 2: След пре�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268834.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Christmas Stories 6: A Little Prince /Рождественские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268565.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268506.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Formata (2017) [Ru/Multi] (1.0) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268441.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268430.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dark City 3: Vienna / Мрачный Город 3: Вена (2019) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267979.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Unseen Fears 3: Last Dance (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267729.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Fictorum (2017) [En] (2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267664.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Dark City 2: Munich / Мрачный город 2: Мюнхен (2018) [Ru] (1.0
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267531.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ R2 Online (2008) [Ru] (1601.020) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267489.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267466.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267427.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Council - Complete Season (2018) [Ru/En] (0.9.5.6336) Repack xatab [Episode 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267381.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (2.0.1/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267271.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Royal Detective 6: The Last Charm / Королевский детектив 6: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266934.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mystery Case Files 16: The Revenants Hunt / За семью печатями: Р
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266824.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Surface 12. Project Dawn / Внешние пределы 12: Проект "За�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266684.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Frosty Nights (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266600.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Frosty Nights (2017) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266598.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.9.24446/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266566.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266533.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ What Remains of Edith Finch – сборник странных рассказо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81504725E02CCAFCF04F5218BCF6CDEF9730C49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339419   (265956) от 19.11.2019
+
+D1896 (2019) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265956.jpg" />
+</div>
+
+
+###  Подробнее
+
+D1896 — это платформер приключенческого боевика в стиле ранних фильмов ужасов, созданный по мотивам «Le Manoir Du Diable», первого фильма ужасов, который когда-либо снимался (он был выпущен в 1896 году). История D1896 основана на 3-минутном фильме Жоржа Мели (Georges Melies) "Le Manoir Du Diable", романе Брэма Стокера (Bram Stoker's) "Дракула" (   Читать дальше...   )Тип издания: RepackРазработчик: Arkhouse TelegraphЖанр: Arcade (Horror), Platform, Adventure, 2DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2901BF93A5ABD27FCDD6CF692FA5A2FB4ABF077D
 ```
 
 https://mybot314.ru/tekegram_catalog/

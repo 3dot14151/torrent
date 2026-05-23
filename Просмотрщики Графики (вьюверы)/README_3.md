@@ -1,55 +1,3 @@
-###  Публикация: 1812612   (7753) от 15.08.2025
-
-FastStone Photo Resizer 4.4 + Portable [Ru/En]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-FastStone Photo Resizer - программа для различных манипуляций с графическими файлами. С помощью FastStone Photo Resizer можно конвертировать изображения в распространенные графические форматы (JPEG, BMP, GIF, PNG, TIFF, JPEG2000, PDF), изменять размер и глубину цвета, обрезать, разворачивать под разными углами и переименовывать графику. Кроме того, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37FE8CE314AF7F65EF663A5297EB28774D4D4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815354   (5412) от 29.08.2025
-
-XnView Classic 2.52.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-XnView - утилита, предназначенная для просмотра и конвертирования графических файлов. Программа поддерживает работу с огромным числом форматов (как импорт, так и экспорт), способна создавать анимированные изображений, работает с метаданными, предоставляет возможности для редактирования IPTC. Также XnView (кроме стандартных опций изменения размера, поворота и обрезания (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26546F7C1595A3AF429B45FF69A5966B25F783EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809936   (2703) от 15.09.2025
 
 FastStone Image Viewer 8.1 Corporate + Portable [Multi/Ru]
@@ -58,7 +6,7 @@ FastStone Image Viewer 8.1 Corporate + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2703.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Adobe Bridge 2025 15.1.2.737 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2668.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Imagine 2.2.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1166.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ XnView MP 1.9.4 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65.jpg" />
 </div>
 
 

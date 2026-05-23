@@ -1,81 +1,3 @@
-###  Публикация: 1389685   (784172) от 11.06.2020
-
-Виктор Пелевин | iPhuck 10 (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Порфирий Петрович – литературно-полицейский алгоритм. Он расследует преступления и одновременно пишет об этом детективные романы, зарабатывая средства для Полицейского Управления. Маруха Чо – искусствовед с большими деньгами и баба с яйцами по официальному гендеру. Ее специальность – так называемый “гипс”, искусство первой четверти XXI века. Ей нужен помощник для (   Читать дальше...   )Жанр: Русская литератураПродолжительность: 12:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3746AB2DA47893F3B75C36AF384A3D4AC566C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204970   (784078) от 08.02.2018
-
-Иван Баграмян | Так шли мы к победе (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Воспоминания Маршала Советского Союза Ивана Христофоровича Баграмяна являются прямым продолжением его первой мемуарной книги «Так начиналась война». В них автор анализирует ход боевых действий советских войск на различных участках, где ему довелось принимать участие в руководстве войсками, возглавляя крупные штабы, командовать армией, а затем фронтом. С большой душевной (   Читать дальше...   )Жанр: Bоенная проза, мемуарыПродолжительность: 56:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DF095144F96E29281697E42ED66B6AC261A3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205055   (784025) от 08.02.2018
-
-Марина и Сергей Дяченко | Медный король (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет аудиокнигу «Медный король» популярной серии известных писателей-фантастов Марины и Сергея Дяченко – «Бродячая Искра». Мир велик и опасен: небо патрулируют всадники на огромных птицах, в пещерах водятся донные драконы, и четвероногие люди – зверуины – вершат правосудие на своей земле. Кто ведает, что стало бы с мальчишкой-рабом, если (   Читать дальше...   )Жанр: Героическая фантастикаПродолжительность: 23:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8C7BF46952CBBFCC26794A342605A0E8724B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205062   (784003) от 08.02.2018
 
 Ник Перумов | Остров Крови (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784003.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783882.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783871.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783851.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783663.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783635.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783604.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783601.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783593.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783575.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783537.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783522.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783498.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783492.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783469.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783450.jpg" />
 </div>
 
 
@@ -500,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783375.jpg" />
 </div>
 
 
@@ -526,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783367.jpg" />
 </div>
 
 
@@ -552,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783357.jpg" />
 </div>
 
 
@@ -578,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783349.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783321.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783224.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783202.jpg" />
 </div>
 
 
@@ -669,6 +591,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71EFBE3A63831C8009C27B54BECC6007430049A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205652   (783159) от 11.02.2018
+
+Ольга Громыко | Космоолухи: рядом [Том 1-2] (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ольга Громыко (р. 1978) – русскоязычная писательница из Беларуси, популярная среди ценителей жанра юмористической фэнтези и фантастики. Цикл произведений о приключениях команды космических дальнобойщиков давно и прочно завоевал сердца читателей и слушателей, а новая книга продолжает расширять и углублять любимый мир.
+Сборник составили нескольких повестей и рассказов, (   Читать дальше...   )Жанр: Космическая фантастика, Юмористическая фантастикаПродолжительность: 21:46:47 (11:10:42+10:36:05)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BF795421C90E993D04185769E1147775938917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205841   (783148) от 11.02.2018
+
+Константин Калбазов | Дорога на двоих (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправиться в дикую степь, живущую по своим законам. Вступить в схватку с озлобленными аборигенами, жаждущими твоей крови. Переступить через себя ради того, чтобы разыскать друга, которого уже давно считаешь мертвым. Заслонить собой боевых соратников и чудом избежать смерти. Согласитесь, сложный путь, но неужели бывает сложнее? Как оказалось, бывает. Разумеется, (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 11:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB13ADD48E448DC4D4898554D9FF3252D4B53D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205755   (783140) от 11.02.2018
+
+Лоис Макмастер Буджолд | Мирные действия (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он - Майлз Форкосиган. Путешественник, странствующий из мира в мир. Политик, искушенный в тончайших дипломатических и придворных играх.
+Но в мире изощренных интриг, загадочных убийств и хитросплетенных заговоров, проникших в самое сердце Барраяра, человеку, подчинившему свою жизнь служению Империи, не так-то просто ЖИТЬ. И тогда для Майлза даже история любви превращается (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 23:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F37F172DD70EAC7BE3D3E16956ABDD8D6E4D1D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

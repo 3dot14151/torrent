@@ -6,7 +6,7 @@ Topaz Photo AI 4.0.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3040.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Capture One Pro 16.6.6.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2257.jpg" />
 </div>
 
 

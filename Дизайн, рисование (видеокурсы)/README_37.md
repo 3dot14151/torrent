@@ -6,7 +6,7 @@ Levelup.Digital, Daniel Thiger | Plaster Wall with Parameter-driven Bullet Holes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621876.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shane Hurlbut | Cinematography Starter Kit (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621747.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Udemy, Nexttut, Alejandro Aguilar | Making a Fantasy Axe in Blender 3.1 and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619783.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ lectoroom, Елена Базанова | Этюд с гортензией акв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617202.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613833.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613831.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613818.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612118.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612103.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Ellery Connell | Модо 701 Базовый тренинг/ Modo 701 Essential 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608328.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Mzed, Seth Worley | Writing 101 w/Seth Worley (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605928.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ CGcircuit, Arihant Gupta | Introduction to Vellum Grains in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605682.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ CGcircuit, Florian Bard | Disintegration Effect I - The Head (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605676.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Rohan Dalvi | Patterns and textures in Houdini (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605673.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Masterclass, Margaret Atwood | Margaret Atwood Teaches Creative Writing (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605608.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Art of Aaron Blaise, Lyndon Ruddy | The Art of the Storyboard with Lyndon Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605607.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Gnomon Workshop, Scott Robertson | How to Render Matte Surfaces Vol. 1-3 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605600.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Yiihuu, Han Yang | Creating A Sci-fi Short Film - The Lander (2018) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605598.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Gnomon Workshop, Scott Robertson | Basic Perspective Form Drawing (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605590.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605488.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics II: Generative Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604321.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics I: Introduction to 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604294.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics III: Painting with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604258.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603311.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ ArtStation, Amir Kabiri | 8 Facade Material: Building Material + Tutorials (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603310.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ MIX Training, Varomix | The Nature of Vex (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603305.jpg" />
 </div>
 
 

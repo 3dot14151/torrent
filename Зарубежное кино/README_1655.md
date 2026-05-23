@@ -1,55 +1,3 @@
-###  Публикация: 1585849   (211564) от 24.10.2022
-
-Бойся темноты / Ogre (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Несколько месяцев назад в глухой деревушке бесследно пропал ребенок. Спустя время все почти забыли о происшедшем. Однажды в местную школу приезжает молодая учительница. Вместе с маленьким сыном она пытается начать новую жизнь, подальше сбежав от своего прошлого. Цепь загадочных событий указывает на то, что появление мальчика могло вновь пробудить древнее зло, затаившееся (   Читать дальше...   )Производство: Бельгия, Франция / Canal+Жанр: ужасы, фэнтези, драмаРежиссер: Арно МалербАктеры: Ана Жирардо, Джованни Пуччи, Самуэль Жуи, Альбертин Ривьер, Янник Маццилли, Софи Пинсемелль, Фабьен Уссе, Феликс Мальэрб, Эмиль Тенар, Роман МальэрбПеревод: Дублированный (Кипарис)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (SDH)Продолжительность: 01:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AE5B8304464878E37E158B6106A1AFA4307F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566064   (211563) от 30.07.2022
-
-Сколько ты стоишь? / Combien tu m aimes? (2005) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Франсуа — офисный служащий, у которого проблемы со здоровьем. Он отправляется в бордель на площадь Пигаль, где к нему подходит роскошная итальянка Даниэла, одна из проституток. Франсуа рассказывает ей, что выиграл в лотерею 4 миллиона евро и предлагает ей пожить с ним с условием, что будет платить ей 100 000 евро в месяц, пока не закончатся наличные. Даниэла принимает (   Читать дальше...   )Производство: Италия, Франция, BIM Distribuzione, Fidélité Productions, France 2 Cinéma, Les Films Action, Pan Européenne Production, Plateau A, TPS Star, Wild BunchЖанр: драма, мелодрама, комедияРежиссер: Бертран БлиеАктеры: Моника Беллуччи, Бернар Кампан, Жерар Депардьё, Жан-Пьер Дарруссен, Эдуард Баэр, Фарида Рахуадж, Сара Форестье, Мишель Вюйермоз, Франсуа Роллин, Жан БарнеПеревод: дублированный (R5 Twister), профессиональный многоголосыйСубтитры: русские, английскиеПродолжительность: 01:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270AEC400D21566FBB617338A5FFDA6F1E0A8099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585891   (211557) от 24.10.2022
 
 Клаустрофобы. Долина дьявола / Escape The Field (2022) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211557.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211553.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211530.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211526.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211522.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211520.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211515.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211512.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211505.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211500.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211472.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211464.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211445.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211444.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211432.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211425.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211417.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211400.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211395.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211391.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211384.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211375.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211370.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211364.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C692203BD01D91FE67CB8E03E36949E8605A548F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639836   (211361) от 15.06.2023
+
+База / The Base (1999) WEBRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицеру разведки Джону Мерфи поручена важная миссия: выяснить, почему передача американцам мексиканского наркобарона обернулась кровавой бойней. Для этого его засылают на пограничную военную базу, где он должен внедриться в команду спецназовцев, предположительно, торгующих оружием и наркотиками. Пройдя суровые испытания на выносливость и силу, завоевав доверие у (   Читать дальше...   )Производство: США / American World Pictures, Lions Gate Films Inc.Жанр: боевик, драмаРежиссер: Марк Л. ЛестерАктеры: Марк Дакаскос, Тим Эбелл, Пола Трики, Ной Блейк, Даркас Макопсон, Кристиан Бочер, Мэдисон Мэйсон, Фредерик Коффин, Марко Родригес, Джо РентериаПеревод: Многоголосый профессиональный, Двухголосый  профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCB0E3A8C5E4EFC739965E7552E4FF185E79BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567254   (211360) от 02.08.2022
+
+Холодная река / So Cold the River (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрика Шоу получает очередной рабочий заказ — снять фильм об известном миллиардере Кэмпбелле Бредфорде. Она приезжает в город и останавливается в роскошном курортном отеле, который принадлежит Бредфорду. Но, оказавшись один на один с мрачными тайнами этого места, Эрика начинает осознавать, что в стенах местной гостиницы обитает необъяснимое зло.Производство: США / 1804 Productions, Pigasus PicturesЖанр: ужасы, триллер, драмаРежиссер: Пол ШолбергАктеры: Бетани Джои Ленц, Алисия Райнер, Эндрю Дж. Уэст, Кэти Сариф, Дианна Данаган, Майкл Роджерс, Кевин Кахун, Кингстон Верне, Аарон Роман Уэйнер, Лиа Хаттон БисморПеревод: Дублированный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC85E4D2CBEC22638CFA1101404B235845B46093
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ JUSTICE SUCKS: Tactical Vacuum Action (2022) [Ru/Multi] (1.1.01-615-aa61ab1) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Long Dark (2017) [Ru/Multi] (1.93) Repack xatab [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037865.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Samsara Room (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037768.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036778.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036486.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Fantastic Kitty Rue (2022) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035819.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035677.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ File Destined (2023) [Ru/Multi] (1.0.382) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034718.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034316.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 1054
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034256.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробу�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033695.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032901.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032886.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032863.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032848.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Uncertain: Last Quiet Day (2016) [Ru/Multi] (1.0.1.004) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032612.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Call of the Sea (2020) [Ru/Multi] (1.1.105) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032603.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Late Shift (2017) [Ru/Multi] (20200107) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032373.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031943.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031704.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Her Story (2015) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031490.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Rough Justice: '84 (2023) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031314.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) Repack West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031005.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030635.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Broken Pieces (2022) [Ru/Multi] (1.3.1 Build 10795835) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030617.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030543.jpg" />
 </div>
 
 

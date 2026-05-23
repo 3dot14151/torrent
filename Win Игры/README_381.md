@@ -1,29 +1,3 @@
-###  Публикация: 1823660   (125927) от 12.10.2025
-
-Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Древнее зло пробудилось в недрах удаленного горнодобывающего астероида, пробуждённое ото сна человеческой жаждой власти. Не подозревая об этом, вы отвечаете на сигнал бедствия и застреваете в окружении чудовищных врагов. Раскройте тайну этого безумия и остановите его распространение в этом жестоком ретро-шутере! Брутальный олдскульный шутер от первого лица в стиле (   Читать дальше...   )Тип издания: RepackРазработчик: nfoPRINCE, Terminist ArcadeЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C6F395ED0CBFDD464F90929773746D28C21326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823678   (125910) от 12.10.2025
 
 Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Rune
@@ -32,7 +6,7 @@ Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Run
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125910.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [20 Ye
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125909.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (1.0.0/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125884.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125823.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125815.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364/dlc) Repack Decepticon [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125669.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Maze of Realities 3: Ride in the Sky (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125615.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Shadows Over Loathing (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125609.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125558.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125543.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125512.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ghost Trick: Phantom Detective (2023) [Ru/Multi] (11038113/dlc) Repack Deceptico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125488.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125406.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53394) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125396.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Christmas Fables 2: The Magic Snowflake / Рождественские небы�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125331.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125221.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Merchant of the Six Kingdoms (2023) [En] (5.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125126.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53385) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125125.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124955.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Stellar Warfare (2021) [En] (29112023) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124948.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Oriental Dynasty - Silk Road defense war (2023) [Ru/Multi] (2.6.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124937.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124934.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Small Saga (2023) [En] (20231130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124822.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124815.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124813.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Submachine - это рисованная приключенческая игра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7FFA0F0B2CE3AAE0E35D606BD49F7A39D561D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689302   (124796) от 01.01.2024
+
+Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lakeview Cabin 2 – хоррор-приключение в открытом игровом мире. Окружение, персонажи и прочие элементы выполнены в двумерном стиле, а пользователь наблюдает за происходящим сбоку. Действия переносят геймеров в настоящий мир фильмов ужасов, где на пути произойдут паранормальные явления, появятся монстры и расследования. Под управление представлено 4 центральных персонажа, (   Читать дальше...   )Тип издания: SceneРазработчик: Roope TamminenЖанр: Экшены, Инди, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 ```
 
 https://mybot314.ru/tekegram_catalog/

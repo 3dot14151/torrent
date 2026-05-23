@@ -1,84 +1,3 @@
-###  Публикация: 1021261   (740879) от 29.05.2016
-
-Владимир Войнович | Путем взаимной переписки (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Каждый, кто служил в советской армии, если не получал, то хотя бы слыхал о таких письмах – счастливому солдату. Пишут их девчонки из провинции в надежде заарканить жениха, пока он чувствует себя неотразимым и самостоятельным. Однако не всегда фотокарточка в письме совпадает с оригиналом возрастом и красотой. А бывают еще и с прицепом в виде взрослого ребенка. Об (   Читать дальше...   )Жанр: Проза, повестьПродолжительность: 02:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71D917177CC97738BD336CA5BBDEF27E1CFA200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282980   (740860) от 15.02.2019
-
-Пэт Кэдиган | Алита: Боевой ангел. Айрон сити (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Официальный приквел научно-фантастического фильма «Алита: Боевой ангел», основанного на культовой манге Юкито Кисиро, от режиссера Роберта Родригеса и продюсера Джеймса Камерона.
-
-В новом мире, оставшемся после Великой войны, изменилось все. В тени огромного города Залема, висящего в небе, раскинулся мегаполис, где люди живут посреди тонн мусора, сброшенного сверху. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294866769C7E27135BCD11F7D0531E5D9F747D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021248   (740791) от 29.05.2016
-
-Сидни Шелдон | Утро, день, ночь (2015) [MP3, Маргарита Иванова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-О Гарри Стэнфорде, общественном деятеле, доверенном лице президентов и королей, одном из самых богатых людей в мире, пресса знает буквально все. Настоящий же Гарри Стэнфорд остается для всех загадкой. И вот он гибнет при обстоятельствах весьма странных...
-Обстоятельства смерти одного из богатейших людей Америки, Гарри Стенфорда, весьма подозрительны... однако трех (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 10:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A50AFB992C46B00B62A93957AEA658878625A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021140   (740788) от 29.05.2016
 
 Богомил Райнов |  Эмиль Боев (Книга 6). Тайфуны с ласковыми именами (2014) [MP3, Алексей Коваленок]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740788.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740778.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740737.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740703.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740692.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740686.jpg" />
 </div>
 
 
@@ -247,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740684.jpg" />
 </div>
 
 
@@ -273,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740636.jpg" />
 </div>
 
 
@@ -299,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740599.jpg" />
 </div>
 
 
@@ -325,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740575.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740565.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740454.jpg" />
 </div>
 
 
@@ -404,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740421.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740234.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740183.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740174.jpg" />
 </div>
 
 
@@ -508,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740172.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740057.jpg" />
 </div>
 
 
@@ -561,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740003.jpg" />
 </div>
 
 
@@ -587,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740001.jpg" />
 </div>
 
 
@@ -613,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740000.jpg" />
 </div>
 
 
@@ -640,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739996.jpg" />
 </div>
 
 
@@ -666,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739989.jpg" />
 </div>
 
 
@@ -677,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D7871AB214B93503623FC729A405A57AC9549D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217936   (739988) от 07.04.2018
+
+Константин Калбазов | Боярин (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Угораздило же нашего современника Ивана Рогозина, мужчину среднего возраста, оказаться в конце альтернативного семнадцатого века! С одной стороны, вроде как обретенная молодость, и сейчас ему не сорок с лишним, а всего двадцать два. И весь его багаж знаний и опыта остался с ним. И перспективы безбедного существования очень даже реальны. Но, с другой стороны, на плечах (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 13:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB8F6CD798FCE91F89B9659DEECD714100E6FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217902   (739987) от 07.04.2018
+
+Антон Демченко | Гранд (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое страшное проклятие у китайцев: «Чтоб ты жил в эпоху перемен!» Если так, то Кирилла Николаева явно проклял весь китайский народ. Не успел мещанин Николаев выкрутиться из неприятностей с клубом эфирников и отвести от себя угрозу со стороны бывших родственников, как навалились новые неприятности. Мятеж в столице недавно спокойного Русского государства подхватывает (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 15:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514B2E4BC3C3166231F3217D7E87A63ED7A84C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218032   (739959) от 07.04.2018
+
+Виталий Зыков | Великие Спящие. Том 1. Тьма против Тьмы (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия АРДИС предлагает вашему вниманию первый том аудиокниги «Великие Спящие», завершающей авторский цикл Виталия Зыкова «Дорога домой».
+Годами и десятилетиями копилось напряжение на Торне. Множились взаимные обиды, заходили в тупик интриги, росли и крепли мстители. Иногда напряжение сбрасывалось в войнах и локальных конфликтах, но всегда были те, кто оставался (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 16:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF159A824805182E41FBF9AACA49DFB67DB39326
 ```
 
 https://mybot314.ru/tekegram_catalog/

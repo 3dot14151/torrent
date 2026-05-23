@@ -1,191 +1,3 @@
-###  Публикация: 1226070   (655436) от 20.05.2018
-
-Rockstor 3.9.1 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Linux-дистрибутив Rockstor 3.9, предназначенный для развёртывания сетевых (NAS) и облачных хранилищ. Дистрибутив построен на пакетной базе CentOS и использует для локального хранения файловую систему Btrfs, а для внешнего доступа протоколы Samba/CIFS, NFS, SFTP и AFP.
-
-Особенностью Rockstor является поддержка запуска дополнительных приложений-обработчиков, упакованных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226080   (655372) от 20.05.2018
-
-FreeNAS 11.1-U4 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив для быстрого развёртывания сетевого хранилища (NAS, Network-Attached Storage). Дистрибутив основан на кодовой базе FreeBSD, отличается интегрированной поддержкой ZFS и возможностью управления через веб-интерфейс, построенный с использованием Python-фреймворка Django. Для организации доступа к хранилищу поддерживается FTP, NFS, Samba, AFP, rsync и iSCSI, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9EF065DE4E4CF3565AC225B1A50851F8CB68F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904550   (654254) от 03.06.2015
-
-Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 15.06, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451C175DC71ABF89C40C08A6C35E45D22FA52980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140863   (653668) от 08.06.2017
-
-Allegorithmic Substance Designer 6.0.3 build 181 (Linux) [x64] (rpm)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Substance Designer является мощным нодовым инструментом текстурирования для PBR рендера (Physically Based Rendering), который позволяет создавать substance files или bitmap текстуры. Он используется для текстурирования ассетов и для запекания различной информации о модели, например для запекания карт нормалей, дисплейсмента и прочего. Программа содержит обширную (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90454774D25DBF9630F412A020D8E3980506B43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291490   (652088) от 26.03.2019
-
-Parted Magic 2019.03.17 [i686/amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5084B1F05238135139E55DDDC7759AF06967C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905423   (651355) от 05.06.2015
-
-Calculate Linux 14.16.2 [i686] 2xCD, 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия Calculate Linux - 14.16.2. Calculate Linux основан на дистрибутиве Gentoo. Базовое  отличие - присутствие в дистрибутиве графического инсталлятора.
-
-Доступны для загрузки следующие редакции дистрибутива: Calculate Linux Desktop с рабочим столом KDE (CLD) и XFCE (CLDX), Calculate Directory Server (CDS), Calculate Media Center (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEA41508C4FBD655ADECE9752865B0A2B601874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031372   (650912) от 04.07.2016
-
-Slackware 14.2 [x32, x64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Slackware Linux — один из старейших дистрибутивов Linux. Его иногда называют самым UNIX’овым. Поклонникам этого дистрибутива приписывают высказывание: Если вы знаете Red Hat, то всё, что вы знаете, — это Red Hat, если вы знаете Slackware — вы знаете Linux.
-
-Спустя более двух с половиной лет с момента прошлого выпуска состоялся релиз одного из старейших дистрибутивов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E489D2FAE3E84C8E76F53E18F12A7FAF7CEA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905434   (649051) от 06.06.2015
 
 Calculate Linux 14.16.2 [x86-64] 1xCD, 5xDVD
@@ -194,7 +6,7 @@ Calculate Linux 14.16.2 [x86-64] 1xCD, 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649051.jpg" />
 </div>
 
 
@@ -222,7 +34,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [amd64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648899.jpg" />
 </div>
 
 
@@ -250,7 +62,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [i386] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648893.jpg" />
 </div>
 
 
@@ -278,7 +90,7 @@ Remix OS for PC 2.0.402 Beta [x86, x86-64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647093.jpg" />
 </div>
 
 
@@ -304,7 +116,7 @@ Ubuntu ServerPack 16.04 (февраль 2019) [i386, amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646454.jpg" />
 </div>
 
 
@@ -331,7 +143,7 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 3xDVD, update DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645325.jpg" />
 </div>
 
 
@@ -357,7 +169,7 @@ Debian GNU/Linux 8.1.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645316.jpg" />
 </div>
 
 
@@ -383,7 +195,7 @@ Debian GNU/Linux 8.1.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645047.jpg" />
 </div>
 
 
@@ -409,7 +221,7 @@ Linux Mint 17-v2 Qiana Cinnamon [32bit, 64bit] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643844.jpg" />
 </div>
 
 
@@ -439,7 +251,7 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643217.jpg" />
 </div>
 
 
@@ -465,7 +277,7 @@ Debian GNU/Linux 8.1.0 Jessie [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643095.jpg" />
 </div>
 
 
@@ -491,7 +303,7 @@ Parted Magic 2017.06.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642258.jpg" />
 </div>
 
 
@@ -517,7 +329,7 @@ Linux Mint 17-v2 Qiana Mate [32bit, 64bit] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641755.jpg" />
 </div>
 
 
@@ -547,7 +359,7 @@ JonDo 0.9.81 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641614.jpg" />
 </div>
 
 
@@ -575,7 +387,7 @@ OpenVMS 7.3 [VAX] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641273.jpg" />
 </div>
 
 
@@ -601,7 +413,7 @@ Commodore OS Vision 1.0 Beta 9 [amd64] (2xDVD)
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640723.jpg" />
 </div>
 
 
@@ -632,7 +444,7 @@ OpenBSD 6.3 [amd64, i386] 2xCD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640718.jpg" />
 </div>
 
 
@@ -658,7 +470,7 @@ Kubuntu 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638278.jpg" />
 </div>
 
 
@@ -684,7 +496,7 @@ Ubuntu Gnome 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638179.jpg" />
 </div>
 
 
@@ -697,6 +509,192 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3685A753A54CEA007A2A1EE01031391804CB54F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908097   (635287) от 13.06.2015
+
+KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект KaOS представил июньский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. Plasma/KDE desktop 5. Ядро Linux Kernel 4.0.5, glibc 2.21 и Binutils 2.25, libpng 1.6 series, systemd 220
+
+Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве основного рабочего окружения последнюю версию (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908314   (633336) от 14.06.2015
+
+Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен очередной релиз французского дистрибутива на основе текущей версии Debian 8 "Jessie" с DE Xfce 4.12. Отметим, что ранее дистрибутив базировался на текущих версиях Xubuntu.
+
+Рабочее окружение включает в себя по умолчанию Conky, Smtube, Kodi/XBMC Media Center, VLC, GIMP, Clementine, CoverGloobus, RadioTray, Slingscold, Skippy-xd, Kazam, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143575   (633012) от 19.06.2017
+
+Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633012.jpg" />
+</div>
+
+
+###  Подробнее
+
+После более двух лет разработки состоялся релиз Debian GNU/Linux 9.0 (Stretch), доступный для десяти официально поддерживаемых архитектур, среди которых: Intel IA-32/x86 (i686), Intel EM64T / x86-64 (amd64), ARM EABI (armel), 64-bit ARM (arm64), ARMv7 (armhf), MIPS (mips, mipsel, mips64el), PowerPC 64 (ppc64el) и IBM System z (s390x). Релиз посвящён Яну Мердоку, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7951E4973E67CDD36C441EC2A3F29772F484D47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908530   (631881) от 15.06.2015
+
+Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих столов) [i686] 3xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net. В релизе представлены дистрибутивы с DE от команды разработчиков - 0.8.13 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C866234EC9CDA06C9615890D6B8A8A2714ED26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908528   (631413) от 15.06.2015
+
+Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих столов) [x86-64] 3xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net. В релизе представлены дистрибутивы с DE от команды разработчиков - 0.8.13 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2611B7CB6316176C1EABE6E55D8DB37E92006384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909239   (629745) от 16.06.2015
+
+Tor Browser 4.5.2 [анонимный доступ в сети] [х86, x64] (bundle)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB28C8C7F193838B2F7D100257D7C93D53C6ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909244   (627505) от 17.06.2015
+
+Tor Browser 5.0a2  (Alpha2)  [анонимный доступ в сети] [х86, x64] (bundle)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80C21E53C9FB2DC92D305DBD4AAADBD3992D33B
 ```
 
 https://mybot314.ru/tekegram_catalog/

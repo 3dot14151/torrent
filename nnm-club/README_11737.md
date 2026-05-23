@@ -1,22 +1,22 @@
-###  Публикация: 891144   (590793) от 08.07.2015
+###  Публикация: 916722   (590403) от 09.07.2015
 
-Для детей: Игра Фиксики Мастера 1.1.0  [Ru]
+Пищевая революция. Хлеб (2015) SATRip
 
->>След.
->>Всё для детей и родителей для Android
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ваш ребёнок сможет побыть в роли Фиксика и разобраться в том, как работают окружающие его предметы. Приложение прекрасно развивает мышление, творческие способности и тягу к познанию.Тип издания: FreeРелиз состоялся: 18 июня 2015 г.Разработчик: Apps Ministry LLCПоддерживаемая ОС: Android 4.0+Жанр: ДетскиеЯзык интерфейса: Русский
+Пришло время расставить все точки над "I" и ответить на самый главный вопрос - что же на самом деле представляет собой современный хлеб? Специалисты "Пищевой революции" расскажут о хлебных болезнях, которые нас убивают, и познакомят с выпечкой, срок годности которой – месяц. Вы узнаете, как нерадивые предприниматели обманывают москвичей, а так (   Читать дальше...   )Телекомпания: Москва 24Жанр: ТелепередачаПродолжительность: 00:40:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86C2857E490940F56992042457D3FDA023C3BCF1
+magnet:?xt=urn:btih:CE95CA63360CF88F120ADEAD24FEF5F0E30151BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,242 +24,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 916095   (590792) от 08.07.2015
+###  Публикация: 915536   (590402) от 09.07.2015
 
-Куда приводят мечты / What Dreams May Come (1998) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После гибели Криса Нилсена в автокатастрофе он, обретя бессмертие, пытается остаться рядом со своей прекрасной, но смертной женой Энни. С помощью дружественного духа, приставленного к нему в качестве проводника, он начинает привыкать к своему новому существованию в окружении, которое иначе как райским не назовешь. Но когда его обезумевшая от горя жена кончает жизнь (   Читать дальше...   )Производство: США, Новая Зеландия / Interscope Communications, Metafilmics, PolyGram Filmed EntertainmentЖанр: Фэнтези, Драма, МелодрамаРежиссер: Винсент УордАктеры: Робин Уильямс, Кьюба Гудинг мл., Аннабелла Шиорра, Макс фон Сюдов, Джессика Брукс Грант, Джош Пэддок, Розалинд Чао, Люсинда Дженни, Мэгги МакКарти, Уильма БонетПеревод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CC33FF4E84CB8D7383E466FA2BC27E5EDA91CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916130   (590791) от 08.07.2015
-
-Добро пожаловать в рай / Vice (2015) BDRip [H.264/720p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в относительно недалеком будущем, когда для богачей создан специальный город-курорт, основные обитатели которых и обслуга — андроиды. Туристы за соответствующую цену могут осуществить здесь самые безумные свои фантазии, а андроиды, пострадавшие от рук людей, направляются на перезагрузку памяти. Но однажды случается сбой, и женщина-андроид обретает (   Читать дальше...   )Производство: Великобритания / Emmett/Furla Films, K5 International, Aperture EntertainmentЖанр: фантастика, боевик, триллерРежиссер: Брайан А МиллерАктеры: Эмбир Чилдерс, Томас Джейн, Брайан Гринберг, Брюс Уиллис, Джонатон Шек, Шарлотта Кирк, Бретт Гранстафф, Райан О’Нан, Дэвид Гордон, Колин ЭглсфилдПеревод: профессиональный (полное дублирование) (iTunes)Язык субтитров: русский, английскийПродолжительность: 01:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF7D7AC377500CF9F46C461A7156CBF5D17947F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803725   (590790) от 08.07.2015
-
-Alien Skin Software Photo Bundle Collection (08.07.2015) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 июля 2015Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C7B9905A0ED02AF79B3947D4081A8B96432611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916407   (590789) от 08.07.2015
-
-Alien Skin Exposure 7.1.0.214 Revision 29205 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Alien Skin Exposure — это плагин для обработки фотографий и цветокоррекции в Adobe Photoshop и Lightroom. С помощью Exposure вы сможете применять к своим фотографиям различные эффекты, такие как сепия, стилизация фотографии под кинопленку или черно-белые тона и многое другое. Кроме этого, в Alien Skin Exposure встроены инструменты для общей обработки фотографий: (   Читать дальше...   )Язык интерфейса: Русский (SHAH), Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28197D5F99B781A5BD4C790E83C5789A55DB826C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916262   (590788) от 08.07.2015
-
-Microsoft Office 2016 Professional Plus Preview 16.0.4229.1002 (x86-x64) by Ratiborus 2.8 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FBADF60A0E97E77BF968D7ED253AC7E8B71BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914979   (590787) от 08.07.2015
-
-Номер семь / Boy 7 (2015) DVDRip [VO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В будущем государство контролирует жизнь каждого человека. Свободы личности больше не существует. Стоящий у власти диктатор приказывает собрать со всей страны талантливых молодых людей и отправить их на учебу в секретную академию, где из них сделают преданных слуг режима. В этой академии у студентов нет имен. Только номера...Производство: Нидерланды, Венгрия / Lemming Film, MollywoodЖанр: Фантастика, Боевик, ТриллерРежиссер: Лауренс БлокАктеры: Маттис ван де Санде Бакхуйзен, Элла-Джун Генрард, Тиго Гернандт, Yannick Jozefzoon, Джуст Конинг, Халина Рейн, Рене Саутендейк, Менно Ван Бекум, Ганс Дагелет, Бо ШнайдерПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Andi (перевод М. Васильев)Продолжительность: 01:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C33F883F8250BEBE6D53DAF70DA5D66323D22DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551019   (590786) от 14.05.2022
-
-Burning Loss - 2X1.5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01 - Demon (00:05:34)
-02 - Netherworld (00:06:48)
-03 - What You Leave Behind (00:05:50)
-04 - Cadaver (00:03:35)(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BB69006727C73462621BAB55F586E5DAC8CBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551054   (590785) от 14.05.2022
-
-Greenseeker - The Wish (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy psych, stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. The Iron Tree
-02. The Wheel and the Stone
-03. Return to the Mortal Plane
-04. Diviner / Charmed Apprentice(   Читать дальше...   )Жанр: Heavy psych, stonerПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A66D259322AEDE598DE6EA80122B627BE5021FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551089   (590784) от 14.05.2022
-
-Albert Ammons & Meade Lux Lewis - The Complete Blue Note Recordings (1935 - 1944) 2CD, 1989, Mosaic Records [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
+VA - Western Swingin'. 85 Tracks From Three Golden Decades Of Western Swing (2011) 3CD [MP3|320 кб/с]<Jazz, Country, Blues, Swing, Oldies>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590402.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (The Hits):
+01. Steel Guitar Rag - Bob Wills And His Texas Playboys
+02. Shame On You - Spade Cooley And His Orchestra
+03. Pistol-Packin' Mama - Al Dexter And His Troopers(   Читать дальше...   )Жанр: Jazz, Country, Blues, Swing, OldiesПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EDA63B99658E9356F13521AD149998AFFCF8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916775   (590401) от 09.07.2015
+
+Vivaldi 1.0.219.3 Technical Preview [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vivaldi разрабатывается большой командой разработчиков под руководством Jon S. von Tetzchner, одного из соавтора старой версии веб-браузера Opera.
+Основная идея при создании нового проекта Vivaldi - предоставить быстрый веб-браузер, который будет работать на слабом железе и учитывать индивидуальные требования и желания интернет-пользователей.Язык интерфейса: Русский, Английский и Другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C30B14604D514C8D0E914B5295A3E242FDF26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916803   (590400) от 09.07.2015
+
+Журнал | Гастрономъ №7-8 (июль-август 2015) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый отечественный кулинарный журнал европейского уровня. "Гастрономъ" - журнал не только о "здоровой и вкусной пище". Это еще масса полезной и увлекательной информации о новых продуктах, о правилах этикета, о диетах и системах правильного питания, о ресторанах и шеф-поварах. Это интервью со звездами и их фирменные рецепты, рассказы о кулинарных (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D54EECBAE5DEB275537698FF235285997B46D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916692   (590399) от 09.07.2015
+
+Sky Ferreira - Night Time, My Time (2014) Limited Edition 2CD [OGG|458-572 кб/с]<Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590399.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Boogie Woogie Stomp [3:38]
-02. Chicago In Mind [4:03]
-03. Suitcase Blues [3:52](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 02:18:41
+01. Boys
+02. Ain't Your Right
+03. 24 Hours(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:05:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6F785AB0201367671B5733150257A4B73F52C79
+magnet:?xt=urn:btih:D39D90D7ADF36D65470D0F23377E1FB0584F643C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,28 +135,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551052   (590783) от 14.05.2022
+###  Публикация: 916850   (590398) от 09.07.2015
 
-Britof - Ruins (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy Metal>
+С.М.Кочетов | Пресноводные "акулы" и тропические вьюны (1997) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди пресноводных аквариумных рыб есть группа видов с громким названием «акулы» (Shark — по-английски или Hai — по-немецки), объединяющая в основном представителей карповых (Cyprinidae), чем-то отдаленно напоминающих кровожадных морских хищников. По своему характеру и образу жизни эти «акулы» ничем не схожи ни с настоящими пресноводными акулами, населяющими крупнейшие (   Читать дальше...   )Жанр: Научная, Аквариумистика, ХоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02E323E21371C3FBD4D38B8F3D67F37A5A28CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916281   (590397) от 09.07.2015
+
+FKA twigs - LP1 (2014) Japanese Edition [MP3|320 кб/с]<Alternative R&B, Trip Hop, Dreampop, Experimental Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preface
+02. Lights On
+03. Two Weeks
+04. Hours(   Читать дальше...   )Жанр: Alternative R&B, Trip Hop, Dreampop, Experimental ElectronicПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289CF9EAD7FBC453213BDB21CF3075252340B31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788929   (590396) от 09.07.2015
+
+Stefan Torto (Stefanos Tortopoglou) - Discography 7 Releases (2011-2015) [MP3|320 кб/с]<Psybient, Psychill, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psybient, Downtempo, Ambient, Progressive Trance |Продолжительность: 05:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8455E2B2EA0B59397764D250EF8BDA3105197B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916834   (590395) от 09.07.2015
+
+Daum PotPlayer 1.6.55084 Stable + Portable (x86/x64) by SamLab [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C3ED7FF610CECFD822EBC0862146968CD7F085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916837   (590394) от 09.07.2015
+
+Powerwolf - Blessed & Possessed (2015) Deluxe Edition [MP3|192 кб/с]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blessed & Possessed
+02. Dead Until Dark
+03. Army Of The Night
+04. Armata Strigoi(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675C01B019AD8BBEE60E114CDF165E843ED979C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916429   (590393) от 09.07.2015
+
+Ratatat - Magnifique (2015) [MP3|320 кб/с]<Alternative, Electronic Rock, Indie, Instrumental>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Buzz (00:04:55)
-02 - Scum of the Earth (00:03:36)
-03 - The Fiend (00:06:29)
-04 - Sick (Sodom and Gomorah) (00:04:07)(   Читать дальше...   )Жанр: Stoner, Heavy MetalПродолжительность: 00:40:22
+01. Intro
+02. Cream On Chrome
+03. Magnifique
+04. Abrasive(   Читать дальше...   )Жанр: Alternative, Electronic Rock, Indie, InstrumentalПродолжительность: 00:44:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F18B52BF28F73CFDEDFAACB8818D1CE28A12E36
+magnet:?xt=urn:btih:9EAF2DFE8A87952A6EC034222B8FFDB1C6DC77B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,28 +300,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551141   (590782) от 14.05.2022
+###  Публикация: 916763   (590392) от 09.07.2015
 
-Primitive Man - Insurmountable (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
+Baidu Browser 43.18.1000.65 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - This Life (00:12:24)
-02 - Boiled (00:07:17)
-03 - Cage Intimacy (00:11:02)
-04 - Quiet (00:07:44)Жанр: Sludge, Doom MetalПродолжительность: 00:38:29
+Baidu Browser – довольно симпатичный и удобный браузер с RSS-агрегатором и поддержкой вкладок. Так, несмотря на практически неизвестность для пользователей Рунета и соответственно, меньшую популярность по сравнению со своими более именитыми конкурентами, Spark Browser обладает множеством полезных функций, делающий интернет-серфинг более простым и дружелюбным. Поддерживаются (   Читать дальше...   )Язык интерфейса: Английский, тайский и португальский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ECD6EA971D3F199D08CFD0C0E16EC24363C37E5
+magnet:?xt=urn:btih:A920EBA80D9B695F45189F4524847B418825A997
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +326,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551045   (590781) от 14.05.2022
+###  Публикация: 916706   (590391) от 09.07.2015
 
-Raam - Fire Of Glory (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Rock & Roll>
+Phantasmat 4: The Dread of Oakville (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pindar (Intro)
-02. Fire And Glory
-03. I Prefer To Drink
-04. Got Your Back(   Читать дальше...   )Жанр: Heavy Metal, Rock & RollПродолжительность: 00:35:14
+Продолжение увлекательной серии игр Phantasmat. В новой игре Вам предстоит загадочное путешествие в городок Oakville, городок, где реальность пересекается с потусторонним Миром, где мертвые и живые живут вместе. Фантастическая история втянет Вас во множество захватывающих приключений за гранью Реальности. Сумеете ли Вы разобраться с древними тайнами жителей Oakville?Тип издания: Неофициальное изданиеРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DD3516C2A4048EE398409D75EAEAB5743DB8391
+magnet:?xt=urn:btih:7317F7821F5ED67A2BA01ECB3C44EE47D614EAF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,229 +352,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550978   (590780) от 14.05.2022
+###  Публикация: 916714   (590390) от 09.07.2015
 
-Winteria - Winteria (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01 - Первый снег (00:02:03)
-02 - Крылья 2.0 (00:05:22)
-03 - В клетке времён (00:04:26)
-04 - Странник (00:03:25)(   Читать дальше...   )Жанр: Symphonic, Progressive, Gothic MetalПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881797151B249C6AAE5F4809D23E3CA555439749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551055   (590779) от 14.05.2022
-
-Collidor - Collidor (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal, Speed Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01 - Nephophobia (00:04:34)
-02 - Hero Of Destruction (00:02:35)
-03 - Cryostorm (00:03:08)
-04 - Doctor Death (00:03:01)(   Читать дальше...   )Жанр: Power Metal, Heavy Metal, Speed MetalПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551025   (590778) от 14.05.2022
-
-Katharos - Of Lineages Long Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01 - Those Hornclad (00:06:53)
-02 - Feigned Retreat (00:07:05)
-03 - Of Lineages Long Forgotten (00:08:51)
-04 - The World Serpent's Marrow (00:05:26)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5B5282A2B3D4A8ED9BB98AEA3FFCE68020264D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550958   (590777) от 14.05.2022
-
-Stinger - Expect The Unexpected (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01 - Diggin' Up The Dirt (00:04:22)
-02 - Chasing Utopia (00:05:10)
-03 - Monkey (00:03:22)
-04 - Highfalutin' (00:02:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E016EE2A845F594B6EAFE9B00EF3851A90ACCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550808   (590756) от 14.05.2022
-
-Misery Index - Complete Control (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Death Metal, Grindcore>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Administer the Dagger (4:52)
-02. The Eaters and the Eaten (3:40)
-03. Complete Control (3:32)
-04. Necessary Suffering (3:39)(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550960   (590755) от 14.05.2022
-
-Junkyard Drive - Electric Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Burn (00:03:39)
-02 - Electric Love (00:04:16)
-03 - Mr. Rock N' Roll (00:03:34)
-04 - Home (00:04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0DE364430BE89D070B4DD1287B99924FAE4466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551133   (590754) от 14.05.2022
-
-The Faceless Hunter - One Minute to Midnight (2022) [FLAC|Lossless|WEB-DL|tracks] <Russian Modern Metal, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute to Midnight [00:03:29]
-02. The Edge of Emptiness [00:05:39]
-03. Dead Heaven [00:05:46]
-04. Sacred Blood [00:05:31](   Читать дальше...   )Жанр: Russian Modern Metal, Melodic DeathПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CA6600DA69FCB1DE95FF2D4C18792C267CE4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551130   (590753) от 14.05.2022
-
-Игорь Акимушкин | Жил-был медведь (1989) [PDF]
+М. Забелин | Парашютный кружок (1935) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге автор рассказывает о медведях, кто такие и чем занимаются, на примере одного года из жизни медвежонка.
-Для детей дошкольного возраста. Иллюстрации С.Куприянова.Жанр: РассказФормат: PDF
+В книжке рассказывается о значении парашюта для народного хозяйства и обороны нашей страны. Нроме этого дается подробное описание материальной части парашюта, способов ею укладки, способов тренировки к совершению прыжка с самолета и наконец описание самого прыжка и методов ею выполнения. Брошюра практическая. Ее цель — не столь-
+ко агитировать за развитие парашютного (   Читать дальше...   )Жанр: Парашютный спортФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B235E02FBED88361A840D70E0935853F86590B
+magnet:?xt=urn:btih:BA6925C602D9EBF786262792A9BB8A0C91A7A920
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,28 +379,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551033   (590752) от 14.05.2022
+###  Публикация: 916648   (590389) от 09.07.2015
 
-Graham Bonnet Band - Day Out In Nowhere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+VA - Summer Music (2015) [MP3|320 кб/с]<Pop, Dance>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Imposter
-02. 12 Steps To Heaven
-03. Brave New World
-04. Uncle John(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:15
+Лето – пора самых ярких музыкальных новинок, а значит, время собрать все лучшие треки в одном месте! Summer Music 2015 – это сборник, где каждый трек воплощает неповторимую летнюю атмосферу и разделяет её с вами! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие новинки сезона. Не даром этот диск уже вторую неделю держится на первой странице (   Читать дальше...   )01. Mans Zelmerlow - Heroes  (3:11)
+02. Flo Rida - GDFR  (2:58)
+03. Егор Крид - Невеста  (3:26)
+04. Mark Ronson - Uptown Funk (feat. Bruno Mars)  (3:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:25:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05E545257C3E660AAD8397654006F30E27474240
+magnet:?xt=urn:btih:7840A5D1B729502FC3B17314EF4FD6FC33B2D6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,28 +408,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551134   (590751) от 14.05.2022
+###  Публикация: 912267   (590388) от 09.07.2015
 
-Brian Harold May - Another World (1998) 2CD, Deluxe Version, 2022, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезон 2, серии 1-6] [Обновляемая]
 
->>нет
->>нет
+>>Зарубежные TV-бренды
+>>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brian Talks - A Tribute To Cozy Powell [00:01:14]
-02. The Business (Rock On Cozy Mix) [00:04:40]
-03. Hot Patootie [00:03:21]
-04. F.B.I. (Original Ruff Mix With Real Bass And Drums) [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:41:32
+Команда профессиональных уборщиков возглавляемая Крэйгом Бантлом возьмется за гараж дизайнера. В этом огромном помещении собраны миллионы вещей, которые герой ежегодно складывал в гараж. Кто-то назовет это простым хламом, но не эти ребята. В процессе уборки могут быть обнаружены ценные раритетные вещи, интересные и необычные находки. А вдруг команда Бантла раскопает (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:20:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:222EC25E6D62C4CD4502C36ACDA302232FB93272
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,28 +434,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551006   (590750) от 14.05.2022
+###  Публикация: 916702   (590387) от 09.07.2015
 
-Рваные Раны - Лучшая проклятая вещь (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Password Depot Professional 7.6.6 RePack by D!akov [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Проклятая вещь (00:01:32)
-02 - Строгий отец (00:03:48)
-03 - Слышишь сука! - (00:02:23)
-04 - Вы - закройте рты! (00:02:54)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:28:49
+Password Depot Professional - рентабельный инструмент, управления всеми Вашими паролями. Вы больше никогда не забудете пароль. Password Depot Professional сберегает Ваши пароли от внешнего несанкционированного доступа и при этом она очень комфортна в использовании. Особенности программы: создание почти нерасшифровываемых паролей, шифрование данных, автоматизированный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C50095E31BE979FD739B2BF738DA8516190D373A
+magnet:?xt=urn:btih:BE0C8F11DDE49DC3688653FB60627A610391B527
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +460,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550982   (590749) от 14.05.2022
+###  Публикация: 916799   (590386) от 09.07.2015
 
-Winteria - Winteria (2022) [FLAC 2.0|44, 48/16, 24|WEB-DL|tracks] <Symphonic, Progressive, Gothic Metal>
+Н. Питиримова и др. | Молдавская кулинария (1971) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Первый снег (00:02:03)
-02 - Крылья 2.0 (00:05:22)
-03 - В клетке времён (00:04:26)
-04 - Странник (00:03:25)(   Читать дальше...   )Жанр: Symphonic, Progressive, Gothic MetalПродолжительность: 00:37:51
+Молдавская кухня пользуется большой популярностью не только в республике, но и далеко за ее пределами. Изделия молдавских кулинаров отличаются приятным внешним видом, высокими питательными качествами, доступностью используемого сырья,обилием овощей,всевозможных пряностей и приправ. Приправы - чеснок, перец, чабрец, леуштян - значительно повышают вкусовые качества (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F48B9FDE94D7753A8470EE0475A36F67D2EAF0F
+magnet:?xt=urn:btih:B21656C51EA57A8698DC37D89C108364F05D5736
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +486,219 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550886   (590748) от 14.05.2022
+###  Публикация: 916796   (590385) от 09.07.2015
 
-Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire Records [FLAC 2.0|44, 48/24|WEB-DL|tracks] <Progressive Death Metal, Progressive Rock>
+VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015) [FLAC|Lossless|WEB-DL]<Trance, Progressive Trance, Balearic Trance >
 
->>нет
->>нет
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Progressive Death Metal, Progressive RockПродолжительность: 2 CD, 02:45:18
+01. Roger Shah & Aisling Jarvis - Call Me Home (Magic Island Mix) (6:20)
+02. Brian Laruso & John James Renfrow - We Used to Know (Original Mix) (5:06)
+03. Rogier Dulac - On the Beach (MI6 Edit) (4:25)
+04. Othon - Japan Suite (Brian Laruso's MI6 Edit) (5:18)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Balearic TranceПродолжительность: 05:47:06
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916900   (590384) от 09.07.2015
+
+EZ CD Audio Converter 3.0.8.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3CA5C8577A0B4914253E32EBD2FC08E402BE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916585   (590383) от 09.07.2015
+
+Гражданка Катерина (2015) WEB-DLRip [H.264/1080p-LQ] (серии 1-4 из 4)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жительница Молдовы Катерина приезжает в Москву в надежде получить опеку над осиротевшей маленькой сестренкой. Чтобы ускорить оформление гражданства, Катерина решается на фиктивный брак. Однако узнав получше своего фиктивного мужа, Катерина влюбляется в него…Производство: "Mars Media", РоссияЖанр: мелодрамаРежиссер: Наталья УглицкихАктеры: Валерия Ланская, Кирилл Гребенщиков, Яна Крайнова, Светлана Милованова, Валерий Новиков, Сергей Губанов, Анастасия Денисова, Маргарита Дьяченкова, Алеся Гузько, Егор Клинаев, Никита Тарасов, Дарья АндрееваПродолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0E465511FC20E798CC9F3C568F13CCC39EC9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916827   (590382) от 09.07.2015
+
+Ю.В. Рычкова | Устройство и дизайн аквариума (1998) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590382.jpg" />
+</div>
+
+
+###  Подробнее
+
+С незапамятных времен людям нравилось смотреть на воду и слушать легкий
+шум прибоя. Установлено, что вода благоприятно действует на человека,
+успокаивая его нервную систему и снимая напряжение. Стремясь к покою, человек
+изобрел аквариум и заселил его красивыми обитателями моря. Однако, как и всем(   Читать дальше...   )Жанр: Научная, Аквариумистика, ХоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A9DDE1E2978D09E7F36FB45A5BA401CA050458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916707   (590381) от 09.07.2015
+
+VA - Tango & Beatles (2012) [MP3|320 кб/с]<Argentina Tango, Covers>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tango Tripping Project feat. Ituana - Michelle [03:02]
+02. Le Griser feat. Dew - Dear Prudence [04:28]
+03. Meloscience Corp. - Come Together [04:39]
+04. Corcovado Frequency - Oh! Darling [03:32](   Читать дальше...   )Жанр: Argentina Tango, CoversПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CCEDAB1962EF12C740D4271B3ED768EF214A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916816   (590380) от 09.07.2015
+
+Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foundation
+ 02. Real
+ 03. Shine
+ 04. Take Shelter(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720634245003C4A18823E9A4FDCA6E83A07FB72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916641   (590379) от 09.07.2015
+
+Internet Download Manager 6.23 Build 14 Final RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский | Английский | Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE83D7749017C132ECCC6F3F07F6779967FEE594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916677   (590378) от 09.07.2015
+
+До последнего вздоха / Inhale (2010) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная пара пускается во все тяжкие, чтобы найти своей дочери донора для сложной операции по трансплантации легких.Производство: США | 26 FilmsЖанр: Триллер, ДрамаРежиссер: Бальтасар КормакурАктеры: Миа Сталлард, Дермот Малруни, Дайан Крюгер, Сэм Шепард, Хорди Молья, Венсан Перес, Розанна Аркетт, Дэвид Селби, Сесар Рамос, Кристиан Феррер, Арлин Алькала, Хуан Авила, Ник Бэнкс, Ричард Барела, Мария Бетке, Пол Блотт, Тодд Тэтчер Кэш, Абрахам Чейдез, Эдуардо Дрэйвен, Кристиан Эскарио, Луи Франко, Кэролин Харви, Рафаэль Херрера, Лиза Хилл, Джиджи Хайз, Натали МарчианоПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: Русский, Английский, Французский, ИтальянскийПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515BC2355DC3C40E8E871B1360E2EC21C8F19079
 ```
 
 https://mybot314.ru/tekegram_catalog/

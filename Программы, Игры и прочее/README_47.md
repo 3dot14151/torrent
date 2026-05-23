@@ -1,55 +1,3 @@
-###  Публикация: 310292   (837296) от 18.03.2011
-
-Turbo Grannies  1.1.3 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Turbo Grannies: Вялотекущая и скучная жизнь в доме престарелых совсем не нравится Турбо Бабушке. Она пропускает весь драйв, довольствуясь лишь воспоминаниями о событиях, произошедших давным-давно. Действительно скучно, не так ли? Но главная героиня не собирается мириться и сваливает подальше из этого места! Сама по себе  Бабушка недостаточно быстра, чтобы убежать. (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 17 марта 2011 г.Разработчик: Imperial Game StudioПоддерживаемая ОС: Android 1.5+Жанр: Arcade (Аркада)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004569   (836329) от 07.04.2016
-
-Garmin: Azerbaijan Map 2015 V01 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Азербайджана для навигаторов Гармин.Тип издания: карта заблокирована (таблетка есть в комплекте)Релиз состоялся: июнь 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: английскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C435CC5B510564FECDBA80D6900B9B4903B839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004302   (836325) от 07.04.2016
 
 Garmin: Moldova Road Atlas & Topo 3D 2015.2 [Ru]
@@ -58,7 +6,7 @@ Garmin: Moldova Road Atlas & Topo 3D 2015.2 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836325.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Advanced Download Manager and Torrent downloader v12.6.1 Pro Mod  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835860.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835850.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Battery Widget Plus v2.43 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835807.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Garmin: Road Map of Latvia LM and Road Map of Latvia TOPO LM v2.7 [Lv]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_834013.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833463.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833462.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833357.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ Electrical Cost v3.0.4 Pro [Ru/Multi] - прогнозный расчет сто
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831469.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830186.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ Glitch Lab v1.4.5 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_829525.jpg" />
 </div>
 
 
@@ -352,7 +300,7 @@ Maths Formulas 9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827969.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824892.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824637.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824312.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823844.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822091.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ Garmin: NaviGuide Hungary 2017.10 NT Final (+ v2018.10 NT Beta test) [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820532.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ Garmin: City Navigator South America NT 2018.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820519.jpg" />
 </div>
 
 
@@ -564,7 +512,7 @@ Garmin: City Navigator Australia & New Zealand HERE NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820513.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ Garmin: City Navigator North America NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820422.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ Garmin: City Navigator China NT 2015.40 AN (по регионам) [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819450.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ Garmin: TOPO Southern Africa v3 PRO + Madagascar [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819448.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ Garmin: Topo Chile Deluxe 2015.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819444.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ Garmin: Topo Chile Deluxe 2015.10 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F404E1F301CC86EAE859A019729991BE1D786596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007660   (819442) от 16.04.2016
+
+Garmin: TOPO Portugal Light v3 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Топографическая карта Португалии для навигаторов Гармин, составленная с использованием базы данных OpenStreetMap (OSM)Тип издания: карты не блокированыРелиз состоялся: июнь 2015Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: английскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450A062A6199472082C01ED10DDE19CBE0804486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007620   (819156) от 16.04.2016
+
+Garmin: TOPO Belarus v3 Light [Ru]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Топографическая карта Беларуси, составленная с использованием базы данных OpenStreetMap (OSM)Тип издания: карты не блокированыРелиз состоялся: август 2015Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: русскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632AC7C79417643E3CFF726C6F3E4F748BDCF5EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 405367   (488069) от 26.07.2022
-
-Несносные боссы / Horrible Bosses (2011) [Театральная версия] [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Единственное, что могло бы сделать трудовые будни Ника, Курта и Дэйла чуть более выносимыми - возможность стереть в порошок их несносное начальство.
-Уволиться с работы - не вариант, поэтому, изрядно выпив и воспользовавшись советами бывшего преступника, трое друзей разрабатывают витиеватый и, казалось бы, безупречный план, как помочь друг другу навсегда избавиться (   Читать дальше...   )Производство: США / Warner Bros, New Line Cinema, Rat EntertainmentЖанр: комедия, криминалРежиссер: Сет ГордонАктеры: Джейсон Бейтман, Чарли Дэй, Джейсон Судейкис, Кевин Спейси, Дженнифер Энистон, Колин Фаррелл, Джейми Фокс, Джули Боуэн, Линдсей Слоун, П.Дж. БирнПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4323C6A45EA1CBF0F9BAE21B737B5F23FA70368C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565597   (488067) от 26.07.2022
-
-Серый человек / The Gray Man (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В 2003 году ЦРУ вербует отбывающего срок за убийство Курта Джентри, и тот становится так называемым серым человеком — спецагентом под кодовым именем Сьерра Шесть. 18 лет спустя, устранив очередную цель, он узнаёт, что только что убил бывшего Сьераа Четыре, и получает носитель с информацией, представляющей угрозу для секретной программы «Сьерра». Отказавшись передать (   Читать дальше...   )Производство: США / Netflix, Roth Films, Roth/Kirschenbaum Films, Russo BrothersЖанр: боевик, триллерРежиссер: Энтони Руссо, Джо РуссоАктеры: Райан Гослинг, Крис Эванс, Ана де Армас, Билли Боб Торнтон, Джессика Хенвик, Дхануш, Элфри Вудард, Реге-Жан Пейдж, Вагнер Моура, Джулия БаттерзПеревод: Многоголосый профессиональный (Jaskier, TVShows, NewComers), авторский одноголосый (Юрий Сербин)Субтитры: Русские, английские, испанские, французские, украинские, немецкие, португальскиеПродолжительность: 02:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DE743D42B42CACC1024621841356EC3C5EB585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565924   (488065) от 26.07.2022
 
 Фантастический Флиткрофт / The Phantom of the Open (2021) WEB-DLRip [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488065.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488061.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488044.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488030.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488023.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487948.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487946.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487877.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487841.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487792.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487782.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487773.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487740.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487724.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487711.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487704.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487681.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487678.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487635.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487624.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487617.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487601.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487598.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487552.jpg" />
 </div>
 
 
@@ -675,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D5B7DECCB20FB895ACB2E80EC1A318EEA43031E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158655   (487534) от 18.08.2017
+
+Дракула 3000 / Dracula 3000 (2004) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487534.jpg" />
+</div>
+
+
+###  Подробнее
+
+3000 год. Космический челнок обнаруживает на задворках вселенной останки корабля «Деметр», пропавшего на пути из Карпатской галактики. Надеясь поживиться добычей, искатели приключений Мина, Ван Хельсинг и их лихие напарники проникают на борт судна, чтобы в его мрачных коридорах обнаружить зловещий груз — 50 гробов. К несчастью для экипажа, в недрах «Деметра» уже (   Читать дальше...   )Производство: Германия, ЮАР / ApolloProMedia, Fiction Film & Television Limited, Film Afrika Worldwide CCЖанр: Ужасы, ФантастикаРежиссер: Даррелл РудтАктеры: Каспер Ван Дин, Эрика Элениак, Кулио, Александра Кэмп-Гроеневельд, Грант Суэнби, Лэнгли Кирквуд, Том ’Тайни’ Листер мл., Удо КирПеревод: Многоголосый закадровый, профессиональный (Лицензия,«CP-Digital»)Субтитры: отсутствуютПродолжительность: 01:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262AD242BF9177F8C3049FBFB2EBBAE816E4B217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545275   (487529) от 09.09.2012
+
+Иерусалим / O Jerusalem (2006) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487529.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Нью-Йорке живут два молодых человека: американский еврей Бобби Гольдман и араб из Иерусалима Саид Шаин. Атмосфера всеобщего ликования по поводу окончания Второй мировой войны делает их друзьями, и в свои 27 лет они разделяют одни и те же принципы и верят в одни и те же идеи. Однако окончание мировой войны не всегда означает наступление мира во всем мире. 27 ноября (   Читать дальше...   )Жанр: ДрамаРежиссер: Эли ШуракиАктеры: Джей Джей Филд, Саид Тагмауи, Мария Папас, Патрик Брюэль, Иэн Холм, Това Фелдшух, Мел Райдо, Сесиль Кассель, Мхаири Стинбок, Том Конти, Питер Поликарпу,Даниэль Лунд, Анатол Юсеф, Джейми Хардинг, Лаура Вейссбеккер, Роберт Атико, Дэниэл Бен Зеноу,Эли Шураки, Кристиан Хиллман, Джон Ховарт, Доминик Джефкотт, Райан КрюгерПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2124CB34A2EB3D0C807163B97976E177D443013C
 ```
 
 https://mybot314.ru/tekegram_catalog/

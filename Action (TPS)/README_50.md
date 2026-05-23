@@ -6,7 +6,7 @@ Robin Hood: Sherwood Defenders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24732.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24626.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24536.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24505.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Wanterlude [Ultimate Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24492.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24463.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ethereal Abyss (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24401.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24397.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24390.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24229.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack seleZen [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24200.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.08.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23584.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.13/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23554.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23270.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.7.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23189.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23153.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23142.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23054.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Thing: Remastered (2024) [Multi] (1.1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22866.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 17692767) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22760.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22514.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.401.1.0/dlc) Repack seleZen [Digital 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22448.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (1.01 patch 2) Licen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22420.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21262.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21157.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20933.jpg" />
 </div>
 
 

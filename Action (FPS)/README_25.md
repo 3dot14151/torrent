@@ -6,7 +6,7 @@ Get Even (2017) [Ru/Multi] (1.0/u1) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454150.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack =nemos= [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452822.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Burden (2018) [Ru/En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452320.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Evil Park (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452150.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игрома
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452140.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Crysis  Warhead (2008) [Ru] (1.1.1.711) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450008.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Syndrome (2016) [Ru/Multi] (1.03f) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450000.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448443.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447829.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Don't Knock Twice / Не стучи дважды (2017) [Ru/Multi] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447794.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447741.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. S
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447562.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447555.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Hellpoint (2020) [Ru/Multi] (495/dlc) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446499.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ World War Z (2019) [Ru/Multi] (1.30) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445878.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Transference (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443794.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dead Island: Riptide (2016) [Ru] (1.4.1.1.13/dlc) Repack =nemos= [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443456.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Dishonored (2013) [Ru/En] (1.4.1/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443388.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Borderlands: Game of the Year Edition [Ru/En/Multi5] (L/1.41/4 DLC) 2010
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442813.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2/1.1.2/1.0/dlc) Repack R.G. Catalyst [Defini
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441178.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Dead Island: Game of the Year Edition (2011) [Ru] (1.3.0/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441111.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.06/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441044.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439030.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Rage: Anarchy Edition [MULTi3/+] (L/1.0.29.712/2 DLC) 2011 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437782.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437557.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Infinity Runner (2014) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437313.jpg" />
 </div>
 
 

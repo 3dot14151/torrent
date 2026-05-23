@@ -1,81 +1,3 @@
-###  Публикация: 1824017   (128662) от 13.10.2025
-
-Брайан Плант | Только человек (2025) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Семь игроков, один из которых является искусственным интеллектом. Сперва игроки голосую за выбывание друг друга а в конце в игру вступают сами зрители. Люди получают призовой фонд в миллионы если им удастся раскрыть искусственное сознание. Но за многие годы вещания это случалось считанные разы.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52ADF784521D79424CE30188CDFEFFA06FC54C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823995   (128656) от 13.10.2025
-
-Лев Жуковский | Утопающий во лжи (Книги 1-8) (2024-2025) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Великие Лорды очень давно приспособились к изменившемуся после случившегося катаклизма миропорядку. И к тем возможностям, что пришли вместе с неизбежными разрушениями их мира. Давно отгремели кровопролитные войны между королями и их подданными. Им на смену пришли настоящие герои, обретшие силу Богов. Среди бесконечных свар и жестокости погибло как минимум три четверти (   Читать дальше...   )Жанр: Фэнтези, РеалРПГИздательство: Аудиокнига своими рукамиПродолжительность: 101:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3595B1AC5B6B33989C87C06776FD31C5D09A1F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824020   (128654) от 13.10.2025
-
-Дмитрий Дубов, М. Борзых | Восхождение Примарха (Книга 4) (2025) [MP3, Константин Загацкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Когда казалось, что враги уже повержены, и можно, наконец, отдохнуть и заняться насущными проблемами, выяснилось, что настоящие противники ещё даже не показывали своё лицо. А кто говорил, что будет легко? Я – Примарх, и это моё восхождение!Жанр: фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 09:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E14FF99FEE3776F24BA7A9149BAA60A43411CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824021   (128653) от 13.10.2025
 
 Дмитрий Дубов, М. Борзых | Восхождение Примарха (Книга 5) (2025) [MP3, Константин Загацкий]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128653.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128652.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128651.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128638.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128637.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128636.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128634.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128621.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128619.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128618.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128617.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128616.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128615.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128614.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128504.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128501.jpg" />
 </div>
 
 
@@ -513,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128488.jpg" />
 </div>
 
 
@@ -541,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128484.jpg" />
 </div>
 
 
@@ -568,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128479.jpg" />
 </div>
 
 
@@ -597,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128478.jpg" />
 </div>
 
 
@@ -623,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128471.jpg" />
 </div>
 
 
@@ -649,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128455.jpg" />
 </div>
 
 
@@ -677,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128454.jpg" />
 </div>
 
 
@@ -688,6 +610,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2453ABF45FD02F8970C3CF505667360901304870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683446   (128448) от 11.12.2023
+
+Иван Щукин | Боярская честь (Книга 2). Путь Чести (2023) [MP3, Вадим Пугачев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем в аудиоформате вторую книгу из его серии «Боярская честь». Жанр – боевое фэнтези, популярный поджанр – «бояръ-аниме». Приквелом к этой серии можно считать роман «Вторая жизнь архимага».
+Вчерашний архимаг попадает в другой мир, где он – подросток, напрочь лишённый магических способностей. Собственная слабость после былого могущества кого-то иного заставила (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыИздательство: 1С-ПаблишингПродолжительность: 09:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04152DAC7FEB455BB5978347C758CF0F0E08E7A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683566   (128445) от 11.12.2023
+
+Рафаэль Дамиров | Кречет (Книга 1) (2023) [MP3, Иван Златоустов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вирус, созданный в военных лабораториях США, вырвался наружу. Он быстро мутировал и убил почти все население Земли. У нового штамма обнаружился побочный эффект – через несколько часов после смерти инфицированные воскресают.
+Я примкнул к общине выживших – вместе отбиваться от полчищ зомби гораздо проще. Но оказалось, что мертвецы – не самое страшное, с чем нам придется (   Читать дальше...   )Жанр: Боевая фантастика, постапокалипсисИздательство: ЛитРес: чтецПродолжительность: 08:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31066F1DECE089D05F2B36CB68E5CC044F14F8A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683593   (128438) от 11.12.2023
+
+Серг Усов | Попаданцы. Мир Таларея (Книга 3) (2023) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128438.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Попаданцы. Мир Таларея» – роман Серга Усова, третья книга одноименного цикла, жанр боевое фэнтези, попаданцы, героическое фэнтези.
+
+Попавшие на разные континенты магического средневекового мира наши современники смогли каждый найти свой путь и своё место под новым солнцем. Через восемь лет душевного одиночества они не только узнали о существовании друг друга, но (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыИздательство: ИДДКПродолжительность: 09:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB790DFC1EA6E2C371BB420CDC807FB5858C485D
 ```
 
 https://mybot314.ru/tekegram_catalog/

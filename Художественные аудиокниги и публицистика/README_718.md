@@ -1,83 +1,3 @@
-###  Публикация: 1268895   (224068) от 12.12.2018
-
-Макс Глебов | Плотность огня (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Новая жизнь бригадного генерала Дина продолжается. Теперь он курсант Игорь Лавров, сумевший победить смертельную болезнь, поступить в военное училище планетарного десанта и выжить в бою на оккупированной врагом планете. Пока он все так же далек от выполнения задачи, поставленной ему командованием еще в прошлой жизни, но последовательно движется к цели, несмотря на (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыПродолжительность: 05:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF9D1B1A563BE000BB1BBA041BED5BC739D39C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513581   (224034) от 29.11.2021
-
-Ева Финова | Невеста маршала Дрейконвиля (2021) [MP3, Татьяна Борисова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Владелице ремонтной мастерской, Фибиан, была уготована роль комнатной зверушки в предстоящем брачном союзе с маршалом.
-Да только она не зверолюдка. Более того, её вынудили согласиться на роль невесты военачальника драконов, заверяя, что игра скоро закончится и она вновь будет свободна, как ветер в пластинчатых крыльях.
-Но, оказалось, у судьбы иные планы. У маршала (   Читать дальше...   )Жанр: Детективное фэнтези, любовное фэнтези, стимпанк, фэнтези про драконовПродолжительность: 07:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3EBAF62FBE4A52CC0B32FEAA4ADF954030B979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268902   (224032) от 12.12.2018
-
-Макс Глебов | Рубеж атаки (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Бывший бригадный генерал Дин, а теперь капитан Игорь Лавров все еще далек от выполнения своей главной задачи, но самые острые проблемы, казалось бы, решены. Атака внешнего врага отбита, все обвинения сняты, а новая высокая должность открывает отличные перспективы. Но, как известно, если вам кажется, что все хорошо, значит вы просто не все знаете… Противник готовит (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыПродолжительность: 05:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B858A595469E16012E1EA6F87D3B91271B195B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268446   (224022) от 12.12.2018
 
 Василий Маханенко | Поиск Ульдан (2018) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224022.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224012.jpg" />
 </div>
 
 
@@ -141,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223999.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223995.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223932.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223918.jpg" />
 </div>
 
 
@@ -245,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223908.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223900.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223866.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223853.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223851.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223838.jpg" />
 </div>
 
 
@@ -404,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223825.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223809.jpg" />
 </div>
 
 
@@ -457,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223795.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223742.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223533.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223467.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223426.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223418.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223416.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223378.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223358.jpg" />
 </div>
 
 
@@ -678,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E74F2798374994BE97CD325D38F6233C4858B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267768   (223321) от 13.12.2018
+
+Алла Бегунова | Тайный агент Её Величества (Книга 3) (2018) [MP3, Татьяна Ненарокомова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223321.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 70-х годах XVIII столетия решался ряд важнейших для Российской империи стратегических вопросов: присоединение Крыма, создание Черноморского флота, предназначенного для эффективной защиты южных рубежей нашей страны. Это могло быть достигнуто только общими усилиями русской армии, русской дипломатии и русской внешней разведки. Тайный и опытнейший агент Ее Величества (   Читать дальше...   )Жанр: Исторические приключенияИздательство: Нигде не купишьПродолжительность: 16:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92B6048594F4781EEFD0C30C5617E4C2FEE25D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651075   (223317) от 05.08.2023
+
+Джек Лондон | Белый Клык (спектакль) (2008) [MP3, Виктор Раков, Артем Карапетян, Михаил Гульдан, Олег Бурделов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Белого Клыка – волк, мать – наполовину волчица, наполовину собака. Он вскоре постигает «закон добычи»: ешь – или съедят тебя самого. Мир вокруг суров и жесток, и у Белого Клыка нет на этот счёт никаких иллюзий. Преданность человеку становится для него законом, и из родившегося на воле волчонка получается собака, в которой много волчьего, и всё же это собака, (   Читать дальше...   )Жанр: зарубежная классика, зарубежные детские книгиИздательство: Эксмо-СиДиКомПродолжительность: 02:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCA5A2F97F8874E89A671125F8646BCBBDC06F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513523   (223233) от 29.11.2021
+
+Роман Прокофьев | Стеллар (Книга 7). Эфемер (2021) [MP3, Алиса Тверская, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223233.jpg" />
+</div>
+
+
+###  Подробнее
+
+После спасения Города у героя осталось немало задач – это и восстановление Первого Легиона, и таинственный проект «Аврора», и путешествие к Бина Ши, и поиски Звездного Выстрела… Но самое главное, это Даат и тот договор, что Прометей заключил с этим существом.Жанр: Боевая фантастика, Героическое фэнтези, Киберпанк, LitRPGПродолжительность: 10:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D4B0B252074D1FE3B608FBEA0426F25332A8E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

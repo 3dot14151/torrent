@@ -6,7 +6,7 @@ Reg Organizer 7.40 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606467.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Resource Hacker 4.2.2 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606448.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Internet Download Manager 6.32 Build 11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606447.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FurMark 1.16.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606439.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VueScan Pro 9.5.18 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606431.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Audition CC 2015.0 8.0.0.192 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606428.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MAGIX Sound Forge Pro 13.0 Build 46 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606425.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Waterfox 56.2.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606423.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Internet Download Manager 6.25 Build 24 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606369.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ashampoo Photo Commander 14.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606364.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ReClock 1.8.8.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606357.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ TweakBit Driver Updater 1.7.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606355.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Daum PotPlayer 1.7.18346 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606323.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MiniTool Power Data Recovery 7.0 RePack by WYLEK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606303.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Caelum Audio - Flux Mini 2 1.0.0 VST 3, AAX (x32/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606250.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wireless Network Watcher 1.99 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606210.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Avast Free Antivirus 12.2.2276 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606209.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Reg Organizer 7.40 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606205.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Skype 7.26.32.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606198.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Daum PotPlayer 1.7.18346 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606172.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Daum PotPlayer 1.7.18346 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606159.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Nox App Player 3.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606055.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Ashampoo Burning Studio 16.0.7.16 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606050.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Microsoft Windows 10 Version 1809 with Update 17763.437 by adguard [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606010.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ MediaHuman YouTube Downloader 3.9.9.71 (2304) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605931.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ BlueStacks App Player 2.3.41.6601 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605924.jpg" />
 </div>
 
 

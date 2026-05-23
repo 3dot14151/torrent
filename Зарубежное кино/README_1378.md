@@ -1,55 +1,3 @@
-###  Публикация: 955215   (333200) от 11.11.2015
-
-Бумажные города / Paper Towns (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Выпускник школы Кью Джейкобсен с детских лет тайно влюблен в свою прекрасную и дерзкую соседку Марго Рот Шпигельманн. Поэтому, когда однажды ночью она приглашает его принять участие в «карательной операции» против ее обидчиков, он соглашается. Но, придя в школу после их ночного приключения, Кью узнает, что Марго исчезла… оставив для него лишь таинственные послания, (   Читать дальше...   )Производство: США - Fox 2000 Pictures, Temple Hill EntertainmentЖанр: ДрамаРежиссер: Джейк ШрейерАктеры: Нат Вулф, Кара Делевинь, Остин Абрамс, Джастис Смит, Холстон Сейдж, Жасмин Сабино, Кара Буоно, Джозиа Серио, Мэг Кросби, Кэйтлин КарверПеревод: Дублированный (Лицензия)Язык субтитров: Русский, английский, украинскийПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC267BFFBA8AAE463E18E9BCF243AF492701DEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955602   (333194) от 11.11.2015
-
-Достучаться до небес / Knockin' on Heaven's Door (1997) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Судьба сводит героев картины в больнице, где врачи выносят им смертный приговор. Счет времени их жизней идет на часы. Дальнейшие события в фильме разворачиваются в стремительном темпе. Украв машину с миллионом немецких марок в багажнике, они сбегают из больницы. Их преследуют наемные убийцы, они становятся грабителями поневоле, за ними гонится полиция, они попадают (   Читать дальше...   )Производство: Германия / Buena Vista International Film Production, Mr. Brown EntertainmentЖанр: Драма, Комедия, КриминалРежиссер: Томас ЯнАктеры: Тиль Швайгер, Ян Йозеф Лиферс, Тьерри Ван Вервеке, Мориц Бляйбтрой, Хуб Стапель, Леонард Лансинк, Ральф Херфорт, Корнелия Фробесс, Рутгер Хауэр, Уилли Томчик, Кристиана Пауль, Ханнес Енике, Владимир Вайгл, Дженни Элверс, Коринна Харфух, Тобиас Шенке, Харк Бом, Юрген Бекер, Вольфганг Кавен, Бернд ХоффманнПеревод: Дублированный, многоголосый закадровый, одноголосый закадровыйЯзык субтитров: Русский, Немецкий, АнглийскийПродолжительность: 01:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00794035EAAD1F718A446599AE3BB9F95EBD371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331221   (333095) от 14.10.2019
 
 Божественная любовь / Divino Amor (2019) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333095.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333093.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333088.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333065.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333014.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332988.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332977.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332965.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332958.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332956.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332907.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332902.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332871.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332857.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332805.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332798.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332796.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332770.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332767.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332761.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332760.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332755.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332754.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332744.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28C4CF70257728FD1894E125A304816184A35D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258872   (332725) от 01.11.2018
+
+Шоу Мистико / O Grande Circo Mistico (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332725.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мае 1910 года, когда над Землей пронеслась комета Галлея, молодой красавец доктор Фред Кипс без ума влюбился в акробатку Беатрис, вопреки воле родителей взял ее в жены и купил для нее цирк, назвав его «Гранд Мистико». Так начинается эта наполненная волшебством и эротикой история, в которую вовлечены фокусник и секс-гигант Жан-Поль, звероподобный силач Рудольфо, (   Читать дальше...   )Производство: Бразилия, Португалия, Франция / Fado Filmes, Globo Filmes, Luz Mágica Produções, Milonga ProductionsЖанр: ДрамаРежиссер: Карлус ДиегисАктеры: Венсан Кассель, Нуно Лопеш, Антонио де ла Крус, Албану Жерониму, Мариана Шименес, Антонио Фагундес, Давид Огродник, Катрин Муше, Бруна Линзмейер, Жезуита БарбозаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEC356BD140E1351CA38EACCE140CD1B22179C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258773   (332723) от 01.11.2018
+
+Наездник / The Rider (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брэди - молодая звезда родео и одаренный дрессировщик лошадей. Однажды он получает серьезную травму головы. Брэди верит, что через какое-то время он восстановится и снова сядет в седло. Однако время проходит, и становится ясно, что Брэди нужно навсегда отказаться от верховой езды и тем более родео. Сможет ли он смириться с тем, что его мечтам не суждено сбыться, (   Читать дальше...   )Производство: США, Caviar, Highwayman FilmsЖанр: Драма, ВестернРежиссер: Хлоя ЧжаоАктеры: Брэйди Жандро, Муни, Тим Жандро, Лилли Жандро, Лерой Поюрьер, Кэт Клиффорд, Таннер Лангдо, Джеймс Калун, Лейн Скотт, Кэмерон Райт, Джордон Слик Фелпс, Донни Вайвинд Хорс, Терри Даун Поюрьер, Аллен Редди, Грег Барбер, Кевин Хантер, Маршал Бирн, Френк СтилПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские (студия FOCS), английские, испанские, французские, голландские, датские, шведские, норвежскиеПродолжительность: 01:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131EE54E4DE65B58AD8521FFE46E4B186798D4EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

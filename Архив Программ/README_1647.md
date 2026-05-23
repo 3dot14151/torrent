@@ -6,7 +6,7 @@ Sumatra PDF 3.5.15261 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217913.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cyberfox 43.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217883.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Care 365 Pro 3.94.352 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217874.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BELOFF [dp] 2020.11.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217870.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217850.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ MKVToolNix 5.9.0 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217844.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ DUMo (Drivers Update Monitor) Pro 2.23.0.107 + Portable (SharewareOnSale) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217833.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Tor Browser Bundle 11.5.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217801.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stardock ShadowFX 1.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217799.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Stardock Start10 1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217790.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ BELOFF [dp] 2019.12.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217781.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.80.6200 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217773.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Opera Next 12.12 1704 beta RC (x86+x64) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217747.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (2410) (x64) RePack (& Portable) by Dodak
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217734.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Skype 8.101.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217724.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ LibreOffice 7.4.2.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217723.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ One Commander Pro 3.18.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217709.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ GOM Player Plus 2.3.80.5345 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217691.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Calibre 5.33.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217681.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Skype 7.17.0.105 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217667.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ FBackup 9.4.458 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217641.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Stardock WindowFX 6.02 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217614.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ LibreOffice 5.0.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217592.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Everything 1.4.1.922 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217558.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (10.2022) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217548.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Advanced SystemCare Pro 13.1.0.184 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217545.jpg" />
 </div>
 
 

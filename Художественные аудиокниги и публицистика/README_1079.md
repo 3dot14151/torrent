@@ -1,81 +1,3 @@
-###  Публикация: 1811291   (16267) от 09.08.2025
-
-Оро Призывающий | Некромант города Москва (Книга 5). Апокалипсис (2024) [MP3, Роман Попов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Халатность Департамента привела к жутким последствиям - "паутинная чума", созданная Марктолусом, не была уничтожена, а скорость, с которой распространяется магическая зараза, слишком велика, чтобы пресечь её. Казалось бы, Олег имеет все ресурсы и силы, чтобы спасти город... Вот только позволят ли ему сделать это?Жанр: фантастика, боевикИздательство: ЛитРесПродолжительность: 12:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2CB2933501C5998D2B8863EB9E080ACEAF4BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811292   (16266) от 09.08.2025
-
-Оро Призывающий | Некромант города Москва (Книга 6). Революция (2024) [MP3, Роман Попов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Как только исчезает одна проблема - появляются две новые. Казалось бы, всё просто: несколько кланов и одна террористическая организация захотели в суматохе отвоевать свой "кусок пирога". Однако, даже в это время кто-то умудряется вести двойную игру, и чьи-то настоящие планы остаются скрытыми до конца - даже от сильных мира сего.Жанр: фантастика, боевикИздательство: ЛитРесПродолжительность: 11:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE409670570E15AD22115F8B4D67785B31520C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811293   (16265) от 09.08.2025
-
-Оро Призывающий | Некромант города Москва (Книга 7). Власть (2024) [MP3, Роман Попов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Выиграв битву, не обязательно выигрываешь войну. Решив старые проблемы, Некромант получает новые, и всё идёт совсем не так, как хочется Олегу. Москву по-прежнему нельзя назвать мирным местом, и, к тому же, Арлин Майер совсем не намерена терпеть Владыку на "своей" планете. Выход из всего этого, конечно, есть... вот только какой?Жанр: фантастика, боевикИздательство: ЛитРесПродолжительность: 11:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B2D39F98DA89122534D56EA0C5704E30387D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811297   (16264) от 09.08.2025
 
 Алексей Птица | Император Африки (Книги 1-8) (2024) [MP3, Granvill VM]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16264.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16263.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16262.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16261.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16260.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16259.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16258.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16257.jpg" />
 </div>
 
 
@@ -301,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16256.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16251.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16240.jpg" />
 </div>
 
 
@@ -381,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16239.jpg" />
 </div>
 
 
@@ -408,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16235.jpg" />
 </div>
 
 
@@ -434,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16234.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16208.jpg" />
 </div>
 
 
@@ -487,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16203.jpg" />
 </div>
 
 
@@ -515,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16202.jpg" />
 </div>
 
 
@@ -542,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16198.jpg" />
 </div>
 
 
@@ -568,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16196.jpg" />
 </div>
 
 
@@ -596,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16170.jpg" />
 </div>
 
 
@@ -622,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16091.jpg" />
 </div>
 
 
@@ -649,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16060.jpg" />
 </div>
 
 
@@ -678,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16058.jpg" />
 </div>
 
 
@@ -690,6 +612,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95E0F3DA46264E6007643F0989ED124C448ADF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811562   (16056) от 10.08.2025
+
+Константин Зайцев | Книга пяти колец (Том 5) (2025) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пятом томе Ву Ян должен пройти испытание и одержать победу как над монстрами, так и над самим собой. В случае успеха ему открывается путь к навыкам, которыми пока обладает только семья Императора. Кроме того, герою предстоит столкнуться с кровожадной сектой, приносящей в жертву людей. Путь Ву Яна проще не становится… Слушайте продолжение увлекательной истории!Жанр: Фэнтези, боевик, попаданцыИздательство: 1С-ПаблишингПродолжительность: 08:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F488501606B6205363EC4D95FDFFCCA61EA06B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811547   (16055) от 10.08.2025
+
+Вадим Фарг | Боярский и тысяча чертовок! (Том 1 ) (2025) [MP3, Константин Парфенов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, когда в прошлой жизни ты разнёс ко всем чертям свой дом, а вместе с ним и стервозную чиновницу, чей сыночек свободно бесчинствовал во всём городе? Заслужил ли я покой после того, как отработал правительственным киллером десяток лет? И как мне вернуть силу рода Боярских после клановой войны? Да ещё эти обольстительные суккубки со своими вратами в Преисподнюю (   Читать дальше...   )Жанр: фэнтезиИздательство: ЛитРесПродолжительность: 07:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B798BF669B7D590639CC4C776E21B0112DDAF5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811546   (16054) от 10.08.2025
+
+Василий Маханенко, Владимир Кощеев | Релиз: Земля. (Книга 4) (2025) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может быть сложнее, чем убить иммунное к магии существо двум боевым магам? Пусть даже и универсалам. Вот только эту грёбанную игру такие условности не беспокоят. Существа, решившие заявить о себе и получить статус "ключевой персонаж", должны доказывать свою силу.
+Что же. Если Властелина Бездны нельзя убить магией, нужно найти то, что его точно убьёт. (   Читать дальше...   )Жанр: фэнтези, попаданцыИздательство: ИДДКПродолжительность: 09:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16D3F4665A2A52C1CDE476D09D39516B869D640
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ StaxRip 2.44.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70560.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Xreveal 2.7.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70556.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Process Lasso Pro 15.1.0.45 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70551.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fort Firewall 3.16.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70550.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ O&O DiskImage Professional 20.2 Build 345 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70538.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RegCool 2.031 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70476.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Desktop Calendar 3.21.223.6991 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70475.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Music Collection 3.8.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70464.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ QOwnNotes 25.2.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70451.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ GeoGebra 6.0.875.1 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70445.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Fort Firewall 3.16.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70410.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Opera One 117.0.5408.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70405.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FreeFileSync 14.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70385.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PeaZip 10.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70299.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tablacus Explorer 25.2.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70285.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Firefox Browser 135.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70284.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Firefox Browser 135.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70281.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ XYplorer 26.90.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70231.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sandboxie 5.70.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70186.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ GeoGebra 6.0.876 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70176.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Microsoft Visual Studio 2022 Community 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70136.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ScreenToGif 2.41.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70135.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ GPU-Z 2.64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70130.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Visual Studio 2022 Professional 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70105.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ QOwnNotes 25.2.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69991.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Imagine 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69930.jpg" />
 </div>
 
 

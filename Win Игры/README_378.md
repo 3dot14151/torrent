@@ -1,29 +1,3 @@
-###  Публикация: 1682153   (131666) от 06.12.2023
-
-Waifu Fighter - Family Friendly (2023) [Multi] (20231116) Scene Tenoke
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Waifu Fighter - Family Friendly переносит игроков в уникальный мир, где женщины обладают невиданной силой на боевой арене. Главный герой, который провел два десятилетия в уединении, оттачивая мастерство боевых искусств, ставит перед собой конечную цель - завоевать первенство в борьбе с грозными соперницами, разбросанными по всему миру. В этой 2D-экшен игре для взрослых (   Читать дальше...   )Тип издания: SceneРазработчик: Happy Monster StudioЖанр: Казуальные игрыЯзык озвучки: Китайский (упрощенный)Язык субтитров: Английский, Китайский, Японский, Тайский и другиеЯзык интерфейса: Английский, Китайский, Японский, Тайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF4035AAF13458A9159057D9745EAF4A3216882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326191   (131551) от 06.12.2023
 
 Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
@@ -32,7 +6,7 @@ Devil's Hunt (2019) [Ru/Milti] (1.5.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131551.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mystery Case Files 14: Broken Hour / За семью печатями 14: Раз
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131361.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131334.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ SGS Taipings (2023) [Ru/Multi] (23.07.21) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131301.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131272.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131221.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131194.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131181.jpg" />
 </div>
 
 
@@ -256,7 +230,7 @@ Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131064.jpg" />
 </div>
 
 
@@ -282,7 +256,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130988.jpg" />
 </div>
 
 
@@ -308,7 +282,7 @@ SGS We The People (2023) [Ru/Multi] (23.10.18) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130950.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130919.jpg" />
 </div>
 
 
@@ -360,7 +334,7 @@ SGS Battle For: Madrid (2023) [Ru/Multi] (23.11.29) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130904.jpg" />
 </div>
 
 
@@ -386,7 +360,7 @@ Blanc (2023) [Ru/Multi] (1.33) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130778.jpg" />
 </div>
 
 
@@ -412,7 +386,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130654.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130648.jpg" />
 </div>
 
 
@@ -464,7 +438,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2) Repack dixen18 [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130621.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130544.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ Gardenscapes: Mansion Makeover. Collector's Edition / Дивный сад 2. А�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130381.jpg" />
 </div>
 
 
@@ -542,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130365.jpg" />
 </div>
 
 
@@ -568,7 +542,7 @@ Blackwind (2022) [Multi] (1.0.1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129893.jpg" />
 </div>
 
 
@@ -594,7 +568,7 @@ Destroyer: The U-Boat Hunter (2023) [Ru/Multi] (1.0/dlc) Scene Rune [Supporter B
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129699.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ Detectives United 5: Deadly Debt (2022) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129658.jpg" />
 </div>
 
 
@@ -646,7 +620,7 @@ Against the Storm (2022) [Ru/Multi] (1.0.1r) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129617.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129392.jpg" />
 </div>
 
 
@@ -683,6 +657,32 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E3F669BA6DD266F20080234FF9164C5FA556902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525836   (129002) от 22.01.2022
+
+Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prison Tycoon: Under New Management – симулятор, в котором предстоит построить замысловатую тюрьму. Для достижения цели потребуется нанять персонал, выбирая из разных сотрудников и управлять пенитенциарным учреждением. Воспользовавшись имеющими возможностями, можно спроектировать реабилитационное место и зарабатывать на бизнесе большие деньги.Тип издания: LicenseРазработчик: Abylight StudiosЖанр: Стратегия, Строительство, МенеджментЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A7DB2D51658DE5B38643C248064C2EE04932C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1807866   (10770) от 21.07.2025
-
-Дангал / Борьба / Dangal (2016) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета история бывшего борца Махавира Сингха Пхогата, воспитавшего Гиту Пхогат и Бабиту Кумари, ставших прославленными индийскими женщинами-борцами... Когда-то Махавир Сингх Пхогат был чемпионом Индии по борьбе. По причине бедности он был вынужден бросить спорт, но поклялся воспитать сына, который станет в будущем олимпийским чемпионом. Но вот досада — у (   Читать дальше...   )Производство: Индия / Aamir Khan Productions Ltd., Walt Disney PicturesЖанр: драма, спорт, биографияРежиссер: Нитеш ТивариАктеры: Аамир Кхан, Сакши Танвар, Фатима Сана Шейкх, Санья Мальхотра, Апаршакти Кхурана, Заира Васим, Сухани Бхатнагар, Ритвик Сахоре, Гириш Кулкарни, Анураг Арора, Махеш Балрадж, Виван Бхатена, Анмол Чаран, Бадрул Ислам, ДжагбирПеревод: дублированный (Кинопоиск HD), профессиональный многоголосый (FocusStudio; Honey&Haseena)Язык озвучки: русский, хиндиСубтитры: русские (на песни и полные), английскиеПродолжительность: 02:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11EC4D4C1D4EA7203668920D39E9AF048823013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808158   (10708) от 22.07.2025
-
-Знамение / Knowing (2009) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После вскрытия временной капсулы, в которую в 1959 году группа школьников поместила рисунки со своим видением будущего, в руки к профессору Джону Кестлеру попадает загадочный лист, сверху донизу исписанный цифрами. Расшифровывая его, Кестлер устанавливает связь между цифрами и крупнейшими бедствиями, произошедшими на Земле за последние 50 лет. Если верить цифрам, (   Читать дальше...   )Производство: США, Великобритания, Австралия / Summit Entertainment, Escape Artists, Goldcrest Pictures, Kaplan/Perrone EntertainmentЖанр: Фантастика, триллер, драма, детектив, экранизацияРежиссер: Алекс ПройасАктеры: Николас Кейдж, Чандлер Кентербери, Роуз Бирн, Лаура Робинсон, Надя Таунсенд, Алан Хопгуд, Эдриэнн Пикерин, Даниэль Картер, Алетеа МакГрат, Дэвид РенниПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E875E435B5E2F58CD8DD4EE7CF92DB2F8E7AFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808028   (10690) от 22.07.2025
 
 Громовержцы* / Thunderbolts* (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10690.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10677.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10644.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10621.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10609.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10606.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10588.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10587.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10571.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10559.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10553.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10535.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10522.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10515.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10480.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10458.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10448.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10414.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10413.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10409.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10407.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10402.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10398.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10377.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0249C6CFC57548437C1E5F7FD9D860490911E3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154448   (10344) от 26.07.2025
+
+Приключения маленького Геркулеса в 3D / Little Hercules in 3-D (2009) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великие боги Олимпа — живы! Век за веком они наблюдают за людьми, не спеша раскрывать тайну своего существования. Но вот однажды Зевс, осерчав на юного Геркулеса, решает в наказание отправить его на Землю. Пусть, дескать, поймет все тяготы человеческой жизни. И вот на молодого небожителя сваливаются все проблемы, через которые проходят современные подростки. Первая (   Читать дальше...   )Производство: СШАЖанр: Семейный, КомедияРежиссер: Мохамед ХашоггиАктеры: Джадд Нельсон, Джон Хёрд, Халк Хоган, Эллиотт Гулд, Робин Гивенс, Брук Хоган, Пол Уайт, Марк Джон Джеффрис, Ник Хоган, Линда ХоганПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 01:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5561AA359039EC7AA2C5B4164A4A0313560D353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808696   (10281) от 26.07.2025
+
+Смерть в лифте / Top Floor (2024) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная блогер Джулия оказывается в закрытом лифте, где кнопки не реагируют на нажатия. Девушка начинает прямую трансляцию с телефона, пытаясь привлечь внимание своей 12-миллионной аудитории. Вскоре к ней обращается оператор и устанавливает правила игры: он будет задавать ей вопросы, и Джулии предстоит честно отвечать на них. Если она не успеет или откажется отвечать, (   Читать дальше...   )Производство: Болгария, Франция / Mezza Films OODЖанр: триллерРежиссер: Жереми МинуиАктеры: Жюстин Вахсбергер, Акил Уингейт, Йовель Лековский, Николя Казале, Элиз Тиллолой, Ивайло Захариев, Калин Цаков, Калина Костова, Дарнелл Бернард, Ален БузигеПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: Русские (forced hardsub)Продолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A2271FC200121BA484CBAA027CC1375980B368
 ```
 
 https://mybot314.ru/tekegram_catalog/

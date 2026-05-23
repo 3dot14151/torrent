@@ -1,29 +1,3 @@
-###  Публикация: 915023   (591730) от 06.07.2015
-
-Boid (2015) [En] (0.6.223) Repack Hazestalker [Early Acsess]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Boid - классово-ориентированная стратегия в реальном времени, про биоорганические инвазионные дроны. В игре примитивные формы жизни должны мутировать и развивать специальные способности. Эти формы жизни должны бороться за выживание и господство. Станьте доминирующей особью, возьмите на себя управление юнитами и завоюйте все базы на карте.Тип издания: RepackРазработчик: MokusЖанр: Стратегия в реальном времениЯзык озвучки: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDBEF749056D6EE6994F54B9137090E5FFFC17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874094   (590801) от 08.07.2015
 
 ChessBase База шахматных партий (2015) [Ru/En] (2015_2) Unofficial avalat
@@ -32,7 +6,7 @@ ChessBase База шахматных партий (2015) [Ru/En] (2015_2) Unoff
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590801.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Phantasmat 4: The Dread of Oakville (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590391.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Royal Legends 2: Raised in Exile (2022) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588880.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Subliminal Realms: The Masterpiece (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588625.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Oddworld: Munch’s Oddysee HD (2010) [En] (1.0/upd 14) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588095.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Layers of Fear: Inheritance (2016) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588093.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Nightmare Realm Collector's Edition / Сфера Кошмара. Коллекц�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588056.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Battlevoid: Harbinger (2016) [Ru/Multi] (2.0.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588022.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ The World's Legends: Kashchey the Immortal / Кощей Бессмертный (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587954.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0 hotfix 3b) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587951.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ The Subject (2018) [En] (2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587899.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ The Far Kingdoms: Hidden Magic / Дальние королевства: Тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587885.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Lorelai (2019) [En] (1.0.4/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587838.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.15.04-202) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587829.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Pneuma: Breath of Life (2015) [Ru] (1.0.0.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587613.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.0.41.212) RePack xGhos
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587608.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Diesel Guns (2015) [Ru/Multi] (0.7.1.0 DEMO) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587130.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Half Dead (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587118.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Fright Chasers 3: Director's Cut / Ловцы Страхов 3: Виденье �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587083.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586904.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Descenders (2019) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586901.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Hospital Tycoon / Больничный магнат [En/Ru] (P) 2007
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586730.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ The Last Dream (2015) [Ru/Multi] (1.0) License [Developer's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586240.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Turmoil (2016) [En/Multi] (1.0/upd7) Repack Other s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586237.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ UFO Online: Вторжение (2012) [Ru] (1.7.0.15b8675) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586153.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ UFO Online – пошаговая клиентская онлайн-игра, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A4AFCCFA2BEB22BEB7C8F07D65C65FD2E82771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918737   (585944) от 16.07.2015
+
+Shadow Wolf Mysteries 5: Tracks of Terror (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр Shadow Wolf Mysteries. Вас ждет расследование во французском городке Gevaudan, где, в последнее время, происходят загадочные и страшные дела: полчища оборотней осаждают улицы и нападают на жителей городка. Из письма графа Де Люпе Вы узнаете, что всё происходящее связано с проклятьем их семьи, которое гласит, что что когда член (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: ERS Game StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBBB45F31A00E7C2FF2AF27AE7B995092021296
 ```
 
 https://mybot314.ru/tekegram_catalog/

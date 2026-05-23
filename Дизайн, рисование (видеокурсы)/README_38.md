@@ -6,7 +6,7 @@ SideFX, Delano Athias | Character Animation in Houdini (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603300.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602384.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CGcircuit, Steven Knipping​ | Applied Houdini Rigids I version 2.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602373.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600125.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Artstation, Tyler Smith | Intro to UE4 VFX: Smoke and Dust (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599850.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ArtStation, Tyler Smith | Intro to UE4 VFX: Waterfall (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599581.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Artstation, Jonas Ronnegard | Substance Masters Vol.1 (2020) Blu-ray [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599580.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create old realistic cannon (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599578.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ FlippedNormals | Sculpting a Realistic Female Face in ZBrush (2019) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599307.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Artstation, Henry Chervenka | Hard Surface ZBrush Tutorial / Modeling A UH-60 Ro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599305.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Allegorithmic, Wes McDermott | Substance with Unity (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597897.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Allegorithmic, Wes McDermott | Substance Designer Intermediate-Advanced Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597895.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Andrew Smith | DOTA 2 Workshop (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597764.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes IV (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597760.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ ArtStation, Maria Yue | Lighting Theory for Games (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597758.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Allegorithmic, Wes McDermott | Substance for Unity 5 Creating PBR textures (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597587.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ CGcircuit, David Adan | Total Destruction: Volume 3 Particles (2020) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593817.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ CGcircuit, David Adan | Total Destruction: Volume 2 RBD Simulations (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593735.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ CG Forge, Tyler Bay | Vex - Foundations I (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593662.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Skillshare, Aniket Rawat | Creating A Moroccan Riad Environment In Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593635.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ ArtStation, Milad Kambari | McLaren 650S GT3 Tutorial (Modeling, Texturing, Ligh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593221.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ ArtStation, Sam Carr | Blender for 2D Artists (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593170.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Udemy, Sime Bugarija | Cinematic look with Blender 3.0 - 8+ hours MASTER tutoria
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593165.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Udemy, Sime Bugarija | Blender 3+ Reality Capture 5h, futuristic movie scence, f
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593160.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592685.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Udemy, Mrawan Hussain | Blender: Tesla Cybertruck Forge (2022) PCRec [EN / EN Su
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592031.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248758.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Avi Lebo Double Trombone Quintet & Slide Hampton - Shades of Brass (1996) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248744.jpg" />
 </div>
 
 
@@ -74,7 +74,7 @@ David Benoit - Full Circle (2006) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248441.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Ali Jackson, Aaron Goldberg, Omer Avital - Yes! (2012) [FLAC|Lossless]<Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248439.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ John Coltrane - The Best of John Coltrane (2009) [FLAC|Lossless]<Bop, Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248424.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Muggsy Spanier - Muggsy Spanier  (1944) (1997) [FLAC|Lossless]<Dixieland, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246378.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246023.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Michael Davis - Absolute Trombone (1997) Hip-Bone Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245957.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ The Teddy Buckner Band - In Concert At The Dixieland Jubilee (1955) 1988, Gnp Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245949.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Phil Woods Quartet - European Tour Live (1980) 2CD, 1995, Red Record [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245938.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sonny Rollins - And The Contemporary Leaders (1958) 1988, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245937.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Tete Montoliu - Catalonian Folksongs (1977) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245929.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Johnny Smith - The New Johnny Smith Quartet (1956) Remaster, 2016, Warner[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245912.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dan Nimmer Trio - Horizons (2020) Venus Records [FLAC|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245910.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Steve Lacy - The Window (1988) Soul Note[FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245836.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ John Di Martino's Romantic Jazz Trio - So In Love (2010) Venus Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245785.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Camille Bertault - Bonjour mon amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245727.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Ray Camacho Band - Reach Out! (1980) 2016, PMG [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245719.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ David Newman - Bigger & Better (1968) Remaster, 2012, Warner[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245707.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245677.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ John Lewis & Mirjana Lewis - The Chess Game Part I (1987) 2000,  Philips[APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245636.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ John Di Martino's Romantic Jazz Trio - Moliendo Cafe (2011) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245621.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Emily Remler - Retrospective, Vol. 2: Compositions (1991) Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245560.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Karl Seglem - Nye nord (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245500.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245471.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ Dick Oatts - Standard Issue (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245437.jpg" />
 </div>
 
 

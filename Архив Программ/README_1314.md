@@ -6,7 +6,7 @@ KMSAuto Net 2016 1.5.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369749.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MyLanViewer 4.19.5 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369727.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Recovery Partition for ASUS K55A / Windows 7 Home Basic (х64) SP1 [русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_369714.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Internet Explorer 10 Release Preview [Русский / Английс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_369705.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_369700.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Glary Utilities Pro 5.152.0.178 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369666.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Vivaldi 3.4.2066.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369665.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VueScan Pro 9.7.35 (DC 10.10.2020) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369659.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ HiBit Uninstaller 2.5.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369655.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Atomix VirtualDJ 2020 Pro Infinity 8.4.5308 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369600.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ CCleaner 5.11.5408 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369583.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ GPU-Z 2.35.0 + ASUS_ROG 2.35.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369546.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mp3tag 3.03 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369538.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Internet Download Manager 6.38 Build 6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369537.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ OCCT 7.0.2 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369530.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Acoustica Premium Edition 7.0.24 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369519.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ GreenCloud Printer Pro 7.8.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369512.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ StartIsBack++ 1.1.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369474.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ CCleaner 5.11.5408 Professional [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369463.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PIDKey Lite 1.64.4 b6 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369440.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Skype 8.65.0.78 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369427.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ReviverSoft Driver Reviver 5.34.3.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369424.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe components: Flash Player 27.0.0.170 + AIR 27.0.0.124 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369416.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ AVS Video Editor 7.1.4.264 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369395.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ DFX Audio Enhancer 12.010 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369393.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NewBlue Titler Pro Utlimate 4.0 build 151002 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369384.jpg" />
 </div>
 
 

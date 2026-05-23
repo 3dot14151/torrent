@@ -6,7 +6,7 @@ SnipZ (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810572.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) Repack Other s [Chapter I: Necessar
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810562.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809208.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.10.0/dlc) License SKIDROW [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808861.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Butterfly Sign (2017) [Ru/Multi] (1.2.0) Repack Other s [Chapter II: Human E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808645.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tomato Way (2016) [Ru/Multi] (110118) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805917.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CTU: Counter Terrorism Unit (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805223.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Narcosis (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804654.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Outbreak: The New Nightmare (2018) [En] (1.0) Repack MAXSEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803984.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Get Even (2017) [Ru/Multi] (1.0/12.01.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803972.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rambo The Video Game: Baker Team (2014) [En/Multi] (1.0/dlc) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803234.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802842.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802223.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ DOOM (2016) [Ru/En] (6.66/upd8) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801402.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Neversong (2020) [Ru/Multi] (1.0) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801320.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05.125430.1/dlc) Repack Other s [Coll
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800795.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Persistence (2020) [Ru/Multi] (1.0HF) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800736.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ George (2021) [En] (1.0rls) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800729.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Persistence (2020) [Ru/Multi] (1.0/HotFix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800694.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.1.11018/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800524.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kona (2017) [Multi] (1.0/upd1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799956.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ziggurat (2014) [Ru/Multi] (2018-05-08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799877.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Singularity (2010) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799706.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ziggurat 2 (2021) [Ru/Multi] (2019.4.31.12409535) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798913.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Syndrome (2016) [Ru/Multi] (1.06f) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798566.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Distorted World (2021) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798202.jpg" />
 </div>
 
 

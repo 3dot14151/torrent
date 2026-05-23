@@ -6,7 +6,7 @@ Slimjet 10.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688678.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LibreOffice 5.1.4 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688676.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Uninstall Tool 3.5.3 Build 5561 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688663.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Uninstall Tool 3.5.3 Build 5561 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688656.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tablacus Explorer 22.03.02 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688590.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cacheman 10.0.1.2 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688588.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Any Video Converter Ultimate 5.9.6 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688583.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ant Download Manager 0.3.8 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688576.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ XYplorer 20.90.0900 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688552.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1814 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688550.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ LibreOffice 5.1.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688525.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ FocusWriter 1.5.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688515.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wise Registry Cleaner Pro 10.7.1.698 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688508.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ UC Browser 5.6.13927.1005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688504.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sandboxie 5.55.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688501.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VideoInspector 2.15.8.152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688499.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Sigil 1.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688498.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NIUBI Partition Editor 7.8.0 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688495.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Firefox Browser ESR 91.6.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688493.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Google Chrome 84.0.4147.135 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688461.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ YouTube By Click Premium 2.2.138 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688459.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ ReviverSoft PC Reviver 3.10.2.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688457.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Athentech Perfectly Clear Complete 3.10.0.1814 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688456.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Topaz A.I. Gigapixel 5.1.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688452.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Opera 70.0.3728.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688451.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Topaz Gigapixel AI 5.1.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688448.jpg" />
 </div>
 
 

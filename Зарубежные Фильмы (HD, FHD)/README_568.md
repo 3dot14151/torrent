@@ -1,55 +1,3 @@
-###  Публикация: 1158743   (490064) от 17.08.2017
-
-Прерванный путь / Broken Trail (2006) BDRip [H.265/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Америка, 1898 год. Ковбои Принт Риттер и его племянник Том Харт - партнёры. Они перегоняют табун лошадей через страну, и неожиданно для себя, становятся защитой и опорой для 5 китайских девушек, которых собирались продать в бордель. Ковбои стараются заботиться о девушках, чтобы те смогли начать достойную новую жизнь, но по их следам уже гонятся шайка бандитов, имеющих (   Читать дальше...   )Производство: Канада, США / Butcher's Run Films, Once Upon a Time FilmsЖанр: Приключения, ВестернРежиссер: Уолтер ХиллАктеры: Роберт Дювалл, Томас Хейден Чёрч, Грета Скакки, Гвендолин Ео, Крис Малки, Расти Швиммер, Скотт Купер, Валери Тиан, Кэролайн Чан, Оливия Ченг, Джейдин Вонг, Дональд Фонг, Джеймс Руссо, Тодд Аллен, Билл БаксаПеревод: Многоголосый закадровыйСубтитры: английскиеПродолжительность: 03:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7E4C327C0EF12B10451B340F7D1EDFC7DD247A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158746   (490048) от 17.08.2017
-
-Хороший человек / A Good Man (2014) BDRip [H.265/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Александр — идеальный солдат, но во время миссии в Ираке, на его руках умирает маленькая девочка, после чего он решил отойти от дел. Сэм Хуан — силовик, то ли связанный с Триадами, то ли воюющий против них, отправил, хорошо заплатив, безопасным путем свою маленькую сестру Миа в США. Мистер Чэн гнусным образом вешает на Сэма убийство, которое он совершил, а также (   Читать дальше...   )Производство: США / Actionhouse Pictures, Grindstone Entertainment Group, Picture Perfect Corporation, Steamroller Productions, Voltage PicturesЖанр: БоевикРежиссер: Киони ВаксманАктеры: Стивен Сигал, Виктор Уэбстер, Ци Ма, Рон Балики, Юлия Вердес, Элиас ФеркинПеревод: Одноголосый закадровыйСубтитры: английские (форсированные)Продолжительность: 01:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E7201DD713CB3A4DD0F016533C37C9A59F112E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565772   (490022) от 25.07.2022
 
 Боец: Король ринга / Prizefighter: The Life of Jem Belcher (2022) WEB-DL [H.264/1080p] [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490022.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490017.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489874.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489866.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489702.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489599.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489587.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489577.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489538.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489477.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489431.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489429.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489426.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489420.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489419.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489417.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489416.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489415.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489413.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489386.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489364.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489274.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489266.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489174.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64EA2B771758E615350DF8AF517969E6726DA552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402739   (488983) от 27.08.2020
+
+Средь бела дня / The Cold Light of Day (2012) BDRip [H.264/1080p] [Open Matte] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испания, море, яхта – отпуск с поднадоевшей молодому Уиллу Шоу компанией родственников... Никто не мог предположить, что уже через несколько часов палуба яхты обагрится кровью, а члены семьи Шоу станут заложниками в руках неизвестных. В поисках родных Уилл невольно узнает о государственном заговоре и раскрывает тайны своего отца. У парня всего несколько часов, чтобы (   Читать дальше...   )Производство: США, Испания / Summit Entertainment, Intrepid Pictures, Galavis FilmЖанр: боевик, триллерРежиссер: Мабрук Эль МекриАктеры: Генри Кавилл, Сигурни Уивер, Брюс Уиллис, Вероника Эчеги, Джозеф Моул, Кэролайн Гудолл, Рафи Гаврон, Эмма Хэмилтон, Рошди Зем, Оскар ХаэнадаПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6141C9FD88963B391571D24C62F10DE6BC2E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379733   (488971) от 27.08.2020
+
+Призраки: Лучшая участь / Spooks: The Greater Good (2015) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда террорист убегает из-под опеки в ходе передачи, Уилл Кромби должен объединиться с опальным шефом разведки MI5 Гарри Пирсом, чтобы разыскать его перед неминуемой террористической атакой на Лондон.Производство: Великобритания / Shine Pictures, Kudos Film and Television, Pinewood PicturesЖанр: боевик, триллер, драмаРежиссер: Бхарат НаллуриАктеры: Майкл Уилдман, Таппенс Мидлтон, Джеффри Стретфилд, Питер Фёрт, Эллиот Леви, Мэттью Уолкер, Элиес Габел, Дэвид Хэрвуд, Дженнифер Эль, Тим МакиннерниПеревод: Профессиональный многоголосый закадровыйСубтитры: Русские (форсированные)Продолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8270DAAC1FC6B046C43C8D37BA40F958BBB266D
 ```
 
 https://mybot314.ru/tekegram_catalog/

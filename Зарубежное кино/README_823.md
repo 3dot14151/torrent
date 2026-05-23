@@ -1,56 +1,3 @@
-###  Публикация: 1536363   (676438) от 11.03.2022
-
-Днепровский рубеж (2009) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Впервые основой для фильма стала героическая оборона Могилева, так называемый Днепровский рубеж — реальное историческое событие. В самом начале Великой Отечественной войны, когда войска немецко-фашистских захватчиков стремительно продвигались по территории Советского союза, город Могилев, Днепр, Буйницкое поле надолго задержали вражеский натиск… Как говорят многие (   Читать дальше...   )Производство: Беларусь / БеларусьфильмЖанр: Мелодрама, военный, историяРежиссер: Денис СкворцовАктеры: Игорь Сигов, Ксения Князева, Анатолий Кот, Анна Горшкова, Николай Козак, Виктор Молчан, Сергей Власов, Александр Ефремов, Святослав Астрамович, Михаил ЕсьманЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9635FDEC5357DD9EE802E6C0FA799214070EBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536182   (676434) от 11.03.2022
-
-Остаться в живых / Stay Alive (2006) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Группа подростков помешана на ролевой видеоигре «Остаться в живых». Суть игры — разыгрывать леденящие душу истории из жизни таинственной аристократки, которая жила в 17 веке и носила прозвище Кровавая Графиня.
-Неожиданно один за другим подростки начинают погибать, причем убивают их тем же изощренным способом, что и их персонажей. Жестокий вымысел все теснее и теснее (   Читать дальше...   )Производство: США / Endgame Entertainment, Hollywood PicturesЖанр: Ужасы, фантастика, фэнтези, триллерРежиссер: Уильям Брент БеллАктеры: Джон Фостер, Самира Армстронг, Фрэнки Муниз, Джимми Симпсон, Уенделл Пирс, Майло Вентимилья, София Буш, Адам Голдберг, Билли Слотер, Николь ОппермэннПеревод: ДублированныйСубтитры: Английские (SDH)Продолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C115730B1DEAC9F8C86A3A6D4CEBA6A6C1B97102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536257   (676432) от 11.03.2022
 
 Ночное ограбление / Dietro la notte (2021) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676432.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676354.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676345.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676343.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676333.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676318.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676306.jpg" />
 </div>
 
 
@@ -247,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676300.jpg" />
 </div>
 
 
@@ -273,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676296.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676240.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676219.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676212.jpg" />
 </div>
 
 
@@ -379,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676187.jpg" />
 </div>
 
 
@@ -406,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676186.jpg" />
 </div>
 
 
@@ -432,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676181.jpg" />
 </div>
 
 
@@ -459,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676180.jpg" />
 </div>
 
 
@@ -485,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676179.jpg" />
 </div>
 
 
@@ -511,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676163.jpg" />
 </div>
 
 
@@ -537,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676152.jpg" />
 </div>
 
 
@@ -563,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676147.jpg" />
 </div>
 
 
@@ -589,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676113.jpg" />
 </div>
 
 
@@ -615,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676100.jpg" />
 </div>
 
 
@@ -642,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676098.jpg" />
 </div>
 
 
@@ -668,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676075.jpg" />
 </div>
 
 
@@ -679,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFA7E69BB38B1A4E7BD36C18F76A40EF327A172C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839161   (676074) от 27.11.2025
+
+На высоте страха / The Occupant (2025) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы оплатить лечение умирающей сестры, инженер-геолог Эбби Бреннан соглашается на работу в отдалённой урановой шахте. Когда она находит странный метеорит, экспедиция прерывается — вертолёт терпит крушение. Эбби остаётся одна среди лесов, скал и снегов. Её единственная связь с внешним миром — голос мужчины по рации, который представляется Джоном. Он утверждает, (   Читать дальше...   )Производство: Нидерланды / Studio Artizm, Revolver Films, 20 Steps ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Хьюго КейзерАктеры: Роб Делани, Элла Балинска, Стюарт Грэм, Шина Келли, Ванесса Ифедиора, Джордж Лаша, Армин Карима, Константин РоинишвилиПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFC14805CB2563333C3152CC541EEF4FEB69D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839166   (676071) от 27.11.2025
+
+Отряд самоубийц / Suicide Squad (2016) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [Theatrical Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство решает дать команде суперзлодеев шанс на искупление. Подвох в том, что их отправляют на выполнение миссии, где они, вероятнее всего, погибнут.Производство: США / Atlas Entertainment, DC Comics, DC EntertainmentЖанр: фантастика, боевик, фэнтези, приключенияРежиссер: Дэвид ЭйрАктеры: Марго Робби, Уилл Смит, Джаред Лето, Джай Кортни, Кара Делевинь, Джей Эрнандес, Юэль Киннаман, Виола Дэвис, Адевале Акинойе-Агбаже, Скотт ИствудПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8EF93F3723EE8EAB2A5EE811B402B5A6E1EF98
 ```
 
 https://mybot314.ru/tekegram_catalog/

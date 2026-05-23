@@ -1,29 +1,3 @@
-###  Публикация: 1728117   (54328) от 05.06.2024
-
-Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В «Grand Theft Auto IV. Полное издание» входит экшен Grand Theft Auto IV, а также дополнение Grand Theft Auto: Episodes From Liberty City, состоящее из эпизодов The Lost and Damned и The Ballad of Gay Tony, сюжетные линии которых дополняют друг друга и раскрывают абсолютно противоположные грани криминального мира. В российском издании эти игры представлены в оригинальном (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar North, Rockstar TorontoЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC472D398D1434184C7BC08E58ABA88A1E76DE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728071   (54325) от 05.06.2024
 
 Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1/dlc) Repack FitGirl [Collection Edition]
@@ -32,7 +6,7 @@ Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1/dlc) Repack FitGirl [C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54325.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Medieval Kingdom Wars (2018) [Ru/Multi] (1.20) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54322.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mercenary Battle Company: The Reapers (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54316.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54315.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Tribe Must Survive (2024) [Multi] (1.0.16) Repack FitGirl [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54314.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54312.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54300.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.0.1/dlc) Repack FitGirl [Ultimate Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54295.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54286.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54283.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54229.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Cryptmaster (2024) [Multi] (1.032) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54212.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54208.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54206.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54195.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Zet Zillions (2024) [Ru/Multi] (0.9.6-A107) Repack FitGirl [Full-Trash Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54174.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Rolling Hills: Make Sushi, Make Friends (2024) [Multi] (1.0.9) Scene Razor1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54161.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Magic City Detective 5: The Carnival Begins / Волшебный город 5: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54155.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54126.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Far Cry 3 Дилогия (2012-2013) [Ru/Multi] (1.05/1.02/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54123.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54107.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hotel Business Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54100.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54082.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54076.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54067.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Tamarindos Freaking Dinner – это невероятно яркое, мест�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B046486B7C03D3987E7C68D4ED3F7E99BB5BFC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501801   (54018) от 08.06.2024
+
+Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотели бы вы попробовать себя в роли шеф-повара знаменитого ресторана и самостоятельно вникнуть во все тонкости высокой кухни? Теперь у вас есть такая уникальная возможность в игре Chef A Restaurant Tycoon Game. Эта игра позволит вам построить головокружительную карьеру в мире кулинарного искусства. Мелочь в кармане, небольшое помещение и заветная мечта - это все, (   Читать дальше...   )Тип издания: LicenseРазработчик: Inner VoidЖанр: Симулятор, Экономика, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5372A5CA980572E1AD1E2F4EEF02D8FF6FF9E28C
 ```
 
 https://mybot314.ru/tekegram_catalog/

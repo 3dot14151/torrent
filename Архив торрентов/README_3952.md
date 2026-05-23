@@ -6,7 +6,7 @@ WPS Office (Kingsoft Office) v17.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200828.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Far Manager 3.0.6116 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200823.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SketchUp Pro 2023 v.23.0.396 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200818.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v4 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200812.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200805.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ReNamer Pro 7.5 + Standalone (Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200788.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ MAGIX Vegas Pro 20.0 Build 370 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200786.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Adobe Acrobat Pro 23.001.20093.0 (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200773.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Tor Browser Bundle 12.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200755.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ashampoo Burning Studio 24.0.3.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200751.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MemTest86 10.3 Build 1000 Pro by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200746.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WinTools.net Premium 23.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200735.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AIDA64 Extreme Edition 6.88.6400 RePack by ivandubskoj [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200731.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Waves Ultimate 2023.03.26 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200729.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.88.6400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200727.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Psiphon 3 build 178 (27.03.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200723.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ OpenVPN 2.6.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200718.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Samsung SSD Magician Tool 7.3.0.1100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200702.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ MAGIX Vegas Pro 20.0 Build 370 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200699.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ O&O ShutUp10++ 1.9.1435 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200697.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Maxthon Browser 7.0.0.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200694.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200689.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ MAGIX Sound Forge Pro 17.0.1 Build 85 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200684.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ TechSmith Camtasia 22.5.2 (Build 44147) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200679.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ R-Studio Network 9.2 Build 191144 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200676.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ O&O DeskInfo 1.2.1346 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200670.jpg" />
 </div>
 
 

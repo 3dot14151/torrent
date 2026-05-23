@@ -6,7 +6,7 @@ Daum PotPlayer 1.6.58402 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955838.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 66.0.3515.103 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955823.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ YTD Video Downloader PRO 5.9.15.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955820.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pale Moon 28.8.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955809.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Photo Supreme 5.3.2.2722 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955807.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ YTD Video Downloader PRO 5.9.15.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955806.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AusLogics Disk Defrag Ultimate 4.11.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955804.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Internet Download Manager 6.25 Build 11 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955787.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Auslogics Duplicate File Finder 8.4.0.1 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955743.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Auslogics Disk Defrag Pro 9.4.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955741.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Google Chrome 80.0.3987.116 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955735.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Telegram Desktop 1.9.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955732.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Auslogics Disk Defrag Ultimate 4.11.0.5 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955730.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Extreme Picture Finder 3.47.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955727.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Auslogics Registry Cleaner Pro 8.4.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955726.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955706.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Internet Download Manager 6.25 Build 11 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955704.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adobe Audition CC 2015.1 8.1.0.162 Portable by JFK2005 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955654.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ ActivePresenter Pro Edition 8.0.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955639.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Auslogics Registry Defrag 12.4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955638.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Comodo Dragon 80.0.3987.87 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955618.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Artweaver Plus 7.0.4.15458 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955616.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Auslogics Duplicate File Finder 8.4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955603.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Process Lasso Pro 9.7.0.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955514.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Basilisk 2020.02.18 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955507.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Nox App Player 6.6.0.2003 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955506.jpg" />
 </div>
 
 

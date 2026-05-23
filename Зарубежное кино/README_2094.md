@@ -1,55 +1,3 @@
-###  Публикация: 1713111   (60653) от 05.04.2024
-
-Тетрис / Tetris (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История предпринимателя Хенка Роджерса, который загорелся идеей купить видеоигру «Тетрис», созданную советским программистом Алексеем Пажитновым.Производство: Великобритания, США / AI-Film, Apple TV, Marv Films, UnigramЖанр: триллер, драма, биография, историяРежиссер: Джон С. БейрдАктеры: Тэрон Эджертон, Никита Ефремов, Софья Лебедева, Энтони Бойл, Бен Майлз, Кэн Ямамура, Игорь Грабузов, Олег Штефанко, Рик Юн, Тоби ДжонсПеревод: Профессиональный многоголосый (Apple TV+, TVShows, тифлокомментирование)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full, SDH), украинские, английскиеПродолжительность: 01:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412B86ADED0F6DCB710FBF207446BF898B707EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713215   (60643) от 05.04.2024
-
-Правдивая ложь / True Lies (1994) UHD BDRip [H.265/2160p] [4K, HDR, Dolby Vision, Profile 8, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Для своей семьи Гарри Таскер - любящий муж и отец, человек скромный и рассеянный, обыкновенный продавец компьютеров, «не вылезающий» с работы ни днем, ни ночью. Но лишь немногие знают, что на самом деле Гарри - специальный агент тайной правительственной службы, специализирующийся на особо опасных заданиях, владеющий кучей языков, всеми видами оружия и всеми возможными (   Читать дальше...   )Производство: США / Twentieth Century Fox, Lightstorm EntertainmentЖанр: боевик, триллер, комедияРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Джейми Ли Кёртис, Том Арнольд, Арт Малик, Билл Пэкстон, Тиа Каррере, Элиза Душку, Грант Хеслов, Чарлтон Хестон, Маршалл МанешПеревод: Дублированный, профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full x2, SDH), украинский, английские (forced, full, SDH)Продолжительность: 02:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642B70155970B0C777E3323D5C7E6245524FDEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713728   (60638) от 06.04.2024
 
 Грань будущего / Edge of Tomorrow (2014) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60638.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60637.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60635.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60633.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60627.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60626.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60603.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60602.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60598.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60597.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60540.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60538.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60537.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60532.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60526.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60523.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60510.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60496.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60494.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60471.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60441.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60432.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60406.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60398.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A9CF98A7FB05FBB310B7DF84763A5C21A0F0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714241   (60394) от 08.04.2024
+
+Сенсация / Scoop (2024) WEB-DLRip [H.265] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60394.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2019 году продюсер шоу Newsnight на канале BBC Сэм Макалистер договаривается об интервью с принцем Эндрю, вторым сыном королевы Елизаветы II. В разговоре с журналисткой Эмили Мейтлис принц комментирует историю со скандалом вокруг Джеффри Эпштейна — американского финансиста, осужденного за организацию проституции. Эндрю впервые публично говорит о дружбе с Эпштейном (   Читать дальше...   )Производство: Великобритания / The Lighthouse, Voltage TVЖанр: драма, биографияРежиссер: Филип МартинАктеры: Джиллиан Андерсон, Билли Пайпер, Руфус Сьюэлл, Кили Хоуз, Ромола Гарай, Ифа Хайндс, Ричард Гулдинг, Элис Бэйли Джонсон, Тим Бентинк, Раффаэлло ДегруттолаПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F868D4FC4FFB6988FA5E5111F00A0C3946B64F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714095   (60393) от 08.04.2024
+
+Земмельвейс / Semmelweis (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм "Земмельвейс" переносит нас в Вену XIX века, где Игнац Земмельвейс, страстный и вспыльчивый врач, сталкивается с загадочной эпидемией детородной лихорадки, уносящей жизни многих пациентов в больнице. Ежедневно проводя роды и выполняя вскрытия, он настойчиво ищет причину этого смертельного недуга. Но его попытки разобраться в тайне сталкиваются с препятствиями (   Читать дальше...   )Производство: Венгрия / Film Positive ProductionsЖанр: драмаРежиссер: Лайош КольтаиАктеры: Miklós H. Vecsei, Katica Nagy, Ласло Гальффи, Тамаш Ковач, Ференц Элек, Attila Csapó, Лайош Ковач, Бланка Месарош, Анна Дьёрдьи, Иштван ЗнаменакПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, венгерскийСубтитры: английские, венгерские (full, SDH)Продолжительность: 02:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046876C2593B6DBAAD81C0F2C2A955785B0F15FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

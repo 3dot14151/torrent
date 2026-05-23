@@ -1,56 +1,3 @@
-###  Публикация: 898652   (677024) от 17.05.2015
-
-Меч мести / Sword of Vengeance (2015) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После победы в битве при Гастингсе Вильгельм Завоеватель отправил свою армию на север Англии для совершения свирепого разорительного вторжения. Самый грозный полководец короля, граф Дюран, вырезал сто тысяч саксов и разорил их земли. Теперь Дюран правит севером (   Читать дальше...   )Производство: Великобритания / Vertigo FilmsЖанр: боевикРежиссер: Джим УидонАктеры: Стэнли Вебер, Эдвард Экрут, Misha Berich, Пит Чеффи, Джанни Джардинелли, Milica Jevtic, Vid Krkeljic, Дэйв Леджено, Nenad Pecinar, Карел РоденПеревод: Двуголосый закадровый, любительский, Одноголосый закадровый, любительскийОзвучка / Автор перевода: (ColdFilm), (den904)Язык субтитров: АнглийскийПродолжительность: 01:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55F81E9C5C0BA143127AD9E398D558DF43B8042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222916   (677020) от 03.05.2018
-
-Сломанные цветы / Broken Flowers (2005) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Утро для престарелого «Дон Жуана» Дона Джонстона начинается с того, что от него уходит очередная подружка Шерри, потеряв веру в то, что с этим человеком можно создать семью. Оставшись в одиночестве, разбирая почту, Дон обнаруживает розовый конверт.
-В письме неизвестная сообщает, что двадцать лет назад, расставшись с Доном, обнаружила, что беременна. Не обращаясь (   Читать дальше...   )Производство: США, Франция / Bac Films, Five Roses, Focus FeaturesЖанр: Драма, Комедия, ДетективРежиссер: Джим ДжармушАктеры: Билл Мюррей, Шэрон Стоун, Джессика Лэнг, Тильда Суинтон, Фрэнсис Конрой, Алексис Дзена, Жюли Дельпи, Хезер Симс, Кристофер МакДональд, Джеффри Райт, Клоэ Севиньи, Марк Веббер, Пелл ДжеймсПеревод: Двуголосый закадровый, Многоголосый закадровыйСубтитры: русские, английскиеПродолжительность: 01:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEDD84172EC0C6332A0F0B59CCD60C55AAF6CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222911   (677017) от 03.05.2018
 
 Трон (Садо / Престол) / Sado / The Throne (2015) BDRip [H.265/1080p] [10-bit] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677017.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677016.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677004.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676955.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676953.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676878.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676867.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676856.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676854.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676853.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676770.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676757.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676756.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676755.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676747.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676735.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676711.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676644.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676609.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676564.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676562.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676556.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676479.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676472.jpg" />
 </div>
 
 
@@ -671,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F31FC48E891BC92A5496CE2C63CC2771BC309E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536363   (676438) от 11.03.2022
+
+Днепровский рубеж (2009) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые основой для фильма стала героическая оборона Могилева, так называемый Днепровский рубеж — реальное историческое событие. В самом начале Великой Отечественной войны, когда войска немецко-фашистских захватчиков стремительно продвигались по территории Советского союза, город Могилев, Днепр, Буйницкое поле надолго задержали вражеский натиск… Как говорят многие (   Читать дальше...   )Производство: Беларусь / БеларусьфильмЖанр: Мелодрама, военный, историяРежиссер: Денис СкворцовАктеры: Игорь Сигов, Ксения Князева, Анатолий Кот, Анна Горшкова, Николай Козак, Виктор Молчан, Сергей Власов, Александр Ефремов, Святослав Астрамович, Михаил ЕсьманЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9635FDEC5357DD9EE802E6C0FA799214070EBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536182   (676434) от 11.03.2022
+
+Остаться в живых / Stay Alive (2006) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [Theatrical Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа подростков помешана на ролевой видеоигре «Остаться в живых». Суть игры — разыгрывать леденящие душу истории из жизни таинственной аристократки, которая жила в 17 веке и носила прозвище Кровавая Графиня.
+Неожиданно один за другим подростки начинают погибать, причем убивают их тем же изощренным способом, что и их персонажей. Жестокий вымысел все теснее и теснее (   Читать дальше...   )Производство: США / Endgame Entertainment, Hollywood PicturesЖанр: Ужасы, фантастика, фэнтези, триллерРежиссер: Уильям Брент БеллАктеры: Джон Фостер, Самира Армстронг, Фрэнки Муниз, Джимми Симпсон, Уенделл Пирс, Майло Вентимилья, София Буш, Адам Голдберг, Билли Слотер, Николь ОппермэннПеревод: ДублированныйСубтитры: Английские (SDH)Продолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C115730B1DEAC9F8C86A3A6D4CEBA6A6C1B97102
 ```
 
 https://mybot314.ru/tekegram_catalog/

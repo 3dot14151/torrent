@@ -6,7 +6,7 @@ Vivaldi 7.0.3495.26 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34293.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TikTok 37.6.3 Mod by Dmitry Nechiporenko + Plugin 1.61 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34290.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VRadio - Online Radio App v2.7.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34281.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Spotify: музыка и подкасты v8.9.98.488 LiteMod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34225.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34189.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WPS Office + PDF v18.14.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34185.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ HiPER Calc Pro v11.0.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34182.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ USB Device Tree Viewer 4.4.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34181.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Alfa eBooks Manager 8.6.41.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34174.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ HandBrake 1.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34173.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.34.7 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34171.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinToUSB Technician 9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34167.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 11 PRO 24H2 26100.2605 Update 10 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34162.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ KMS Tools Portable by Ratiborus 15.12.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34148.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Revo Uninstaller Mobile v3.3.500G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34142.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Adobe Photoshop Lightroom Classic 2025 14.1.0.7 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34137.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ O&O Defrag Professional 29.1 Build 11206 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34129.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34128.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ChatOn: Нейросеть - Чат-бот с ИИ v1.58.504-559 Mod by MustHave
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34127.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Disk Drill 5.7.916 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34126.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ iFind Data Recovery 9.7.17.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34111.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ TreeSize Professional 9.3.0.1954 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34110.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34106.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ YT Downloader 9.11.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34100.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ WinTools.net Premium 24.12.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34090.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ RAM Saver Professional 24.12.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34086.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AdwCleaner 5.031 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960872.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IcoFX 2.12.1 Final RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960871.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zoom Player MAX 11.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960811.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960805.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ JoyoBox Cleaner 5.0.0.0 RePack (& Portable) by KpoJIuK (25.01.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960803.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Teorex PhotoScissors 2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960801.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Magna Carta 2 (2009) [Xbox360] [RegionFree] 7371 [FreeBoot] [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960800.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MediaHuman YouTube Downloader 3.9.9.33 (1502) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960798.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Skylark - Echo Form (2020) MethLab Recordings [FLAC|Lossless|WEB-DL|tracks] <Dru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960797.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ GoodSync Enterprise 10.10.23.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960796.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MediaHuman Audio Converter 1.9.6.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960791.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ FreeFileSync 10.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960789.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wise Registry Cleaner Free 10.2.9.689 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960785.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Loaris Trojan Remover 3.1.13.1408 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960784.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960782.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960772.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AnVir Task Manager 8.0.0 Beta 4 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960759.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Avast Business Security 2015 10.4.2509 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960753.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ ICE Book Reader Professional 9.4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960748.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Windows 10 Manager 3.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960741.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Powered by Inspected Vol. 1-3 (2014-2020) Inspected Records [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960736.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ O&O DiskImage Professional 15.2 Build 170 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960734.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ FonePaw Data Recovery / Datenrettung 2.1.0 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960725.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ FastStone Capture 8.4 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960698.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ MAGIX Video Pro X7 14.0.0.145 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960687.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Color Finale 1.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960685.jpg" />
 </div>
 
 

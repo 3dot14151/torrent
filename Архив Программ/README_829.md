@@ -6,7 +6,7 @@ PerformanceTest 8.0 Build 1049 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tor Browser Bundle 4.5.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627158.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627149.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avira Free Antivirus 15.0.27.34 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627148.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Opera 46.0.2597.26 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627140.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ R-Studio 8.3 Build 168003 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627136.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.70.6000 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627105.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Google Nik Software Complete Collection 1.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627047.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ WPI by Lomalkin v.13.06.2015 (32bit+64bit) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627037.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.06.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627023.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ MInstAll Release By StartSoft v.4 June-2017 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627022.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mozilla Firefox 14.0 Beta 12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626994.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Native Instruments Guitar Rig Pro 4.2.0 Build 2265 Portable [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_626885.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ACDSee Pro 5.3.168 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626825.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Windows XP SP3 Professional x86 RUS DM Edition v.10.7.16 [CD]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626811.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ JPEGView v.1.0.26 Free Portable RePack by wadimus [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626756.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Xilisoft DVD Ripper Platinum 7.4.0 Build 20120710 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626697.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ K-Lite Codec Pack 9.0 (x86, Basic, Standart, Full, Mega) / 9.0  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626629.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ RidNacs 2.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626501.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626461.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Avast Secure Browser 66.0.554.181 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626319.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Mozilla Firefox Quantum ESR 60.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626317.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PDF Compressor Pro 4.01 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626316.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Mozilla Firefox Quantum 60.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626314.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Junkware Removal Tool 7.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626286.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ USB DOCTOR v.1 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_626265.jpg" />
 </div>
 
 

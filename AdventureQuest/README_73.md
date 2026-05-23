@@ -1,29 +1,3 @@
-###  Публикация: 472660   (84202) от 24.03.2012
-
-Особенности национального развода [Ru] (P) 2007
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Светлая поросль пролетариата выродилась в гнусное племя «городских шакалов», которые с азартом предаются новой забаве – «разводу». Стоит добропорядочному гражданину забрести с центральной улицы в темноту промышленного района, как тут же отыщется группа товарищей в спортивных костюмах, интересующихся временем суток. Культурное общение заканчивается не менее культурным обменом – добровольной передачей часов и наличных денег. Только наш главный герой не из тех, кто безропотно стерпит несправедливость!(   Читать дальше...   )Тип издания: ПираткаЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471714   (83808) от 22.03.2012
 
 Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
@@ -32,7 +6,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83808.jpg" />
 </div>
 
 
@@ -62,7 +36,7 @@ Back to the Future: The Game Episode 1: It’s About Time / Назад в буд
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83776.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack/1.0.0.1) 2012|
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83585.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83561.jpg" />
 </div>
 
 
@@ -150,7 +124,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83515.jpg" />
 </div>
 
 
@@ -177,7 +151,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82983.jpg" />
 </div>
 
 
@@ -208,7 +182,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82734.jpg" />
 </div>
 
 
@@ -234,7 +208,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81919.jpg" />
 </div>
 
 
@@ -261,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81511.jpg" />
 </div>
 
 
@@ -289,7 +263,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81487.jpg" />
 </div>
 
 
@@ -315,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81445.jpg" />
 </div>
 
 
@@ -342,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79273.jpg" />
 </div>
 
 
@@ -368,7 +342,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74563.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69655.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65896.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65891.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65798.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65795.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65664.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65662.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65661.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65641.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63780.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63754.jpg" />
 </div>
 
 
@@ -683,7 +657,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63676.jpg" />
 </div>
 
 
@@ -694,6 +668,32 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A804BDCD072961732C1798DBD895A8E64EE92803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573806   (63670) от 08.03.2024
+
+IMMORTALITY (2022) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный хоррор, рассказывающий леденящую душу историю про девушку по имени Мариса Марсель. Она всегда стремилась стать известной актрисой. Для достижения своей мечты девушка прикладывала все усилия и проходила через самые нелепые роли. Три фильма с ее участием и вовсе не попали на экраны. Однако вскоре героиня бесследно исчезает.Тип издания: LicenseРазработчик: Half MermaidЖанр: Приключение, Симулятор, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Турецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Турецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDBE02A3E2C4EDF43B2C8E0A346466B8EAC1E65
 ```
 
 https://mybot314.ru/tekegram_catalog/

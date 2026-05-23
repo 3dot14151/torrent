@@ -1,29 +1,3 @@
-###  Публикация: 1579100   (340788) от 25.09.2022
-
-NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Африканский континент является домом для огромного количества различных видов, но из всех животных и птиц наибольшего почтения заслуживают львы. Это история о трех львиных прайдах, их борьбе за власть на запретной территории. "Болотный" прайд - маленький, но мудрый. "Баобабовый" прайд - более 30 сильных охотников. Прайд "Нджаа" - свирепые (   Читать дальше...   )Производство: Австрия, Германия, США, Франция, Terra Mater Factual Studios, Doclights / NDR Naturfilm, National Geographic, ARTE FranceЖанр: документальный, природа, флора, фаунаРежиссер: Оуэн ПрюммПеревод: дублированный (Велес)Субтитры: английскиеПродолжительность: 3x ~00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE275B6F773A202B566C2F1129DF382BBED76B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257980   (340726) от 28.10.2018
 
 NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/1080p] (сезоны 1-2, серии 1-14)
@@ -32,7 +6,7 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340726.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340519.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340511.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Discovery: Оружие, которое изменило мир. РПГ / Weapon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340217.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Discovery. Дороги России: Трасса Байкал (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340085.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Discovery: Наука сексуальной привлекательности 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339769.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339701.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339589.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339395.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339393.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Discovery: Разрушители легенд. Стрелки-профи / Myth
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339354.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338697.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338467.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338207.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337617.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Discovery: Как это сделано ? / How it's made? (2012) SATRip [Сез
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337467.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Discovery: Речные монстры / River monsters (2017) HDTVRip [H.264/72
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336775.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336764.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336378.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336375.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Discovery. Умельцы против апокалипсиса / Masters of Dis
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334533.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ NG: Архитекторы древности / Architects of the Ancient World 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334439.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ NGW: Остров муссонов. Паутина жизни / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334437.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ NG: Мегасооружения: музей Лувр Абу Даби / Megastru
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334432.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332858.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DC05E66A3E68AF6768DDE5FA6F48CC4E913E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257316   (332813) от 01.11.2018
+
+Тайны шести жен с Люси Уорсли / Secrets of the Six Wives with Lucy Worsley (2016) HDTVRip [H.264/1080p-LQ] (Сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал показывает нам драматическую реконструкцию, в которой Люси Уорсли пересматривает ключевые события в жизни шести жен Генриха VIII, раскрывает те моменты в которых каждая из них пыталась оказать влияние на короля и суд Тюдоров. Люси вникает в записи личных моментов и личных чувств в жизни этих женщин, которые в конечном итоге формируют ход истории.Производство: Великобритания, Wall to Wall South LtdЖанр: Документальный, драма, биография, историяРежиссер: Расселл ИнглэндПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4D5740B4DACCFC14CDD22040FF2AD9E08CB3E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

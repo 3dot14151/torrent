@@ -6,7 +6,7 @@ Streetwalkers - Downtown Flyers (2002) [FLAC|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656982.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kossoff, Kirke, Tetsu & Rabbit - Kossoff, Kirke, Tetsu, Rabbit (1972) Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656981.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kitty, Daisy & Lewis - The Third (2015) [FLAC|tracks+.cue]<Rock & Roll, Ska, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656975.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Steve Kipner - Knock the Walls Down (1979) [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656925.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Back Street Crawler - 2nd Street (1976) Remastered /2004, Wounded Bird Records/ 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656890.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Electric Desert - Electric Desert (2014) 2 CD [FLAC|tracks+.cue]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656889.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Alquin - 3 Originals: Nobody Can Wait Forever/Best Kept Secret/Alquin On Tour (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656885.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kitty, Daisy & Lewis - Smoking In Heaven (2011) [FLAC|tracks+.cue]<Rock & Roll, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656884.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kitty, Daisy & Lewis - Kitty, Daisy & Lewis (2009) [FLAC|tracks+.cue]<Rock & Rol
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656883.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lord Sutch and Heavy Friends - Hands of Jack the Ripper (1972) Remastered /2005,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656877.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Pete Townshend - Empty Glass (1980) [FLAC|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656874.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Back Street Crawler - The Band Plays On (1975) Remastered /2014, Wowow Entertain
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656873.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Humble Pie - Humble Pie (1970) Remastered /2012, Lemon Recordings/ [FLAC|image+.
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656790.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ George Thorogood & The Destroyers - Born To Be Bad (1988) [FLAC|image+.cue]<Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656781.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Epsilon – Move On (1972) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656780.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Chicken Shack Featuring Stan Webb – Goodbye Chicken Shack (1974) Remastered /2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656670.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - While My Guitar Gently Weeps 2 (2002) 2CD [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656668.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Chicken Shack Featuring Stan Webb - Unlucky Boy (1973) [FLAC|image+.cue]<Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656665.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ U2 - The Joshua Tree (30th Anniversary Edition) (2017) 4CD, Remastered [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656587.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656559.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Emerson, Lake & Palmer - Trilogy (1972) (2 CD) Remastered /2015, Sony Music/ [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656438.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Eric Clapton - Story (1990) [FLAC|image+.cue]<Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656380.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Circus - Movin' On (1977) Remastered /1990, Decoder/ [FLAC|image+.cue]<Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655692.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Epsilon – Epsilon (1971) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655686.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Aunt Mary - Aunt Mary (1970) Remastered /2004, Pan Records/ [FLAC|tracks+.cue]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655684.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Renaissance - DeLane Lea Studio (1973) Remastered /2015, Purple Pyramid Records/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655469.jpg" />
 </div>
 
 

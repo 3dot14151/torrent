@@ -1,55 +1,3 @@
-###  Публикация: 1658823   (190730) от 09.09.2023
-
-Корабль призраков / Haunting of the Queen Mary (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый трансатлантический лайнер «Королева Мэри» — самый зловещий корабль в истории. У судна, превосходящего по размерам «Титаник», в прошлом полно несчастных случаев и загадочных смертей. Леденящие душу события 1938 года таинственным образом переплетаются с судьбой семьи, поднявшейся на борт в наши дни. Теперь, чтобы спасти своего ребёнка, паре родителей придется (   Читать дальше...   )Производство: США, Великобритания, BCP Asset Management, Creativity Capital, Fulwell 73Жанр: ужасы, драмаРежиссер: Гари ШорАктеры: Элис Ив, Нелл Хадсон, Джоэль Фрай, Тим Дауни, Уильям Шокли, Энгус Райт, Джим Пиддок, Ленни Раш, Тиффани Эштон, Дориан ЛокПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF42A51DDC0AFC0FA522A7322F7492A1ACB33A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658828   (190725) от 09.09.2023
-
-Корабль призраков / Haunting of the Queen Mary (2023) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый трансатлантический лайнер «Королева Мэри» — самый зловещий корабль в истории. У судна, превосходящего по размерам «Титаник», в прошлом полно несчастных случаев и загадочных смертей. Леденящие душу события 1938 года таинственным образом переплетаются с судьбой семьи, поднявшейся на борт в наши дни. Теперь, чтобы спасти своего ребёнка, паре родителей придется (   Читать дальше...   )Производство: США, Великобритания, BCP Asset Management, Creativity Capital, Fulwell 73Жанр: ужасы, драмаРежиссер: Гари ШорАктеры: Элис Ив, Нелл Хадсон, Джоэль Фрай, Тим Дауни, Уильям Шокли, Энгус Райт, Джим Пиддок, Ленни Раш, Тиффани Эштон, Дориан ЛокПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A16201297BAC36D19E157FD77DFEE3F17046E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658733   (190724) от 09.09.2023
 
 Подводный капкан / The Dive (2023) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190724.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190721.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190713.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190710.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190708.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190704.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190701.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190695.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190687.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190618.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190584.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190581.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190551.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190535.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190529.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190521.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190519.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190507.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190476.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190473.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190471.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190470.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190465.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190461.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1623E99E641A86D1D17A41F4AF1C7D1AE88D3CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659054   (190456) от 10.09.2023
+
+Элегия / Elegy (2008) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снят по роману Филипа Рота "Умирающее животное" 2001 года... История взаимоотношений преподавателя колледжа Дэвида Кепеша и юной кубинки Консуэлы Кастильо. Он — одинокий плейбой, буквально воспринявший лозунги сексуальной революции, оставивший жену и детей взамен на сексуальную беспечность. Она — единственная дочь католического семейства кубинских иммигрантов. (   Читать дальше...   )Производство: США, Lakeshore EntertainmentЖанр: драма, мелодрамаРежиссер: Изабель КойшетАктеры: Пенелопа Крус, Бен Кингсли, Дэннис Хоппер, Патришия Кларксон, Питер Сарсгаард, Дебора Харри, Чарли Роуз, Антонио Купо, Мишель Харрисон, Соня Беннет, Эмили Холмс, Чела Хорсдэл, Марси Т. Хаус, Алессандро Джулиани, Тиффани Линдолл-НайтПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C0EBD48A5AB0A2492A290DF9E02435EA386FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589098   (190455) от 08.11.2022
+
+Мост через озеро / Causeway (2022) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision, 10-bit] [Hybrid]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Линси работает в корпусе инженеров Армии США в Афганистане. После того как её автомобиль подрывается на мине, она проходит реабилитацию и возвращается домой в Новый Орлеан, где устраивается работать уборщицей в бассейн и знакомится с добрым механиком.Производство: США / A24, Excellent Cadaver, AC Films, IPR.VCЖанр: драмаРежиссер: Лила НойгебауерАктеры: Дженнифер Лоуренс, Дэнни Уолохэн, Джейн Ходишелл, Нил Хафф, Нгуен Ань Хыу, Natalie Pilie, Линда Эмонд, Фред Уэллер, Брайан Тайри Генри, Sean CarvajalПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full, SDH), украинские, английские (forced, full, SDH)Продолжительность: 01:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB13FE59D24B43157D59C647595B82D1FEE62AA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

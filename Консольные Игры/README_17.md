@@ -1,110 +1,3 @@
-###  Публикация: 1124110   (786021) от 09.04.2017
-
-Deus Ex: Human Revolution - Director's Cut (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Начало 21 века стало эпохой торжества кибернетических технологий. В 2027 году недостаточно быть просто человеком, нужно во что бы то ни стало быть чем-то большим. Адам Дженсен слишком хорошо знаком с этим правилом. Против своей воли оснащенный кибернетическими имплантатами, он оказывается втянут в таинственный заговор, угрожающий всему миру. Это Deus Ex: Human Revolution (   Читать дальше...   )Тип издания: RepackРазработчик: Eidos MontrealЖанр: Action, Adventure, RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD905A34F5F91BE8035A595B71383D2121BA2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120270   (785855) от 10.04.2017
-
-Skylanders: Imaginators (2016) [WiiU] [EUR] 5.5.1 [WUP Installer] [License] [Multi]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это шестая часть игры.
-Сюжет Skylanders: Imaginators развивается по всем канонам современной американской мультипликации, предлагая добрых героев, карикатурных врагов и понятные детям шутки. Игра повествует о злобном Каосе, который похищает магическую книгу из библиотеки небесных земель. Благодаря знаниям, заключенным в этом томе, он пытается создать самого сильного (   Читать дальше...   )Тип издания: LicenseРазработчик: Toys For BobЖанр: Toys-to-life, RPG, Action-adventureЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A1F3F91D2FFBD644B7ABC73DBFE875F3EA8C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203784   (784235) от 07.02.2018
-
-Jojo's Bizarre Adventure HD Ver. (2012) [Xbox360] [Region Free] 13599 [FreeBoot] [XBLA] [En]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-JoJo's Bizarre Adventure — игра в жанре файтинг, разработанная японской компанией Capcom по мотивам одноимённой манги авторства Хирохико Араки, а точнее её третьей части Stardust Crusaders. В августе 2012 года была создана новая версия игры в формате с высокой чёткостью изображения для PlayStation Network и Xbox Live Arcade.
-
-Игра представляет собой файтинг, а её (   Читать дальше...   )Тип издания: XBLAРазработчик: CapcomЖанр: FightingЯзык озвучки: ЯпонскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1657FEC7C62E3CADF96EFDD7E1EBF89D0B24172A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204384   (783958) от 08.02.2018
-
-FIFA 18 Legacy Edition (2017) [Xbox360] [PAL] [LT.3.0] [License] [Ru/En/Pl]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-FIFA 18  – обновлённая версия знаменитой серии. Её главное отличие – полностью переработанная анимация персонажей, которая создавалась по принципу трёхмерного сканирования движений настоящих футболистов. В итоге соревнования стали ещё более увлекательными и динамичными. Кроме того, в игру добавлены по-настоящему живые болельщики. Они умеют драться, бросать на поле (   Читать дальше...   )Тип издания: LicenseРазработчик: EA CanadaЖанр: Sport, Soccer, 3DЯзык озвучки: Русский, Польский, АнглийскийЯзык субтитров: Русский, Польский, АнглийскийЯзык интерфейса: Русский, Польский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A777CCC86148E6AFFF313B06EC8E267CF403A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389923   (783573) от 13.06.2020
 
 BioShock Remastered (2020) [Switch] [USA] 9.2.0 [NSP] [Repack / 1.0.2] [Ru/En]
@@ -113,7 +6,7 @@ BioShock Remastered (2020) [Switch] [USA] 9.2.0 [NSP] [Repack / 1.0.2] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783573.jpg" />
 </div>
 
 
@@ -139,7 +32,7 @@ Ni no Kuni Wrath of the White Witch Remastered (2019) [Switch] [USA] 9.1.0 [NSP]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783267.jpg" />
 </div>
 
 
@@ -165,7 +58,7 @@ Far Cry Classic (2014) [PS3] [USA] 4.21 [CFW] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783085.jpg" />
 </div>
 
 
@@ -191,7 +84,7 @@ Dogfight 1942 (2012) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial /
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778180.jpg" />
 </div>
 
 
@@ -217,7 +110,7 @@ Evil Dead: Regeneration (2005) [Xbox] [NTSC] 5101 [СофтМод] [Unofficial] 
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777846.jpg" />
 </div>
 
 
@@ -243,7 +136,7 @@ Naval Assault: The Killing Tide (2010) [Xbox360] [RegionFree] 8955 [FreeBoot] [U
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777838.jpg" />
 </div>
 
 
@@ -269,7 +162,7 @@ Spec Ops: The Line (2012) [Xbox360] [RegionFree] 14719 [FreeBoot] [Unofficial] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777835.jpg" />
 </div>
 
 
@@ -295,7 +188,7 @@ The Golden Compass / Золотой компас (2007) [Xbox360] [FreeRegion] 5
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777461.jpg" />
 </div>
 
 
@@ -321,7 +214,7 @@ Fatal Inertia (2007) [Xbox360] [RegionFree] 5759 [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777458.jpg" />
 </div>
 
 
@@ -347,7 +240,7 @@ Prince of Persia Classic (2008) [PS3] [USA] 4.25 [CFW] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777372.jpg" />
 </div>
 
 
@@ -373,7 +266,7 @@ The Legend of Zelda: Twilight Princess HD (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777023.jpg" />
 </div>
 
 
@@ -399,7 +292,7 @@ Yoshi's Woolly World (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776646.jpg" />
 </div>
 
 
@@ -425,7 +318,7 @@ Ninja Gaiden 3: Razor's Edge (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776643.jpg" />
 </div>
 
 
@@ -451,7 +344,7 @@ Captain Toad: Treasure Tracker (2015) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776610.jpg" />
 </div>
 
 
@@ -478,7 +371,7 @@ Devil's Third (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776609.jpg" />
 </div>
 
 
@@ -504,7 +397,7 @@ Bayonetta (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776608.jpg" />
 </div>
 
 
@@ -530,7 +423,7 @@ Watch Dogs (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776601.jpg" />
 </div>
 
 
@@ -556,7 +449,7 @@ Nano Assault Neo (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776302.jpg" />
 </div>
 
 
@@ -582,7 +475,7 @@ Final Fantasy X HD Remaster (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [Repack] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776264.jpg" />
 </div>
 
 
@@ -608,7 +501,7 @@ Tekken Tag Tournament 2 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776237.jpg" />
 </div>
 
 
@@ -634,7 +527,7 @@ The Legend of Zelda: The Wind Waker HD (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776231.jpg" />
 </div>
 
 
@@ -660,7 +553,7 @@ Need For Speed: CARBON / NFS: CARBON (2006) [Xbox] [NTSC] 5101 [СофтМод] 
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776230.jpg" />
 </div>
 
 
@@ -671,6 +564,110 @@ Need For Speed: CARBON / NFS: CARBON (2006) [Xbox] [NTSC] 5101 [СофтМод] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:071925AF2CF4052E56D868EBC5E076702F8CA401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014587   (775943) от 08.05.2016
+
+Lego Jurassic World (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что вы знаете о динозаврах? Безусловно, они имели весьма большие размеры и отличались не очень дружелюбным нравом, их мир был жесток и в нем приходилось бороться за жизнь. Вам же, предстоит следить за протеканием юрского периода, попутно пользуясь главным плюсом Lego мира, возможностью создать нечто новое, тут все ограничивается только вашей фантазией.Тип издания: LicenseРазработчик: TT Games, Feral InteractiveЖанр: Arcade (Platform), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B482E94A2FCE5109F0C63775B75AB40FFD008B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014593   (775941) от 08.05.2016
+
+SEGA Superstars Tennis (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теннис является одним из самых популярных видов спорта. Телевизионные трансляции, международные соревнования, престижные кубки, многомиллионные гонорары — все это привлекает внимание миллионов поклонников. Но чтобы стать настоящим теннисистом, нужны годы упорных тренировок. Отдать столько времени спорту способны лишь увлеченные люди, но теперь замечательный шанс (   Читать дальше...   )Тип издания: LicenseРазработчик: Sumo DigitalЖанр: Sport SimulatorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA3A3E0D6358BFBBB8A79BB1FEE2335EA7ACB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204673   (775917) от 11.03.2018
+
+Final Fantasy X HD Remaster (2014) [PSVita] [USA] 3.60 [NoNpDrm] [Repack / UnDub] [Ru]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время золотого века наступило тогда, когда просвещенной цивилизации, населявшей Спиру, удалось открыть устройство Machina. Но всё это далекое прошлое. Примерно тысячу лет назад в мире поселилась беда, которая носила название Син. И понеслись несчастья, разрушения, как говорили пророки из-за чрезмерной веры в Machina. Все это продолжалось, пока молодой и перспективный (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: JRPGЯзык озвучки: ЯпонскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E0E23F0C139F5354B2E4C7FDC49C2CAD4DB94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014576   (775907) от 08.05.2016
+
+Kirby and the Rainbow Paintbrush (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775907.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Стране грез произошла беда — исчезли сразу все цвета! Исследуйте чудесный пластилиновый мир красочной игры жанра «платформер», используя сенсорный экран Wii U GamePad для того, чтобы рисовать радужные нити, по которым будет перемещаться Кирби, а также блокировать препятствия и врагов.Тип издания: LicenseРазработчик: HAL Labs, Nintendo SPDЖанр: Платформер, приключениеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64B4052A2472105A9F43C8C143041B33001DEA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

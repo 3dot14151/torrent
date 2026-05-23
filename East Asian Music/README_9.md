@@ -6,7 +6,7 @@ coldrain - Nonnegative (2022) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, M
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507128.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503264.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jeon Su Yeon - Sentimental Green (2005) [MP3|320 kbps]<NewAge>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502801.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Face To Face (vol. I-III) (2006-2009) [MP3|320 кб/с]<Instrumental, Ethni
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502445.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Seira Kagami - 4 альбома, 2 сингла (2007-2010) [MP3|192-320 кб/с
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502354.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Pacific Moon. Compilation (27 albums) (1999-2010) [MP3|320 кб/с]<Ethnic,
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501949.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - The Rough Guide To The Music Of Japan (2008) [APE|Lossless] <Folk, World, C
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501939.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Aki Toyosaki - 3 альбома, 21 сингл  (2009-2012) [MP3|320 кб/с]<J-
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500142.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Pazzo Fanfano Di Musica - Pazzo Fanfano Di Musica (1989) Reissue /2013, King Rec
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499163.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DAY6 - The day (2015) [MP3|320 кб/с]<k-pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498275.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - LIVIN'G Presents: Lovely Guitar & Natural Spa (Vol. 1-3) (2010) [MP3|320 к
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498085.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ KARASHIC RECORDS - 2 альбома (2010-2011) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496486.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ JunKY-jaM - 5 альбомов (2009-2011) Touhou Instrumental /Doujin/ [FLAC|tr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496483.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Karkan - 5 альбомов (2008-2011) Touhou Vocal, Instrumental /Doujin/ [FLA
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496400.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Klang-Gear - 3 альбома (2008-2010) Touhou Instrumental /Doujin/ [FLAC|tra
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496399.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ JF UNION — Day Dream (2012) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496398.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ JUNCTION PROJECT - 3 альбома (2010-2012) Touhou Vocal, Instrumental /Douj
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496397.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ JOYH-TV — Triple Time Arranges (2012) Touhou Instrumental /Doujin/ [FLAC|track
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496396.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ KARMART - 9 альбомов (2008-2010) Touhou Instrumental /Doujin/ [FLAC|trac
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496395.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Iris Drop — HIMAWARI FIRE!! (2012) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Rock
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496392.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ J&B - 11 альбомов (2007-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496389.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Kota-rocK - 6 альбомов (2006-2009) Touhou Vocal, Instrumental /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496388.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Knights of Round - 4 альбома (2007-2010) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496386.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ KeyMusic - 1 альбом + 8 синглов (2005-2011) Touhou Vocal, Instrumen
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495491.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ kaon - 2 альбома (2010-2011) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Metal
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495490.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ LAVO - 2 альбома (2009-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494448.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTVRip [Сезон 1, С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633765.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTV [H.264/720p-LQ] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633760.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Самый разрушительный тайфун / Megastorm: Wor
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633759.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633755.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Подлинная жизнь Тутанхамона / King Tut Unwra
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633496.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632009.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Билли скупает Бруклин / Billy Buys Brooklyn (2021)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631222.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Выжить любой ценой  / Ultimate Survival (Man vs. Wild
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630147.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Необъяснимое. Специальные материалы /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628433.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery. НАСА: необъяснимые материалы. Лунные �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628272.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627929.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627770.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery: Легенда о золоте крокодилов / The Legend of C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626915.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624574.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Дьявольский каньон / Devil's Canyon (2017) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624231.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623935.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery: Один на один с природой / Alone in the Wild (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622564.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622519.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620526.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery. Аппараты лунных программ / Moon Machines (2008)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620209.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery. Короли Леса / Kings of the Wood (2022) WEBRip [H.264/1080p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619904.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery. Акула Тьмы: Ярость Субмарины / Shark of Darkn
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619490.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Discovery: Головоломы (Мозголомы): Насилие над на
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616453.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTVRip [Сер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615927.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTV [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615855.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Discovery: Выжить любой ценой [сезон 1] / Ultimate Survival
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614492.jpg" />
 </div>
 
 

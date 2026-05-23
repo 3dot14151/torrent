@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718707.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Trance Desires (2017) [MP3|320 Kbps] <Trance, Progressive, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718697.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Heavenly Voices: Best Of Vocal Trance Classics (2017) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718693.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Vocal Trance Hits 2017-02 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718692.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ eM Client Pro 7.2.34731.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718682.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Privacy Eraser Free 5.20.2 Build 4161 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718667.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718664.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Get Backup Pro 3 v3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718663.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Microsoft Edge 98.0.1108.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718661.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ BandLab - Cakewalk 2022.02 (Build 029) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718659.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718650.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Kodachi Linux [анонимный доступ в сети] 7.2 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718643.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ LibreOffice 7.0.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718633.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VueScan Pro 9.5.75 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718630.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Physical Dreams - Dreams Trance Vol.2 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718618.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ TeamViewer Free 14.1.18533 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718581.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hands Off! 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718578.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ WinRAR 5.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718571.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ WinRAR 5.70 Final RePack by ivandubskoj [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718568.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Firefox Browser 97.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718565.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Wondershare UniConverter 13.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718559.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VueScan Pro 9.7.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718558.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Opera 84.0.4316.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718557.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Overloud TH-U Premium 1.4.8 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718550.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Dollar - The Dollar Album (1982) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Syn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718531.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ SMPlayer 17.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718525.jpg" />
 </div>
 
 

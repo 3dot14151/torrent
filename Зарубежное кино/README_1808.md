@@ -1,55 +1,3 @@
-###  Публикация: 1591726   (186688) от 19.11.2022
-
-Брайан и Чарльз / Brian and Charles (2022) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Брайан живет в одиночестве в валлийской деревушке. Он изобретает невероятные приспособления, которые редко работают. Но однажды Брайан находит голову манекена и создает Чарльза. Робот, собранный из запчастей от разных устройств, учит английский по словарю, чтобы быть достойным собеседником для Брайана. Вскоре Чарльз эволюционирует и начинает интересоваться внешним (   Читать дальше...   )Производство: Великобритания /Жанр: КомедияРежиссер: Джим АрчерАктеры: Дэвид Эрл, Chris Hayward, Луиза Брили, Джэми Мичи, Нина Сосанья, Линн Хантер, Лори Иззард, Кара Чейз, Sunil Patel, Риши НэйрПеревод: Дублированный (iTunes), Многоголосый профессиональный (Jaskier, TVShows)Субтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D9282B62313F273C3B7970D6C0203D26612C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663308   (186684) от 21.09.2023
-
-Последний вагон / El Ultimo Vagon / Where the Tracks End (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-История мальчика Икаля, который путешествует по Мексике с родителями. Его отец работает на строительстве железнодорожных путей и его семья вынуждена постоянно перемещаться, из-за чего Икалю трудно заводить друзей. Но по прибытии на новое место и зачислении в школу Малиналли Тепенепатль, которая расположена в старом вагоне поезда, его жизнь меняется. Там он встречает (   Читать дальше...   )Производство: Мексика / Netflix, Woo FilmsЖанр: драма, комедия, семейныйРежиссер: Эрнесто КонтрерасАктеры: Адриана Барраса, Дебора Поллак, Фатима Молина, Гильермо Вильегас, Бланка Герра, Леонардо Алонсо, Джеронимо Медина, Gabriela Cartol, Норма Пабло, Адриан ВаскесПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, испанский, английскийСубтитры: английские (forced, SDH, full), украинские, немецкие, французскиеПродолжительность: 01:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB45A4DFE003771F73BE8CD9CA458EAA224F2FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327128   (186681) от 19.11.2022
 
 Пацаны не плачут / Chlopaki nie placza (2000) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186681.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186677.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186676.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186674.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186671.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186667.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186666.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186662.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186661.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186655.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186654.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186652.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186650.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186649.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186646.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186640.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186639.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186637.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186631.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186623.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186620.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186615.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186575.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186569.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7120D003CA2908CE166535D6D8768575BB03AA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663514   (186560) от 22.09.2023
+
+Подруга с того света / I'm Totally Fine (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ванесса и Дженнифер планируют закатить вечеринку по случаю заключения выгодной сделки. Они арендуют шикарную виллу, заказывают диджея и организуют щедрый фуршет. Всё приготовления окончены, но вот беда: Дженнифер скоропостижно умирает. Чтобы как-то справится со своим горем, Ванесса решает не отменять мероприятие. Неожиданно, на вилле она встречает свою лучшую подругу, (   Читать дальше...   )Производство: США / RKM StudiosЖанр: Фантастика, драма, комедияРежиссер: Брэндон ДэрмерАктеры: Джиллиан Белл, Натали Моралес, Блейк Андерсон, Кайл Ньюачек, Карен Маруяма, Харви Гильен, Сирина Фиальо, Алиша Кетри, Сет ФарлиПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA50F6E3843C303D1EFD7C3D9770B97D1A2B0F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663500   (186540) от 22.09.2023
+
+Подруга с того света / I'm Totally Fine (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ванесса и Дженнифер планируют закатить вечеринку по случаю заключения выгодной сделки. Они арендуют шикарную виллу, заказывают диджея и организуют щедрый фуршет. Всё приготовления окончены, но вот беда: Дженнифер скоропостижно умирает. Чтобы как-то справится со своим горем, Ванесса решает не отменять мероприятие. Неожиданно, на вилле она встречает свою лучшую подругу, (   Читать дальше...   )Производство: США / RKM StudiosЖанр: Фантастика, драма, комедияРежиссер: Брэндон ДэрмерАктеры: Джиллиан Белл, Натали Моралес, Блейк Андерсон, Кайл Ньюачек, Карен Маруяма, Харви Гильен, Сирина Фиальо, Алиша Кетри, Сет ФарлиПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DBAF64D3FBC3ABA8D87CF20D2A97CD60E987C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

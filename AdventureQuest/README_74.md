@@ -1,29 +1,3 @@
-###  Публикация: 1573806   (63670) от 08.03.2024
-
-IMMORTALITY (2022) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный хоррор, рассказывающий леденящую душу историю про девушку по имени Мариса Марсель. Она всегда стремилась стать известной актрисой. Для достижения своей мечты девушка прикладывала все усилия и проходила через самые нелепые роли. Три фильма с ее участием и вовсе не попали на экраны. Однако вскоре героиня бесследно исчезает.Тип издания: LicenseРазработчик: Half MermaidЖанр: Приключение, Симулятор, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Турецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Турецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDBE02A3E2C4EDF43B2C8E0A346466B8EAC1E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705468   (63654) от 08.03.2024
 
 Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
@@ -32,7 +6,7 @@ Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63654.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Zoonomaly (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63023.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63020.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62934.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Unknown (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62799.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Silent Cause (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62764.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Quarry (2022) [Ru/Multi] (1.07/dlc) Repack Decepticon [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62517.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Death Trick: Double Blind (2024) [Multi] (1.1.13) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62484.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62480.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62398.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62313.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Unbearable (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62294.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Highwater (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62284.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Cadet Files: Scene Unseen (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62262.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62206.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ A Twisted Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62173.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Amygdala (2024) [En] (1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62081.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Deep in the Woods / Глубоко в лесу (2024) [Ru/Multi] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62053.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Corbid! A Colorful Adventure (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62033.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61897.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61861.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61786.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61784.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Vampires' Melody 2 (2023) [Multi] (20240319) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61763.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Cats Hidden in Georgia (2024) [Ru/Multi] (0313) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61750.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Cats Hidden in Georgia - не только поиск кошачьих друз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A590550137681AA479149D8756A97E404725814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710711   (61610) от 27.03.2024
+
+Between Horizons (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Between Horizons - это крутой 2.5D приключенческий детектив в научно-фантастической атмосфере. Ты отправляешься в путешествие на корабле Zephyr, первом поколении космического корабля человечества, направляющегося к другой звезде. В роли Стеллы, наследницы должности начальника службы безопасности, тебе предстоит раскрыть заговор, который угрожает миссии корабля. Весь (   Читать дальше...   )Тип издания: SceneРазработчик: DigiTales InteractiveЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Корейский, Китайский (упрощенный)Язык интерфейса: Английский, Немецкий, Корейский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60770B373DD42F21A395FB8FFAADB42B349FC0B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

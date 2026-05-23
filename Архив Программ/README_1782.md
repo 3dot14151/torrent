@@ -6,7 +6,7 @@ Steinberg - Cubase Pro 12.0.50 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191476.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera One 102.0.4880.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191472.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 11 (v22h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191470.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Total Commander 11.01 (07.09.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191436.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Alt SwitchER 19.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191414.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Vit Registry Fix Pro 14.8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191411.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ SketchUp Pro 2023 23.1.315 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191384.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ iZotope - Ozone 11 Advanced 11.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191371.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ iZotope - Nectar 4 Advanced 4.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191364.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Apeaksoft Video Converter Ultimate 2.3.18 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191353.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ iZotope - Neutron 4 4.2.0 VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191349.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Aiseesoft Video Converter Ultimate 10.5.38 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191339.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Aiseesoft DVD Creator 5.2.56 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191335.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191325.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Firefox Browser 106.0.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191303.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Phase One Capture One 22 Enterprise 15.4.2.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191302.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (2410) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191295.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 11 Manager 1.1.7 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191289.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Mirillis Action! 4.37.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191287.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ ByClick Downloader Premium 2.3.33 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191278.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Beyond Compare Pro 4.4.4.27058 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191272.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ DesktopDigitalClock 5.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191265.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ YT Downloader 9.3.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191260.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ DirPrintOK 6.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191254.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ SophiApp 1.0.87 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191251.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Windows 11 Manager 1.1.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191246.jpg" />
 </div>
 
 

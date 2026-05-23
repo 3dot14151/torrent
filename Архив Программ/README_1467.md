@@ -6,7 +6,7 @@ R-Studio Network Edition 8.12 build 175481 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Basilisk 2019.10.31 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291317.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ qBittorrent 4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291214.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Photoshop CC 2017.0.0 2016.10.12.r.53 Portable by punsh (+ Plugins) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291202.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Movavi Video Suite 16.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291197.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DriverPack Solution 15.12 LAN & WLAN Full | Lite [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291195.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TapinRadio Pro 2.12.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291137.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ IObit Uninstaller Pro 9.1.0.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291126.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Movavi Screen Recorder 11.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291121.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SMPlayer 19.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291115.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ WizTree 3.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291104.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Air Live Drive Pro 1.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291061.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ RarmaRadio PRO 2.71.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291026.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Caramba Switcher + Corporate + Lab 2019.10.28 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290957.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Firefox Browser 70.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290952.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ WinNTSetup 3.8.8.3 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290891.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Techsmith Snagit 2018.0.1 Build 594 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290888.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VueScan Pro 9.5.92 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290887.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Movavi Video Editor Plus 14.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290881.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ oCam 428.0 RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290879.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ ReviverSoft Driver Reviver 5.3.2.44 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290870.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ O&O SafeErase Professional 8.10 Build 218 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290859.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Process Lasso Pro 8.9.0.2 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290858.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ashampoo Burning Studio 16.0.2.13 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290856.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ AOMEI Partition Assistant Technician Edition 8.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290850.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Serato DJ Pro 2.3.1 (23115) (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290844.jpg" />
 </div>
 
 

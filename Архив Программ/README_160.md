@@ -6,7 +6,7 @@ PGWare Throttle 6.1.7.2013 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WebcamMax 7.7.1.2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999057.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AntiSMS 3.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999056.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VueScan Pro 9.2.02 RePack by AlekseyPopovv [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999046.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Full Uninstall 2.12 RePack by AlekseyPopovv [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999038.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Acme CAD Converter 2013 8.5.0.1380 [Multi + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999030.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Stardock Start8 1.03 repack by PainteR [fixed] [Английский / Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999012.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Boot CD USB Sergei Strelec v.1.2 2013 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999011.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Waves Complete v9r8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999009.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SynWrite Editor 4.6 build 570 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998959.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ HyperSnap 7.22.00 [Rus] Repack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998922.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ CoolUtils Total Doc Converter 2.2.225 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998893.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Blaze Video Magic Pro 6.0.0.0 [Multi + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998872.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Acme CAD Converter 2013 8.5.0.1380 RePack by AlekseyPopovv [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998870.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Boilsoft Video Converter 3.02.7 Portable by Invictus [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998862.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Adobe Flash Player 11.5.502.146 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998819.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Mozilla Firefox 18 Final [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998802.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Software Informer 1.2.793 + Portable [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998801.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Adobe Reader XI 11.0.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998769.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ BoxCryptor Unlimited 1.5.405.136 + Portable [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998758.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Inkscape 0.48.4 + Portable by PortableAppZ [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998755.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ SynWrite Editor 4.6 build 600 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998654.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ SolveigMM Video Splitter 3.6.1301.9 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998607.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ DFX Audio Enhancer 11.108 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998602.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ AoA DVD Creator 2.6.2 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998597.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ SnowFox Total Media Converter 3.3.0.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998587.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Audiomachine - Life (2017) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776673.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Audiomachine - Volturnus (2018) [MP3|320 Kbps] <Soundtrack, Trailer music, Class
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776661.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774993.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768590.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768478.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768475.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Really Slow Motion - Miraculum (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768471.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766387.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Евгенич (2021) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766079.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Claudio Simonetti - Стальные руки / Hands of Steel - Vendetta dal Fu
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763533.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jon Brion - Паранорман, или Как приручить зомби / 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757563.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755591.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Atom Music Audio - Epic Nature Series: Earth (Planet of Life) (2020) [MP3|320 Kb
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755402.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, I
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755191.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Audiomachine - Exogenesis (2019) [MP3|320 Kbps] <Soundtrack, Trailer music, Clas
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749916.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742139.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741701.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ric Sandler - Hey Good Lookin' (Original Motion Picture Soundtrack) (2006) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740232.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731000.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Не грози Южному Централу, попивая сок у с�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730015.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729934.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729468.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 к
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726407.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from t
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726072.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724897.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724250.jpg" />
 </div>
 
 

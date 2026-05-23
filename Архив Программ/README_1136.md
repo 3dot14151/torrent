@@ -6,7 +6,7 @@ XviD4PSP 6.0.4 DAILY 9375 + Portable (x32) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467354.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Unlocker 1.1.2.1 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467349.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LS · 2-НДФЛ АДВ-6-2 РСВ-1 4-ФСС 2.00 от 23.08.2012 [Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467346.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Lingobit Localizer 7.1.7851 RePack/Portable By Boomer  [Русский/Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467330.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AIDA64 Extreme Edition 2.60.2127 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467324.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ DFX Audio Enhancer 11.102 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467323.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SQL Dynamite 2.1.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467272.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Glary Utilities Pro 5.126.0.151 Repack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467266.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Glary Utilities Pro 5.126.0.151 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467257.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Aiseesoft Video Converter Ultimate 9.2.66 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467255.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Nevercenter Silo Professional 2.5.01 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467232.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AMD Catalyst Application Profiles 12.8 CAP3 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467229.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FastStone Capture 8.6 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467216.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Bigasoft Total Video Converter 3.7.12.4636 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467212.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ QTranslate 3.5.1 + Portable [Multi, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467211.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Dism++10.1.1000.31 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467208.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Icecream PDF Split and Merge PRO 2.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467183.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ SlimBrowser 7.00 Build 127 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467182.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Icecream Screen Recorder 2.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467181.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Icecream PDF Converter PRO 1.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467180.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ USB Safely Remove 6.1.5.1274 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467162.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Etcher 1.5.54 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467121.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Opera 63.0.3368.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467106.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Opera 63.0.3368.35 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467105.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ YouTube By Click Premium 2.2.112 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467103.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Adobe Shockwave Player 11.6.7.637 (Full/Slim) [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467077.jpg" />
 </div>
 
 

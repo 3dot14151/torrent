@@ -6,7 +6,7 @@ Punto Switcher 4.1.9 Build 903 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143076.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SoftMaker Office Professional 2024 rev. S1206.1118 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SamDrivers 19.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143029.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zentimo xStorage Manager 2.2.1.1278 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143025.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Movavi Screen Recorder 22.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143010.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Freemake Video Converter 4.1.10.491 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142955.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ R-Studio 7.8 Build 160621 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142945.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Stellarium 0.15.1 classic Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142941.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Advanced SystemCare Pro 13.1.0.193 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142924.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ USDownloader 1.3.5.9 Portable (28.12.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142901.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ R-Studio 7.8 Build 160621 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142887.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Audition 2024 24.0.3.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142863.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Q-Dir 7.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142852.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Twinkstar 4.10.1000.1812 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142832.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BurnAware Professional 11.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142822.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ USB Safely Remove 6.2.1.1284 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142817.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Movavi Video Converter 22.2.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142813.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Movavi Video Editor Plus 22.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142805.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Air Explorer Pro 2.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142799.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Q-Dir 6.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142787.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BELOFF [dp] 2019.12.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142773.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Volume2 1.1.5.361 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142763.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ USB Safely Remove 6.2.1.1284 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142761.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ DiskDigger 1.20.8.2677 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142683.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Adobe Prelude CC 2015 (v4.1.0) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142664.jpg" />
 </div>
 
 

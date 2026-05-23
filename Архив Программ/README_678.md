@@ -6,7 +6,7 @@ VSO ConvertXtoDVD 5.3.0.2 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707474.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YTD Video Downloader PRO 5.9.18.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707408.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 70.0.3728.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707407.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Complete Internet Repair 5.2.3.4120 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707403.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK (2016.06) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707218.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by KpoJIuK (13.06.2016) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707204.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ iZotope RX 5 Advanced Audio Editor 5.01.184 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707191.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DVDFab 9.1.9.9 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707170.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Core Temp 1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707167.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hekasoft Backup & Restore 0.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707134.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Vivaldi 2.3.1440.60 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707111.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DiskDigger 1.20.10.2731 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707097.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Text Editor Pro 20.0.1 + Portable + bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707056.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ EZ CD Audio Converter 10.0.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707049.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ GForce Software Oberheim OB-E 2.0 Standalone, VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707044.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VueScan Pro 9.6.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707021.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Pepakura Designer 4.1.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707015.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Save.Me 2.2.0 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707005.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mirillis Splash v2.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706982.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ uTorrent 3.5.5 Build 45776 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706975.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ GeoGebra 6.0.526 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706970.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706936.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ SiSoftware Sandra Lite 20/21-R10 (версия 31.76) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706926.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mirillis Splash 2.6.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706911.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Viber 10.2.0.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706909.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Synapse Audio - DUNE 3.0.7 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706889.jpg" />
 </div>
 
 

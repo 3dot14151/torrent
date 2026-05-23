@@ -6,7 +6,7 @@ Waterfox Current G5.1.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233274.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Photomath Plus 8.26.0 (b70000912) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233269.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Amadeus Pro 2.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233264.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CADintosh X 8.8.4 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233256.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VSDC Video Editor Pro 7.1.13.433 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233253.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinUtilities Professional Edition 15.87 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233250.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HiBit Uninstaller 3.1.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233246.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EZ CD Audio Converter 11.0.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233244.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ByClick Downloader Premium 2.3.40 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233237.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SQLPro for SQLite 2023.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233235.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PhotoDirector - Редактор фото 18.2.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233234.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ GoodSync Enterprise 12.0.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233231.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TuneIn Radio 31.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233227.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CudaText 1.196.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233226.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Acorn 7 v7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233223.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233222.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ OCCT 12.0.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233218.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Clipboard Manager 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233215.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ PullTube 1.8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233208.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Screenium 3 v3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233206.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ FileZilla Server 1.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233197.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Paint.NET 5.0.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233196.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ RedNotebook 2.29.6 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233194.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ HiBit Startup Manager 2.6.12 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233190.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Task Office 8.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233188.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ GrandTotal 8.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233180.jpg" />
 </div>
 
 

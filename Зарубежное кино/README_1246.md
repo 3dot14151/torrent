@@ -1,56 +1,3 @@
-###  Публикация: 1167450   (416849) от 20.09.2017
-
-Банзай / Banzai (1997) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Серджио Коломбо — страховой агент. Он только что пережил развод с женой и несколько рассеян. Желая развеяться, он заводит пышную любовницу, собирается с ней в отпуск, но тут его неожиданно командируют в Канаду для подписания важного контракта. В аэропорту по ошибке Коломбо садится на самолет, который летит в направлении, прямо противоположном Канаде — в Банкгок.Производство: Италия / Cecchi Gori Group Tiger Cinematografica, Italian International Film, Video 80Жанр: КомедияРежиссер: Карло ВанцинаАктеры: Паоло Вилладжо, Франческо Де Роза, Франческа Романа Колуцци, Антонио Баллерио, Кьяра Меас, Роберто Делла Каза, Франческа Вентура, Лаура Мльяччи, Джида Альбанезе, Стефано АнтонуччиПеревод: Многоголосый, одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6639050210B6F2B561958D0B35FF8496627B1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831787   (416797) от 16.10.2014
-
-Ван Хельсинг / Van Helsing (2004) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Глубоко в Карпатах лежит таинственная страна Трансильвания — мир, в котором зло встречается на каждом шагу, мир, в котором опасность оживает с заходом солнца, и где монстры, живущие в глубине человеческих кошмаров, обретают форму. В этот мир попадает легендарный охотник на чудовищ Ван Хельсинг, рождённый на страницах романа «Дракула» Брэма Стокера.
-В своей непрерывной (   Читать дальше...   )Производство: США, Чехия / Carpathian Pictures, Stillking Films, The Sommers Company, Universal PicturesЖанр: Фэнтези, Боевик, Триллер, Детектив, ПриключенияРежиссер: Стивен СоммерсАктеры: Хью Джекман, Кейт Бекинсейл, Ричард Роксбург, Дэвид Уэнэм, Шулер Хенсли, Елена Анайя, Уилл Кемп, Кевин Дж. О’Коннор, Алан Армстронг, Сильвия КоллокаПеревод: Дублированный, двуголосый закадровый, авторскийЯзык субтитров: ОтсутствуютПродолжительность: 02:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58FD8F35F62AC967492C78AED281E14DA139D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572915   (416694) от 29.08.2022
 
 Манифест Эрнесто / Ernesto's Manifesto (2019) WEB-DLRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416694.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416512.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416504.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416501.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416500.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416495.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416450.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416446.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416438.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416435.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416404.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416398.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416352.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416329.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416327.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416311.jpg" />
 </div>
 
 
@@ -483,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416295.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416285.jpg" />
 </div>
 
 
@@ -536,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416260.jpg" />
 </div>
 
 
@@ -562,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416218.jpg" />
 </div>
 
 
@@ -589,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416206.jpg" />
 </div>
 
 
@@ -616,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416173.jpg" />
 </div>
 
 
@@ -642,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416100.jpg" />
 </div>
 
 
@@ -669,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416097.jpg" />
 </div>
 
 
@@ -680,6 +627,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4BE905E0758D6AD157AC8CC155CE3EDEC535FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572883   (416093) от 29.08.2022
+
+Нет / Nope (2022) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через полгода после смерти отца в результате нелепого несчастного случая брат с сестрой, Оджей и Эмеральд, пытаются удержать на плаву семейный бизнес — ранчо с лошадьми для съёмок в кино и рекламе. Дела идут из рук вон плохо, часть животных пришлось продать, и Оджей уже подумывает избавиться и от ранчо, когда вдруг замечает в окрестностях НЛО. Ребята видят в этом (   Читать дальше...   )Производство: США, Dentsu, Monkeypaw Prodctions, Universal PicturesЖанр: фантастика, ужасыРежиссер: Джордан ПилАктеры: Дэниэл Калуя, Кеке Палмер, Брэндон Переа, Стивен Ян, Майкл Уинкотт, Ренн Шмидт, Кит Дэвид, Девон Грайе, Терри Нотари, Барби ФеррейраПеревод: многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)
+
+Присутствует ненормативная лексика!Продолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B12E2D3FCDE9BCA45DD7EBEF2ED1844CBB8F47B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325052   (416087) от 13.09.2019
+
+Драйв (Непобедимый) / Drive (1997) WEB-DL [H.264/1080p-LQ] [Open Matte] [Theatrical Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сан-Франциско. Недалекое будущее. Грузовое судно возвращается из Гонконга с загадочным пассажиром по имени Тоби Уонг. Он сбежал от подпольной корпорации Леунга в поисках свободы на Западе.
+Однако Тоби попадает в лапы банды хладнокровного Вика Мэдисона. Вырвавшись из банды Мэдисона, он берет в заложники пьяницу Малика Броунди и едет в Лос-Анджелес. В дороге они становятся (   Читать дальше...   )Производство: США / Overseas FilmGroup, NEO Motion PicturesЖанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Стив ВангАктеры: Марк Дакаскос, Кадим Хардисон, Джон Пайпер-Фергюсон, Бриттани Мерфи, Трейси Уолтер, Джеймс Шигета, Масая Като, Дом Магуили, Рон Юань, Клайв РозенгренПеревод: Многоголосый профессиональный (ОРТ)Субтитры: Английские (SDH)Продолжительность: 01:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B385DA06D03DEC584C736850D44608795CA8C917
 ```
 
 https://mybot314.ru/tekegram_catalog/

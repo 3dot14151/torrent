@@ -6,7 +6,7 @@ Microsoft .NET Framework 4.6 RC DC 19.04.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710609.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VeraCrypt 1.24-Update 7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710588.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ GetWindowText 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710569.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Vit Registry Fix Pro 14.7 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710541.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ XnView Shell Extension 4.1.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710533.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Calibre 2.83 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710521.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft Windows 10 Home Insider Preview 10.0.10074 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710478.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Windows 10 Enterprise Insider Preview 10.0.10074 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710473.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Windows 10 Pro / Enterprise Insider Preview 10.0.10074 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710465.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Edge Blocker Portable 1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710425.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Internet Download Manager 6.40 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710415.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ XnView Classic 2.50.4 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710414.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ LosslessCut 3.43.0 Standantalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710413.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VeraCrypt 1.25.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710407.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ZD Soft Screen Recorder 10.4.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710405.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Coolmuster Data Recovery 2.1.12 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710404.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ YouTube Video Downloader PRO 5.8.2 (20170428) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710403.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SRWare Iron 58.0.3050.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710396.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ashampoo Photo Recovery 1.0.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710391.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ ABBYY FineReader 14.0.107.232 Corporate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710348.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WinRAR 5.50 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710313.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Icecream Ebook Reader Pro 4.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710292.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.05.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710290.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Avast Internet Security 17.4.2294 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710154.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ DriverPack Solution 17.7.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710144.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Rescue USB 16 Gb (BuTaJ1 Edition) 3.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710143.jpg" />
 </div>
 
 

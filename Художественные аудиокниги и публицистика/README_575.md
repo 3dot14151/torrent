@@ -1,81 +1,3 @@
-###  Публикация: 1067015   (409150) от 27.10.2016
-
-Андрей Васильев | Слово и сталь [+2 рассказа] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Война потихоньку расползается по континенту и похоже на то, что скоро много маленьких костров превратятся в один большой пожар. И в один же клубок связываются нити судеб многих игроков, вот только как распутать эти переплетения неизвестно никому. Впрочем, герой книги и не собирается ничего распутывать, его задача гораздо проще – выжить самому и сберечь свой маленький (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтезиПродолжительность: 17:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065F23159B33E81582C03DD2DE61DAEC0B9D93CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252551   (409080) от 05.10.2018
-
-Тесс Герритсен | Джейн Риццоли и Маура Айлз (Книга 7). Хранитель смерти (2018) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Археологи всего мира предвкушают сенсацию: в запасниках одного из бостонских музеев была найдена прекрасно сохранившаяся египетская мумия, которую называют Госпожой Икс. При томографии находки присутствует специально приглашенная судмедэксперт Маура Айлз. Каково же удивление Мауры и других участников эксперимента, когда в ноге древнего экспоната они обнаруживают… (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A479580364116F80BF2EFE0451FDFA3DC3AC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252217   (409004) от 05.10.2018
-
-Джефф Вандермеер | Ассимиляция (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Тридцать лет изучения таинственной Зоны Икс так и не принесли плодов. Отправляемые туда экспедиции в лучшем случае возвращаются с пустыми руками – а чаще не возвращаются вовсе. Тайная правительственная организация, призванная раскрыть секреты Зоны, топчется на месте, а сотрудники то ли тихо сходят с ума от безнадежности, то ли сами неуловимо и жутко меняются под (   Читать дальше...   )Жанр: ФантастикаПеревод: Н. РейнПродолжительность: 13:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E237EE69DF46E0A116347DE8D02EAD043EBB93E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252388   (408995) от 05.10.2018
 
 Хулио Кортасар и др. | Литературный аудиопроект «Глубина» [выпуск 9] (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408995.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408957.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408712.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408701.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408653.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408643.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408632.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408623.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408619.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408589.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408580.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408563.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408451.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408404.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408249.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407987.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407915.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407894.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407854.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407851.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407776.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407704.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407681.jpg" />
 </div>
 
 
@@ -677,6 +599,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E71945EA5D90A4F5452F740BD462064152B31B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574046   (407537) от 03.09.2022
+
+Брайан Уиндхорст | ЛеБрон, INC. Спортсмен, который заработал миллиард (2020) [MP3, Антон Ческидов]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас ЛеБрон – лучший баскетболист мира, крайне успешный бизнесмен и общественный деятель. Заключение рекордного контракта с «Nike», грамотное инвестирование в стартапы, баснословные гонорары в NBA. Джеймс превратил своё имя в ценный актив и является ярким примером совмещения спортивной карьеры и бизнес-интересов.
+
+«ЛеБрон, INC.» – это история трансформации легендарного (   Читать дальше...   )Жанр: биографии и мемуары, истории успеха, спорт / фитнесПеревод: Андрей А. КачаловПродолжительность: 07:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63762BB1F83B6535D85E7D69A70FBC42B3013EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574121   (407509) от 03.09.2022
+
+Кристин Хармель | Книга утраченных имён (2022) [MP3, Виктория Войнич-Слуцкая, Галина Чигинская]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407509.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год, Франция. В оккупированном немцами Париже начинаются преследования евреев. Не желая оказаться в депортационном лагере Дранси, откуда один путь – в Освенцим, Ева Траубе бежит в маленький городок Ориньон, расположенный в свободной зоне. Она надеется перебраться в нейтральную Швейцарию, но волей случая присоединяется к движению Сопротивления. Используя свой (   Читать дальше...   )Жанр: историческая литература, книги о войнеПеревод: Наталия НестероваПродолжительность: 11:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EFD68927A25B4092752C67C241DC7BD043DE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574124   (407493) от 03.09.2022
+
+Роберт Харрис | Конклав (2022) [MP3, Владимир Левашёв]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кардинал Джакопо Ломали давно мечтает о спокойной пенсии, но его надеждам не суждено сбыться. После внезапной смерти Папы Римского он должен созвать конклав, на котором будет избран следующий Папа.
+За закрытыми дверьми Сикстинской капеллы сто восемнадцать кардиналов со всего света проводят самое тайное в мире голосование. Даже у святых отцов есть амбиции, мечты и (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9515E5496666D03991030845B05D18FC8AD92B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Freemake Video Converter 4.1.9.26 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629933.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe components: Flash Player 22.0.0.209 + AIR 22.0.0.153 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629932.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adguard 1.3 (309) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629928.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AbleBits Ultimate Suite for Excel 2016.2.313.1175 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629925.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629922.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4841.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629920.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NVIDIA GeForce Desktop 368.81 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629919.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629910.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629906.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VHS Dreams - TRANS AM (2015) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629905.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cat's Disco Lab - The Album (2003) [FLAC (image+.cue)|Lossless]<Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629904.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ultra Mood - Mental (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629903.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629902.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PNL - Deux Frères (Deux Freres) (2019) [FLAC|Lossless|tracks + .cue] <Rap, Hip 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629897.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Fazenda 1.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629896.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Alien Skin Exposure X4 Bundle 4.5.1.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629895.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ FocusWriter 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629894.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ PowerISO 6.3 RePack by Pilot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629888.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Future 80's Records Compilation Vol. II (2014) [MP3|320 Kbps] <Synthwave, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629881.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Cockos - REAPER 5.974 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629879.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ XETRANSLATOR 3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629878.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - R 'N' B Love (Explicit) (2018) [MP3|320 Kbps] <R&B, Soul, Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629847.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Transform 1.2 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629808.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ PatterNodes 3 v3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629787.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Future 80's Records Compilation Vol. I (2013) [MP3|320 Kbps] <Synthwave, Re
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629779.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Mailbird Pro 2.5.42.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629776.jpg" />
 </div>
 
 

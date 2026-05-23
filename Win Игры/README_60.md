@@ -6,7 +6,7 @@ Atelier Ryza: Ever Darkness & the Secret Hideout (2019) [Multi] (1.08/dlc) Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026293.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RDS - The Official Drift Videogame (2019) [Ru/En] (1.0/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025874.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mundaun (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025870.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.8.0.1Fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025866.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dungeon Defenders: Awakened (2020) [Ru/Multi] (1.3.0.23136) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025697.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Medium (2021) [Ru/Multi] (1.2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025363.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Police Simulator: Patrol Duty (2019) [Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025166.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Monster Jam Steel Titans 2 (2021) [Ru/Multi] (1.03/dlc) Repack SpaceX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025158.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Persona 5 Strikers (2021) [Multi] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025152.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Batman: Arkham City / Бэтмен: Аркхем Сити (2012) [Ru/En] (1.1/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025147.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fairly Twisted Tales. The Price of A Rose / Весьма запутанная с
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025060.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kosmokrats (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024838.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Loop Hero (2021) [Ru/Multi] (1.012) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024817.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ X4: Foundations (2018) [Ru/Multi] (4.00/hf1/dlc) Repack Other s [Collector's Edi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024815.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack SpaceX [Deluxe Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024692.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) Repack SpaceX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024689.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack Other s [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024668.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Arkham Horror: Mother's Embrace (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024662.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Visage (2020) [Ru/Multi] (3.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024655.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.19351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024330.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Puyo Puyo Tetris 2 (2021) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024300.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024296.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Grim Tales 20: Trace in Time (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024185.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Genesis Noir (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024118.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Clea 2 (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024116.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Kaze and the Wild Masks (2021) [Ru/Multi] (2.0.2) Repack SpaceX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024113.jpg" />
 </div>
 
 

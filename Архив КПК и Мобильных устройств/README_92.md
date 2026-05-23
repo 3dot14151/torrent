@@ -6,7 +6,7 @@ PDF Extra: сканер и редактор 10.3.2039 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233965.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ V Recorder - Запись видео с экрана 7.0.9 Mod by 0x7d, Mixroot 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233914.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SUXOV v2.2.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233840.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PhotoRoom 4.5.8 Mod by Mixroot, Maximoff, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233791.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vivaldi for Android 6.0.2980.48  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233740.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VN - Video Editor / VN - Видеоредактор 2.1.2 Mod by PieMods [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233722.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ X Icon Changer - Change Icons 4.2.7 Mod by Citrus, PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233603.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Projectivy Launcher 4.32 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233555.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ UniBook - Аудиокниги v0.6.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233347.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Photomath Plus 8.26.0 (b70000912) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233269.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PhotoDirector - Редактор фото 18.2.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233234.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ TuneIn Radio 31.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233227.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Lucky Patcher 10.8.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232917.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Beelinguapp 2.935 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232793.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PowerDirector – Video Editor 12.3.0 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232759.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ LightX - Фоторедактор 2.2.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232700.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Mivo - Видеоредактор 3.32.598 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232423.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ vpnify - Безлимитный VPN 2.0.0-rc24 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232076.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ TuneIn Radio 31.9.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232016.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VPN Russia - VPN сервера в России v1.135 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231815.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Malwarebytes Антивирус 3.11.0.111 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231601.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ PhotoDirector - Редактор фото 18.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231377.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Speedtest от Ookla 5.0.7 Mod by youarefinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231224.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VN - Video Editor / VN - Видеоредактор 2.1.3 Mod by PieMods [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231170.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Speedtest от Ookla 5.0.7 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231167.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231154.jpg" />
 </div>
 
 

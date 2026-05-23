@@ -1,84 +1,3 @@
-###  Публикация: 1671420   (171321) от 24.10.2023
-
-Михаил Ланцов | Помещик (Книга 7). Крестоносец (2023) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Завершив в 1557 году блистательный и, в целом, импровизированный поход в земли Великой Порты он вновь отправляется в путь. Не от великой жажды воинской славы, а просто потому, что иначе не получается. Ведь разгромив внутреннюю оппозицию Царя он невольно занял ее место, со всеми вытекающими проблемами. Внезапно оказавшись лишним человеком. Мавром, который сделал свое (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаИздательство: Аудиокниги своими рукамиПродолжительность: 11:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE318F3949A78D4D58933277ADCF051167F32803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435106   (171312) от 24.10.2023
-
-Алексей Николаевич Толстой, Михаил Лермонтов, Валерий Брюсов, Александр Бестужев-Марлинский и др. | Фантастические рассказы (2006) [MP3, Александр Бордуков, Александр Белый]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Союз классика.
-В начале девятнадцатого века в России заметно усилилась тяга ко всему сверхъестественному и «чудесному». «Бытовой мистицизм» прекрасно уживался с просвещенностью. На этом фоне возникновение такого направления, как русская фантастическая повесть было закономерным и логичным. В этом сборнике представлены лучшие произведения русских классиков, (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 05:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03DFA2A307F0947E20920CA063EEBB7FFB49D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435197   (171306) от 24.10.2023
-
-Алексей Николаевич Толстой | Петр Пёрвый (2005) [MP3, Владимир Шевяков]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Историческая библиотека.
-Алексей Николаевич Толстой (1882-1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
-В романе «Петр Первый» Алексей Толстой создал яркий образ «царя-преобразователя». Допетровская Россия, (   Читать дальше...   )Жанр: Русская литература, классика, исторический романИздательство: МедиаКнигаПродолжительность: 35:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90EF733F925AC875B56BEB27F64AD571E6AF732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671410   (171264) от 25.10.2023
 
 Марина Серова | Частный детектив Татьяна Иванова. Ловушка для крысы (2023) [MP3, Елена Трошкина]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171264.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171260.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171258.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171257.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171251.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171243.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171241.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171236.jpg" />
 </div>
 
 
@@ -295,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171229.jpg" />
 </div>
 
 
@@ -321,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171224.jpg" />
 </div>
 
 
@@ -349,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171212.jpg" />
 </div>
 
 
@@ -377,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171209.jpg" />
 </div>
 
 
@@ -403,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171208.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171202.jpg" />
 </div>
 
 
@@ -459,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171136.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171133.jpg" />
 </div>
 
 
@@ -514,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171124.jpg" />
 </div>
 
 
@@ -542,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171054.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171048.jpg" />
 </div>
 
 
@@ -595,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171045.jpg" />
 </div>
 
 
@@ -622,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171043.jpg" />
 </div>
 
 
@@ -650,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171036.jpg" />
 </div>
 
 
@@ -676,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171005.jpg" />
 </div>
 
 
@@ -689,6 +608,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA82C7A2F517FDB1E6D7C06637C134B6443D39AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671765   (171002) от 26.10.2023
+
+Ален Землянский | Демон тьмы и света (Книга 1-2). Симбиоз. Путь бога (2023) [MP3, Виталий Олефиренко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171002.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кто-нибудь задумывался, почему мы стремимся к истине! Какая она?
+В недалеком будущем человечество расшифровало свое ДНК, изменив представление об истории и происхождении. Воссоздав реалии прошлого в виртуальном мире, мы вернули не только античных богов, но и то что их сгубило. Я, как и все, принадлежал к расе хантов и хеттов, а теперь стал посланником хаоса, и (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Детективное фэнтезиИздательство: ЛитРес: чтецПродолжительность: 13:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D33253B1DACA13AB83722D10D2FBA42A0EC2BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671760   (171001) от 26.10.2023
+
+Виктор Яманов | На границе вселенной (Книга 2). Сквозь пространство (2023) [MP3, Андрей Шустров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй том цикла «На границе Вселенной».Маркус, в чьей груди бьются два сердца, – наследный принц Вселенной, но суждено ли ему дожить до коронации? Его венценосная мать открывает на него охоту, чтобы подчинить своей власти, которую она не намерена делить с отпрыском короля людоедов, готовым считаться с мнением людей и прочих рас на миллионах планет. Беглый принц (   Читать дальше...   )Жанр: Боевое фэнтези,  Космическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 11:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320D477B43462A6907CA34FEC4462AA6AB4CBD5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671832   (170993) от 26.10.2023
+
+Игорь Гончаров, Евгения Греблина | Академия Мастеров Тайных Знаний (Книга 1). Школа Мечей: Желанный Артефакт (2023) [MP3, Проводник]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170993.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире полном тайного (а порой и не тайного) зла и коварства, мерзости и отврата, юноша, достигший определенного возраста, вынужден обрести свой путь, чтобы расти и двигаться дальше. Отец устраивает его в Школу Мечей, куда берут всех подряд, а вот выпускаются - гораздо меньше поступивших. Но именно данная Школа становится той Академией, которая определила судьбы (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: АудиокнигаПродолжительность: 43:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B06FDA8DEEDA14A90400FDDA20FBF354DBA408
 ```
 
 https://mybot314.ru/tekegram_catalog/

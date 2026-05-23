@@ -1,29 +1,3 @@
-###  Публикация: 1758746   (38332) от 04.11.2024
-
-Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Repack FitGirl [WW2 Bundle]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Call to Arms - Gates of Hell: Ostfront – стратегия в реальном времени, в которой игроку предстоит проявить свои тактические навыки и умение читать ситуацию для принятия наиболее верного решения за считанные секунды. Сеттингом проекта является кровопролитный конфликт 20-го века – Вторая Мировая война, все доступные виды техники воссозданы по реальным прототипам, что (   Читать дальше...   )Тип издания: RepackРазработчик: Barbedwire Studios, DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758745   (38325) от 04.11.2024
 
 Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
@@ -32,7 +6,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38325.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38311.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complet
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38309.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38308.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Totally Spies! - Cyber Mission (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38306.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38305.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38295.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Alchemist: The Potion Monger (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38293.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38284.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38249.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38247.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294_40/dlc) License GOG [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38240.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack LetsPlay [Game of the Year Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38232.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38221.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack FitGirl [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38219.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38147.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38137.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38116.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38063.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38060.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Quake Classic (1996) [Ru/En] (1.09) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38041.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38033.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38020.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38007.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38006.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE6CC631B53A20B7A27F55494EAFBA5B367A590F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759199   (37969) от 07.11.2024
+
+SOS OPS! (2023) [Ru/Multi] (05.11.2024/dlc) Repack Pioneer
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37969.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOS OPS! – отправьтесь навстречу забавной кооперативной игре, сюжет которой будет вращаться вокруг оригинальной станции спасения. При этом объедините усилия вместе с друзьями, эффективно задействуйте логику и решайте физические головоломки. Справитесь? Над вашим любимым городом нависла новая опасность! Поэтому постарайтесь быть всегда на связи и держите под контролем (   Читать дальше...   )Тип издания: RepackРазработчик: ArtDockЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CA4C5E6D6C386866FF12A7E16FF49E9728DB66
 ```
 
 https://mybot314.ru/tekegram_catalog/

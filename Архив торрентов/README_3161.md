@@ -6,7 +6,7 @@ AdwCleaner 5.017 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351415.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Electrozombies - Undead And Open-Minded: Volume 3 (2017) [MP3|320 Kbps] <Sy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351414.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Cult Classic Records Presents (2017) [FLAC|Lossless|Web-DL|tracks] <Chill H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351406.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Club Traxx - Psy Progressive 3 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351405.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351399.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ John Digweed - Transitions 174-218 (2004) Kiss100 [MP3|192-267 Kbps] <Club/Dance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351397.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Vivaldi 3.4.2066.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351356.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351355.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Audio Hijack 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351354.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351333.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ ABBYY FineReader 12.0.101.496 Professional RePack (& Portable) by D!akov [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351332.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ DipTrace 3.0.0.2 + 3D Models [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351309.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Avast Clear 11.1.2241.1482 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351304.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351302.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Daum PotPlayer 1.6.56815 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351296.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gemini 1.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351293.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351292.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Punto Switcher 4.1.7 Build 732 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351290.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ CoolUtils Total Image Converter 7.1.1.159 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351268.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ PearlMountain Image Resizer Pro 1.4.2 Build 3019 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351265.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Microsoft Edge 86.0.622.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351242.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Internet Download Manager 6.38 Build 7 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351239.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Beastie Boys - Beastie Boys Music (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351236.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351235.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Substance Alchemist 2020.2.1 (2.2.1) Build 66 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351217.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Becky Internet Mail 2.72.01 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351185.jpg" />
 </div>
 
 

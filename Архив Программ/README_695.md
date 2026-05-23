@@ -6,7 +6,7 @@ Screenshot Captor 4.21.1 Portable by Kopejkin [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698690.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nero Burning ROM 2015 16.0.02700 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698676.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Acronis Backup 11.5.43956 with Universal Restore [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698669.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cowboy WPI Spring StartSoft 15-2015-May [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698666.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Advanced Installer 14.8 Build 281f49a4fb RePack by Alex Zaguzin [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698515.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Light Image Resizer 5.1.3.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698506.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Athentech Perfectly Clear + Essentials 3.5.7.1172 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698505.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Jihosoft File Recovery 8.0.9 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698496.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ XMedia Recode 3.3.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698470.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wondershare Filmora 8.6.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698407.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ K-Lite Codec Pack 13.1.6 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698392.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Red Giant Trapcode Suite 14.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698385.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stardock WindowBlinds 10.62 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698382.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WinRAR 5.60 Beta 3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698381.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ummy Video Downloader 1.7.2.9 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698374.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Free Studio 6.6.22.617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698368.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Cyberfox 47.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698362.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Avira Scout 16.06.2704.549 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698358.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698349.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698262.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698237.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ICQ 10.0 build 12091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698231.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ FlipBuilder Flip PDF 4.3.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698224.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ CyberLink PowerDVD Ultra 18.0.1619.62 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698157.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6785.5000 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698150.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Acronis BootCD 10PE x86/x64 by naifle (22.04.2018) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698145.jpg" />
 </div>
 
 

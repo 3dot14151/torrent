@@ -6,7 +6,7 @@ Light Image Resizer 7.1.3.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30756.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jigsawscapes® - Пазлы v3.7.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30752.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KiCad 8.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30744.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Resize Me! Pro v2.3.1 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30737.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Magic Eraser / Магический ластик v2.17.0 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30731.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.5371 (Updated January 2025) by FaTaL 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30715.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Dr.Web CureIt! (17.01.2025) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30686.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30684.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ uTorrent Pro 3.6.0 Build 47178 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30683.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AnyDesk 9.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30681.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SoftPerfect RAM Disk 4.4.3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30673.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Capture One 23 Enterprise 16.5.4.2682 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30672.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NoMachine 8.15.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30655.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Joplin 3.2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30633.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Music Collection 3.8.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30632.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ExamDiff Pro 15.0.1.23 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30629.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FreeFileSync 14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30620.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Windows 7 SP1 7601.27520 x64 3in1 by OneSmiLe [18.01.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30611.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ StartAllBack 3.9.1 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30591.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (1501) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30589.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ IObit Smart Defrag Pro 10.3.0.435 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30588.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.39.6 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30572.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30559.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MobaXterm 25.0 build 5264 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30557.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Reg Organizer 9.60 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30555.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Topaz Video AI 6.0.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30554.jpg" />
 </div>
 
 

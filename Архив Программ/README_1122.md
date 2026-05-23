@@ -6,7 +6,7 @@ Bigasoft Total Video Converter 6.0.4.6443 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475739.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TeamViewer 12.0.82216  RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475731.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CoolUtils Total Image Converter 5.1.89 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475693.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MediaChance Dynamic-PHOTO HDR 5.3.0 Portable by goodcow [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475664.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NVIDIA GeForce/ION 306.23 WHQL For Notebooks [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475663.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VirtualBox 4.2.0.80737 Final + Extension Pack + PortableAppZ [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475660.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Auslogics BoostSpeed 5.4.0.10 от (13.09.2012) Portable By Punsh [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475654.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VueScan Pro 9.6.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475635.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Driver Easy Pro 5.6.5.9698 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475626.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AIMP 3.60 Build 1502 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475589.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Auslogics BoostSpeed 5.4.0.10 DC 13.09.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475551.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ MAGIX VEGAS Pro 16.0 Build 261 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475525.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kodi 17.4 Krypton [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475520.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Jetico BestCrypt 9.03.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475515.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Adobe Acrobat XI Pro 11.0.22 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475512.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Google Chrome 45.0.2454.99 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475504.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ K-Lite Codec Pack Update 11.4.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475498.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ PhotoInstrument 7.4 Build 765 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475485.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ CoolUtils PDF Combine 5.1.89 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475469.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Autodesk СПДС модуль 2013 версии продуктов семейс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475402.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Google Chrome 45.0.2454.99 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475368.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Display Driver Uninstaller 15.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475364.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475341.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ NETGATE Registry Cleaner 10.0.505.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475278.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ O&O ShutUp10 1.1.1346 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475273.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ FastStone MaxView 2.9 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475272.jpg" />
 </div>
 
 

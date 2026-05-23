@@ -1,81 +1,3 @@
-###  Публикация: 1311870   (535653) от 02.07.2019
-
-Два билета домой (2018) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Люба Васнецова живет в провинциальном интернате, мечтает поскорее его закончить, уехать в Санкт-Петербург и стать стюардессой. Будущее кажется прекрасным — после окончания интерната ей вручают ключи от квартиры, впереди новая жизнь. Но в день своего выпускного она узнает, что она не круглая сирота — ее отец жив, а не погиб, как рассказывали ей раньше. Потрясенная (   Читать дальше...   )Производство: Россия / АНО "КиноДело" при поддержке министерства культуры РФ и телеканала Россия-1Жанр: ДрамаРежиссер: Дмитрий МесхиевАктеры: Сергей Гармаш, Мария Скуратова (II), Камиль Хардин, Евгений Ткачук, Наталья Суркова, Ирина Рахманова, Ирина Розанова, Виктория Плоп ...Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BB72F637249EDEFD0294AFB0F8C2C76E539369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154931   (534734) от 02.08.2017
-
-Тень (2016) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История преуспевающего бизнесмена Бориса Гордина, у которого, казалось бы, жизнь удалась. Он молод, красив и имеет все, о чем многие лишь мечтают: успех, семью, большой дом… Но, несмотря на кажущееся благополучие, ничто не наполняет его жизнь смыслом, не вызывает подлинный интерес, пока однажды Гордин не находит фотографию звезды немого кино. Его настолько завораживает (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Дмитрий СветозаровАктеры: Михаил Пореченков, Юрий Стоянов, Варвара Щербакова, Павел Чернявский, Сергей Васильев, Анна Степанова, Евгений Катаев, Петр Логачев, Татьяна Тузова, Оксана БазилевичПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CF475E22C2BA4AF063CED8ECD2A558CD0DC8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051248   (534150) от 10.09.2016
-
-Каникулы строгого режима (2009) HDTV [H.264/1080i-LQ] (Полная версия)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История о том, как двое не самых молодых людей, Кольцов и Сумароков, волею судьбы оказались вожатыми в пионерском лагере в компании в меру энергичного руководства и не в меру энергичных детей. Все бы ничего, да только попали они туда прямо с арестантской шконки. Сначала Кольцов, будучи весьма уважаемым профессиональным сотрудником МВД, имеющий за плечами две поездки (   Читать дальше...   )Производство: Россия, Дирекция киноЖанр: Драма, Комедия, ПриключенияРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Дмитрий Дюжев, Сабина Ахмедова, Алена Бабенко, Владимир Меньшов, Алексей Кравченко, Александр Лыков, Кирилл Плетнёв, Людмила Полякова, Тимур Боканча, Андрей КивиновПродолжительность: 02:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E929415CB090F0E3E6A3CB0F312BE15565D9912B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312340   (533957) от 03.07.2019
 
 Подвал / Cellar (2018) WEB-DL [H.264/720p-LQ]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533957.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533327.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533036.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ Zомби каникулы (2013) Blu-Ray [1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531812.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531223.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530146.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529660.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529659.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528610.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528531.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528529.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528359.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527740.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526939.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524288.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524283.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524095.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522554.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521701.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520965.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520833.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519351.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519149.jpg" />
 </div>
 
 
@@ -672,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A1A4867BC8382ED68458E80C12C63C4319AA61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314355   (518864) от 14.07.2019
+
+Гости (2019) BDRemux [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Катя знакомится с веселой компанией приезжих ребят, у которых есть специфическое развлечение — устраивать вечеринки в чужих пустующих домах. И Катя знает подходящее место: старинная дача на побережье, хозяин которой давно уехал. Уединенно расположенный дом, в котором в начале прошлого века был спиритический салон, кажется всем отличным вариантом. Тревожная, (   Читать дальше...   )Производство: Россия / Enjoy MoviesЖанр: Триллер, Ужасы, МелодрамаРежиссер: Евгений АбызовАктеры: Юрий Чурсин, Ангелина Стречина, Михаил Мещеряков, Анастасия Уколова, Анар Халилов, Евгений Егоров, Марина Панферова, Иван Верховых, Мария ЛисоваяПеревод: Не требуется (Русский) - Лицензия (BD GER)Субтитры: Немецкие (forced)Продолжительность: 01:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBB7B8BCE2B3789078D21FBA39F359344D912B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560664   (518554) от 01.07.2022
+
+Ника (2022) WEB-DL [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Ника Турбина вместе с мамой гастролировала по Советскому Союзу, читая свои стихи: полные стадионы любителей поэзии, богемные вечеринки, встречи со знаменитостями. 8-летний вундеркинд, она поражала недетской грустью и пронзительностью строк… И вот Нике 27. СССР уже нет, как нет и детства, славы, а самое трудное — нет вдохновения. Ника больше не пишет стихи (   Читать дальше...   )Производство: Россия / Национальная Медиа Группа (НМГ), Кинокомпания «Водород», Арт Пикчерс Студия / Art Pictures StudioЖанр: Биография, драмаРежиссер: Василиса КузьминаАктеры: Лиза Янковская, Анна Михалкова, Виталия Корниенко, Иван Фоминов, Иван Бровин, Егор Трухин, Евгений Сангаджиев, Иван Макаревич, Наталия Вдовина, Иван АгаповПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A73B5DA0F7388B9FDEFB6CB67BC294A9A083187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241686   (518116) от 19.08.2018
+
+Для всех я умерла (2017) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настя Тарасова учится в одном из московских вузов, живёт в обычном общежитии. Она недовольна собой и своей жизнью. Однажды ночью Настя находит загадочный сайт "Нет человека-нет проблем" и заказывает свою смерть.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Настя АнтоноваАктеры: Марина Калецкая, Яна Енжаева, Игорь Титов, Елена Нестерова, Валентин Самохин, Алексей ДмитриевСубтитры: ОтсутствуютПродолжительность: 00:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E07DC4D46B59F51A3A108AF190BAC8DFF588325
 ```
 
 https://mybot314.ru/tekegram_catalog/

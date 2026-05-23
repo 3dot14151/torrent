@@ -6,7 +6,7 @@ Thomas Newman - The Shawshank Redemption (1994) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395697.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395646.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394845.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394842.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393924.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по ле�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393706.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392902.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391971.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391533.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391239.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391230.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Latino Hits Power (2017) [MP3|320 Kbps] <Latin Music, Reggaeton>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391153.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391149.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390696.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390602.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389891.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389699.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Eshana - Kalpana (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Spiritual
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387755.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Charles Segal - When You're in Trouble (2020) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387707.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Tantric Music Masters - Fertility Energy of Couple’s Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387414.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387405.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387288.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psyched
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387256.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387235.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387183.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386993.jpg" />
 </div>
 
 

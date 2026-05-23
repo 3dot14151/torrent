@@ -1,84 +1,3 @@
-###  Публикация: 1783087   (25895) от 03.03.2025
-
-Дмитрий Дорничев, Евгений Лисицин | Меж двух миров (Книга 4). Имя нам Легион 4 (2025) [MP3, Олег Шубин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Привет, лысая обезьяна! Что? Удивлён, увидев пришельца?
-Ха! Поверь, лучше я, чем Рой чудовищ, пожирающий миры. Он, кстати, прилетит лет так через десять, и всем вам хана.
-Что? Хочешь выжить? Тогда вступай в Легион!
-Легион — это возможность заработать! А деньги — это твоё спасение. И да...(   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 08:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB7AEBFF9B8E6166868349E36939E34FEF932CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783044   (25894) от 03.03.2025
-
-Валерий Увалов | Эксперимент (Книга 1). Затерянный мир (2025) [MP3, Сергей Курнаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Двадцать второе столетие, человечество ведет жесточайшую борьбу за выживание. После первого в истории контакта с иной цивилизацией Земля переживает три вторжения извне, потеряв при этом до девяноста процентов населения. Но Солнечная система не единственная цель автоматических кораблей неведомой расы, – весь сектор подвергается террору без видимых на то причин. И (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 10:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8006A80D6309D2F1285916F394A755177F1A2541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783000   (25891) от 03.03.2025
-
-Влад Лей | Старатели (Книга 8). Специалист (2025) [MP3, Сергей Курнаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Космическая Ассамблея переживает свой закат. Планеты, системы и целые сектора один за другим выходят из ее состава, объявляют собственную независимость. Очень скоро может начаться гражданская война, из горнила которой появятся новые государства... Боевик ВКС Ассамблеи Джон Рико, скрываясь от преследования оказывается во фронтире, где пытается заработать себе на жизнь (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 12:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF4AEF217B73B1A781C76E452D2ABEF7F8AE015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783077   (25877) от 03.03.2025
 
 Дмитрий Дорничев, Евгений Лисицин | Меж двух миров (Книга 3). Имя нам Легион 3 (2025) [MP3, Олег Шубин]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25877.jpg" />
 </div>
 
 
@@ -116,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25862.jpg" />
 </div>
 
 
@@ -143,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25836.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25779.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25776.jpg" />
 </div>
 
 
@@ -225,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25751.jpg" />
 </div>
 
 
@@ -251,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25739.jpg" />
 </div>
 
 
@@ -277,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25733.jpg" />
 </div>
 
 
@@ -305,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25732.jpg" />
 </div>
 
 
@@ -334,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25726.jpg" />
 </div>
 
 
@@ -362,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25713.jpg" />
 </div>
 
 
@@ -388,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25636.jpg" />
 </div>
 
 
@@ -417,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25605.jpg" />
 </div>
 
 
@@ -445,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25569.jpg" />
 </div>
 
 
@@ -473,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25487.jpg" />
 </div>
 
 
@@ -499,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25460.jpg" />
 </div>
 
 
@@ -526,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25455.jpg" />
 </div>
 
 
@@ -552,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25433.jpg" />
 </div>
 
 
@@ -578,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25423.jpg" />
 </div>
 
 
@@ -605,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25411.jpg" />
 </div>
 
 
@@ -632,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25343.jpg" />
 </div>
 
 
@@ -660,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25217.jpg" />
 </div>
 
 
@@ -686,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25203.jpg" />
 </div>
 
 
@@ -698,6 +617,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46FA6CD87ED44DA008F86CE0B86E707AF88D2C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784330   (25108) от 10.03.2025
+
+Юрий Кузнецов | Дверь в 37 год (2025) [MP3, Дмитрий Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятные приключения молодого ученого из Ярославля Ильи Вострикова, когда он, получив в наследство квартиру в центре Москвы, обнаружил потайную дверь. Открыв ее, мужчина оказался в 1937 году. И здесь его ждала разгадка, почему ему досталась ...Жанр: Детектив, попаданцыИздательство: ЛитРес: чтецПродолжительность: 08:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EF90F5441CC5725AADA7540D0077CF9850182F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784296   (25087) от 10.03.2025
+
+Олег Маркеев | Демон власти (2025) [MP3, Crocofant]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный автор политических триллеров и мистических детективов — Олег Маркеев — не перестает удивлять своих читателей. На этот раз совместно с учеными Александром Масленниковым и Михаилом Ильиным он предпринял попытку исследовать феномен Власти. Никогда о тайнах, происхождении, эволюции и кризисе Власти не писалось столь ясно, откровенно и убедительно. Как и в полюбившихся (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 07:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8E55E73C3ABC215830046F8DB64F22B23BA63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784399   (25082) от 10.03.2025
+
+Фредерик Форсайт | День Шакала (2004) [MP3, Степан Старчиков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25082.jpg" />
+</div>
+
+
+###  Подробнее
+
+«День Шакала» (1971) — роман английского писателя Фредерика Форсайта о попытке вождей подпольной организации OAS убить президента Франции Шарля де Голля руками наёмного профессионального убийцы, и о противодействии этой попытке со стороны французских силовых структур.Жанр: Детектив, Приключенческая литератураИздательство: СиДиКомПродолжительность: 11:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EDDB8D80144AE5601BCAF4B3BFE4E664B0865A
 ```
 
 https://mybot314.ru/tekegram_catalog/

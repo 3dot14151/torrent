@@ -1,32 +1,3 @@
-###  Публикация: 1807509   (65178) от 19.07.2025
-
-Главная дорога (19.07.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Свердловский водитель отстоял в суде свое право водить пьяным. Он был за рулем мотоплуга.
-  Право на квадро: кому можно управлять квадроциклами?
-  Водительский кошмар: дети охотятся на водителей. Опасность может выскочить откуда угодно…
-  Обзор машины городских пижонов.(   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC42A549D3B1C185A74C2DCFE76B7F4C7059580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807579   (65177) от 19.07.2025
 
 Военная тайна с Игорем Прокопенко (19.07.2025) WEBRip [H.264]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65177.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64882.jpg" />
 </div>
 
 
@@ -89,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64786.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64597.jpg" />
 </div>
 
 
@@ -141,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64573.jpg" />
 </div>
 
 
@@ -170,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64562.jpg" />
 </div>
 
 
@@ -196,7 +167,7 @@ Bono: История примирения / Bono: Stories of Surrender (2025) WE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64557.jpg" />
 </div>
 
 
@@ -222,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64419.jpg" />
 </div>
 
 
@@ -252,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63911.jpg" />
 </div>
 
 
@@ -280,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63903.jpg" />
 </div>
 
 
@@ -306,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63899.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63655.jpg" />
 </div>
 
 
@@ -358,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63494.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63487.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63398.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63392.jpg" />
 </div>
 
 
@@ -465,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63386.jpg" />
 </div>
 
 
@@ -494,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63268.jpg" />
 </div>
 
 
@@ -521,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63199.jpg" />
 </div>
 
 
@@ -547,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63194.jpg" />
 </div>
 
 
@@ -573,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63153.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62826.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62779.jpg" />
 </div>
 
 
@@ -656,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62746.jpg" />
 </div>
 
 
@@ -682,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62612.jpg" />
 </div>
 
 
@@ -693,6 +664,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09DEF906D5A5F90E09077CBDFB22C95A6D822B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707938   (62608) от 18.03.2024
+
+20 дней в Мариуполе / 20 Days in Mariupol (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украинские корреспонденты The Associated Press прибывают в Мариуполь за пару часов до начала вторжения. На протяжении 20 дней журналисты документируют все ужасы войны.Производство: Украина / Frontline PBS, The Associated PressЖанр: документальный, история, политикаРежиссер: Мстислав ЧерновУчастники: Мстислав Чернов, Евгений Малолетка, Людмила Амелкина, Жанна Хома, Александр Иванов, Ирина Калинина, Василий Небензя, Владимир Никулин, Владимир Путин, Анастасия Ерашова, Владимир ЗеленскийПеревод: Одноголосый профессиональный (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (на англоязычную речь), английские (full, SDH, hardsub на русскоязычную и украиноязычную речь)Продолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738F727EF0C86ED1528BCD0D1B6AA3FBDCA4DBED
 ```
 
 https://mybot314.ru/tekegram_catalog/

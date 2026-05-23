@@ -6,7 +6,7 @@ SoftPerfect RAM Disk 26.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055413.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PIDKey Lite 1.64.4 b53 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055325.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KMS Tools Lite Portable by Ratiborus 03.02.2026 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055212.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ KMS Tools Lite Portable by Ratiborus 01.02.2026 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055181.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HyperSnap 9.7.0 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054968.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rufus 4.12 (Build 2314) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054927.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ StartAllBack 3.9.21 build 5352 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054919.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kalmuri 4.1.8 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054550.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Activation Scripts (MAS) 3.10 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054508.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ StartAllBack 3.9.21 StartIsBack++ 2.9.21 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054172.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ StartAllBack 3.9.21 build 5350 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054167.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Firefox Browser ESR 140.7.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1053765.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Rufus 4.12 (Build 2313) Beta [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1053473.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Office Installer & Office Installer+ 1.34 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053358.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TechSmith Camtasia 26.0.1 Build 14418 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053339.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ TechSmith Camtasia 26.0.1  Build 14418 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053189.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ TechSmith Snagit 26.0.0  build 9483 (x64) RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053183.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ ExifTool GUI 1.1 Beta [Ru/En] (Авторская раздача)
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053018.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ SoftPerfect RAM Disk 26.1 RePack by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1052960.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ TechSmith SnagIt 2026.0.0 Build 9483 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052592.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Kalmuri 4.1.7 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052298.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Fan Control V254 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052119.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ SoftPerfect RAM Disk 26.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051940.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SoundSwitch 6.14.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051856.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Bandicam 8.3.0.2533 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051184.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Reg Organizer 9.90 Beta 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051108.jpg" />
 </div>
 
 

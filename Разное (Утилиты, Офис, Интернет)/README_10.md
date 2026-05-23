@@ -6,7 +6,7 @@ FastStone Capture 11.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046882.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinCatalog 2024.16.0.1124 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046804.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CareUEyes 2.4.11.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046685.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FastStone Capture 11.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046649.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FastStone Capture 11.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046598.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ System software for Windows v.3.6.7 by CUTA [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046579.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FontForge 2023.01.01 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046397.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Non-Stop Copy 1.04 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043865.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Apeaksoft Screen Recorder 2.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042894.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VideoInspector 2.15.10.154 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041571.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Block auto-update 1.3 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040990.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Default Programs Editor 2.7.2676.2142 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040774.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Windows and Office ISO Download Tool 8.46.0.154 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040425.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Your Universal MultiBoot Installer UEFI 0.0.4.6 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036096.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Virtual Display Manager 3.3.2.44211 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035649.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ UNetbootin 7.02 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033175.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Anvide Таймер выключения 2.9 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033079.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Screenshoter Mail.Ru 20.10.1.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028339.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Hard Link Shell Extension 3.9.3.5 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024142.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Ultimate Calendar 1.8.1.2 (Update 2) Final + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022540.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ BestReminder v2021.04.01.15 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022052.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Insofta 3D Text Commander 6.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021277.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ IObit iFun Screen Recorder Pro 1.0.2.210 RePack (& Portable) by Dodakaedr [Ru/En
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020397.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ ProduKey 1.97 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020390.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ D3DGear 5.00.2297 Repack by CRACKSurl [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011813.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ IObit iFun Screenshot 1.2.0.526 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009817.jpg" />
 </div>
 
 

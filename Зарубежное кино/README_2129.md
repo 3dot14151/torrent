@@ -1,55 +1,3 @@
-###  Публикация: 1731118   (52825) от 19.06.2024
-
-Крокодил Данди в Лос-Анджелесе / Crocodile Dundee in Los Angeles (2001) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы к возвращению Крокодила Данди? В третьей части этого безумно популярного фильма Мик Данди, следуя за своей подругой, журналисткой Сью Чарльстон, переселяется из деревенской глуши Австралии в модный и суетливый Лос-Анджелес. Сью возглавляет лос-анжелесский офис газеты своего отца и пытается выяснить причины гибели одного из лучших журналистов. Данди, которому (   Читать дальше...   )Производство: Австралия, США / Bungalow Productions, Silver Lion Films, Vision View EntertainmentЖанр: боевик, комедия, криминал, приключенияРежиссер: Саймон УинсерАктеры: Пол Хоган, Линда Козловски, Джер Бернс, Джонатан Бэнкс, Алек Уилсон, Джерри Скилтон, Дональд Керр, Серж Кокберн, Аида Туртурро, Пол РодригесПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460B3088BBF6B3D3C963560DBCD60FF6A8772454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710945   (52818) от 19.06.2024
-
-Проклятие / The Grudge (2004) BDRip [H.264/1080p] [Unrated] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Проклятие умерших обитает в местах, где они жили, поджидая новую жертву. Когда проклятие находит новую жертву – та умирает, а проклятие становится только сильнее.Производство: США, Япония / Columbia Pictures, Ghost House Pictures, Fellah PicturesЖанр: ужасы, триллер, детективРежиссер: Такаси СимидзуАктеры: Сара Мишель Геллар, Джейсон Бер, Уильям Мапотер, Клеа ДюВалл, КаДи Стрикленд, Грейс Забриски, Билл Пуллман, Роза Блази, Тед Рэйми, Рё ИсибасиПеревод: Многоголосый профессиональный (FDV)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1807AFE459460D0B3385A818190CF2D7CAEB261C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731226   (52804) от 19.06.2024
 
 Томиэ: Перерождение / Tomie: Re-birth (2001) HDTVRip [H.264/720p] [JP / RU, EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52804.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52799.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52798.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52797.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52763.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52757.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52744.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52738.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52737.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52736.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52728.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52727.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52721.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52720.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52714.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52713.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52707.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52706.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52705.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52703.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52701.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52700.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52695.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52693.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0AD4F4A8858AC36D00D8C8C04285E17CFBC6A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731284   (52677) от 20.06.2024
+
+Я не боюсь / Io non ho paura / I'm Not Scared (2003) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий основан на одноимённом романе Никколо Амманити (2001)... Действие происходит в Италии в 1970-е годы, пронизанные терроризмом и похищениями людей, и рассказывает историю девятилетнего мальчика, который обнаруживает ужасное преступление, совершенное жителями его городка...Производство: Италия, Испания, Великобритания / Alquimia Cinema S.A., Cattleya, Colorado Film Production...Жанр: драма, криминал, детектив, триллерРежиссер: Габриэле СальваторесАктеры: Джузеппе Кристьяно, Маттиа Ди Пьерро, Адриана Консерва, Фабио Тетта, Джулия Маттуро, Стефано Биасе, Фабио Антоначчи, Айтана Санчес-Хихон, Дино Аббрешия, Джорджо КареччаПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английские хардсабыПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7537888B42A01AA2C8D92D2233F474BD74F30BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731306   (52675) от 20.06.2024
+
+Проклятая мелодия / Hwaiteu: Jeojooui Mellodi / White: The Melody of the Curse (2011) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начинающая поп-группа Pink Dolls выпускает второй альбом с ремиксом на песню неизвестных авторов под названием «White». Эта композиция моментально покоряет публику и приносит коллективу долгожданную популярность. Казалось бы, мечта девушек стала реальностью, но успех нового альбома становится причиной обострения конкуренции между участницами. Каждая хочет стать ведущей (   Читать дальше...   )Производство: Южная Корея / Doo EntertainmentЖанр: ужасы, музыкаРежиссер: Ким Гок, Ким СонАктеры: Хам Ын-джон, Хвану Сыль-хе, Майдони, Чхве А-ра, Чин Сэ-ён, Пён Джон-су, Ким Ён-мин, Ким Ги-бан, Ли Джун-хо, Пак Чин-суПеревод: Одноголосый любительский (den904)Язык озвучки: русский, корейскийСубтитры: русские (ФСГ "Мания"), английскиеПродолжительность: 01:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE12C83FED68DE348297D3F9C81EC4F95F684BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

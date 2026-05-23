@@ -1,107 +1,3 @@
-###  Публикация: 1600949   (153879) от 29.12.2022
-
-Хелло, Долли! / Hello, Dolly! (1969) BDRip [H.264]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам одноимённой бродвейской постановки 1964 года по пьесе Торнтона Уайлдера "Сваха". Действие фильма происходит в Нью-Йорке в 1890 году. Овдовевшая сваха Долли Галлагер Леви, известная как знаменитая сводница, знакомится однажды с богатым холостяком Хорасом Вандергелдером, но вскоре понимает, что не стоит искать ему жену, потому что сама (   Читать дальше...   )Производство: США, 20th Century Fox Film Corporation, Chenault ProductionsЖанр: мюзикл, мелодрама, комедия, приключенияРежиссер: Джин КеллиАктеры: Барбра Стрейзанд, Уолтер Мэттау, Майкл Кроуфорд, Марианн МакЭндрю, Дэнни Локин, Э.Дж. Пикер, Джойс Амес, Томми Тьюн, Джуди Кнейз, Дэвид Херст...Перевод: профессиональные многоголосые (20 Век Фокс СНГ; DVD Магия; Светла), авторский (Григорий Либергал)Субтитры: русские (на песни и полные), английские SDHПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BE998A2F14C6A7987664764EF70A44CBFAFE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600986   (153820) от 29.12.2022
-
-Хелло, Долли! / Hello, Dolly! (1969) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам одноимённой бродвейской постановки 1964 года по пьесе Торнтона Уайлдера "Сваха". Действие фильма происходит в Нью-Йорке в 1890 году. Овдовевшая сваха Долли Галлагер Леви, известная как знаменитая сводница, знакомится однажды с богатым холостяком Хорасом Вандергелдером, но вскоре понимает, что не стоит искать ему жену, потому что сама (   Читать дальше...   )Производство: США, 20th Century Fox Film Corporation, Chenault ProductionsЖанр: мюзикл, мелодрама, комедия, приключенияРежиссер: Джин КеллиАктеры: Барбра Стрейзанд, Уолтер Мэттау, Майкл Кроуфорд, Марианн МакЭндрю, Дэнни Локин, Э.Дж. Пикер, Джойс Амес, Томми Тьюн, Джуди Кнейз, Дэвид Херст...Перевод: профессиональные многоголосые (20 Век Фокс СНГ; DVD Магия; Светла), авторский (Григорий Либергал)Субтитры: русские (на песни и полные), английские SDHПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821ADBD33324750A772C9677A2CC4206EEA1EC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600935   (153708) от 29.12.2022
-
-VK под шубой (2022) WEBRip [H.246/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В преддверии Нового года телеканал НТВ покажет телевизионную версию новогоднего шоу «VK под шубой», которая зарядит зрителей новогодним настроением. В шоу примут участие звезды VK: 10AGE, Andro, IOWA, ELMAN, escape, Клава Кока, Konfuz, Люся Чеботина, Мари Краймбрери, NЮ, RASA, Тося Чайкина и The Hatters. Все они исполнят популярные новогодние хиты с известными представителями (   Читать дальше...   )Производство: РоссияЖанр: ПопРежиссер: Рома ГловаПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01271E718EF8953279EE2569E1080767A8CBA92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347209   (153577) от 22.12.2019
-
-Квартирник НТВ у Маргулиса. Игорь Растеряев (21.12.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришел автор и исполнитель песен, актер театра и кино Игорь Растеряев. Игорь, не имея музыкального образования, но будучи одаренным от природы, сам научился играть на гитаре, а затем освоил гармонь и стал сочинять саркастические композиции. Размещенная в 2010 году на YouTube песня «Комбайнёры» принесла создателю славу — ролик стал одним (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3445E3BFAFC0EB62DED55CDF60BF3CBABC069A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194834   (153164) от 26.12.2017
 
 Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153164.jpg" />
 </div>
 
 
@@ -139,7 +35,7 @@ Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152960.jpg" />
 </div>
 
 
@@ -171,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152850.jpg" />
 </div>
 
 
@@ -197,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152776.jpg" />
 </div>
 
 
@@ -223,7 +119,7 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152540.jpg" />
 </div>
 
 
@@ -252,7 +148,7 @@ Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152256.jpg" />
 </div>
 
 
@@ -278,7 +174,7 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152049.jpg" />
 </div>
 
 
@@ -307,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151383.jpg" />
 </div>
 
 
@@ -334,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151199.jpg" />
 </div>
 
 
@@ -361,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150894.jpg" />
 </div>
 
 
@@ -387,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150361.jpg" />
 </div>
 
 
@@ -413,7 +309,7 @@ Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149205.jpg" />
 </div>
 
 
@@ -445,7 +341,7 @@ Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149185.jpg" />
 </div>
 
 
@@ -477,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149098.jpg" />
 </div>
 
 
@@ -506,7 +402,7 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148897.jpg" />
 </div>
 
 
@@ -541,7 +437,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148835.jpg" />
 </div>
 
 
@@ -573,7 +469,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148699.jpg" />
 </div>
 
 
@@ -599,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148527.jpg" />
 </div>
 
 
@@ -625,7 +521,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148345.jpg" />
 </div>
 
 
@@ -655,7 +551,7 @@ VA - Download Festival 2012 (Part1) (2012) HDTVRip [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148165.jpg" />
 </div>
 
 
@@ -681,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148031.jpg" />
 </div>
 
 
@@ -707,7 +603,7 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148001.jpg" />
 </div>
 
 
@@ -723,6 +619,125 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 8. The Yellow Windows Of The Evening Train
 9. Time Flies
 10. Degree Zero Of Liberty(   Читать дальше...   )Жанр: Прогрессивный РокРежиссер: KscopeПеревод: ОтсутствуетПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739055   (147959) от 27.12.2013
+
+Сборник клипов - VA - Various Music part. 49 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ahmed Chawki feat. Pitbull and Mandinga - Habibi I Love You 1080p (3:52)
+2. Antonia - Marabou (Madalin Sichitiu Remix Edit) (VJ Tony Video Edit) 1080p (3:25)
+3. Bad Girl Takeover (ft. DJ Khaled & Meek Mill) 1080p (3:36)
+4. BASTO - Live @ Starfloor 2013 (Paris) 1080p (13:42)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04586E8E76383A6B42E701B5DA8F4B1194E65A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015394   (147953) от 24.12.2018
+
+Нюша - Сборник видеоклипов (2009-2018) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Больно
+2.  Вою на луну
+3.  Выбирать чудо
+4.  Выше(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589457   (147922) от 15.12.2012
+
+Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein - Mein Herz brennt. Второй официальный клип.Жанр: IndustrialРежиссер: Zoran BihaćАктеры: Тилль Линдеманн, Рихард Круспе, Пауль Ландерс, Оливер Ридель, Кристоф Шнайдер, Кристиан Лоренц.Перевод: ОтсутствуетПродолжительность: 00:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588917   (147663) от 15.12.2012
+
+Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный концерт, снятый MTV в Нью-Йорке, в 1998 году.
+
+Трек лист:
+
+01. Creeping Death Jam
+02. Die Die My Darling
+03. Blitzkrieg
+04. Small Hours
+05. The Prince
+06. Sabbra Cadabra(   Читать дальше...   )Жанр: Thrash metal.Режиссер: Joe FridayПеревод: ОтсутствуетПродолжительность: 01:42:38
 
 ## Скачать торент
 ```bash

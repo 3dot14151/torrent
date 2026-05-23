@@ -6,7 +6,7 @@ The Shattering (2020) [Ru/Multi] (1.1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019726.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Keeper of Antiques 3: The Last Will / Антиквар 3: Завещание
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019447.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (3.11) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019384.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hotline Miami (2012) [Ru/Multi] (46452) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019373.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.13.010) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019363.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2/2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019358.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019192.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ S.W.A.N.: Chernobyl Unexplored (2021) [Ru/Multi] (1.0.1160.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018669.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.11/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018484.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Falconeer (2020) [Ru/Multi] (1.4.0.1/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018480.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fatal Evidence 4: In A Lamb's Skin (2021) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018381.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Deadstep (2018) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018168.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Secret City 6: Sacred Fire / Тайный город 6: Священный ог�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018033.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ REDEEMER (2019) [Ru/Multi] (2.2) Repack Other s [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017987.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Beholder (2016) [Ru/Multi] (1.6.0.12741/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017969.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Signifier (2020) [Ru/Multi] (1.101) License GOG [Director's Cut Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017965.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Defender's Quest: Valley of the Forgotten (2012) [Ru/Multi] (2.2.6) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017785.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Chimeras 12: Inhuman Nature / Химеры 12: Нечеловеческая су
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017542.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Project CARS 3 (2020) [Ru/En] (1.0.0.0.0705/dlc) Repack Other s [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017463.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Whispered Secrets 12: Ripple of the Heart (2021) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017407.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ X3: Terran Conflict (2008) [Ru/Multi] (3.4/3.3/1.0/dlc) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017326.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Pumpkin Jack (2020) [Ru/Multi] (1.4.6) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017176.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017144.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016856.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Whispered Secrets 12: Ripple of the Heart / Нашептанные секрет�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016704.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Neurodeck (2021) [Ru/Multi] (1.2.4) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016638.jpg" />
 </div>
 
 

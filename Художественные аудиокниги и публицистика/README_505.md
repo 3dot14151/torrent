@@ -1,82 +1,3 @@
-###  Публикация: 1241359   (518995) от 18.08.2018
-
-Дэвид Брин | Погружение в Солнце (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Каждый вид во Вселенной обрел сознание, пройдя Возвышение, получив разум от своих инопланетных наставников, своей расы патронов. Каждый, кроме людей. Люди устремились к звездам самостоятельно, пройдя собственную эволюцию. Или же некая таинственная цивилизация все же начала процесс Возвышения на Земле многие тысячелетия назад? И если так, то почему покинула человечество? (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 11:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD16E828D94F03F9A0B52EF25AA449B36B8282C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534597   (518890) от 14.08.2012
-
-Илья Деревянко | Оборотни в погонах [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Капитан ФСБ Дмитрий Корсаков - настоящий профессионал. Он в совершенстве владеет рукопашным боем, холодным и огнестрельным оружием. В обычной жизни добродушный парень, в экстремальной ситуации он мгновенно становится идеальной боевой машиной, безжалостной к врагам. И врагов этих великое множество! Но Корсаков с ними не церемонится, и для каждого у него найдется свой метод борьбы...Жанр: Боевик
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7156034ECF732D9D6D37F77D7F9704A51E19D217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560704   (518860) от 01.07.2022
-
-Илария Тути | Тереза Батталья (Книга 1). Цветы над адом (2022) [MP3, Нелли Новикова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что-то прячется… Среди леса и нависающих стенами скал, внизу в овраге, ведущем к ручью… Следы крови говорят мне, опыт подсказывает мне: это случилось, но это может произойти снова. Это только начало.
-Что-то ужасное произошло в этих горах. Что-то, что требует всех моих навыков следователя. Я комиссар полиции, специализирующийся на профилировании, и я спускаюсь в ад (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 09:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C29A25D000A2AA0735A6C81521BD472A2655D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314409   (518847) от 14.07.2019
 
 Скотт Келли | Стойкость. Мой год в космосе (2019) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518847.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518726.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518717.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518486.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518457.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518451.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518396.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518361.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518265.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518181.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518010.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517963.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517901.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517899.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517718.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517713.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517712.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517710.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517659.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517656.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517651.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517645.jpg" />
 </div>
 
 
@@ -668,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517644.jpg" />
 </div>
 
 
@@ -681,6 +602,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A16B46F08173FA5911DAA61181573CE231794E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374048   (517611) от 10.08.2011
+
+Альманах фантастики | Фантаскоп №004 [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал фантастики "Фантаскоп" создан энтузиастами и страстными поклонниками хорошей фантастики. "Мы категорически против "кровищи реками", "соплей с сахаром" и прочей "жвачки для мозгов". Хотя если в хорошем произведении будет разумное количество этих элементов, то мы не против." Проект "Фантаскоп" родился (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B65CC01E42E24EA06F25409311FA8E81DEDF28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560915   (517597) от 02.07.2022
+
+Тим Волков | «ISCARIOT» Книга 2. Обмануть смерть (2021) [MP3, Александр Чекушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Враг повержен, но до победы еще далеко, впереди – война. Новый противник куда более опасен и могущественен, победить его еще никому не удавалось – ведь Смерть никогда не проигрывает. Вырвавшись из ада, вор-карманник по прозвищу Лис должен вновь вернуться в ад. Потому что другого выбора нет. Сразиться со Смертью лицом к лицу – это единственный способ продлить себе (   Читать дальше...   )Жанр: боевая фантастикаПродолжительность: 06:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677C24021746A544063F9BDF04A5BACB9E7BCC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 373890   (517551) от 10.08.2011
+
+Борис Акунин | Смерть на брудершафт (Фильма седьмая). "Мария", Мария... (2011) [MP3, Владимир Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517551.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смерть на брудершафт» - название цикла из 10 повестей в экспериментальном жанре «роман-кино», призванном совместить литературный текст с визуальностью кинематографа. Повесть «„Мария“, Мария…» (седьмая фильма) проливает свет на таинственную гибель знаменитого линкора.Жанр: Шпионский детективПродолжительность: 02:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9662208C9D3F1897F7DDC7E0B32A6C828CE10FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

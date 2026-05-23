@@ -6,7 +6,7 @@ OCCT 12.0.13 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204824.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 23.10.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204821.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Red Button 5.94 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204816.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EZ CD Audio Converter 10.2.1.1 (25.10.2022) RePack (& Portable) by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204814.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 116.0.5845.111 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204795.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sigil 2.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204789.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ O&O ShutUp10++ 1.9.1434 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204785.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ventoy 1.0.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204782.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Perfectly Clear WorkBench 4.6.0.2594 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204780.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.80.6200 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204770.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FireAlpaca 2.11.7 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204763.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinRAR 6.20 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204762.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204755.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Topaz Gigapixel AI 6.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204747.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ StaxRip 2.27.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204738.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Total Commander 10.52 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204729.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ CyberLink PowerDirector Ultimate 21.0.2214.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204701.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.2193]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204690.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Icecream Screen Recorder PRO 7.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204687.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204686.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AOMEI Partition Assistant Professional, Server, Technician, Unlimited Edition 9.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204684.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ RSS Guard 4.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204682.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Kerish Doctor 2022 4.90 (Update 28.10.2022) (Repack & Portable) by 9649 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204673.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204621.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ K-Lite Codec Pack Update 17.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204596.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204595.jpg" />
 </div>
 
 

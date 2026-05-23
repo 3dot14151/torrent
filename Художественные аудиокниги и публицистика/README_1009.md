@@ -1,83 +1,3 @@
-###  Публикация: 1726461   (55098) от 28.05.2024
-
-Дэниел Абрахам | Китамар (Книга 1). Время пепла (2024) [MP3, Дмитрий Стрелков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Время пепла ― первая книга фэнтезийной трилогии о городе Китамар и его обитателях от одного из авторов монументальной космической оперы «Пространство».
-
-Китамар — центр торговли, жемчужина цивилизации, древний город с долгой, кровавой историей, где живут бесчисленные тысячи людей, каждый из которых имеет свою историю. Это история Элис. Когда убивают ее брата, (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтезиИздательство: Эксмо, FanzonПродолжительность: 14:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC5C45B70CE248413201A1D142294E67DD5371B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726362   (55093) от 28.05.2024
-
-Юрий Поляков | Совдетство (Книга 2). Пионерская ночь (2022) [MP3, Александр Аравушкин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Книга Юрия Полякова «Совдетство. Книга о светлом прошлом» сразу стала бестселлером, покорив читателей трогательной достоверностью картин минувшего и глубиной проникновения в сложный внутренний мир советского ребенка. Критика уже успела поставить эту «вспоминальную» прозу в один ряд с «Летом Господним» Ивана Шмелева и «Детством Никиты» Алексея Толстого. И вот долгожданное (   Читать дальше...   )Жанр: Современная прозаИздательство: Аудиокнига (АСТ)Продолжительность: 15:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717E7B1CC553D2BA37775F17F4CD7A04CCF11909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726361   (55091) от 28.05.2024
-
-Сергей Снегов | Драма на Ниобее (2024) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Астросоциолог Василий Штилике получает задание отправиться на далекую Ниобею, небольшую планету в системе Гармодия и Аристогитона, для того, чтобы составить программу освоения планеты, которая должна спасти ее от разрушения, а нибов -немногочисленное сообщество гуманоидов, населяющих планету – от неминуемой гибели. Причина возможных фатальных событий банальна – Ниобея (   Читать дальше...   )Жанр: ФантастикаИздательство: СОЮЗПродолжительность: 05:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF9D6E2C81F3DE46D6A1A4A774BADB1DB362F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726337   (55088) от 28.05.2024
 
 Михаил Дорин | Авиатор. Назад в СССР (Книга 6) (2024) [MP3, Илья Маликов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55088.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55082.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55077.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55074.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55032.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55025.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ Ascold Flow | Релокант в другой мир (Книга 2). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55009.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54999.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ Ascold Flow | Релокант в другой мир (Книга 1). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54997.jpg" />
 </div>
 
 
@@ -325,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54977.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54971.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54923.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54920.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54916.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54904.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54886.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54873.jpg" />
 </div>
 
 
@@ -534,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54872.jpg" />
 </div>
 
 
@@ -560,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54822.jpg" />
 </div>
 
 
@@ -586,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54784.jpg" />
 </div>
 
 
@@ -612,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54783.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54782.jpg" />
 </div>
 
 
@@ -670,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54763.jpg" />
 </div>
 
 
@@ -681,6 +601,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F9B62A412475DBA5E930D8A5C1CEAC87C655F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727071   (54759) от 31.05.2024
+
+Сергей Снегов | Братья Рой и Генрих Васильевы (Книга 4). Право на поиск (сборник) (2023) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54759.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли две повести о приключениях братьев Роя и Генриха Васильевых:
+
+«Право на поиск»
+Рой Васильев — астрофизик, знаток космоса и детектив, специализирующийся на расследовании неизученных явлений и загадочных происшествий, прибывает на Уранию, чтобы выяснить причины взрыва сгущенной воды и гибели руководителя одного из проектов – Павла Ковальского.(   Читать дальше...   )Жанр: научная фантастикаИздательство: СОЮЗПродолжительность: 03:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5916A5AEDF5D375784B38AE66A5074CB2EDF8381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727129   (54715) от 01.06.2024
+
+Михаил Арцыбашев, Лидия Зиновьева-Аннибал и др. | Русский Эрос (Выпуск 2). Царица поцелуев (2015) [MP3, Павел Дорофеев, Елена Стародуб и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия АРДИС предлагает взрослым слушателям аудиосборник эротических рассказов русских авторов. Перед вами самые сокровенные страницы русского Эроса, созданные в начале XX века Зинаидой Гиппиус, Константином Бальмонтом, Фёдором Сологубом, Иваном Буниным, Михаилом Кузминым, Велимиром Хлебниковым и другими классиками. Аудиокнига блестяще озвучена ведущими актёрами (   Читать дальше...   )Жанр: Эротические рассказыИздательство: АрдисПродолжительность: 07:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C41D8AC5E42AD0847F567506A8330D20EDEB242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727260   (54706) от 01.06.2024
+
+Сергей Кузнецов | Полигон (2024) [MP3, Андрей Кравец]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий провинциальный городок превратился в полигон, заполненный бандами мародеров, стрельбой и взорванными домами. Охранник частного банка, бывший сотрудник органов, оказывается в этом аду после нападения в супермаркете и пытается разобраться в том, что происходит. Он ищет ответы на вопросы, кто убил его друзей, где его жена и сын, и почему в городе введено чрезвычайное (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 07:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8981DF28CB1665153E078B34E9F057B198E42B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

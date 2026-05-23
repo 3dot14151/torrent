@@ -1,32 +1,3 @@
-###  Публикация: 1326767   (380339) от 22.09.2019
-
-VA - Radio DFM Top D-Chart Сентябрь 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. C-BooL - Catch You 3:13
-02. SAINt JHN - Roses (Imanbek Remix) 3:58
-03. Gamper & Dadoni feat. Emily Roberts - Bittersweet Symphony 3:15
-04. Shawn Mendes & Camila Cabello - Senorita 3:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D874DD7AFC22AE9C8E1995DB7EF86A20905993F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068549   (379728) от 01.11.2016
 
 Григорий Лепс - Апгрэйд#Upgrade (2016) [MP3|320 Kbps] <Шансон, Поп>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379728.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Dance. Auto-Hit (2015) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379588.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Vocal Deep House Vol.1 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379581.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ DJ Quicksilver - Сборник композиций (2015) [MP3|320 кб/с]<Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379576.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Dubstep Generation (2018) [MP3|320 Kbps] <Dubstep, Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379519.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Respect Drum & Bass (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379509.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Vocal Deep House Vol.2 (Compiled by Zebyte) Russian Version (2015) [MP3|256
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379470.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Hip Hop Raised Me (2018) [MP3|320 Kbps] <Hip Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379446.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Tried And True: Blues Music (2018) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379310.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Yello - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379164.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Волшебные Инструментальные Мелодии (2015) [
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379146.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Новая коллекция 71 (2012) [MP3 |256 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379126.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ VA - Русский Улетный Hit-Прорыв (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379123.jpg" />
 </div>
 
 
@@ -424,7 +395,7 @@ VA - Trancern 38.1: Official Compilation (November 2012) (2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379122.jpg" />
 </div>
 
 
@@ -456,7 +427,7 @@ VA - Союз Подарочный Русский Выпуск (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378974.jpg" />
 </div>
 
 
@@ -491,7 +462,7 @@ VA - Самая звездная дискотека 2 (2012) [MP3|256 кб/с]<P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378969.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ VA - Coca-Cola Hit Осень (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378966.jpg" />
 </div>
 
 
@@ -561,7 +532,7 @@ VA - Осенний Клубный (2012) [MP3|320 кб/с]<Club,Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378964.jpg" />
 </div>
 
 
@@ -596,7 +567,7 @@ VA - Супер Танцевальный Музон (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378962.jpg" />
 </div>
 
 
@@ -631,7 +602,7 @@ Supermode - Tell Me Why (2017) Radio Version Remix [MP3|320 Kbps] <Club, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378932.jpg" />
 </div>
 
 
@@ -657,7 +628,7 @@ VA - Options Remake 150 Tracks (2018 September) (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378927.jpg" />
 </div>
 
 
@@ -686,7 +657,7 @@ VA - Лучшая молодёжная 100-ка. Русская версия (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378841.jpg" />
 </div>
 
 
@@ -721,7 +692,7 @@ VA - Euphoric Emotions Vol.40 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378827.jpg" />
 </div>
 
 
@@ -756,7 +727,7 @@ VA - Радио Шторм - NeРусский Шторм - 79 (2012) [MP3|320 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378806.jpg" />
 </div>
 
 
@@ -791,7 +762,7 @@ VA - Sound Clinic (2017) [MP3|320 Kbps] <House, Tech House , Future House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378805.jpg" />
 </div>
 
 
@@ -805,6 +776,35 @@ VA - Sound Clinic (2017) [MP3|320 Kbps] <House, Tech House , Future House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:338B3269252C2E6890845B79945B44D98A617E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175612   (378795) от 18.10.2017
+
+VA - Лучшие Клубные Новинки Vol.1 (Октябрь) (2017) [MP3|320 Kbps] <House, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378795.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  KSHMR & Sonu Nigam - Underwater (Extended Mix)  4:17
+002.  Steve Allen & Sarah Lynn - Broken Child (Extended Mix)  8:15
+003.  Arkham Knights - Gravity (Extended Mix)  6:54
+004.  Damien N-Drix - Wingz (Original Mix)  3:24(   Читать дальше...   )Жанр: House, Progressive, Trance, Club, DanceПродолжительность: 08:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F0AF4DD63F258D97E312C1FCF90FD13C55F115
 ```
 
 https://mybot314.ru/tekegram_catalog/

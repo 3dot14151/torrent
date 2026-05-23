@@ -6,7 +6,7 @@ FanControl V111 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604256.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare UniConverter 13.6.2.1 (х64) Repack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604255.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Textify 1.8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604244.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AmanVPN 2.1.6.0424 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604241.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Zback 2.87.0b Portable by Kopejkin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604233.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ FinePrint 9.17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604228.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Daum PotPlayer 1.7.2710 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604227.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Daum PotPlayer 1.7.2710 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604206.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Windows 10 Manager 2.1.2 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604204.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Infix PDF Editor Pro 7.2.7 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604111.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Norton Power Eraser 5.3.0.24 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604101.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ashampoo Photo Optimizer 7.0.0.34 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604091.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ValhallaDSP - ValhallaDelay 1.0.3v2  VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604063.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Glary Utilities Pro 5.118.0.143 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604058.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft Visual Studio 2019 Community 16.0.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604040.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ FurMark 1.20.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604036.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604034.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CrystalDiskInfo 8.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604020.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Adobe Premiere Pro CC 2019 13.1.1.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604006.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BurnAware Free 15.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603974.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Cockos REAPER 6.56 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603962.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Telegram Desktop 3.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603957.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Microsoft Edge 100.0.1185.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603934.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Venomode - Phrasebox 1.2.4 VSTi, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603926.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Cycling '74 Max 8.2.2 (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603925.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ ApowerREC 1.5.6.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603923.jpg" />
 </div>
 
 

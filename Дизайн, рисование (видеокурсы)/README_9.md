@@ -6,7 +6,7 @@ Lu Dongjun | Glass Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028855.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lu Dongjun | Stone Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028852.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Lu Dongjun | Fish & Portrait Study (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028843.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 1 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028821.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Raf Grassetti | Female Anatomy Tutorial (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028778.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Pawel Grochola | Destruction in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028489.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Shawn Lipowski | VEX in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028476.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Spencer Lueders | Fluids FX Using Houdini(2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028467.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Anthony Eftekhari | Matte Painting (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028455.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Steven Knipping | Applied Houdini Particles I (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028329.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Michael Hampton | Analytical Figure Drawing 2 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028321.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Michael Hampton | Analytical Figure Drawing 1 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028307.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028288.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028148.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ TargetHunter | Дизайн ВКонтакте (2021) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028142.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ CG Boost, Martin Klekner | Мастер 3D окружения в Blender 2.9 / M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027801.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027654.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027499.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027482.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027474.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Samuel Rodriguez | Творческая портретная иллюстрац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027449.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Camille Kleinman | Camille Bathing Robe Workshop (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027348.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Mike Jensen | ZBrush Hard Surface Techniques 2 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027298.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Mike Jensen | ZBrush Hard Surface Techniques (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027296.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Camille Kleinman | Jackets & Coats Workshop (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027295.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Camille Kleinman | Mastering Marvelous Designer: Beginners Course (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027279.jpg" />
 </div>
 
 

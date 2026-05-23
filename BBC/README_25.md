@@ -1,29 +1,3 @@
-###  Публикация: 1592311   (183454) от 22.11.2022
-
-BBC: Приключeния Брайана Кокса в пространстве и времени / Brian Cox's Adventures in Space and Time (2021) WEB-DLRip [H.264] (серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Британский учёный и телеведущий Брайан Кокс за свою карьеру снял множество фильмов о космосе. Но наука не стоит на месте, и новые открытия опровергают и дополняют наши представления о Вселенной. Как продвинулась наука за последние десять лет? Что нового мы узнали? Возможно, многие предыдущие фильмы Брайана требуют пересмотра через призму новейших открытий?Производство: Великобритания / BBC Studios, British Broadcasting Corporation (BBC)Жанр: Документальный, космосРежиссер: Стивен Кутер, Гидеон Брэдшоу, Крис Холт, Михаэль Лачман, Пол Олдинг, Нат Шарман, Мартин Джонсон, Ник Стэйси, Tom Beard, Дэвид Бриггс, Аластер Дункан, Мэттью Диас, Джиллз Харрисон, Алекс Хемингуэй, Наоми Ло, Роб Лиделл, Стив Смит, Kate Szell, Пол Ванезис, Эшли ВэйПеревод: Двуголосый профессиональный (Lucky Production)Субтитры: ОтсутствуетПродолжительность: 4 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15905F9E246C93E3B56A0F4C74F29E68F7A525D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594213   (178671) от 30.11.2022
 
 BBC: Мир природы. Лосось: Серебряный прилив / The Natural World. Salmon: The Silver Tide (2000) SATRip (сезон 18, серия 14)
@@ -32,7 +6,7 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178671.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177266.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176495.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ BBC: Чудеса Солнечной Системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176142.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) [DVDRip]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176104.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175993.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ BBC. Секреты древних. Каменные головы Ольмеко
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175421.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174904.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174818.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171678.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170265.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ BBC. Великие географические открытия / Voyages of D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170022.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169946.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167472.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167419.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167085.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165571.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164093.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163837.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162385.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160009.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159543.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ BBC. Horizon: Богу конец? Гид от Horizon по науке и рел
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158011.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158008.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157062.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D254DD918B76FD3322B24B140D69C02A13D47B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433599   (156038) от 21.12.2020
+
+Мир природы: Слоны - долгая дорога домой / Natural World. Elephants Without Borders (2009) HDTVRip [H.264/720p] (сезон 27, серия 11)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слонам в Ботсване живется хорошо, даже очень хорошо! Но местное население обеспокоено этим благополучием, поскольку считает, что такое количество слонов представляет потенциальную угрозу их жилищам и огородам... Они считают, что 60 000 слонов нужно просто убить. Ученый Майк Чейз занимается изучением этих могучих животных. С помощью современной телеметрической аппаратуры (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)&Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Майк ХолдингПеревод: Одноголосый закадровый, профессиональный (Селена Интернешнл)Субтитры: АнглийскиеПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
 ```
 
 https://mybot314.ru/tekegram_catalog/

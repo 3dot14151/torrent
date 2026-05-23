@@ -1,55 +1,3 @@
-###  Публикация: 1279755   (763319) от 01.02.2019
-
-Мозг Гиммлера зовется Гейдрихом / HHhH (2017) BDRip [H.264/720p-LQ] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о стремительном восхождении Рейнхарда Гейдриха — государственного и политического деятеля нацистской Германии, одного из инициаторов «окончательного решения еврейского вопроса», который был убит Яном Кубишем и Йозефом Габчиком — чехословацкими диверсантами, агентами, специально подготовленными англичанами.Производство: США, Франция, Великобритания, Бельгия / Echo Lake Entertainment, Cutting Edge Group, Légende FilmsЖанр: Триллер, ВоенныйРежиссер: Седрик ЖименесАктеры: Розамунд Пайк, Миа Васиковска, Джек О’Коннелл, Джек Рейнор, Джейсон Кларк, Томас М. Райт, Энцо Чиленти, Джофф Белл, Ноа Джуп, Барри АтсмаПеревод: Авторский (одноголосый, закадровый) А.ВаженинСубтитры: английскиеПродолжительность: 01:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233EC7DF9579D7C2FF09C02A8F88A16E5A2961B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326884   (763222) от 04.01.2022
-
-Не уходи / Don't Go (2018) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бен опустошён смертью своей дочери в ужасной катастрофе. Ему постоянно снится сон, в котором его дочь жива и он может общаться с ней. Вскоре Бен перестает различать грань между сном и явью и всё чаще уходит в призрачный мир по ту сторону реальности.Производство: Ирландия, Wide Eye Films, Amasia EntertainmentЖанр: ДетективРежиссер: Дэвид ГлисонАктеры: Стивен Дорфф, Мелисса Джордж, Саймон Делани, Эйвин Макгиннити, Grace Farrell, Гэвин О’Коннор, Лалор Родди, Дес Кейв, Люк Гриффин, Шарлотта БрэдлиПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced), английскиеПродолжительность: 01:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1D0A1950F4AF12741E8CFC674083C912EEF364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521901   (763216) от 04.01.2022
 
 Заложники Марса / Settlers (2021) BDRip [H.265/1080p-LQ] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763216.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763206.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763118.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763110.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Starперцы / Last Vegas (2013) BDRip [720p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762896.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762888.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762779.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762737.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762707.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762537.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762468.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762340.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762336.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762323.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762317.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762268.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761978.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761843.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761798.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761721.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761661.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761633.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761630.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761589.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906F08B1B0030249FF3DAC6B1F254174BFDB25FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279811   (761588) от 02.02.2019
+
+Миссия: невыполнима 3 / Mission Impossible III (2006) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суперагент Итан Хант решил расстаться с оперативной работой и заняться подготовкой курсантов. Он даже решил жениться на привлекательной, ни о чём не ведающей Джулии. Руководство ЦРУ просит его принять участие в последней операции: спасении его бывшей ученицы Линдси Феррис из лап торговца оружием Оуэна Дэвиана. Мог ли Итан предположить, что за этим заданием последует (   Читать дальше...   )Производство: США, Германия, Китай, Италия / Paramount Pictures, Cruise/Wagner Productions, MI 3 FilmЖанр: Боевик, Триллер, ПриключенияРежиссер: Джей Джей АбрамсАктеры: Том Круз, Филип Сеймур Хоффман, Винг Рэймс, Билли Крудап, Мишель Монахэн, Джонатан Рис-Майерс, Кери Рассел, Мэгги Кью, Саймон Пегг, Эдди МарсанПеревод: Дублированный, многоголосый, двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4149C6710FBAB69EAC3E9AB9985DDFBF79BF15E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280173   (761574) от 02.02.2019
+
+Пирсинг / Piercing (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рид — симпатичный парень, любящий муж и отец. Но в тихом омуте… Уже много лет он одержим желанием убить кого-нибудь ножом для колки льда. Когда наваждение становится нестерпимым, он решается прикончить проститутку. План преступления разработан до мельчайших деталей. Рид не предусмотрел только, что по его вызову приедет она, Джеки, работающая в стиле садо-мазо, сама (   Читать дальше...   )Производство: США, BorderLine Films, Borderline Presents, Memento Films InternationalЖанр: Ужасы, ТриллерРежиссер: Николас ПескеАктеры: Кристофер Эбботт, Миа Васиковска, Лайа Коста, Оливия Бонд, Мария Диззия, Марин Айрлэнд, Дакота Лустик, Уенделл ПирсПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7AD58F32E3736801B40E366C5832FCAA807D09
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 989345   (916350) от 22.02.2016
-
-Spellcrafter (2015) [Ru/Multi] (1.0) License PROPHET
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Магия – это не искусство и не религия. Магия – это ремесло. Погрузись в увлекательный и незабываемый мир приключений в темной вселенной фэнтези! Spellcrafter – это стратегия с ведением тактических пошаговых сражений и уникальной системой заклинаний. Исследуй мир, полный магии; собери золото; взаимодействуй с неигровыми персонажами; получай задания и делай правильный (   Читать дальше...   )Тип издания: LicenseРазработчик: Jujubee S.A.Жанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868A35871BFA51ED32C450A865EDABEBB1E27BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367517   (915239) от 16.03.2020
 
 Detectives United: Origins / Союз детективов: Начало (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Detectives United: Origins / Союз детективов: Начало (2018) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915239.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Just Shapes & Beats (2018) [Ru/Multi] (1.3.19) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915091.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ CAYNE (2017) [Ru/Multi] (1.24) SteamRip Let'sPlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915004.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ CAYNE (2017) [Ru/Multi] (1.24) Repack Other s [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914993.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Blind Prophet (2020) [Multi] (1.20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914967.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Roguelands (2015) [En] (0.6.1) Repack By Trol80lvl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914683.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BeamNG.drive (2013) [En] (0.5.2.1) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914597.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Magdalena / Магдалина (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914594.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914583.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Perfect Universe - Play with Gravity (2016) [Multi] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913690.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Valley (2016) [En] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913641.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Double Cubes (2017) [Ru/Multi] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913636.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Card City Nights (2014) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913585.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Neon Chrome (2016) [En] (1.0.0.14) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913566.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913452.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.3.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913425.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Rocketbirds 2 Evolution (2017) [Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913409.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913324.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913197.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913193.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd15) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912913.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ The Book of Unwritten Tales 2 (2015) [Ru/Multi] (1.0.3.132) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912910.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Pro Evolution Soccer 2016 (2016) [Ru/Multi] (1.03) Repack R.G. Механики
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912903.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Drizzlepath: Genie (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912902.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Obliteracers (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912894.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Obliteracers это инди-экшен-гонки, которые удосто�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04B71FFBDA522BC964D83A334923CB2482613988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491239   (911945) от 24.08.2021
+
+Living Legends 9: Voice of the Sea / Живые легенды 9: Голос моря (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей сказочной серии игр Living Legends. Брат пригласил вас на Солнечный остров отпраздновать День Нептуна, посвященный договору островитян с народом моря. Однако все пошло не так, как планировалось. Проклятие пало на обитателей острова - они стали превращаться в соляные статуи и монстров. Почему Владыка Моря и его дочери так разгневались на (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0ACE1404DAD3E8FFFFEA1621B707871F6A9AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 210242   (705552) от 14.06.2010
-
-Михаил Афанасьевич Булгаков | Собачье сердце (2008) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Булгаков - великий писатель, родившийся на стыке веков и творивший на рубеже исторических эпох. В его произведениях самая глубокая мистика и самый смелый вымысел так тесно переплетаются с реальной жизнью, что никакая фантастика уже не кажется невозможной. Это верно и для «Собачьего сердца», где небывалый эксперимент по пересадке гипофиза от человека собаке приводит (   Читать дальше...   )Жанр: классика, повесть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40130FEE1EEB461AF7E34F953DF73D243130054B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401980   (705515) от 12.08.2020
-
-Андрей Кузнецов | Смерть на Параде Победы (2020) [MP3, Аркадьевич Романов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Отгремели последние залпы Великой Отечественной, но война не закончилась даже после Победы. Расследование на первый взгляд заурядного убийства выводит НКГБ на след спецгруппы абвера, заброшенной в Москву для покушения на Сталина.
-
-Откажутся ли немецкие диверсанты от своего задания после падения Рейха – или выполнят последний приказ Гитлера, решившего сжечь вместе (   Читать дальше...   )Жанр: Боевик, шпионский детективПродолжительность: 08:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D513F87401973A54B7C168B9A00A5C0A06F6048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401892   (705498) от 12.08.2020
-
-Агата Кристи | Пуаро. Пуаро ведет следствие. [Сборник] (2020) [MP3, Егор Серов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Перед вами культовый сборник рассказов – одиннадцать дел из практики великого сыщика Эркюля Пуаро. Одиннадцать шедевров работы его уникального мозга, одиннадцать безупречных жемчужин из обширной коллекции удач маленького бельгийца. Среди этих дел представлены как серьезные и трагичные, так и забавные; некоторые тайны Пуаро раскрывал, не поднимаясь из своего любимого (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB1DA6455F67E8718CCF3A2B5D9016DC3AD7BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402017   (705487) от 12.08.2020
 
 Николай Степанов | Легко! (2020) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705487.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705365.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705313.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705208.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705193.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705072.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705067.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705055.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705054.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705010.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704952.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704936.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704934.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704915.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704911.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704907.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704809.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704804.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704802.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704788.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704757.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704750.jpg" />
 </div>
 
 
@@ -669,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704709.jpg" />
 </div>
 
 
@@ -680,6 +600,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BDAEB1EDAB2278EB2FDC58A4B4E988E882FF42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131751   (704704) от 07.05.2017
+
+Надежда Мамаева | Неприятности по алгоритму (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704704.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Неприятности по алгоритму" – фантастическая повесть Надежды Мамаевой, жанр боевая фантастика, космическая фантастика.
+Ты кадет училища, что на отшибе галактики, но на ежегодных гонках удалось обставить явного фаворита, выпускника летной академии, да еще после этого ославить неудачного соперника? Что ж, сама напросилась, жди крупных неприятностей, нарастающих (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастикаПродолжительность: 08:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4570911AFA8CBF471BBD39A97209CC86696DF4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131816   (704703) от 07.05.2017
+
+Бернар Вербер | Завтрашний день кошки (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704703.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своем новом романе Бернар Вербер рассказывает историю кошек, которые пытаются спасти человеческий мир от разрушительного безумия.
+Главные герои – кошка Бастет, уставшая от жизни в квартире и мечтающая научиться понимать людей и с ними общаться, и кот Пифагор, который живет в соседнем доме. Именно они хотят спасти мир от человеческих пороков, которые (   Читать дальше...   )Жанр: Фантастика, детективПродолжительность: 11:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24CDE8CCFD2FFA7C85158DBC0CF80DB5BC68069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131825   (704702) от 07.05.2017
+
+Владимир Корн | Страж Либерилля (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Корн – российский писатель, автор нескольких циклов приключенческих фантастических романов. Предлагаемая книга – первая в цикле «Кристиан Флойд».
+Либерилль – мир, созданный воображением автора. Он чем-то напоминает Америку 1920-х годов: гангстеры, джаз, модернизация. Главный герой романа молодой парень Кристиан Флойд, бывший музыкант, а ныне безработный, (   Читать дальше...   )Жанр: Детективная фантастикаПродолжительность: 10:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5353C5F6A4D52F303DB7241F1CFDB556BC6F0EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

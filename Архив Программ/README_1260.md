@@ -6,7 +6,7 @@ Opera 71.0.3770.228 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406770.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ File & Image Uploader 8.0.1 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406766.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ UninstallView 1.38 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406764.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Helium Music Manager Premium 14.8.16511 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406742.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio Network Edition 8.14 Build 179675 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406729.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Bat! Professional Edition 9.2.5 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406728.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Manager 3.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406700.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Beyond Compare Pro 4.3.7.25118 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406697.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ priPrinter Professional 6.6.0.2501 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406694.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ PotPlayer 1.7.21295 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406690.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Acronis True Image 2021 Build 30480 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406646.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adguard 7.5.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406616.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adguard 7.5.2 (7.5.3405.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406615.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NETGATE Spy Emergency 11.0.305.0 [Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406347.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AVG Anti-Virus Free 2013 13.0 Build 2741a5824 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406293.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406281.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hide Folders 4.0 Build 4.0.7.779 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406272.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406259.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Album Player 2.9.3 (17.10.12) (portable) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406169.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Wise Folder Hider 1.26.63 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406149.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Trojan Remover 6.8.4.2608 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406021.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Anvide Lock Folder 2.30 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406013.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Defraggler 2.11.560 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405918.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ WinAVI All-In-One Converter 1.7.0.4671 [Multi/Eng] + Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405903.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Advanced System Optimizer 3.5.1000.14338 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405898.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Adobe Flash Player 11.5.500.97 Beta 4 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405895.jpg" />
 </div>
 
 

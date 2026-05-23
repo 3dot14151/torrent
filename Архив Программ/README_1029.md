@@ -6,7 +6,7 @@ qBittorrent v4.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523470.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Norton Internet Security 22.15.0.88 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523464.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CorelDRAW Technical Suite 2019 21.2.0.706 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523435.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Task Manager DeLuxe 4.3.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523377.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CrystalDiskInfo 8.17.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523364.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WhatsApp 2.2222.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523346.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows 11 (v21h2) x64 HSL/PRO by KulHunter v5 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523319.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ KMSoffline 2.3.6 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523297.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Defender Tools 1.13 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523296.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ FastStone Photo Resizer 3.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523284.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523281.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Mozilla Thunderbird 38.2.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523280.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AdwCleaner 5.000 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523234.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mozilla Firefox 40.0.2 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523213.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ FastStone Image Viewer 5.5 Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523169.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ FastStone Image Viewer 5.5 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523129.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ O&O Defrag Professional 18.10 Build 101 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523127.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Internet Download Manager 6.23 Build 19 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523121.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ EximiousSoft GIF Creator 7.31 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523092.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Adobe components: Flash Player 18.0.0.232 + AIR 18.0.0.199 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523087.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VirtualBox 5.0.2 Build 102096 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523086.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ R-Studio 7.7 Build 159562 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523085.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AI RoboForm Enterprise 7.9.15.5  Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523084.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Xilisoft Video Converter Ultimate 7.8.10 Build 20150812 RePack (& Portable) by e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523081.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Microsoft Windows Server 2016 Technical Preview 3 Essentials (10.0.10514) [En] W
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523052.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ SolveigMM Video Splitter 5.0.1508.12 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523051.jpg" />
 </div>
 
 

@@ -1,57 +1,3 @@
-###  Публикация: 606124   (995483) от 20.01.2013
-
-Дитя Макона / The Baby of Macon (1993) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-17-й век. Театр. Перед публикой разыгрывается драма. Суть в том, что во времена смуты и голода пожилая женщина рожает чудесное дитя, хотя многие ожидают рождения чудовища.
-
-Новорожденный мальчик так хорош собой, что его объявляют святым, чудесным ребенком. Вокруг него разгораются страсти; и церковь и семья используют его для достижения своих целей. И постепенно границы между спектаклем и реальностью стираются.Жанр: ДрамаРежиссер: Питер ГринуэйАктеры: Джулия Ормонд, Рэйф Файнс, Филип Стоун, Джонатан Лэйси, Дон Хендерсон, Селия Грегори, Джеф Нэттал, Джессика Хайнс, Кэтрин Хантер, Гэбриэлль РейдиПеревод: Многоголосый закадровый (CP-Digital)Продолжительность: 02:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53B71F352C759244345B2CF9EF2212D44791F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605220   (995477) от 20.01.2013
-
-Последняя надежда человечества / Against the Dark (2009) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Виртуоз катаны Тао ведет специальный отряд бывших военных на геноцидную миссию. Их цель — вампиры. На постапокалиптической планете, высосанной до дна кровожадными упырями, кучка оставшихся в живых пойманы в ловушку в зараженной больнице. Тао — их последняя надежда, и он знает, что единственная панацея — резня. Настал час решающего противостояния плотоядным вампирам, (   Читать дальше...   )Производство: США, Румыния / Steamroller Productions,Castel Film RomaniaЖанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Ричард КрудоАктеры: Стивен Сигал, Таноай Рид, Дженна Харрисон, Линден Эшби, Эмма Кэтервуд, Стефен Хэйгэн, Дэниэл Персивал, Скай Беннетт, Таня Добрэ, Михаэла КонстантинПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1764BDE5931903D0A8D9DF71F9DFE9086371231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605395   (995468) от 20.01.2013
 
 Взвейся в небо / Возвращение на базу / R2B: riteontu beyiseu / Al-too-bi: Riteon too beiseu / Soar Into The Sun / R2B: Return 2 Base (2012) BDRemux [H.264/1080p] [DVO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995468.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995445.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995435.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995431.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995430.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995427.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995411.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995396.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995394.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995392.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995390.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995388.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995387.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995378.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995375.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995374.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995354.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995348.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995190.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995120.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995118.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995075.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995060.jpg" />
 </div>
 
 
@@ -664,13 +610,69 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995050.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Молодой менеджер по продажам, испытывающий сложности в своей карьере, теряет своего отца, с которым у него были натянутые отношения, на похороны которого он даже не явился, но явился на завещание. А получает в нём лишь просьбу передать 150 000 долларов некому Джошу Дэвису, который, как в дальнейшем становится понятно, является его племянником и сыном его неизвестный (   Читать дальше...   )Производство: DreamWorks SKG / Reliance Entertainment / Touchstone Pictures / Kurtzman Orci Paper ProductsЖанр: ДрамаРежиссер: Алекс КуртцманАктеры: Крис Пайн, Элизабет Бэнкс, Майкл Холл Д’Аддарио, Мишель Пфайффер, Оливия Уайлд, Марк Дюпласс, Сара Морнелл, Филип Бейкер Холл, Дин Чеквала, Барбара Ив ХаррисПеревод: Профессиональный многоголосый, закадровыйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, английский, итальянский, венгерский, польский, чешский, румынскийПродолжительность: 01:49:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606664   (995033) от 21.01.2013
+
+Великий Мерлин / Merlin (1998) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995033.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стародавние времена никто не удивлялся чудесам, а волшебники, маги феи и драконы жили рядом с людьми. Но когда люди поверили в единого бога, колдунов и волшебниц стали забывать.
+
+Тогда королева тьмы Мэб с помощью злого короля Вортингера и злой феи Морганы решила сделать волшебника Мерлина вождем темных сил. А Мерлин хотел воспитать короля Артура, построить золотой замок Камелот и найти священный грааль, который избавит мир от страданий.
+
+На помощь ему собрались благородные рыцари. Коварная Мэб наслала на Мерлина огнедышащего дракона отняла у него прекрасную Нимуэ…Жанр: Фэнтези, Драма, ПриключенияРежиссер: Стив БэрронАктеры: Сэм Нил, Хелена Бонем Картер, Джон Гилгуд, Рутгер Хауэр, Джеймс Эрл Джонс, Миранда Ричардсон, Изабелла Росселлини, Мартин Шорт, Пол Каррен, Лина Хиди ...Перевод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 02:19:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606129   (995009) от 21.01.2013
+
+Воры / The Thieves (2012) [720p] BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернациональная команда воров экстра-класса планирует грандиозное ограбление в Макао. Все участники банды — опытные профессионалы, бывали в переделках и способны эффективно работать в самых опасных и стрессовых условиях. Однако, несмотря на то, что все роли в безупречном плане преступления четко определены, многие из участников расклада совсем не собираются довольствоваться своей долей и коварно намереваются умыкнуть весь куш. К тому же один из них — полицейский «под прикрытием»…Жанр: Криминал, ТриллерРежиссер: Чхве Дон ХунАктеры: Ким Юн Сок, И Чон Чжэ, О Дар Су, Саймон Ям, Чон Чи Хён, Ким Хэ Сук, Анжелика Ли, Ким Хё СуПеревод: Одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 02:15:53
 
 ## Скачать торент
 ```bash

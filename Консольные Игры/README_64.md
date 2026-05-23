@@ -1,107 +1,3 @@
-###  Публикация: 1171026   (38871) от 30.10.2024
-
-Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Игра для Wii U "Call of Duty: Black Ops II" переносит игроков в 2025 год, где миру грозит новая опасность. Вас ждет потрясающая сюжетная компания в стиле "Call of Duty". Вы будете сражаться на земле и на воздухе, управлять беспилотниками и боевыми роботами. Чтобы сорвать планы главного злодея игры Рауля Мендеса, Вам придется использовать все доступные (   Читать дальше...   )Тип издания: LicenseРазработчик: TreyarchЖанр: Action, First-person shooterЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07972B9935F8D5171E1B822549F0CD2618E7DB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758336   (38559) от 02.11.2024
-
-S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2024) [Switch] [USA] 18.1.0 [NSZ] [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в альтернативном мире на территории Украины, в Чернобыльской зоне отчуждения. Согласно сюжету серии, в 2006 году зона подверглась неожиданному аномальному воздействию, «Выбросу», в результате которого физические, химические и биологические процессы на данной территории изменились. Появилось множество аномалий, артефактов и мутантов. В идеях (   Читать дальше...   )Тип издания: LicenseРазработчик: GSC Game World, MatabooЖанр: First Person Shooter, Action, Role-PlayingЯзык озвучки: Русский (опционально), Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D235CFF43EBFB2B1C95188915DB3DAE71AABD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760462   (37317) от 14.11.2024
-
-Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [License / 1.0.2] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Настало время новых приключений! Перенеситесь в причудливый мир Твинсана в ремейке приключенческого экшена, вышедшего ещё в 1994 году! В Little Big Adventure - Twinsen's Quest вас ждут обновлённая графика, новая музыка от оригинального композитора и улучшенный игровой процесс. В этом улучшенном и осовремененном ремейке вы опять повстречаете Твинсена.Тип издания: LicenseРазработчик: Adeline Software International, 2.21Жанр: Adventure, Puzzle, ActionЯзык озвучки: Английский, ФранцузкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69247DF3D78CA5BF7FEB5F17E9E9C87166757EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655292   (29881) от 25.01.2025
-
-Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] [Ru/En]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пачками косить порождений ночи и дожить до рассвета! Vampire Survivors - казуальная игра в стиле готического хоррора с элементами упрощённого рогалика. Здесь каждое ваше решение может вызвать лавину последствий для орд монстров, с которыми вам предстоит столкнуться. Ад опустел, а все демоны пришли сюда, и теперь уже некуда бежать или прятаться. Вам остается только (   Читать дальше...   )Тип издания: LicenseРазработчик: Luca GalanteЖанр: Action, ArcadeЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36235C674B36034F72BFFD08D43499622A919D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779452   (27731) от 13.02.2025
 
 The Sly Trilogy (2010) [PS3] [EUR] 3.50 [License] [En]
@@ -110,7 +6,7 @@ The Sly Trilogy (2010) [PS3] [EUR] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27731.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ DuckTales: Remastered (2013) [PS3] [EUR] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27052.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ DuckTales: Remastered (2013) [PS3] [USA] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27011.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Family Guy Back to the Multiverse (2012) [PS3] [USA] 4.25 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27009.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Majin and the Forsaken Kingdom (2010) [PS3] [USA] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27005.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ The Smurfs 2 (2013) [PS3] [USA] 4.41 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26981.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Max Payne 3 (2012) [PS3] [USA] 4.11 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26765.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ Ghostbusters: The Video Game (2009) [PS3] [USA] 2.60 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26452.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ Mortal Kombat vs DC Universe (2008) [PS3] [EUR] 2.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26316.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ The Simpsons Game (2007) [PS3] [USA] 1.93 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26298.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ Asura's Wrath (2012) [PS3] [EUR] 3.73 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26238.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ Far Cry Compilation (2014) [PS3] [USA] 4.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25427.jpg" />
 </div>
 
 
@@ -423,7 +319,7 @@ Mass Effect 3 (2012) [PS3] [EUR] 4.01 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25303.jpg" />
 </div>
 
 
@@ -449,7 +345,7 @@ Worms: The Revolution Collection (2012) [PS3] [USA] 4,50 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25244.jpg" />
 </div>
 
 
@@ -476,7 +372,7 @@ Persona 3 Reload - Digital Premium Edition (2024) [PS4] (1.07 / DLC) License [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15297.jpg" />
 </div>
 
 
@@ -502,7 +398,7 @@ xemu 0.8.106 Portable [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8566.jpg" />
 </div>
 
 
@@ -528,7 +424,7 @@ Prince of Persia The Lost Crown (2024) [Switch] [EUR] 17.0.1, Atmosphere 1.6.2 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5578.jpg" />
 </div>
 
 
@@ -554,7 +450,7 @@ Cocoon (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5561.jpg" />
 </div>
 
 
@@ -580,7 +476,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Switch] [EUR] 18.1.0, A
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5560.jpg" />
 </div>
 
 
@@ -606,7 +502,7 @@ Dave The Diver: Anniversary Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5526.jpg" />
 </div>
 
 
@@ -632,7 +528,7 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5517.jpg" />
 </div>
 
 
@@ -658,7 +554,7 @@ Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmos
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5515.jpg" />
 </div>
 
 
@@ -669,6 +565,110 @@ Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D447D471233B47B9D10E134C547DE1199412A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814972   (5514) от 28.08.2025
+
+Sea of Stars (2023) [Switch] [EUR] 19.0.1, Atmosphere 1.9.0 [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sea of Stars расскажет историю двух детей солнцестояния: Лунной монахини и Танцора солнечного клинка. Им предстоит объединить силы солнца и луны, чтобы овладеть магией затмения. Только с её помощью можно справиться с монстрами, созданными злым алхимиком Флэшмансером.Тип издания: LicenseРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9097B0757402DE7DF787268D0F59A5F274C2AEC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814994   (5513) от 28.08.2025
+
+Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вылупитесь из своего цветка и погрузитесь в прекрасный, но местами пугающий мир Animal Well, пиксельного чуда, полного замысловатых звуковых и визуальных решений. Встречайте живых существ, больших и малых, добрых и зловещих, открывая нестандартные улучшения и разгадывая секреты колодца. Это поистине уникальный опыт, который может заставить вас смеяться — от страха (   Читать дальше...   )Тип издания: LicenseРазработчик: Shared MemoryЖанр: Экшены, Инди, ПлатформерыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B590584AC0D563404A6D6C80E03BA10C23F113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815317   (5342) от 29.08.2025
+
+Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний выпуск серии игр о партийных битвах SUPER BOMBERMAN R! С новыми приключениями и режимами игры, он имеет самый большой объем контента в истории серии! Помимо хорошо известных режимов "Стандарт", "Гран-при" и "Битва 64", добавлен новый режим битвы под названием "Замок", в котором игроки делятся на сторону Атаки и сторону (   Читать дальше...   )Тип издания: LicenseРазработчик: Konami, HexaDrive Inc.Жанр: Экшены, Казуальные игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B55FC884C767C3D8588D7041AB842DC30578CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815487   (5232) от 30.08.2025
+
+Outer Wilds: Archaeologist Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в космическую программу! Вы - новобранец Outer Wilds Ventures, начатой недавно программы космических исследований, которая призвана найти ответы на загадки странной, непрестанно меняющейся солнечной системы.Тип издания: LicenseРазработчик: Annapurna InteractiveЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09DE8E93C36A70778132E6762A007EF5CDD4C64
 ```
 
 https://mybot314.ru/tekegram_catalog/

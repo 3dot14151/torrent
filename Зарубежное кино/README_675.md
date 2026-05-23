@@ -1,58 +1,3 @@
-###  Публикация: 887022   (760726) от 11.04.2015
-
-Разоблачение / Disclosure (1994) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Его карьера. Его брак. Его будущее. Все это оказалось под угрозой для сотрудника компании «DigiCom» Тома Сандерса. Он устоял перед напором страсти со стороны начальницы. Но в отместку она обвинила его в сексуальных домогательствах.
-И Том, проработавший в этой компании много лет, вынужден защищаться, чтобы не потерять место. Благодаря этой борьбе он попадает в головокружительный (   Читать дальше...   )Производство: США / Baltimore Pictures, Constant c Productions, Warner Bros. PicturesЖанр: Триллер, ДрамаРежиссер: Барри ЛевинсонАктеры: Майкл Дуглас, Деми Мур, Дональд Сазерленд, Кэролайн Гудолл, Рома Маффиа, Дилан Бейкер, Розмари Форсайт, Деннис Миллер, Сьюзи Плэксон, Николас СэдлерПеревод: Дублированный, авторскийЯзык субтитров: РусскийПродолжительность: 02:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E60C84B46BFAED6C06AAE8C3AB3CFBB7952DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017330   (760686) от 17.05.2016
-
-Эйс Вентура 2: Когда зовет природа / Ace Ventura: When Nature Calls (1995) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Место действия — Африка. Знаменитый детектив Эйс Вентура, единственный в мире специалист по розыску пропавших домашних любимцев, снова в деле. На этот раз Эйс должен найти Шикаку — священное животное племени Вачати. Без Шикаки не может состояться свадьба дочери вождя племени Вачати и сына вождя воинственного племени Вачуту.
-
-Если Эйс провалит задание, начнется межплеменная (   Читать дальше...   )Производство: США / Morgan Creek Productions, O EntertainmentЖанр: комедия, детектив, приключенияРежиссер: Стив ОдекеркАктеры: Джим Керри, Иэн МакНис, Саймон Кэллоу, Боб Гантон, Софи Оконедо, Брюс Спенс, Мейнард Эзиаши, Адевале Акинойе-Агбаже, Томми Дэвидсон, Дэймон СтандиферПеревод: Профессиональный (полное дублирование), Профессиональный (многоголосый закадровый) HTBСубтитры: ОтсутствуютПродолжительность: 01:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B82888DD73AF0761AA5508F58735215C1ED71DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017321   (760679) от 17.05.2016
 
 Эйс Вентура: Розыск домашних животных / Ace Ventura: Pet Detective (1994) HDTVRip
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760679.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760668.jpg" />
 </div>
 
 
@@ -117,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760664.jpg" />
 </div>
 
 
@@ -143,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760657.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760604.jpg" />
 </div>
 
 
@@ -196,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760588.jpg" />
 </div>
 
 
@@ -222,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760576.jpg" />
 </div>
 
 
@@ -248,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760575.jpg" />
 </div>
 
 
@@ -274,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760554.jpg" />
 </div>
 
 
@@ -301,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760502.jpg" />
 </div>
 
 
@@ -327,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760499.jpg" />
 </div>
 
 
@@ -353,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760496.jpg" />
 </div>
 
 
@@ -379,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760461.jpg" />
 </div>
 
 
@@ -405,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760455.jpg" />
 </div>
 
 
@@ -431,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760314.jpg" />
 </div>
 
 
@@ -457,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760309.jpg" />
 </div>
 
 
@@ -483,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760307.jpg" />
 </div>
 
 
@@ -510,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760297.jpg" />
 </div>
 
 
@@ -537,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760264.jpg" />
 </div>
 
 
@@ -563,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760252.jpg" />
 </div>
 
 
@@ -589,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760251.jpg" />
 </div>
 
 
@@ -615,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760122.jpg" />
 </div>
 
 
@@ -642,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760118.jpg" />
 </div>
 
 
@@ -668,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760116.jpg" />
 </div>
 
 
@@ -679,6 +624,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE909444BE7D4F0716EE447D7D4C39197DD3CFDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394950   (760110) от 07.07.2020
+
+Мисс Плохое поведение / Misbehaviour (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия, 1970-е, эпоха сексуальной революции и поисков новой свободы. Миллионы восторженных зрителей, вспышки фотокамер, шикарные наряды и секси-купальники — на лондонский подиум выходят топ-модели со всего света. И тут в сияющий огнями Альберт-холл врывается группа девушек...Производство: Великобритания, Франция / Pathé, BBC Films, British Film InstituteЖанр: Комедия, драма, историяРежиссер: Филиппа ЛоуторпАктеры: Кира Найтли, Гугу Эмбата-Ро, Джесси Бакли, Лесли Мэнвилл, Грег Кинниэр, Кили Хоуз, Рис Иванс, Филлис Логан, Джон Секвилл, Сьюки УотерхаусПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31E1EB1FBE3D662B16E90B8B032AC6FB5C59769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389879   (760107) от 07.07.2020
+
+Борджиа / The Borgia / Los Borgia (2006) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борджиа — имя, которое стало синонимом всех пороков. 1492-й год поднимает семейство Борджиа на недосягаемую высоту: сложные интриги и многочисленные подкупы возводят кардинала Родриго на папский престол.
+Он мечтает о победах, крупных завоеваниях и власти над всей Италией, что побуждает его принять имя Александра VI — в честь величайшего завоевателя древних времен. (   Читать дальше...   )Производство: Испания / Antena AragónЖанр: биография, история, драмаРежиссер: Антонио ЭрнандесАктеры: Льюис Омар, Серхио Перис-Менчета, Мария Вальверде, Серджио Муниз, Элой Асорин, Анхела Молина, Пас Вега, Линда Батиста, Эусебио Понсела, Роберто ЭнрикесПеревод: Многоголосый профессиональныйСубтитры: русские (полные), английские (полные)Продолжительность: 02:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C63788BD61990E8FC3A4B082B139055A0AEB7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

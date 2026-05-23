@@ -6,7 +6,7 @@ Mozilla Firefox 45.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886187.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Display Driver Uninstaller 15.7.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886140.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ O&O Defrag Professional 19.5 Build 222 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886063.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BurnAware Free 14.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886046.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mozilla Thunderbird 91.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886025.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lacey Free Music & Video Downloader 2.62 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886010.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ KeePass Password Safe 2.32 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885952.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hotspot Shield Elite 5.20.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885948.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Firefox Browser 78.14.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885935.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Emurasoft EmEditor Professional 21.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885926.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BurnAware Professional / Premium 14.7 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885925.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AVG Clear (AVG Remover) 21.7.6523.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885917.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MAGIX Video Pro X13 19.0.1.119 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885915.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Skype 7.21.0.100 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885878.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Avidemux 2.6.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885851.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adobe Flash Player 21.0.0.182 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885848.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885816.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885814.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Antivirus Removal Tool 2021.09 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885792.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Alcohol 120% 2.0.3 Build 8703 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885755.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Adobe Flash Player 21.0.0.182 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885741.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AMD Radeon Software Crimson Edition 16.3 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885719.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adobe Reader XI 11.0.15 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885713.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Alcohol 120% 2.0.3.8703 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885709.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ RadioBOSS 6.0.6.2 Advanced [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885680.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Windows and Office ISO Download Tool 4.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885671.jpg" />
 </div>
 
 

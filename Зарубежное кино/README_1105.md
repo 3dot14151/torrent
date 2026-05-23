@@ -1,55 +1,3 @@
-###  Публикация: 1316443   (505768) от 26.07.2019
-
-Ядовитая роза / The Poison Rose (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Карсон Филипс в прошлом — звезда футбола, теперь — частный детектив. В его руки попадает простое, на первый взгляд, дело о пропавших без вести. Но расследование принимает неожиданный поворот: в запутанной череде жестоких преступлений замешана его дочь, которая давно бесследно исчезла.Производство: США, Италия / JTP Films, March On Productions, Millennium MediaЖанр: Триллер, драмаРежиссер: Джордж ГаллоАктеры: Брендан Фрейзер, Фамке Янссен, Джон Траволта, Элла Блю Траволта, Клаудия Джерини, Морган Фриман, Петер Стормаре, Роберт Патрик, Кэт Грэхэм, Ник ВаллелонгаПеревод: Дублированный (iTunes)Субтитры: Английский (Full)Продолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C68A75DDCCF3F31956C25DFF0ABB0E300237BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539666   (505640) от 27.08.2012
-
-Фиби в стране чудес / Phoebe in Wonderland (2008) [H.264/1080p-LQ] HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Юная Фиби претендует на главную роль в школьной постановке Алисы в стране чудес, чего так хочет её мама. Но чудес Фиби хватает и в жизни и следование правилам окружающего мира кажется девочке бессмысленным.Производство: США / Silverwood Films Production & Lifetime Pictures ProductionЖанр: Фэнтези, ДрамаРежиссер: Даниел БарнзАктеры: Фелисити Хаффмен, Элль Фэннинг, Патришия Кларксон, Билл Пуллман, Кэмпбелл Скотт, Йен Коллетти, Кэйтлин Санчез, Маркиз Родригез, Грейси Лоуренс, Алисия Нахжаван, Синди Джу, Конор Кэрролл, Майя Н. БлейкПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC137E10C023AC77894FB2CAA8842F667A725D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539698   (505639) от 27.08.2012
 
 Варенье из инжира / Incir receli (2011) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505639.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505565.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505513.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505511.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505399.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505378.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505376.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505374.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505346.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505329.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505319.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505317.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505315.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505312.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505260.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505250.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505236.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505198.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505188.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505148.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505147.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505142.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505139.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505128.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E3CB7475A21260952CA675F471492C570D8242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933581   (505124) от 02.09.2015
+
+Любовная ситуация – это непросто / Situation amoureuse: C'est complique (2014) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505124.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-летний Бен готовится к скорой свадьбе со своей невестой Джульеттой. Однако неожиданное возвращение в Париж его бывшей одноклассницы Ванессы спутывает парню все планы. В юности Бен был влюблен в девушку, но та совершенно игнорировала его. Теперь же ситуация изменилась, и Ванесса совсем не против близких отношений с ним. Решится ли Бен оставить невесту накануне (   Читать дальше...   )Производство: Франция / Canal+ (fr), CinЖанр: мелодрама, комедияРежиссер: Родольф Лога, Маню ПайеАктеры: Маню Пайе, Анаис Демустье, Эммануэль Шрики, Филипп Дюкен, Жан Франсуа Кэйри, Жан-Шарль Клише, Ромейн Леви, Александр СтайгерПеревод: Профессиональный (многоголосый, закадровый) (SDI media)Субтитры: ОтсутствуютФормат: AVIПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F0F41102F8DE54AF2E15A507A4AB15A592838F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933616   (505116) от 02.09.2015
+
+Комната страха №205 / 205 - Zimmer der Angst (2011) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что произошло в комнате N205? Почему на протяжении года в ней никто не жил? Катрин сильно по этому поводу не заморачивается и поселяется в комнате, а это означает свободу. Свободу от дома, свободу от надоевшего своей опекой отца. Семестр вот-вот начнется, а это значит, что пора повеселиться, завести новых друзей, попасть на вечеринку, переспать с кем-то, и конечно (   Читать дальше...   )Производство: Германия | Neue Schönhauser FilmproduktionЖанр: Ужасы, ДрамаРежиссер: Райнер МацутаниАктеры: Дженнифер Ульрих, Андре Хеннике, Инес Бьёрг Давид, Тино Мевес, Ханс-Уве Бауэр, Флориан Яр, Юлия Дитце, Даниэль Рёснер, Марлен Лозе, Люси Элла фон ШилеПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: ОтсутствуютПродолжительность: 01:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709571C49315975B0A4D70C5A9C67B2A8BB4A013
 ```
 
 https://mybot314.ru/tekegram_catalog/

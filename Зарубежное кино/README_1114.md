@@ -1,57 +1,3 @@
-###  Публикация: 541820   (500397) от 01.09.2012
-
-С почестями / With Honors (1994) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Компания студентов снимают один дом, причем на троих парней приходится одна девушка. Каждый учиться на своем факультете, работают. Главный герой (в исполнении Брендана Фрейзера — еще до Мумий) пишет дипломную работу, и вот однажды вечером он теряет ее. А находит данное творчество один, простите за слово, бомж, от которого потом не так-то просто получить свою дипломную работу обратно. Что делать? Приходится выполнять все пожелания бомжа, и за каждое пожелание он возвращает горе-студенту по одному листочку (а диплом-то состоит из 90 листов !).
-
-Постепенно студент и нищий завязывают глубокую дружбу и привязанность. Очень мило наблюдать, как герой Фрейзера нежно заботится о своем недруге. Нам раскрывается история жизни нищего и то, как он докатился до такой жизни… А еще он страдает страшной болезнью и умирает… Студент пытается сделать все возможное, чтобы спасти его, но все напрасно… Дипломная работа становится не так уж и важна — ведь это наша жизнь, мы сами должны управлять ею, мы должны наслаждаться каждым моментом, (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Алек КешишьянАктеры: Джо Пеши, Брендан Фрейзер, Мойра Келли, Патрик Демпси, Джош Хэмилтон, Гор Видал и др.Перевод: Многоголосый закадровый / ДублированныйПродолжительность: 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECA0E2D39A9613AE3E74B3AEAE4909FB79F56BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541837   (500381) от 01.09.2012
-
-Плохая карма / Bad Karma (2011) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Недавно вышедший из тюрьмы бывший наркоман и преступник налаживает совместную жизнь с девушкой. Однако он решает отомстить, для чего вынужден снова иметь дела со своей старой бандой.Жанр: ТриллерРежиссер: Сури КришнаммаАктеры: Доминик Пурселл, Рэй Лиотта, Энди МакФи, Ванесса Грэй, Аарон Педерсен, Брэд МакМюррей, Ти Смит, Робин Мур, Кармел Роуз ДжентилеПеревод: Любительский (двухголосый)Продолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D88545070303E5052C2059F8EAEF89DF770FB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935159   (500363) от 07.09.2015
 
 Электрошок / Shocker (1992) BDRemux [H.264/1080p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500363.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500349.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500320.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500277.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500265.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500260.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500258.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500191.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500187.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500178.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500082.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500070.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500061.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500051.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500050.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500049.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500048.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500020.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500018.jpg" />
 </div>
 
 
@@ -554,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500007.jpg" />
 </div>
 
 
@@ -580,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499998.jpg" />
 </div>
 
 
@@ -606,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499996.jpg" />
 </div>
 
 
@@ -632,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499957.jpg" />
 </div>
 
 
@@ -658,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499953.jpg" />
 </div>
 
 
@@ -669,6 +615,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542094   (499944) от 01.09.2012
+
+Тельма и Луиза / Thelma & Louise (1991) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое утро Луизе приходится ходить в один и тот же ресторан быстрого обслуживания — она работает там официанткой. У неё есть «бойфрэнд» — музыкант, который, гастролируя по придорожным забегаловкам, частенько забывает о своей возлюбленной. Энергичная и в прошлом жизнерадостная Тельма, выйдя замуж за Дэррила, обнаружила, что место женщины — на кухне с кастрюлями, а мужчины — в кресле перед телевизором.
+
+Само собой такая жизнь не устраивает женщин, и в один прекрасный день чаша их терпения переполняется. Они решают уехать подальше из «осточертевшего» городка и от своих ненавистных мужчин. К сожалению, по дороге им приходится совершить ряд преступлений, в том числе и убийство. Их объявляют в розыск по всей Америке, и подружкам остаётся только одно — любыми способами успеть добраться до Мексики.Жанр: Драма, Комедия, КриминалРежиссер: Ридли СкоттАктеры: Сьюзен Сарандон, Джина Дэвис, Харви Кейтель, Майкл Мэдсен, Кристофер МакДональд, Стивен Тоболовски, Брэд Питт, Тимоти Кархарт, Люсинда Дженни, Джейсон БехПеревод: Многоголосый закадровый (BD CEE), Многоголосый закадровый (СТС), Авторский одноголосый закадровый (А. Гаврилов), Авторский одноголосый закадровый (Ю. Живов), Оригинал (Английский)Язык субтитров: Русские (Forced), Русские (Full), Английские (SDH)Продолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D91D0B389692AB53C5F98436529D8C56DE387A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540911   (499909) от 01.09.2012
+
+Диктатор / The Dictator (2012) BDRip [UKR]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он наверное герой своей страны, хотя и диктатор. И он героически сражается за недопущение власти демократии в своей так любовно угнетаемой им стране...Жанр: КомедияРежиссер: Ларри ЧарльзАктеры: Саша Барон Коэн, Анна Фэрис, Бен Кингсли, Саид Бадрия, Мишель Берг, Роки Ситрон, Liam Campora, Аасиф Мандви, Ризван Манжи, Рик ЧэмберсПеревод: ДублированныйПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF37977FB7BE6E1941B4B743CFB73719F039663
 ```
 
 https://mybot314.ru/tekegram_catalog/

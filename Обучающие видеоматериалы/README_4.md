@@ -1,29 +1,3 @@
-###  Публикация: 1857165   (1059584) от 04.03.2026
-
-TutorPlace, Анастасия Оршанская | Французский язык (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Хотите научиться говорить по-французски с нуля? Освойте базовые фразы, глаголы всех групп и ключевые грамматические конструкции, чтобы чувствовать себя уверенно в любой ситуации!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, саморазвитие, французский языкЯзык озвучки: русский, французскийПродолжительность: 03:23:37Реклама: наложение на видео и в презентации (плашка спонсора и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FDDD98961FE05CB287511F73E1DDB2016135E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857192   (1059582) от 04.03.2026
 
 TutorPlace, Наталья Дмитриевская | Корейский язык для начинающих (2026) WEB-DL [AD] [RU]
@@ -32,7 +6,7 @@ TutorPlace, Наталья Дмитриевская | Корейский язы�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059582.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059436.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Balun.Courses, Даниил Булыкин | Паттерны отказоуст
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059366.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ TutorPlace, Алёна Цветкова | Как стать иллюстрато
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059365.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ TutorPlace, Кирилл Калужских | Нейросети для марк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059315.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ TutorPlace, Кирилл Калужских | Нейросети для эксп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059314.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Hot Walls Academy, Михаил Шапошников | Нейромейкер с
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059268.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ TutorPlace, Кирилл Калужских | Нейросети в SMM (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059266.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ R&D-лаборатория Devhands, Николай Ихалайнен | Postgre
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059179.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059176.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Inna de Almeida | В отношения на шпильках (2023) WEB-DL [AD]
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059175.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Inna de Almeida | Перезагрузка подсознания (2023) WEB-DL 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059174.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Inna de Almeida | Стань Ближе к нему (2023) WEB-DL [AD] [RU]
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059173.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059167.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ TutorPlace, Екатерина Грищенко | Заработок на фот
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059107.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059010.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ TutorPlace, Юлия Подорова | Тренировки для рельеф
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058954.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ TutorPlace, Любовь Даняева | Как стать руководите
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058951.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ ProFinansy, Наталья Котовская, Тамара Карапетян |
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058945.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ TutorPlace, Ксения Шушарина | Сам себе тренер (2025) 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058940.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058917.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей K
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058915.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Level One, Анна Кигай | Чему учат философы Древне
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058911.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ TutorPlace, Эрика Байрамова | Когнитивно-поведен�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058910.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058909.jpg" />
 </div>
 
 
@@ -674,6 +648,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DC746065F417B1DD091F2EE22DD974E70791B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856242   (1058881) от 02.03.2026
+
+Sorokin School, Павел Сорокин | Многопоточность в Java (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для кого этот курс:
+Новичок, знающий только основы Java и Spring
+
+Сейчас самое подходящее время для освоения многопоточности. Гораздо легче изучить её в начале карьеры, чем догонять под давлением сложных задач.(   Читать дальше...   )Производство: Sorokin SchoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF11F676D2C10369B27B4CC452BEEF74E4173E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

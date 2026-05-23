@@ -6,7 +6,7 @@ Tor Browser Bundle 5.0.5 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222194.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Sharpen AI 2.2.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222158.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CoolUtils Total Audio Converter 5.2.0.131 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222149.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ O&O ShutUp10 1.7.1404 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222145.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Macrorit Disk Scanner 5.1.5 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222126.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ O&O DiskImage Professional 17.6 Build 513 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222118.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IcoFX 3.8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222111.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sticky Password Premium 8.2.3.24 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222110.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MCS Drivers Disk 18.11.09.1465 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222105.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222098.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nvidia DriverPack v.417.35 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222077.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Internet Download Manager 6.40 Build 1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222042.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AIDA64 Extreme Edition 6.75.6142 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222035.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Wise Care 365 Pro 6.3.8.616 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222026.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Text Edit Plus 13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222019.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Serato DJ Pro Suite 2.4.2 (24285) (x64) RePack by VR [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222016.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wondershare UniConverter 13.5.0.108 (х64) Repack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222008.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Total Commander 10.52 RC5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222004.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Internet Download Manager 6.40 Build 1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222003.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Tor Browser Bundle 8.0.4 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221999.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Wise Memory Optimizer 4.1.1.113 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221993.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ SyMenu 6.13.7629 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221984.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ExperienceIndexOK 1.08 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221952.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Chasys Draw IES 5.27.02 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221940.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ CCleaner 5.51.6939 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221923.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Futuremark 3DMark 2.25.8043 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221900.jpg" />
 </div>
 
 

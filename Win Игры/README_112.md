@@ -1,29 +1,3 @@
-###  Публикация: 1196169   (825536) от 01.01.2018
-
-Outlast Dilogy (2013-2017) [Ru/Multi] Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Outlast 2 представляет вашему вниманию Sullivan Knoth и его последователей, которые оставили наш грешный мир позади, чтобы положить начало Вратам Храма, городу, скрытому от цивилизации, в далекой глуши. Knoth и его группа, готовятся к испытаниям конца света, и вы находитесь прямо в центре этих событий. Вы - Blake Langermann, оператор работающий со своей женой, Lynn.Тип издания: RepackРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8916575CC34F2485169474A75A2BA7170B1BFBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006991   (824785) от 13.04.2016
 
 Gryphon Knight Epic (2016) [Ru/Multi] (1.3.1) Repack ARMENIAC
@@ -32,7 +6,7 @@ Gryphon Knight Epic (2016) [Ru/Multi] (1.3.1) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824785.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Frozen State (2014) [Ru/Multi] (0.88 build 217) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824518.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Obscuritas (2016) [Ru/Multi] (1.0) Repack ARMENIAC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824517.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Sheltered (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824513.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ The Amazing American Circus (2021) [Ru/Multi] (50654) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824324.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Mind Scanners (2021) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824316.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Cold Fear (2005) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_824030.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Sons of Valhalla (2024) [Ru/Multi] (2.0.19/dlc) Repack Let'sРlay [Supporter Bun
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824017.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.1.4/dlc) SteamRip Let'sPlay [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823963.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823846.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ HITMAN (2016) [Ru/Multi] (1.9.0/dlc) SteamRip R.G. Origins [The Complete First S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823821.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru] (1.06.329/dlc) Repack R.G. Games [Digital De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823738.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823728.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Icon Of Hell (2016) [Ru/En] (0.99) Lisence
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822830.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ The Tape (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822826.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822695.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Eliza (2019) [Ru/Multi] (08.31.2020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822690.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Demesne (2016) [En] (0.7.1.1) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822602.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Putrefaction (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822600.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Dead Secret (2016) [En] (1.0) Rip Unleashed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822599.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack West4it [Director's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822093.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Anomaly: Korea (2013) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822072.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Bridge Constructor Portal (2017) [Ru/En] (1.0.0.0) Repack Aladow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822005.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Flat Kingdom (2016) [En/Es] (1.01) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820777.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Skullgirls 2nd Encore (2016) [En/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820653.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Skullgirls – это быстротечная двухмерная игра-ф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5361D317346F1887E354039D4AE21A6BBE846BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007539   (820648) от 15.04.2016
+
+Outland (2014) [Ru/Multi] (1.13) Repack R.G. Механики
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outland — это динамичный платформер, в котором игроку предстоит отправиться в эпическое приключение и использовать силы света и тьмы для того, чтобы спасти мир от сил хаоса. Между балансом и хаосом встал один человек, который способен возвести мост, отделяющий одно от другого. В противном случае, мир будет разрушен. Outland — это амбициозный 2D-платформер с прекрасным (   Читать дальше...   )Тип издания: RepackРазработчик: HousemarqueЖанр: Action, Adventure, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D65EE35AF9CAB4482C829FA6A9DF842F8808CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Farthest Frontier (2022) [Ru/Multi] (1.1.1/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069523.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DarkSwitch (2026) [Ru/Multi] (R26.0408.9102) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068720.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Trasamire Campaigns (2023) [En] (1.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062295.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Wrangle Ranch (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062271.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Reus 2 (2024) [Ru/Multi] (1.11.4/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062014.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.2.0-188591/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061609.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ TerraScape (2024) [Ru/Multi] (2.0.0.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061556.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ TerraScape (2024) [Ru/Multi] (2.0.0.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060585.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Havendock (2023) [Multi] (1.4.3f3.s-off/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059181.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Anno 1800 (2019) [Ru/Multi] (18.4.1412158/dlc) Repack HardwareMining [Definitive
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058787.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Anno 1800 (2019) [Ru/Multi] (18.4.1412158/dlc) Repack dixen18 [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057006.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Total War: PHARAOH DYNASTIES (2024) [Multi] (2.1.6/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056483.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Total War: PHARAOH DYNASTIES (2024) [Ru/Multi] (2.1.6/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056482.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Worldwide Rush (2025) [Ru/Multi] (1.2.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055333.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Foundation (2019) [Ru/Multi] (1.11.0.11/dlc) Repack Other s [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055143.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack FitGirl [Definitive Annove
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055141.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack seleZen [Definitive Annove
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055137.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Foundation (2019) [Ru/Multi] (1.11.0.11/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053914.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Worldwide Rush (2025) [Ru/Multi] (1.0.22/1.0.25) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053414.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack Wanterlude [Complete Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053023.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.11) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052964.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.2-10547+185658) Repack Let'sРlay [Bu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052830.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.3.1/dlc) Repack Let'sРlay [Deluxe Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052829.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.25.0.2775/dlc) Repack Let'sРlay [U
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051719.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Stonehearth (2018) [Ru/En] (1.1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051623.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Wandering Village (2022) [Ru/Multi] (1.0.4) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049392.jpg" />
 </div>
 
 

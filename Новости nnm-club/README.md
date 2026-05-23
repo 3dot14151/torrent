@@ -7,7 +7,7 @@ Beethoven - Complete Beethoven Edition (1997) 87CD [APE|Lossless|image + .cue] <
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070222.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070158.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069524.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068804.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068438.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Windows 11 Pro 25H2 26200.8246 x64 by SanLex [Lightweight] [Ru/En] (2026.05.07)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068354.jpg" />
 </div>
 
 
@@ -168,40 +168,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068337.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Джек Кларк [Jack Clark], сооснователь компании Anthropic, опубликовал один из самых тревожных прогнозов развития индустрии, заявив о скором завершении эпохи «ручного» управления разработкой нейросетей. По его мнению, человечество вплотную подошло к созданию полностью автоматизированного цикла ИИ-исследований (R&D).Кларк оценивает вероятность появления таких систем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869598   (1068321) от 07.05.2026
-
-Первое достижение: 1000 релизов от lipi
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от lipi Дорогие друзья и гости клуба...Он рос простым пареньком. Не пил, не курил, занимался спортом. Но однажды связался с хорошей компанией и пошло-поехало: первый релиз, второй, третий... тысячный.
-Ну а рассказ о том, как он успешно не борется с этой полезной привычкой, расскажет сам виновник торжества. Только нужно вежливо попросить. (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -221,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068320.jpg" />
 </div>
 
 
@@ -248,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067842.jpg" />
 </div>
 
 
@@ -274,7 +247,7 @@ Lisuan Technology стала четвертым производителем в�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067687.jpg" />
 </div>
 
 
@@ -300,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067671.jpg" />
 </div>
 
 
@@ -326,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067522.jpg" />
 </div>
 
 
@@ -352,7 +325,7 @@ Emirates оснащает системой Starlink все свои самоле
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067456.jpg" />
 </div>
 
 
@@ -379,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066661.jpg" />
 </div>
 
 
@@ -405,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066075.jpg" />
 </div>
 
 
@@ -431,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065885.jpg" />
 </div>
 
 
@@ -457,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065820.jpg" />
 </div>
 
 
@@ -483,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065600.jpg" />
 </div>
 
 
@@ -509,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065437.jpg" />
 </div>
 
 
@@ -535,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065257.jpg" />
 </div>
 
 
@@ -561,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065186.jpg" />
 </div>
 
 
@@ -587,7 +560,7 @@ Telegram обновил протокол по противодействию ц�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065040.jpg" />
 </div>
 
 
@@ -613,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064297.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ Telegram начнет помечать пользователей со стор�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064084.jpg" />
 </div>
 
 
@@ -665,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063983.jpg" />
 </div>
 
 
@@ -673,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 
 На американском рынке зафиксировано заметное снижение цен на DDR5-память после нескольких месяцев роста. По данным мониторинга ритейлеров, в ряде случаев стоимость комплектов снизилась до 100 долларов.
 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862795   (1063685) от 03.04.2026
+
+Max получил лицензию на защиту конфиденциальной информации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мессенджер Max получил лицензии на техническую защиту конфиденциальной информации, а также на разработку соответствующих средств, следует из реестров ФСТЭК России.Эти лицензии в большинстве случаев выдаются бессрочно, такого характера они и у Max. Для российского мессенджера обе выданы 11 марта.Лицензия на защиту информации нужна компаниям, которые имеют - внедряют, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

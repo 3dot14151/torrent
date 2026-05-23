@@ -1,57 +1,3 @@
-###  Публикация: 1648277   (230948) от 22.07.2023
-
-Mivo - Видеоредактор 3.34.619 Mod by AppModz [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Mivo - лучший инструмент для создания музыкальных видеоклипов в HD и создания слайд-шоу из фотографий с эффектами изменения лица, модными шаблонами смены лица с помощью ИИ. Популярная музыка, потрясающие переходы, анимированные, неоновые, 3D, мультяшные видеоэффекты. Mivo поможет вам легко добавлять музыку к видео, редактировать видео с музыкой и фотографиями для (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 20.07.2023Разработчик: Mivo studioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637234   (230924) от 03.06.2023
-
-SMD info v1.39 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение позволит Вам раскодировать номинал SMD элемента (сопротивление, ёмкость), а также цветовую кодировку резистора.
-
-Сохраняется история расшифровок по каждому элементу и обратная конвертация сопротивлений - Вы вводите сопротивление и приложение подбирает SMD-кодировку и цветную кодировку.Тип издания: AdfreeРелиз состоялся: 09.05.2023Разработчик: Alexandr11997755Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AC35914576E7BA282C639A4FC0E5FD0E42EBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649145   (230879) от 26.07.2023
 
 MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
@@ -60,7 +6,7 @@ MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230879.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ X Icon Changer - Change Icons 4.2.9 Mod by Citrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230864.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230862.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ Dynamic Island 1.3.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230826.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230824.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230675.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ Moviebase Premium 4.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230673.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ DiskDigger Pro 1.0-pro-2023-04-11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230544.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ Always on Edge 8.0.1 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230524.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ EasyWay - общественный транспорт 6.0.2.44 Lite-Mod by andy_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230376.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230010.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228795.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228763.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ Anatomy Learning 3D Full v2.1 Unlocked [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228483.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226636.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ ViewBox v1.7.12 Mod Alex.Strannik, vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225321.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ Malwarebytes Антивирус 3.11.1.113 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225056.jpg" />
 </div>
 
 
@@ -508,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224128.jpg" />
 </div>
 
 
@@ -534,7 +480,7 @@ Photo Tools Full v0.13 + Plugin [Ru] - Калькулятор для съёмо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224013.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ VPN Proxy Master - Safer Vpn 2.3.1.1 (Pro) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223948.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ Lunafaqt v1.25 [Ru/Multi]- Лунный календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223726.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ Medativo Meditation Timer v1.2.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223298.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221264.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ ArtRage Vitae Mobile Painting v1.0.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221226.jpg" />
 </div>
 
 
@@ -678,6 +624,58 @@ ArtRage Vitae — это Премиум версия раннего прилож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58B10FC498E2BA7B5EE4FF6440126E7710B27681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832803   (221224) от 30.10.2025
+
+Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 30.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3505FDC56E778556ADD4A7138936DA801704C9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832780   (221119) от 30.10.2025
+
+Акции всех магазинов России v169.3.1 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнавайте об акциях и скидках в Магните, Пятерочке, Перекрестке, Ленте и других магазинах рядом с вами.Тип издания: ModРелиз состоялся: 29.10.2025Разработчик: ПтичкаПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5273DADE13FE1F8DE23E3A0BF94382CC59DAA7D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

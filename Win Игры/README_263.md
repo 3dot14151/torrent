@@ -1,29 +1,3 @@
-###  Публикация: 1064927   (386127) от 29.10.2016
-
-Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта оригинальная приключенческая игра раскрывает историю любви двух прекрасных душ через искрометный юмор и причудливый, вручную анимированный мир. Возлюбленную нашего героя похищают злые духи и единственный способ вернуть ее, это явиться в мир в виде дракона, чтобы победить Зло. Но что-то пошло не так и его душа переродилась в червяка по имени Пип. Теперь Пип должен (   Читать дальше...   )Тип издания: LicenseРазработчик: AuraLabЖанр: AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21E6C29AD2CE163DB973DC7069D1A242B6C23AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022184   (386104) от 29.10.2016
 
 Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.0/dlc) License HI2U
@@ -32,7 +6,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.0/dlc) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386104.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack R.G. Cat
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385233.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Absolver (2017) [Ru/Multi] (1.25/dlc) Repack R.G. Catalyst [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385116.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384696.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dungeons 3 (2017) [En] (1.2.1/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384680.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Deponia Dilogy / Дилогия Депонии [Ru/En] (RePack/1.3/1.1.4) 2012 |
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384669.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ The Evil Within 2 (2017) [Ru/En] (1.0/dlc) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384542.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Overland (2019) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384505.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Manual Samuel (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384151.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Space Hulk: Tactics (2018) [Ru/Multi] (28103) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383330.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Achtung! Cthulhu Tactics (2018) [Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383321.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383313.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Darkness and Flame 4: Enemy in Reflection (2019) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383220.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.0.362/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383148.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Legacy 3: Witch Island Origin / Наследие 3: Происхождение �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383078.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Halloween Stories: Invitation / Хэллоуин: Приглашение на в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382833.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Chroma Squad (2015) [En/Pt] (1.12b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382831.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Conan Unconquered (2019) [Ru/Multi] (1.143 build 703634) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382627.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (RePack/1.0u1/2 DLC) 2012 | R.G. Shift
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382590.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Car Mechanic Simulator 2018 - All Cumulative Patches (2017) [Ru/Multi] (1.0.0-1.
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382522.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ James Bond 007: Blood Stone [Ru/En] (RePack/1.0) 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382310.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ NBA 2k13 [Ru/En] (RePack/1.0.1.1) 2012 | Audioslave
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382176.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Albert and Otto: The Adventure Begins (2015) [En] (1.0) Repack R.G. Механи
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382076.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Toby: The Secret Mine (2015) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382074.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381939.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B085E6907FFDF398B23B0D2BB38C30BD922B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068111   (381823) от 31.10.2016
+
+Through the Woods (2016) [Ru/Multi] (1.0/u1) Repack R.G. Revenants
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Through the Woods — это приключенческая игра от третьего лица в жанре «хоррор». Действие разворачивается в лесах западного побережья Норвегии и повествует о матери, потерявшей своего сына. По мере игры вам предстоит узнать от женщины, что предшествовало исчезновению ее сына.Тип издания: RepackРазработчик: Antagonist GamesЖанр: Adventure, Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Английский, НорвежскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436CAC40213A810713E3B0DFBC1F994A52E3395D
 ```
 
 https://mybot314.ru/tekegram_catalog/

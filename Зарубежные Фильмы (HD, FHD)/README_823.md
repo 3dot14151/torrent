@@ -1,55 +1,3 @@
-###  Публикация: 1654125   (213534) от 19.08.2023
-
-Метаморф / Shifter (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-После личной трагедии агент ЦРУ Тара Кройдон решается на операцию, которая должна превратить ее в суперагента. Теперь с помощью инъекций ДНК она может принимать облик любого человека. Она вездесуща и практически неуязвима. Но постепенно она осознает, что, превращаясь в других, она все больше утрачивает саму себя. Девушка начинает сомневаться в том, кто она на самом (   Читать дальше...   )Производство: США / 91 Redrams ProductionsЖанр: Фантастика, боевик, триллерРежиссер: Мэттью МардерАктеры: Аланна Фокс, Уго Медина, Саманта Миллер, Ричард Ривера, Юли Архонтаки, Саша Джексон, Винтер Данн, Экеобонг Утибе, Чжэн Ху, Дэвид Дж. ЛиПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A75259FBF5C3A4F64C511C7A4641DD61253289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654243   (213526) от 19.08.2023
-
-Космические войны: в поисках глубинной звезды / Space Wars: Quest for the Deepstar (2022) WEB-DLRip [H.265/1080p-LQ] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Кип Корман, бывший космический пират, и его дочь Тейлор, искусный пилот, отправляются в опасное приключение, чтобы найти и захватить Глубинную звезду. Путь к ней лежит через густые туманы, населенные опасными тварями, а также через засекреченные лаборатории и опасные астероиды. Но Кип и Тейлор не сдаются и продолжают двигаться вперед, сражаясь с любыми препятствиями (   Читать дальше...   )Производство: США / Uncork’d Entertainment, Millman ProductionsЖанр: фантастика, приключенияРежиссер: Гаро СетианАктеры: Майкл Паре, Оливье Грюнер, Сара Френч, Тайлер Галлант, Рэйчел Брук Смит, Сэди Кац, Джед Роуэн, Элиз Мюллер, Уэс Хабб, Ламонт КоучПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (forced), английские (SDH)Продолжительность: 01:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5A6716ABBA92F2129DF4E3FDE75AF7D3C071FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227394   (213520) от 19.08.2023
 
 Пленницы / Prisoners (2013) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213520.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213515.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213499.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213412.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213409.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213404.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213392.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213375.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213370.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213352.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213348.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213347.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213328.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213325.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213324.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213322.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213310.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213309.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213308.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213307.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213306.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213302.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213301.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213300.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AF5DD365C3B832C0612A3A414EDE3CB533BA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557663   (213297) от 16.06.2022
+
+Отряд «Призрак» / Время умирать / A Day to Die (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевой спецотряд, который побывал в самых горячих точках планеты и привык решать конфликты силой, расформирован после долгих лет службы. Но уйти в отставку у командира этого элитного подразделения не получится — прошлое настигает его. Бывалому вояке предстоит собрать старых товарищей по оружию и показать, почему они были лучшими в своем деле.Производство: США / Spite the Movie, Capstone Studios, Future Proof FilmsЖанр: Боевик, криминалРежиссер: Уэс МиллерАктеры: Кевин Диллон, Брюс Уиллис, Джанни Капальди, Брук Батлер, Джонни Месснер, Кертис Никулс, Мохамед Карим, Вернон Дэвис, Александр Кэйн, ЛеонПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE88423C74289563D77EEFC2331258A32D062360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557699   (213296) от 16.06.2022
+
+9 жизней / 9 Bullets / Nine Bullets (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая танцовщица решает изменить свою судьбу и во что бы то ни стало спасти мальчика по соседству, жизни которого угрожает мафия в лице ее бывшего возлюбленного.Производство: США / Foresight Entertainment, Pop Films, Screen Media FilmsЖанр: ТриллерРежиссер: Джиджи ГастонАктеры: Лина Хиди, Дин Скотт Васкес, Сэм Уортингтон, Кэм Жиганде, Барбара Херши, Джон Алес, Далила Али Реджей, Ла Ла Энтони, Стефани Арсила, Мария Хосе КабальероПеревод: Дублированный (Велес)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F3752862B7A8153606982401418B70FFA06205
 ```
 
 https://mybot314.ru/tekegram_catalog/

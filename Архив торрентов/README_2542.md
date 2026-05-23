@@ -6,7 +6,7 @@ Sandboxie plus 1.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Elmedia Player Pro 8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488351.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sandboxie 5.57.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488349.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GeoGebra 6.0.722.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488339.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Firefox Browser 103.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488337.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488335.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ephedra - Flying Over The Universe (2016) [FLAC|Lossless|tracks] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488333.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488332.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Silver Waves Exclusive Selection Vol 3 (Mixed by Mhammed El Alami) (2015) [
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488331.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Erb N Dub & Skope - Altitude / Drummer (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488330.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Registry Backup 3.2.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488323.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Signal - Critical Presents: Binary Vol.7 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488320.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Uplifting Trance Essentials Vol 5 (2015) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488316.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Actraiser - Lonely Traveller LP (2015) [MP3|320 кб/с]<Drum & Bass, Jungle, Li
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488315.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488290.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Forms Of Hands 18 (2018) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488278.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ DxO OpticsPro Elite 11.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488264.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Telegram Desktop 0.10.7 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488263.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Soul Sessions Vol.1 (2015) [MP3|320 кб/с]<Drum & Bass, Liquid funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488234.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Memtrix & Spor - Darkest Hours / Super Trace (2015) [MP3|320 кб/с]<Drum & Bas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488233.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ SlimBrowser 7.00 Build 125 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488232.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Vogon Poetry - The Prefect Stories (2015) [MP3|320 кб/с]<Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488229.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Night Frequencies (2015) [MP3|320 кб/с]<Psychedelic, Dark Psytrance, Nig
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488228.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Dropbox 3.8.9 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488227.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488224.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488223.jpg" />
 </div>
 
 

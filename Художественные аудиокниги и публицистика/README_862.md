@@ -1,82 +1,3 @@
-###  Публикация: 1086390   (148694) от 26.12.2016
-
-Геннадий и Василий Бойцовы | Одиночество матёрого волка (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Книга Г. Бойцова посвящена благородному служению в уголовном розыске. На этот раз он написал ее в соавторстве с сыном Василием, который получил блестящее образование, но, несмотря на различные альтернативные варианты, посчитал для себя за Честь служить в органах внутренних дел МВД России, идя дорогой отца.
-Книга написана как на основе личного жизненного и профессионального (   Читать дальше...   )Жанр: повестьПродолжительность: 08:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D542B99F5BF55411167882DC26517B4A278327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086495   (148681) от 26.12.2016
-
-Эстер Браун | Агентство «Маленькая леди» (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мелиссе катастрофически не везет. Недавно ее бросил очередной бойфренд, родственники и сослуживцы ее ни в грош не ставят, а о внешности и говорить не хочется: вроде бы все при ней, но в фотомодели с такими габаритами не возьмут. В довершение всего ее увольняют с работы. Где же выход? Ответ прост: нужно открыть свое собственное дело! И Мелисса открывает агентство (   Читать дальше...   )Жанр: РоманПродолжительность: 17:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DED8E24D07E36B8C8E60E058209931C8E16507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086545   (148673) от 26.12.2016
-
-Дороти Сэйерс | Рожденный на Царство (1999) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Многие знают Дороти Л. Сэйерс как автора детективов. Действительно, она их писала, хотя и не так уж много, всего десятка два рассказов и двенадцать с половиной романов. С половиной - потому что роман о браке «Престолы и господства» она начала и бросила. Хотя Дороти Сэйерс всегда верила в Бога, лет с сорока она все больше и больше говорила и писала о христианстве. (   Читать дальше...   )Жанр: Радиоспектакль, зарубежная проза, религияПродолжительность: 11:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB1AC7F17AAAAFF79BF326F9102173312B735F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087017   (148632) от 26.12.2016
 
 Эрленд Лу | Фвонк (2016) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148632.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148599.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148589.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148552.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148549.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148533.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148526.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148519.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148490.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148474.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148395.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148390.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148382.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148366.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148351.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148338.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148324.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148316.jpg" />
 </div>
 
 
@@ -561,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148311.jpg" />
 </div>
 
 
@@ -587,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148305.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148301.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148292.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148279.jpg" />
 </div>
 
 
@@ -678,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFF67A8DFB1F05C71113CA96B3D4141344216B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086021   (148224) от 26.12.2016
+
+Юрий Жуков | Тайны Кремля (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование современного российского ученого, доктора исторических наук Юрия Николаевича Жукова посвящено вопросам власти в СССР в период 1938-1954 гг. На основании ряда документальных источников, многие из которых недоступны ученым-историкам, автор открывает неизвестные страницы прошлого России, характеризует деятельность крупнейших представителей власти страны, (   Читать дальше...   )Жанр: Документально-исторический романПродолжительность: 25:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13386783FC684ECB141F362C894A227F25C341D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347764   (148201) от 24.12.2019
+
+Стивен Кинг | Противостояние. 7 сентября 1990 года – 10 января 1991. [Том 3] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из секретной лаборатории вырвался на свободу опаснейший вирус. Умерли сотни тысяч, миллионы ни в чем не повинных людей… Однако и это еще не все. Вступили в игру беспощадные и могучие силы. Рвется к власти таинственный темный человек, способный подчинять себе слабые, сомневающиеся души. Кто он? Откуда явился? Что сулит человечеству его победа? Немногие люди, не утратившие (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF61B1192BFDD112F05D43D2749CA9A335B9FE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434954   (148200) от 26.12.2020
+
+Лариса Петровичева | Ведьма Западных пустошей (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148200.jpg" />
+</div>
+
+
+###  Подробнее
+
+В провинциальном городе серийный убийца с магическими способностями охотится на девушек. Ни улик, ни какой-то связи между жертвами полиция так и не нашла. Все девушки были очень разными. Но все же что их объединяет? Расследование начинают вести инквизитор Бастиан и могущественная ведьма Западных пустошей Аделин. Со временем они понимают: чтобы найти преступника, (   Читать дальше...   )Жанр: Детективное фэнтези, Любовное фэнтезиПродолжительность: 06:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD60333D98E16AC571F7DA107541B898789B9F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

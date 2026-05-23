@@ -1,32 +1,3 @@
-###  Публикация: 1403163   (694158) от 18.08.2020
-
-VA - Beatport Progressive House: Electro Sound Pack #145 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. A.J Roland - Mysteries Of Life
-002. Brunoh - Empatia
-003. Jordan Dae - Take On The World
-004. Young - Play Back(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 09:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40759B8694B3119153E1F7BF8F179BF658B18897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534349   (694139) от 02.03.2022
 
 VA - NOW Yearbook Extra 1983 (2021) 3CD [MP3|320 Kbps] <Pop, Rock>
@@ -35,7 +6,7 @@ VA - NOW Yearbook Extra 1983 (2021) 3CD [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694139.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - не Громкие новинки недели 4 (2019) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694075.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Hare Krishna (Life is in your Hands 2CD) (2020) [MP3|320 Kbps] <Pop, Rock, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694026.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Лучшая подборка майских хитов Europa Plus (2011) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_693975.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693436.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Buzzy Bus - You Don't Stop (2018) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693413.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693412.jpg" />
 </div>
 
 
@@ -232,7 +203,7 @@ VA - Дискотека В Стиле Modern Talking Часть 3 (2011) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_693385.jpg" />
 </div>
 
 
@@ -258,7 +229,7 @@ VA - Synthetic  vol.3 - Electropop Edition (2017) [MP3|320 Kbps] <Electropop, Sy
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693324.jpg" />
 </div>
 
 
@@ -287,7 +258,7 @@ VA - Самые Лучшие Хиты Радио Maximum Часть 1 (2011) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_693313.jpg" />
 </div>
 
 
@@ -313,7 +284,7 @@ VA - German Top 50 Party Schlager Charts (23.04.2018) (2018) [MP3|266-320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693185.jpg" />
 </div>
 
 
@@ -342,7 +313,7 @@ VA - DNA Injection: Techno Party (2018) [MP3|192-320 Kbps] <Techno, Minimal, Tec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693183.jpg" />
 </div>
 
 
@@ -371,7 +342,7 @@ VA - Night Dreamer: Chill Deep House (2018) [MP3|320 Kbps] <Deep House, Chill Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693180.jpg" />
 </div>
 
 
@@ -400,7 +371,7 @@ VA - 125 Keep World DJ Loaded (2018) [MP3|256-320 Kbps] <Progressive, Future Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693177.jpg" />
 </div>
 
 
@@ -429,7 +400,7 @@ VA - Chilling with Endless Nights (2016) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692975.jpg" />
 </div>
 
 
@@ -458,7 +429,7 @@ Corr Sharon - Дискография (2010-2013) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692876.jpg" />
 </div>
 
 
@@ -487,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692778.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692775.jpg" />
 </div>
 
 
@@ -549,7 +520,7 @@ VA - Jazz Lounge: Beautiful Jazz Moments, Cool Piano, Jazz Friday Night, Smooth 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692759.jpg" />
 </div>
 
 
@@ -578,7 +549,7 @@ VA - Hard'n'Heavy Collection (2016) [MP3|256 кб/с] <Hard'n'Heavy, Hardcore, N
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692568.jpg" />
 </div>
 
 
@@ -607,7 +578,7 @@ VA - Beatport Deep House: Electro Sound Pack #146 (2020) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692235.jpg" />
 </div>
 
 
@@ -636,7 +607,7 @@ VA - 100 Most Uplifting Songs Ever (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692226.jpg" />
 </div>
 
 
@@ -665,7 +636,7 @@ VA - Buffalo Bass Mix (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692076.jpg" />
 </div>
 
 
@@ -694,7 +665,7 @@ VA - Громкие новинки месяца Vol.27 (2019) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691845.jpg" />
 </div>
 
 
@@ -723,7 +694,7 @@ VA - Moving The Blues (2019) [MP3|320 Kbps] <Blues Rock, Country, Rock And Roll,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691844.jpg" />
 </div>
 
 
@@ -737,6 +708,35 @@ VA - Moving The Blues (2019) [MP3|320 Kbps] <Blues Rock, Country, Rock And Roll,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761280981458F73BE2EF42E652A37A3E9E01BABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133951   (691660) от 14.05.2017
+
+VA - Intellectual House [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Can 7 - Uska Dara (Feat. Eartha Kitt) (Umami Remix) 6:35
+002. Joseph Westphal - Peace (Zwette Remix) 5:22
+003. Sebastian Leithold & Christoph Leithold - Deep Blue (C-ro Remix) 6:23
+004. Alessandro Cicchelli - Riviera 7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 05:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A160E9E5969AECB27C17033480A437A244D84A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ MediaInfo 0.7.88 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549157.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Flip PDF Corporate Edition 2.4.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549106.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soft Organizer 6.01 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549061.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549059.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ UC Browser 5.7.14488.1025 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549024.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ IObit Uninstaller Pro 6.0.2.156 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549012.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Wireless Network Watcher 2.01 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548989.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Dr.Web Security Space 11.0.3.8250 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548983.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ uTorrent Pro 3.4.8 Build 42548 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548979.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe Media Encoder CC 2015.4 (10.4.0.26) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548930.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ xrecode II 1.0.0.232 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548921.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VDownloader Plus 4.1.1512.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548916.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Acronis True Image 20.0.5534 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548893.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Vivaldi 2.6.1566.40 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548800.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TSR Watermark Image Software Pro 3.6.0.9 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548787.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ YTD Video Downloader PRO 5.9.12.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548782.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Wondershare Video Converter Ultimate 10.3.0.178 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548717.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ SamDrivers 18.7 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548709.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Mozilla Firefox Quantum ESR 60.7.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548651.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ TweakBit Driver Updater 2.0.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548650.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ FastStone Image Viewer Corporate 7.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548649.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ashampoo Photo Optimizer 7.0.3.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548569.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Mozilla Firefox Quantum 67.0.4 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548565.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PassMark BurnInTest Pro 9.0 Build 1016 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548493.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Astra Image PLUS 5.5.6.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548492.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ FastStone Image Viewer 7.3 RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548486.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1644682   (247092) от 09.07.2023
-
-A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-A Total War Saga Thrones of Britannia – самостоятельная независимая часть в серии «Total War», стратегия в реальном времени, в которой вы сможете переписать историю и поучаствовать в событиях, предопределивших в свое время будущее Британии… По сюжету на дворе 878 год. Страна, которой в будущем суждено стать великой, разваливается на кусочки, и вам придется оказать (   Читать дальше...   )Тип издания: RepackРазработчик: Creative AssemblyЖанр: RTSЯзык озвучки: Русский, английскийЯзык субтитров: Русский, английскийЯзык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0B2A850C3B219D8C0FB377B2F66E3427BAC4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139320   (247061) от 10.07.2023
 
 RiME (2017) [Ru/En] (1.04) Repack xatab
@@ -32,7 +6,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247061.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247056.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247045.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247007.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246990.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246956.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246786.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Homeseek (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246746.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246740.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246737.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Radiolight (2025) [Ru/Multi] (0.9) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246724.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246723.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246714.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ S.T.A.L.K.E.R. A.P.T. Mod | Epsilion Group
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246666.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Abandoned: Chestnut Lodge Asylum / Позабытая дурка. Каштанк
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246604.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Secrets of the Dark 2: Eclipse Mountain Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246568.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Fallout: New Vegas: Fate of Wanderer - Tale of Two Wastelands Edition (2025) [Ru
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246323.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246321.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Nocturnal (2023) [Ru/Multi] (1.2.1.747) Repack Let'sРlay [Enhanced Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246318.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246262.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246260.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Avernum 4: Greed and Glory (2025) [En] (1.0.0a) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246253.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Bleak Haven (2025) [Ru/Multi] (1.2.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246252.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246251.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246250.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E779AA92977C4473E70214CA91D46845B6D4A6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833188   (246249) от 01.11.2025
+
+Resident Evil 0 / biohazard 0 HD Remaster (2016) [Multi] (1.0/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil  рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных телевизоров. Приготовьтесь раскрыть (   Читать дальше...   )Тип издания: LicenseРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E255919F798606A775E0D6ED29924FACEFCCD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Clifford Jordan - Seven Classic Albums (1957 - 1962) 4CD, 2013, Real Gone Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319173.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ralph Sutton & Jay McShann - Last Of The Whorehouse Piano Players (1979) 1992, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319172.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mighty Mo Rodgers - The Virus (2018) [MP3|320 Kbps] <Blues, Gospel>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319056.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Danny Green Trio - Altered Narratives (2016) OA2 Records[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318976.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gary Moore - Blues and Beyond (2017) 2CD[MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318971.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mindi Abair & The Boneshakers - All I Got For Christmas Is The Blues (2018) [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318952.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Too Mutz Blues Band - Collection (2017-2018) 2CD [MP3|320 Kbps] <Blues, Blues Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318937.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Charles Mingus - Presents Charles Mingus (1960) 2022, Candid [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318930.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Paul Bley - Ballads (1967) Remaster, 2007, Universal[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318829.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Toots Thielemans - Two Generations (1974) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318827.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Matt Wilson's Big Happy Family - Beginning Of A Memory (2016) Palmetto Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318684.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Louis Bellson - Four Classic Albums Plus 1952 - 1958 (2012) 2CD, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318667.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Crazy Hambones - Beautiful (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318494.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - The World's Greatest Jazz Collection (2008) /500 CD Box Set/[MP3|320 ÐºÐ±/Ñ
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317897.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sonny Clark - Oakland (1955) 1995, Uptown Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317874.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Lee Morgan - Jazz Profile (1963 - 1969) 1997, Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317759.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Phil Woods Quartet - Woodlore (1955) 2013, Universal [FLAC|tracks+.cue]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317399.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Azar Lawrence - People Moving (1976) 2014, Universal[FLAC|tracks+.cue]<Soul Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317394.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Charlie Christian - Complete Edition, Vol.1-9:  1939-1941 (1992-2001) [MP3|320 Ð
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317298.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The New Rob Van Bavel Trio - Piano Grand Slam (2004) Munich Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317255.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Roland Kirk & Roy Haynes - Domino & Out of the Afternoon (1962) 2013, American J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317172.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Original Blues Brothers Band - The Last Shade of Blue Before Black (2017) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317054.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Joe La Barbera, Jim De Julio, Paul Smith - Jazz On Broadway (2001) Recording Art
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316938.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Ari Brown - Live At The Green Mill (2007) Delmark [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316922.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Ken Peplowski - Last Swing Of The Century (1999) Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316848.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Onaje Allan Gumbs - Dare To Dream (1991) [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316841.jpg" />
 </div>
 
 

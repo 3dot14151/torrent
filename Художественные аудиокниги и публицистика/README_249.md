@@ -1,84 +1,3 @@
-###  Публикация: 1498102   (859767) от 25.09.2021
-
-Наталья Лирник | Тонкий тающий след (2021) [MP3, Евгений Бидненко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Она отказалась от своего дара, чтобы обеспечить благополучие близких. Но жизнь не прощает подобных жертв: взамен таланта у нее появился порок, заставляющий жить в вечном страхе разоблачения.
-
-Судьбы героев причудливо переплетаются, пока каждый из них ищет свой путь к счастью. Как сохранить самое главное, когда близкие уходят навсегда, любимые лишают поддержки, а (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A50B898E71F205E07F21763168A57180BBF55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498178   (859287) от 25.09.2021
-
-Андрей Васильев | Файролл (Книга 13). Петля судеб. Том 1 (2021) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Никому не нравится, когда все идет кувырком, но когда подобное происходит раз за разом, то к такому положению дел потихоньку привыкаешь. Вот и игрок Хейген вроде привык к хаосу, тот стал привычной частью его жизни. И все бы ничего, вот только обновление, сотрясшее основы Файролла, снова все поменяло, и не в лучшую сторону. Да и вне игры его существование особо легким (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтези, LitRPGПродолжительность: 13:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75148D7490815856F11E37EA0CF182E89DD1A634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109233   (859148) от 27.02.2017
-
-Патрик Квентин | Зеленоглазое чудовище (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Напряженная криминальная интрига, динамизм сюжета, яркость, колоритность и психологичность образов - все это, присуще роману "Зеленоглазое чудовище" Патрика Квентина, американского писателя, мастера психологического детектива.
-Эндрю Джордан после смерти жены, находясь под подозрением полиции, пытается выяснить, кто убил его жену и кому это было выгодно...Жанр: ДетективПродолжительность: 07:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9B72FCBBC6C25B3102C1C034AE828B289BC94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000324   (859117) от 25.03.2016
 
 Майкл Муркок | Спасти Танелорн (2016) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859117.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859089.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859083.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859020.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859015.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859003.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858988.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858678.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858676.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858654.jpg" />
 </div>
 
 
@@ -354,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858551.jpg" />
 </div>
 
 
@@ -380,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858483.jpg" />
 </div>
 
 
@@ -408,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858479.jpg" />
 </div>
 
 
@@ -434,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858467.jpg" />
 </div>
 
 
@@ -460,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858368.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858359.jpg" />
 </div>
 
 
@@ -514,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857916.jpg" />
 </div>
 
 
@@ -542,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857914.jpg" />
 </div>
 
 
@@ -568,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857663.jpg" />
 </div>
 
 
@@ -594,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857579.jpg" />
 </div>
 
 
@@ -621,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857553.jpg" />
 </div>
 
 
@@ -647,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857518.jpg" />
 </div>
 
 
@@ -674,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857513.jpg" />
 </div>
 
 
@@ -685,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43648EB1D4DEE657443BE376C1F26D0FA1E7F173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000631   (857501) от 26.03.2016
+
+Николай Гумилёв | Записки кавалериста (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первым документальным свидетельством пребывания Гумилева в действующей армии является письмо Ахматовой, отправленное 7 октября 1914 года: «Я уже в настоящей армии, но пока не сражаемся, и когда начнем, неизвестно. Пиши мне в 1-ую действующую армию, в мой полк, эскадрон Ея Величества. Раненых привозят немало. Сейчас случайно мы стоим в таком месте, откуда легко писать. (   Читать дальше...   )Жанр: Военная проза, ИсторияПродолжительность: 02:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49ACAA13A7AB2492935E406CF52C085DB607EE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000782   (857440) от 26.03.2016
+
+Дмитрий Воронин | Круговерть (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планета была прекрасной и, что замечательно, свободной - намного лучше, чем все, что когда-либо попадалось им, и поэтому все люди, составлявшие экипаж корабля Земной федерации "Искатель", были счастливы, что именно им повезло встретить такое чудо… Зеленые холмы, чистейшие реки… Моря, наполненные жизнью - и жизнь эта, в отличие от биосферы большинства иных (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A57A98B608961F9BA1BCF4E403439627936F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109506   (857357) от 28.02.2017
+
+Андре Моруа | Олимпио, или Жизнь Виктора Гюго (2010) [MP3, Светлана Репина]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857357.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Почему Гюго? Да потому, что он самый большой французский поэт и необходимо узнать его жизнь, чтобы понять противоречивую натуру этого гениального художника. Как этот осторожный, бережливый человек был вместе с тем щедрым, как этот целомудренный юноша, этот примерный отец семейства стал на склоне лет фавном; как этот легитимист превратился в бонапартиста, а (   Читать дальше...   )Жанр: БиографияИздательство: Нигде не купишьПродолжительность: 25:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D31A7156250A2367CCBE0820AC1E9FDF6B0407
 ```
 
 https://mybot314.ru/tekegram_catalog/

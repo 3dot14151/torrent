@@ -6,7 +6,7 @@ VueScan Pro 9.7.97 (31.01.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043473.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Telegram Desktop 4.5.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043472.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soundevice Digital - TrapTune 1.3.0 VST, VST3, AAX RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043468.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043467.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Topaz Video AI 3.1.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043461.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Glary Disk Explorer 5.27.1.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043460.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NirLauncher Package 1.23.69 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043446.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Topaz Video AI 3.1.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043440.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ IObit Uninstaller Pro 12.3.0.8 Portable by  FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043436.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ One Commander Pro 3.32.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043431.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FileMenu Tools 8.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043425.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bandizip 7.30 Build 59914 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043421.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Spotify 1.2.4.893 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043420.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ DesktopDigitalClock 4.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043419.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Opera 95.0.4635.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043411.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Uninstall Tool 3.7.2 Build 5701 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043410.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Multi Commander Full Edition 12.8 Build 2929 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043409.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Wondershare Recoverit 11.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043405.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ SiteSucker Pro 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043378.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.58 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043377.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ XYplorer 24.00.0600 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043376.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ MediaHuman YouTube Downloader 3.9.9.79 (3101) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043369.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ WinMerge 2.16.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043365.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Image Tuner Pro 9.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043360.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ BetterTouchTool 4.010 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043355.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ GPU Caps Viewer 1.58.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1043354.jpg" />
 </div>
 
 

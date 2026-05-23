@@ -1,55 +1,3 @@
-###  Публикация: 234574   (532095) от 04.07.2019
-
-Шаолинь и Удан / Shao Lin yu Wu Dang (1983) VHSRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Как известно, школа боевого стиля Удан откололась в свое время от Шаолиня, и с тех пор представители этих двух школ ненавидят друг друга. Однако, пока учителя воюют, Фунг Ву из школы Удана и Джун Кит из школы Шаолиня — закадычные друзья, готовые друг ради друга в огонь и воду. Однако их дружбу пытается пошатнуть городской наместник, мечтающий выучить знаменитые стили (   Читать дальше...   )Производство: Гонконг / Hing Fat Film CompanyЖанр: БоевикРежиссер: Цзя-Хуэй ЛюАктеры: Цзя-Хуэй Лю, Адам Чэн, Ли Чинг, Иди Чан, Hwang-ki Baek, Шен Чан, Юнг Чан, Хунг Чен, Кеунг Чан, Yung-cheng ChangПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6903EBD6E5A292C694303C306E0986C2D603D9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312392   (532092) от 04.07.2019
-
-Правда всегда побеждает / Satyameva Jayate (2018) WEB-DLRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Отважный мумбайский страж закона расследует серию жестоких убийств полицейских. Общественность в шоке, пресса требует ответа, и наш герой — именно то, что нужно этому городу.Производство: Индия, Emmay Entertainment, T-SeriesЖанр: боевик, триллерРежиссер: Милап ЗавериАктеры: Джон Абрахам, Манодж Баджпаи, Аиша Шарма, Амрута Кханвилкар, Мэниш Чаудхари, Myrah Dandekar, Devdutta Nage, Нора Фатехи, Archita Agarwal, Sonam AroraПеревод: Многоголосый профессиональный-HONEY&HASEENAОзвучка: Маргарита Сахно, Кирилл Патрино, Михаил Цареградский и Константин ФедосеевСубтитры: русские  (неотключаемые, на песни)Продолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D9C3A21DB1C4D3447FD3EBF980F44BA8E0681A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533095   (532051) от 10.08.2012
 
 Отступники / The Departed (2006) [H.264] HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532051.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531985.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531984.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531980.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531978.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531974.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531969.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531968.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531967.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531966.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531963.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531959.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531952.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531757.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531706.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531699.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531695.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531645.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531638.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531636.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531540.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531537.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531535.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531534.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6118A70AB255209440FF46EBB4ACBC0B84548604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 801283   (531527) от 08.09.2014
+
+Долгий поцелуй на ночь / The Long Kiss Goodnight (1996) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531527.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 лет назад школьная учительница Саманта Кейн перенесла полную потерю памяти. Она живет с 8-летней дочкой счастливой семейной жизнью и не подозревает о своем кровавом прошлом, ведь когда-то эта красивая женщина была агентом Чарли Бэлтимор, выполнявшим секретные заказы ЦРУ.
+Шокированная неожиданным возвращением некоторых навыков и психологической подготовки профессионального (   Читать дальше...   )Производство: США / Forge, New Line CinemaЖанр: Боевик, Триллер, Драма, Криминал, ДетективРежиссер: Ренни ХарлинАктеры: Джина Дэвис, Сэмюэл Л. Джексон, Ивонн Зима, Крэйг Бирко, Брайан Кокс, Том Амандес, Патрик Мэлахайд, Дэвид Морс, Джозеф МакКенна, Мелина КанакаридисПеревод: Многоголосый, двуголосый, авторскийЯзык субтитров: ОтсутствуютПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792D93436A33AB3CF443B7C51208D14AE4EBF734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558335   (531516) от 20.06.2022
+
+Джерри и Мардж играют по-крупному / Jerry & Marge Go Large (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруги Джерри и Мардж Селби вычисляют математическую погрешность, которая позволяет им выигрывать одну денежную лотерею за другой. Получив миллионы долларов, они решают дать возможность озолотиться и другим.Производство: США, Landline Pictures, Levantine Films, Media Rights Capital (MRC), Paramount+Жанр: Драма, комедия, биографияРежиссер: Дэвид ФрэнкелАктеры: Аннетт Бенинг, Брайан Крэнстон, Майкл МакКин, Рэйн Уилсон, Анна Кэмп, Джейк МакДорман, Рода Гриффис, Курт Юе, Ларри Уилмор, Мелани ХьюбертПеревод: Многоголосый профессиональный (Jaskier)Субтитры: отсутствуютПродолжительность: 01:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBC95443A9515F47D1577E30EE59B984EEA3F15
 ```
 
 https://mybot314.ru/tekegram_catalog/

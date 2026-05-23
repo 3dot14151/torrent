@@ -6,7 +6,7 @@ Export Calendars Pro 1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611322.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ MediaInfo 0.7.97 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611321.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Video Editor MovieMator Pro – Movie & Film Maker! 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611207.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Maxon Cinema 4D Studio R26.013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611031.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ iExplorer 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610522.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Pillars of Eternity II: Deadfire v1.1.0.0035 (2018) [Multi/Ru] [macOS Native gam
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610521.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Shadowrun: Dragonfall Director's Cut v. 1.0 (2014) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610492.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ TechTool Pro 10.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610446.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Movist 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610238.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mate: Universal Tab Translator 6.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610139.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Boom 3D 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610124.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Autodesk Maya 2017 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609767.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ TurnTable 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609718.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609632.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ RAR Extractor Max-Unzip Winrar 8.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609628.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ MWeb: Markdown writing,note taking,static blog Gen 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609612.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Swinsian 1.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609602.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Wondershare Filmora Х 11.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609486.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608784.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ iStat Menus 5.20 (669) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608748.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Framer Studio 67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608604.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ iTools Pro 1.7.8.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608547.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Oxygen Not Included v273690 (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608416.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608204.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Beamer 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607719.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Hands Off! 3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607040.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1782715   (25924) от 02.03.2025
-
-Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Overcooked возвращается с новой порцией безумной кулинарии! Вы снова отправитесь в Луковое королевство и соберете команду поваров для классической локальной или сетевой совместной игры, в которую могут играть до 4 человек. Хватайтесь за фартуки - пришло время (снова) спасать мир! Из огня да в полымя... Вы спасли мир от вечно голодного монстра. Но теперь возникла (   Читать дальше...   )Тип издания: RepackРазработчик: Ghost Town Games Ltd., Team17 Digital LtdЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32ADEB7F6E1519579FE674229DFFA0FFD066594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782931   (25919) от 03.03.2025
 
 Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Deluxe Edition]
@@ -32,7 +6,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25919.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25912.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25901.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25890.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25885.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25871.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Dream Tactics (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25839.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25820.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25818.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Age of Defense (2019) [Ru/Multi] (1.19) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25811.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25810.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Rangers In The South (2025) [Ru/Multi] (1.2.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25804.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p27.1/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25803.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack FitGirl [Complete]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25794.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25789.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25785.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25758.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25706.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.0.ca3e/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25691.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25685.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25677.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.3-CL28407/dlc) Repack Wanterlude [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25675.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25656.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25613.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Laundromat Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25610.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Jсновное внимание уделяется управлению раз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A749A788CA6D1D0EB2B7E350B62A61DED7A5B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783270   (25608) от 05.03.2025
+
+Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack seleZen [Premium Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Mythology: Retold - игра от создателей культовой серии Age of Empires. На этот раз вам предстоит выйти за рамки привычной истории и погрузиться в мифическую эпоху, где бок о бок сосуществуют боги, чудовища и люди. Retold - это эволюция всеми любимой стратегии в реальном времени Age of Mythology, ставшая возможной благодаря современной графике и свежему подходу (   Читать дальше...   )Тип издания: RepackРазработчик: World's Edge, Forgotten Empires, Tantalus Media, CaptureAge, Virtuos GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098E164F79D81AC2518C7B3C8EF4F66CE5F3BAFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

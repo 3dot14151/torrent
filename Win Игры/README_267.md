@@ -1,29 +1,3 @@
-###  Публикация: 1377817   (370032) от 12.09.2022
-
-The Shattering (2020) [Ru/Multi] (1.1.9/dlc) License GOG (обновляемая)
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы ничего не помните. Всё, что вы видите - это белый цвет вокруг вас. Вы слышите голос. Вы видите часы, медленно раскачивающиеся перед вашими глазами. The Shattering помещает вас в ум Джона Эванса, где вы боретесь изо всех сил, пытаясь собрать воедино фрагменты вашего прошлого и настоящего. Не помнить - это одно, но что происходит, когда ваш ум ведёт вас по извилистому (   Читать дальше...   )Тип издания: LicenseРазработчик: Super Sexy SoftwareЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DE382F74943BB2064173BB50774177A098ABF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244648   (369791) от 15.10.2018
 
 303 Squadron: Battle of Britain (2018) [Ru/Multi] (1.4.1) License HOODLUM
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369791.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ AIRHEART - Tales of broken Wings (2018) [Multi] (1.09) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369783.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369767.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack xatab [Limited Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369755.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Call Of Duty: Black Ops 2 [En/Ru] (CrackFix#2) 2012 | SKIDROW
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369702.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Intruders: Hide and Seek (2019) [Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369593.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Dark Romance 13: Vampire Origins / Мрачная история 13: Приро�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369429.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Revenant
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369411.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369385.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Grim Tales 19: Heritage / Страшные сказки 19: Наследие (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369359.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.6.0/dlc) Repack R.G. Revenant
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369313.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Castle Crashers (2012) [Ru/Multi] (2.2.1/dlc) SteamRip Let'sРlay [Steam Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369280.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Ikenfell (2020) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369114.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/En] (1.4.2 hotfix 2/dlc) Repack R.G. Reve
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369102.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Overland (2019) [Ru/Multi] (840) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369005.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9:500/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368991.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Raiden IV: OverKill (2015) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368350.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ hack_me (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368120.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Fahrenheit: Indigo Prophecy Remastered (2015) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368107.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Tinykin (2022) [Ru/Multi] (1.0.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367975.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367970.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Commandos 3 - HD Remaster (2022) [Ru/Multi] (1.00.045) License FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367969.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367620.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ WARRIORS OROCHI 4 (2018) [Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367605.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ European Mystery 3: Flowers of Death / Придворные тайны 3: Цве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367325.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ European Mystery 3: Flowers of Death / Придворные тайны 3: Цве
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114C561C33398A33690A634FBA7FA989E17FBEC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176906   (367314) от 23.10.2017
+
+Chimeras 6: Blinding Love / Химеры 6: Слепящая любовь (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители Парижа в опасности! Уже несколько молодых людей найдены слепыми и парализованными. Вам предстоит расследовать это непростое дело, и вы понимаете, что здесь не обошлось без сверхъестественных сил. Сможете ли вы выяснить, кто нападает на горожан или сами станете жертвой?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7672C8AB02AB4D139297B02543CCC25B75DACE35
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589568.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Charnett Moffett - Internet (2006) Piadrum Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589433.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Charnett Moffett - For The Love Of Peace (2004) Piadrum Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589431.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charnett Moffett - Beauty Within (1989) Blue Note Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589398.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lightnin' Hopkins - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589131.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Louis Jordan - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jump Blues, Swin
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589130.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lionel Hampton - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589129.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Magic Sam - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589126.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ eJazz Artistry - Smooth Pack, Vol. 3 (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589114.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Buddy De Franco (DeFranco) - The Complete Verve Recordings Of The Buddy De Franc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589001.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Delvon Lamarr Organ Trio - Close but No Cigar (2018) [MP3|320 Kbps] <Hammond Org
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588964.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Oscar Peterson - The Classic Verve Albums Collection (1957 - 1962) 4CD, 2018, En
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588524.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Johnny Riley - Change (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588461.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sister Cookie - In the Blue Corner (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588459.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Allan Holdsworth - Дискография 21 альбом (1976-2009) 23 CD [Wav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588296.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Eric Seva - Nomade Sonore (2015) Gaya Music Production [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588198.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Arild Andersen, Clive Bell, Mark Wastell - Tales Of Hackney (2019) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588195.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Cotonete - Super-vilains (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588193.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Buford Pope - The Waiting Game (2019) [FLAC|Lossless|tracks + .cue] <Country Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588189.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ina Forsman - Been Meaning To Tell You (2019) [FLAC|Lossless|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588185.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Marvin Gaye - You're the Man (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588103.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Harold Land - Take Aim (1960) /2012, Blue Note/[FLAC|tracks+.cue]<Jazz, Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588077.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Bobby Hutcherson - The View From The Inside (1976) /2013, Blue Note/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588076.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Maysa - Back 2 Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, R&B, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587996.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ B.B.King - The Blues King's Best (2013) 2CD [FLAC|Lossless]<Blues, Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587875.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Scott Henderson · Gary Willis & Tribal Tech - Primal Tracks (1994) 2008 Compila
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587524.jpg" />
 </div>
 
 

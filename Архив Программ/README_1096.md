@@ -6,7 +6,7 @@ ReviverSoft PC Reviver 2.0.5.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489718.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SolidAngle C4DtoA 1.0.12.0 + (alShaders)  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489717.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MAGIX Vegas Pro 16.0 Build 248 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489649.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VSO Downloader 2.9.10.1 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489626.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Driver Easy Pro 5.5.3.15599 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489613.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ StartIsBack++ 1.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489575.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hosts Block 1.2.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489560.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Zoner Photo Studio X 19.2004.2.262 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489544.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Glarysoft Malware Hunter PRO 1.109.0.701 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489533.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows Repair Toolbox 1.5.0.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489530.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ YT Downloader 7.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489527.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ IObit Driver Booster Pro 4.0.2.320 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489517.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mozilla Firefox 15.0.1 Final by PortableAppZ [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489486.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MAGIX Vegas Pro 16.0 Build 248 Suite RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489480.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Allegorithmic Substance Painter 2018.2.1.2402 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489470.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 10 x64 USB Boot-Flash Release by StartSoft 21-2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489456.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Duplicate File Remover 3.10.40 Build 0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489428.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ WinRAR 5.50 Final RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489412.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Windows 7 Manager 5.1.5 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489402.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinNc 7.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489394.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Topaz A.I. Gigapixel 5.1.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489384.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Razer Cortex 6.2.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489383.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Topaz Gigapixel AI 5.1.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489382.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Unity3D Pro 5.2.0f3 [x86, x64] [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489369.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Advanced System Optimizer 3.5.1000.14284 [MULTi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489305.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ WinRAR 5.30 Beta 4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489281.jpg" />
 </div>
 
 

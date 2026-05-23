@@ -1,55 +1,3 @@
-###  Публикация: 409481   (345773) от 13.11.2011
-
-Всем нужна Кэт / Cat Run (2011) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Специальный агент британской разведки MI-6 Элен Бингам уже несколько лет как на пенсии. Этот факт не мешает респектабельной пенсионерке иногда смахивать пыль с залежавшегося на полке браунинга и браться за деликатные частные заказы. Клиентам хорошо известны бескомпромиссные методы агента Бингам: если кто попался на ее пути — пощады не ожидается. На этот раз бывшей (   Читать дальше...   )Производство: СШАЖанр: Комедия, БоевикРежиссер: Джон СтокуэллАктеры: Кристофер МакДональд, Паз Вега, Скотт Мехловиц, Тони Карран, Джанет МакТир, Карел Роден, Мишель Ломбардо, Бранко Джурич, Д.Л. Хьюли, Елена ГавриловичПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121F5BD2A1A13CBDD5EA682C3F22B49D1D3A952F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580431   (345763) от 24.11.2012
-
-Третье чудо / The Third Miracle (1999) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Шор давно потерял веру и отрекся от бога, хотя все еще продолжает быть священником. Прозванный в религиозных кругах «убийцей чудес», он разоблачил многих фальшивых пророков и чудотворцев.  Но дело о таинственной мраморной статуе во дворе одной из церквей Чикаго, глаза которой источают кровавые исцеляющие слезы, оказалось не совсем обычным.  Фрэнк думал, что в (   Читать дальше...   )Производство: СШАЖанр: ДрамаПеревод: Профессиональный (многоголосый, закадровый)Субтитры: нетФормат: AVIПродолжительность: 01:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1F8E44B058E783A2287C53849EDC5E8EF5A9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580442   (345754) от 24.11.2012
 
 Мой кузен Винни/ My Cousin Vinny (1992) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345754.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345633.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345538.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345536.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345528.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345522.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345521.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345479.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345477.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345474.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345469.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345458.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345454.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345452.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345425.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345396.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345389.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345382.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345381.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345379.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345377.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345375.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345362.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345348.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7DFB8ECAEC976D68EDF07B194B3D90387F7236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871097   (345293) от 08.10.2019
+
+Пришельцы / Les Visiteurs (1993) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция 1122 год. Граф Годфруа де Монмирай став жертвой проклятия злой колдуньи, убивает отца своей невесты. Годфруа обращается за помощью к великому волшебнику Эвсебиусу, который предлагает графу отправитться по коридорам времени в прошлое и исправить свою ошибку. Де Монмирай соглашается на это предложение, но из-за ошибки волшебника он и его слуга попадают в 90-е (   Читать дальше...   )Производство: Франция | Gaumont International, France 3 Cinema, Amigo Productions, Alpilles Productions, Canal+Жанр: Фантастика, Фэнтези, КомедияРежиссер: Жан-Мари ПуареАктеры: Жан Рено, Кристиан Клавье, Валери Лемерсье, Мари-Анн Шазель, Кристиан Бюжо, Изабель Нанти, Жерар Сети, Дидье Пэн, Жан-Поль Мюэль, Ариель Семенофф, Мишель Пейрелон, Пьер Виаль, Франсуа Лаланд, Дидье Бенюро, Фредерик Батист, Пьер Осседат, Тара Гано, Стефани МариПеревод: Профессиональный дублированный, профессиональный многоголосыйЯзык субтитров: Русский, французский, английскийПродолжительность: 01:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E019897E38166C5854064AF1F54BEDB7F7A5636E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725039   (345225) от 22.11.2013
+
+Ракетчик / The Rocketeer (1991) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка тридцатых годов, золотое время! Гангстеры, нацистские шпионы и допотопные аэропланы, заполнившие небо. Молодой пилот Клифф Сэкорд находит сверхсекретное устройство — ракетный ранец, позволяющий подниматься в воздух. Вскоре в газетах появляются сообщения о таинственном человеке, парящем в небе словно ракета.
+ Журналисты дают ему громкое прозвище «Ракетчик». (   Читать дальше...   )Жанр: Фантастика, Боевик, Приключения, СемейныйРежиссер: Джо ДжонстонАктеры: Билл Кэмпбелл, Дженнифер Коннелли, Алан Аркин, Тимоти Далтон, Пол Сорвино, Терри О’Куинн, Эд Лотер, Джеймс Хэнди, Тайни Рон, Роберт Миранда, Джон Полито, Эдди Джонс, Уильям Сэндерсон, Дон Пагсли, Марго Мартиндейл, Клинт ХовардПеревод: Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)x2Язык субтитров: АнглийскийФормат: MKVПродолжительность: 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF069942DC69536CDFF6858F4BD9A337D90CF65E
 ```
 
 https://mybot314.ru/tekegram_catalog/

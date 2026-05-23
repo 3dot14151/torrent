@@ -1,133 +1,3 @@
-###  Публикация: 1870081   (1068721) от 
-
-Fan Control V267 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C336104D43A17A64CA36D1446FB918BF8A558CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870103   (1068720) от 
-
-DarkSwitch (2026) [Ru/Multi] (R26.0408.9102) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-DarkSwitch - это вертикальный градостроительный симулятор на ветвях гигантского дерева. Защитите Древо от всепоглощающего тумана, мудро распоряжаясь огнем и светом. Раскройте тайны тумана, обладая скудными ресурсами и принимая сложные моральные решения.Тип издания: RepackРазработчик: Cyber TempleЖанр: СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655ABE984BCBD8D31AEA1270A03D11F3937A37B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870100   (1068717) от 
-
-The Coma 3: Bloodlines (2026) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в мир теней The Coma 3: Bloodlines, где оживают городские легенды, а за каждым поворотом таится опасность. Душа того, кто здесь погибнет, отделится от тела, и он больше никогда не очнётся... Убегайте и прячьтесь от монстров в 2D-хорроре The Coma 3: Bloodlines. Собирайте улики, разгадывайте загадки и узнайте, почему 3 главных персонажа оказались в этом (   Читать дальше...   )Тип издания: RepackРазработчик: Dvora Studio Co., Ltd.Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: КорейскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CDD02896849A17B03ADEBAA7F2B14C82157C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870125   (1068716) от 
-
-Тайная жизнь домашних животных / The Secret Life of Pets (2016 - 2019) BDRip 3D [H.264/1080p] [Дилогия] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Что делают домашние животные, пока хозяева пропадают на работе? С тоской смотрят в окно? Смиренно дремлют на коврике у двери? Как бы не так. Они ведут свою тайную жизнь.Производство: Япония, США, Франция / Universal Pictures, Illumination Entertainment, DentsuЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Крис Рено, Ярроу Чейни, Джонатан дель ВальПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:26:27 / 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092B570CA48389F178AD7627D7D5CFA75EF27225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870115   (1068715) от 
-
-Журнал | Эксперт №5 (28) (май 2026) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаИздательство: ООО "Эксперт.Медиа"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C8504B5D6DC4F34ED4686DAB800540FD072EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870127   (1068714) от 
 
 Враг у ворот (2024) WEBRip [AV1/1080p] (сезон 1, серии 1-8 из 8)
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068714.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068713.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068712.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068711.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068710.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068709.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ Stardock Groupy 2.31 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068708.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068707.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ Zen Browser 1.19.12 beta [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068706.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068705.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068704.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068703.jpg" />
 </div>
 
 
@@ -450,7 +320,7 @@ VA - Night Rider 10 (2026) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068702.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068701.jpg" />
 </div>
 
 
@@ -505,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068700.jpg" />
 </div>
 
 
@@ -531,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068699.jpg" />
 </div>
 
 
@@ -557,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068698.jpg" />
 </div>
 
 
@@ -583,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068697.jpg" />
 </div>
 
 
@@ -609,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068696.jpg" />
 </div>
 
 
@@ -635,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068695.jpg" />
 </div>
 
 
@@ -661,7 +531,7 @@ VA - Lemongrassmusic Episode 500 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068693.jpg" />
 </div>
 
 
@@ -675,6 +545,140 @@ VA - Lemongrassmusic Episode 500 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947527BD9FC0CBFD0E62D9CE0F28879E313615D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870150   (1068692) от 
+
+GiliSoft Copy Protect 8.6.0 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068692.jpg" />
+</div>
+
+
+###  Подробнее
+
+GiliSoft Copy Protect — программа для защиты документов, видео, аудио и изображений от копирования, распространения и несанкционированного доступа. Утилита использует AES-шифрование и позволяет ограничивать просмотр файлов только на определённых устройствах, USB-накопителях или CD/DVD.
+
+С помощью программы можно защитить PDF, DOC, XLS, PPT, MP4, JPG и многие другие (   Читать дальше...   )Язык интерфейса: Английский и другой
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0287E9DA45417F96C1345D78EFC59FE8CC66CAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870152   (1068691) от 
+
+UPDF 2.5.2.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068691.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPDF — это современный PDF-редактор с поддержкой искусственного интеллекта. Программа объединяет инструменты для чтения, редактирования, конвертации, аннотирования и защиты PDF-файлов в одном интерфейсе, делая работу с документами быстрее и удобнее.
+
+С помощью UPDF можно редактировать текст, изображения и ссылки прямо в PDF-документах, добавлять комментарии, подписи, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11DB28E24F972004726A6B1DE98B57693C82081C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869834   (1068690) от 
+
+Eden Crafters (2024) [Ru/Multi] (1.0i) Repack Let'sРlay
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в приключение выживания, крафта и автоматизации в Eden Crafters, совместной игре с открытым миром, в которой вам предстоит превратить враждебную планету в убежище для человечества. Умерьте климат, создайте пригодную для дыхания атмосферу и океаны: сформируйте новый мир!Тип издания: RepackРазработчик: Osaris GamesЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2614F333FC05F1C3B65FA78F3DA8ABAFD85DA42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870153   (1068689) от 
+
+Военная приемка. Боевая подготовка призывников (10.05.2026) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охотничье ружьё против FPV-дрона. Обычная лазерная указка вместо дорогого тренажёра ПТРК. Новейшие комплексы боевой подготовки: умные мишени «Блик», снайперский «Светлячок» и впервые на экране — система имитации боевой реальности «СИБР». «Военная приёмка» продолжает рассказ о Главном управлении боевой подготовки. В этом фильме главные герои — военнослужащие по призыву. (   Читать дальше...   )Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179308838FFFA735009DC2B49F3F2637DF2A05A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870154   (1068688) от 
+
+Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Wanterlude [Gold Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068688.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2016 году ctOS 2.0, современная операционная сетевая система, была задействована в нескольких городах США, чтобы создать наиболее безопасный для жизни мегаполис и вывести на новый уровень всю городскую инфраструктуру. Талантливый хакер Маркус объединяется с хакерской группой DedSec, чтобы противостоять системе глобального контроля ctOS 2.0, которую криминал использует, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontréalЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9101FC9386DBE5D761BD190A931487B3699536B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

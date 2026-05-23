@@ -1,57 +1,3 @@
-###  Публикация: 960045   (311935) от 26.11.2015
-
-Мудры v1.5 Full [Ru/En] - справочник по мудрам, йоге и йоге пальцев
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полная версия справочника по мудрам, йоге и йоге пальцев. Мудры - символические положение пальцев, глаз или тела - образно представляют определенные состояния сознания или процессы сознания. И эти же положения могут вести к состояниям сознания, которые они символизируют.
-Мудры обращаются к определенным областям нашего мозга (или нашей души), и оказывают соответствующее (   Читать дальше...   )Тип издания: Full с МаркетаРелиз состоялся: 14.08.2013Разработчик: Alex DПоддерживаемая ОС: Android 1.6+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026F221385B86D4F3FDC6A256622281B2F4EDC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422349   (310606) от 08.11.2020
-
-SignalCheck Pro v4.63 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Просмотр сигнала соединения сотовой сети и wi-fi
-SignalCheck Pro - Приложение расписывает всё в мельчайших подробностях по всем сигналам, что исходят и принимаются мобильным гаджетом, демонстрирует изменения, уведомляет о нахождении максимальных значениях и многое другое.Тип издания: ПираткаРелиз состоялся: 2 ноября 2020 г.Разработчик: Blue Line ComputingПоддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41162B4D46E4B679BED3A860EF5F7F32A307D0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422366   (310370) от 08.11.2020
 
 Speak And Translate v3.1.0.1 [Ru/Multi]
@@ -60,7 +6,7 @@ Speak And Translate v3.1.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310370.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ Automatic Call Recorder v6.09.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310349.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ Photo Collage Editor v2.16 Ad-Free [En] - Фото коллаж редактор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307024.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ AnyBalance+ 1.1.220 [Ru] Full
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306312.jpg" />
 </div>
 
 
@@ -169,7 +115,7 @@ Vinci v2.2 (74) [Ru/Multi] - Обработка фотографий при по
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305714.jpg" />
 </div>
 
 
@@ -198,7 +144,7 @@ Camera Auto Timestamp v2.48 Pro [En/Ru] - добавление различны�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305710.jpg" />
 </div>
 
 
@@ -225,7 +171,7 @@ Ultimate Guitar Tabs & Chords 4.10.1 [Ru] Premium
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304468.jpg" />
 </div>
 
 
@@ -251,7 +197,7 @@ AndDocPro - PDF & DJVU Reader 1.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304079.jpg" />
 </div>
 
 
@@ -277,7 +223,7 @@ EBookDroid - PDF & DJVU Reader 2.4.0.4 [Ru] - Читалка файлов раз
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303796.jpg" />
 </div>
 
 
@@ -303,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301952.jpg" />
 </div>
 
 
@@ -332,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296681.jpg" />
 </div>
 
 
@@ -358,7 +304,7 @@ Mod VPN Defender 1.2.3 (RU/EN)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296593.jpg" />
 </div>
 
 
@@ -384,7 +330,7 @@ Spektrel Art 1.0.13 [En] - придайте снимкам необычный в
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296569.jpg" />
 </div>
 
 
@@ -410,7 +356,7 @@ Grungetastic v3.3.8 [En] - ваши фотографии в стиле гран�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296470.jpg" />
 </div>
 
 
@@ -436,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296469.jpg" />
 </div>
 
 
@@ -462,7 +408,7 @@ DomoMeter v3.8.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296363.jpg" />
 </div>
 
 
@@ -488,7 +434,7 @@ Remote Bot for Telegram v1.9.43 Full [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294426.jpg" />
 </div>
 
 
@@ -514,7 +460,7 @@ Photo Measures v1.56 [En/Ru] - Нанесение размеров, углов �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294345.jpg" />
 </div>
 
 
@@ -540,7 +486,7 @@ WiFi Warden v2.5.7 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292459.jpg" />
 </div>
 
 
@@ -566,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291831.jpg" />
 </div>
 
 
@@ -593,7 +539,7 @@ Dash Maker: OBD Car Dashboards 1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291559.jpg" />
 </div>
 
 
@@ -619,7 +565,7 @@ Apk Extractor Premium 4.1.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291552.jpg" />
 </div>
 
 
@@ -645,7 +591,7 @@ OpenDomofon - Коды домофонов Pro 1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291393.jpg" />
 </div>
 
 
@@ -674,7 +620,7 @@ WiFi Manager Premium 4.0.0-dev2.7 - Управление WiFi сетями [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291168.jpg" />
 </div>
 
 
@@ -686,6 +632,58 @@ WiFi Manager Premium 4.0.0-dev2.7 - Управление WiFi сетями [Rus]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3875D65DFD63E4056C89631EAFB0E406E29C00AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335061   (290848) от 31.10.2019
+
+Меморадо: Тренировка памяти v2.0.8 Premium [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйся к более чем 10 миллионам членов всемирной программы тренировки мозга и развивай свои способности к восприятию! Попробуй сейчас! Отдыхай с нашими новыми аудио-записями расслабляющих историй, упражнениями и ежедневными советами! Время сделать себе перерыв! Сила ума улучшает жизнь. Улучшай свою память, концентрацию, реакцию, логику и математические способности (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 18.07.2019Разработчик: Memorado GmbhПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1302151DD91F32F72F9F203E47F851A50B1210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963085   (290607) от 06.12.2015
+
+Brain 3D Anatomy v1.0.2  [En] - анатомический 3D атлас мозга
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brain 3D Anatomy позволяет вращать реалистичные 3D-модели мозга, как это было бы в ваших руках. Brain 3D Anatomy модель вращения в любом направлении 360 ° дает вид объекта. Кроме того, имена конкретных анатомических областей мозга может быть показано, касаясь соответствующих флажков. Это приложение является частью 3D коллекции анатомических справочных атласов для (   Читать дальше...   )Тип издания: Пиратка (Amazon license Removed)Релиз состоялся: 05.12.2015Разработчик: Catfish Animation StudioПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2089AF1AA225F371BC4337949FFCBED4100D0BB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

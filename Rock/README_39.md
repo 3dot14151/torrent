@@ -6,7 +6,7 @@ Bill Wyman - Back To Basics (2015) [MP3|320 кб/с]<Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622116.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622067.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mom's Apple Pie - Mom's Apple Pie (1972) Reissue, 2015, Hifly Sound Anstalt [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621749.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Donna Dunne & The Mystery Men - Voodoo (2017) [MP3|320 Kbps] <Rockabilly, Psycho
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621644.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [MP3|320 кб/с]<Pop rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621553.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fields - Fields (1969) [MP3|320 Kbps] <Heavy Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621162.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mitch Ryder And The Detroit Wheels - Breakout !!! (1966) 1993, Sundazed Music [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621096.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Rock Ballads - The Most Beautiful Classic Rock Songs (2004) [MP3|320 кб/�
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620389.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ God Is An Astronaut - Helios | Erebus (2015) [MP3|320 кб/с]<Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619838.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Wackers - Hot Wacks (1972) Reissue, 2005, Collectors' Choice Music [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619152.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Jim Beam Authentic Rock - 50 Pub Jukebox Anthems (2012) [MP3|320 кб/с]<R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619032.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - 90s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618893.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - 100 Greatest Classic Rock Songs (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618595.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ ZZ Top - Forty Legendary Hits (2011) & Texicali EP (2012)[MP3|320 кб/с]<Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618428.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Suzi Quatro - The Very Best Of (2015) 2CD [MP3|320 кб/с]<Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617899.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Frank Zappa - Frank Zappa For President (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617268.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mano de Mono - Chameleon Tongue (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615002.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Beach Boys (Brian Wilson) - 57 альбомов (70CD) (1961-2012) [MP3|160-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614743.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aaron Fink - Saint Sylvania (2015) [MP3|320 кб/с]<Alternative, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614490.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Imagine Dragons - Evolve (2017) Japanese Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614322.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - 60s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613958.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Swing Cats - A Special Tribute To Elvis (2001) [MP3|256 Kbps] <Rock, Blues, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613779.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Reverend Horton Heat - Whole New Life (2018) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613450.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Bluesville Station - Step On The Gas (2012) [MP3|320 кб/с]<Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613335.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ ORRA (ΩЯRΑ) - Unbounded (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613279.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ Taylor's Code - Mirrors (2015) [MP3|320 кб/с]<Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612996.jpg" />
 </div>
 
 

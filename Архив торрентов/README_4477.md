@@ -6,7 +6,7 @@ Exif Pilot 6.25.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110876.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AMD Radeon Software Adrenalin Edition 24.4.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110873.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FireAlpaca 2.11.19 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110869.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chromium 124.0.6367.79 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110868.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Care 365 Pro 6.7.1.643 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110857.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Care 365 Pro 6.7.1.643 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110855.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wondershare PDFelement 10.3.12.2738 + OCR Plugin (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110852.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skype 8.118.0.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110849.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Opera GX 109.0.5097.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110842.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Wise Care 365 Pro 6.7.1.643 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110839.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Q-Dir 11.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110836.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Waterfox Current G6.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110835.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Soft Organizer Pro 9.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110820.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Aiseesoft Screen Recorder 2.9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110819.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ WinMerge 2.16.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110818.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Atlantis Word Processor 4.3.9.2 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110817.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ultimaker Cura 5.7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110815.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Alt SwitchER 21.16 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110812.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ HyperSnap 9.5.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110810.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Google Chrome 124.0.6367.92 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110805.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Zoner Photo Studio X 19.2403.2.539 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110803.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ EssentialPIM Pro 11.8.4 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110799.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ TechSmith Snagit 2024.1.1 build 1964 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110796.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ PortableApps.com Platform 29.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110792.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ FileZilla Server 1.8.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110790.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ KORG - Modwave Native 1.2.7 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110789.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SRWare Iron 113.0.5750.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236785.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EarthView 7.7.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236773.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Maxthon Browser 7.0.2.1500 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236770.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ IObit Uninstaller Pro 12.4.0.7 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236768.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wise Disk Cleaner 11.0.1.815 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236757.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ KLS Backup 2023 Professional 12.0.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236754.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Topaz Video AI 3.2.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236733.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Skype 8.98.0.407 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236730.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Wise Disk Cleaner 11.0.1.815 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236728.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ DP Animation Maker 3.5.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236723.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brave Browser 1.51.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236720.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Skype 8.99.0.202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236718.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Cacheman 10.70.0.4 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236714.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Perfectly Clear WorkBench 4.4.0.2500 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236709.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ID Photos Pro 8.7.7.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236708.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AIO Boot NewGen 23.4.30.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236697.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sandboxie 5.64.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236687.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ R-Drive Image System Recovery Media Creator Technician 7.1 Build 7106 RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236682.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ True Burner 9.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236679.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ GIMP 2.10.34 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236674.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PrivaZer 4.0.63 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236667.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Skype 8.98.0.407 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236656.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.7 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236653.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ WinSnap 6.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236649.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Text Editor Pro 27.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236631.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NewFileTime 7.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236628.jpg" />
 </div>
 
 

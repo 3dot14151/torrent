@@ -6,7 +6,7 @@ FastStone Image Viewer 6.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773173.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream Slideshow Maker 1.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773148.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Free Studio 6.6.10.511 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773147.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Shockwave Player 12.3.2.202 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773095.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773090.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ESET Online Scanner 1.0.0.6421 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773070.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FastStone Capture 8.1 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773065.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Maxthon Browser MX5 5.0.3.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773049.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Futuremark 3DMark 2.3.3693 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773044.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WinToUSB Enterprise 3.5 Release 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773039.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Futuremark 3DMark 2.3.3693 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773038.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Pale Moon 28.3.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773013.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FastStone Image Viewer v6.9 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773007.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Zoner Photo Studio X 19.1809.2.93 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773006.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ FastStone Photo Resizer 4.0 + Portable [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773003.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ TeamViewer Free 11.0.59461 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772983.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Icecream Image Resizer 1.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772982.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Anvir Task Manager 8.1.0 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772977.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ AVG AntiVirus 2016 16.71.7596 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772967.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Allavsoft Video Downloader Converter 3.22.7.7474 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772961.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FolderSizes 8.5.174 Enterprise Edition [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772935.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.4 Full | Lite by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772888.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ CoolUtils Total Image Converter 6.1.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772843.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Comodo Dragon 49.13.20.400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772841.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Astra Image PLUS 5.5.2.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772820.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Anvir Task Manager 8.1.0 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772819.jpg" />
 </div>
 
 

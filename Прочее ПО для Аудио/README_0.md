@@ -1,29 +1,3 @@
-###  Публикация: 292166   (906130) от 07.02.2011
-
-AP Guitar Tuner 3.08 [Английский]
-
->>След.
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Audio Phonics Guitar Tuner это быстрый и точный гитарный тюнер. Используя оригинальную технологию определения высоты тона, программа точно определяет ноты с задержкой, не превышающей 50 миллисекунд. К тому же алгоритм определения тона автоматически адаптируется к быстродействию процессора для более устойчивой работы. Программа проста в использовании, имеет красивый интерфейс и главное совершенно бесплатна. Мне кажется, это лучшая программа для настройки гитары с помощью компьютера!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490530   (903599) от 29.02.2016
 
 Plug&Mix - V.I.P. Bundle v.2.0.0 x86.x64[VST][En]
@@ -32,7 +6,7 @@ Plug&Mix - V.I.P. Bundle v.2.0.0 x86.x64[VST][En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903599.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Nuance Vocalizer Expressive: Katya, Milena, Yuri, Allison, Susan 5.2.3 RePack by
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870985.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Pinnacle Steinberg MyMp3PRO 5.1.0.21 Portable [ENG]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838833.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Voxal Voice Changer Plus 2.0 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802844.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Neuratron PhotoScore & NotateMe 8.0.4 Ultimate [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789342.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Tag&Rename 3.9.5 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778214.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Jajuk 11.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766058.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ LMMS (Linux MultiMedia Studio) 1.2.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764358.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Aerodrums 1.0.22 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723723.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Tag&Rename 3.9.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636678.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Line6 - Pod Farm Platinum 2.50.0 STANDALONE, PORTABLE (VST, RTAS) [Eng]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_622885.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ VOCALOID4 Editor 4.3.0 Repack by AlexVox и csf22 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577521.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ AudioBook Reader 0.0.7.1 + Portable [Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564571.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ Sam Broadcaster STUDIO 2016.7
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548939.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ Sam Broadcaster PRO 2016.7 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548915.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Virtual Audio Cable 4.15 Retail [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526246.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ MiniLyrics 7.7.49 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523813.jpg" />
 </div>
 
 
@@ -484,7 +458,7 @@ Tag&Rename 3.9.15 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517782.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ Magix Mp3 Deluxe 19.0.1.47 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499070.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ Album Art Downloader 1.0.5 + Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411326.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ Js Stuff - jBridge 1.74 RePack by unknown author [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358384.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ TuneBlade 1.4.1.0 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333345.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ Tau Analyzer 1.2 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286912.jpg" />
 </div>
 
 
@@ -644,7 +618,7 @@ Sam Broadcaster PRO 2016.10 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285430.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ Tag&Rename 3.9.11 Final RePack (& Portable) by Trovel [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279798.jpg" />
 </div>
 
 
@@ -681,6 +655,34 @@ Tag&Rename - утилита для ручного управления музы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFECB5061C78029EEBB8D36E1141A3CDD8CD826F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264905   (276070) от 26.11.2018
+
+eJay Dance 6 Reloaded [De]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ejay Dance возвращается! Программное обеспечение, которое вдохновило болельщиков со всего мира теперь даже лучше, чем когда-либо.
+У Ejay Dance 6 reloaded это получается: не имеет значения, вы настоящий музыкант или вы просто хотите развлечься, создавая классные треки.
+И это еще не все: в 3D VJ Box вы можете создать видеоклипы с визуальными эффектами для вашей музыки (   Читать дальше...   )Язык интерфейса: Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEA6F019F84D2A0D877AD022F258CFF940DFE1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

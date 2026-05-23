@@ -1,55 +1,3 @@
-###  Публикация: 1743743   (46484) от 17.08.2024
-
-Дуэль / The Duel (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Узнав, что у лучшего друга Колина роман с его девушкой, Вуди решает, что никакая современная форма мести его не удовлетворит. Вместо этого Вуди вызывает своего ближайшего друга на почетное классическое состязание — джентльменскую дуэль на смерть. Когда двое их друзей присоединяются к действию, некогда неразлучная группа мужчин приближается к судьбоносному дню, который (   Читать дальше...   )Производство: США / Pigasus Pictures, ToneDeaf PicturesЖанр: драма, комедияРежиссер: Джастин Мэтьюз, Люк Спенсер РобертсАктеры: Дилан Спроус, Каллэн МакОлифф, Патрик Варбертон, Дензель Лав, Харт Дентон, Мария Габриела де Фария, Рэйчел Мэттьюз, Christian McGaffney, Рональд ГаттманПеревод: Многоголосый любительский (RGB | 18+)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA83D36DCE918BCFF50EEC12AE9D296DE1D1398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743744   (46483) от 17.08.2024
-
-Исчезнувшее время. Мальчик, который вернулся / Ga-lyeo-jin si-gan / Vanishing Time: A Boy Who Returned (2016) HDRip [H.264] [MVO
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Говорят, в полнолуние в лесу появляется пещера, а в пещере лежит яйцо волшебного монстра. Кто в эту пещеру зайдёт да яйцо разобьёт, у того монстр съедает время... 13-летняя СуРин знакомится с мальчиком Сон Мином, с которым ей весело и интересно. Однажды Су-рин напрашивается в компанию его друзей пойти вместе смотреть на взрывные работы в шахте, и в лесу ребята обнаруживают (   Читать дальше...   )Производство: Южная Корея / Showbox EntertainmentЖанр: фэнтези, драма, мелодрама, детективРежиссер: Тхэ Хва ОмАктеры: Дон Вон Кан, Ын Су Син, Хё Чжэ Ли, Хи Вон Ким (I), Хэ Хё Квон, Дан Юл Ким, У Чжин Чон, Тхэ Гу Ом, Со Ри Мун, Чон Ён Ким, Чин У Пак (I), Джи Хо АнПеревод: профессиональный многоголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Cardinals), английскиеПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495FEB0E35B2A3399A7A0B38C46D292FD8B8C22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743623   (46482) от 17.08.2024
 
 Схватка / Kill (2023) WEB-DLRip [H.264/720p] [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46482.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46479.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46474.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46473.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46472.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46471.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46467.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46455.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46454.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46453.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46452.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46447.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46444.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46441.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46422.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46420.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46415.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46410.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46407.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46405.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46403.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46400.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46399.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46398.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3576E1C991F3E48B58D2CE73ECD010D1A34C6E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743953   (46397) от 18.08.2024
+
+Чёрная Пантера: Ваканда навеки / Black Panther: Wakanda Forever (2022) WEB-DL [H.264/1080p] [IMAX]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46397.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти короля Т’Чаллы защита Ваканды ложится на плечи королевы Рамонды, М’Баку, Окойе и воительниц Дора Милаж. Им приходится оберегать страну от других государств, жаждущих заполучить вибраниум — уникальный ресурс, позволивший африканской стране добиться поразительных технологических высот. Но когда глава подводного королевства Нэмор предлагает Рамонде и принцессе (   Читать дальше...   )Производство: США / Marvel Studios, Walt Disney PicturesЖанр: фантастика, боевик, драмаРежиссер: Райан КуглерАктеры: Летиша Райт, Лупита Нионго, Данай Гурира, Уинстон Дьюк, Анджела Бассетт, Теноч Уэрта, Мартин Фриман, Джулия Луи-Дрейфус, Доминик Торн, Флоренс КасумбаПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, 2x Full), английские (Forced, Full, SDH, Commentary), украинские (Forced, Full) и др.Продолжительность: 02:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AA436F842CEA812E6061A3C484BE2BE8221A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744057   (46369) от 19.08.2024
+
+Герцогиня / Duchess (2024) WEBRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то ее звали просто Скарлетт, а теперь она известна как Герцогиня. Женщина, которая смогла перевернуть не только криминальный мир, но и подмять под себя весь бизнес контрабанды алмазов. Оставив за собой кровавый след, она нажила себе немало врагов. Теперь ей предстоит еще больше замарать руки, чтобы остаться на вершине этого жестокого темного мира.Производство: Великобритания / Cork Films, Ashland Hill Media Finance, Lip SyncЖанр: боевик, криминалРежиссер: Нил МаршаллАктеры: Шарлотта Кирк, Колм Мини, Шон Пертуи, Стефани Бичем, Филип Уинчестер, Колин Эглсфилд, Ян Туаль, Мелисса Уайт, Борис Мартинес, Ожи ФортунаПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041D8FC12AADE2FCE329794849679CA602AF6615
 ```
 
 https://mybot314.ru/tekegram_catalog/

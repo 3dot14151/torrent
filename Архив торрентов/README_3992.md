@@ -6,7 +6,7 @@ WonderFox HD Video Converter Factory Pro 26.5 RePack (& Portable) by TryRooM [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194154.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner Pro: ПО для очистки 23.16.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194148.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Optimizer 15.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194142.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Caramba Switcher Lab 2023.08.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194125.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ashampoo WinOptimizer 26.00.13 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194122.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ YouTube ReVanced Extended 18.32.37 (RVP v2.188.1) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194115.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ R-Studio Network 9.3 Build 191230 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194075.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Total Commander 11.00 (19.08.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194073.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Sante DICOM Viewer Pro 12.2.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194070.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ DesktopClock3D 1.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194068.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AnyBurn 5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194060.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Print Conductor 8.1.2308.13160 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194050.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AIMP 5.11 Build 2435 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194042.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ MKVToolNix 79.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194034.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ uTorrent Pack 1.2.3.74 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194031.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Ableton Live Suite 11 v.11.3.10 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194023.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Total Commander 11.01 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194021.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ FBReader Premium 3.1.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194019.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ USB Device Tree Viewer 3.8.8.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194017.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Office.Files.Images 2.44 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194011.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ TikTok ReVanced 30.8.4 (RVP 2.187.0) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193985.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ ABBYY FineReader PDF for Mac 15.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193982.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AMD Radeon Software Adrenalin Edition 23.8.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193980.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Google Chrome 116.0.5845.111 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193978.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VPN Russia - VPN сервера в России 1.168 Mod by FreeApkexe [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193977.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ RustDesk 1.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193971.jpg" />
 </div>
 
 

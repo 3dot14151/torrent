@@ -6,7 +6,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16707) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137219.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137198.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137032.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136734.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tales of Arise (2021) [Ru/Multi] (20231108/dlc) Repack DjDI [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135032.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134473.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ghoul Castle 3D (2021) [Ru/Multi] (2.5) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134467.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dungeon Defenders Collection [En/Multi 5] (Repack/7.46c) 2012 l R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133798.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133662.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133575.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132864.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131787.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130654.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130544.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128344.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Cookie Cutter (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127901.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127525.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127331.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127018.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126557.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Trinity Fusion (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126386.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ You Will Die Here Tonight (2023) [En] (20231102) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126341.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Shadows Over Loathing (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125609.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53394) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125396.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Merchant of the Six Kingdoms (2023) [En] (5.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125126.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53385) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125125.jpg" />
 </div>
 
 

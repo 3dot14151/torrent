@@ -1,32 +1,3 @@
-###  Публикация: 1844326   (1050411) от 28.12.2025
-
-VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|320 Kbps] <Electronic Deep Chill House Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01 - Stive Morgan - On Thin Ice
-02 - Sardø - Corazón Sin Fronteras
-03 - Reteox - Faded Years
-04 - Echønova - Forgive Me(   Читать дальше...   )Жанр: Electronic Deep Chill House OtherПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F00658652469EA6E355AFD5DB39DA6A68470CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844932   (1050403) от 28.12.2025
 
 VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
@@ -35,7 +6,7 @@ VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050403.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050368.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Merry Christmas At the Hammond Organ (2025) [MP3|320 Kbps] <Jazz, Blues, In
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050328.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - ЕвроХит Топ 40 Europa Plus 26.12.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050242.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Chris Rea - This is Chris Rea (2025) [MP3|320 Kbps] <Blues, Rock, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049992.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Music News For Forum vol.153 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049948.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - No name compilation part 32 Soulful Blues Ballads (2025) [MP3|320 Kbps] <So
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049906.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - No name compilation part 31 Soulful Blues Ballads (2025) [MP3|320 Kbps] <So
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049793.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Муз. 2025 by Yuridar [MP3|320 Kbps] <Rock, Pop, Blues, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049779.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049778.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Music News For Forum vol.152 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049745.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Ita
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049547.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Ita
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049546.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Dakota Lane - Favorites Collection part 3 country music (2025) [MP3|320 Kbps] <c
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049545.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049544.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Marius - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Reggae, Ai>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049543.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049542.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - No name compilation part 30 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049541.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Дискотека 2026 Dance Club Vol. 231 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049316.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Midnight Whiskey Blues 2 (2025) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049145.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Snowflakes And Rhythms (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048898.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048893.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048892.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048891.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - National Pop Dance Music Vol.127 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048734.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - National Pop Dance Music Vol.127 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDF6DAF62E6ACF15F0C2BCBB5D8A2BAF5EDE2A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842382   (1048726) от 15.12.2025
+
+VA - Pop Positive Hub (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048726.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis FonsiDaddy Yankee - Despacito (03:51)
+ 002. Jivesh Shedhai - Jindagiko Batoma (03:48)
+ 003. Renajadopt - Apoteotico Cobicado (02:36)
+ 004. Evelyn Nae - Asphalt Heartbeat (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35797521A4C045663985CC207F5F3631A666575C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ AMD Radeon Software Crimson Edition 16.5.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777185.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Viber 8.4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777164.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comodo Dragon 63.0.3239.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777160.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ K-Lite Codec Pack Update 14.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777158.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Punto Switcher 4.4.1 Build 320 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777157.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ORPALIS PDF Reducer Professional 3.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777144.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TeamViewer 11.0.59131 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777136.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Opera 51.0.2830.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777123.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Icaros 3.0.3 Beta 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777119.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Auslogics BoostSpeed 10.0.6.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777108.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Telegram Desktop 0.9.44 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777099.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Quick Search 5.22.1.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777090.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Movavi Video Converter 18.2.0 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777075.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Nikon Capture NX-D 1.4.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777068.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Stardock Start10 1.11 RePack by Tyran [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777064.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777024.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Mozilla Firefox 47.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776960.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cyberfox 46.0.2 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776882.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Free Studio 6.6.8.505 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776879.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Anvir Task Manager 8.0.1 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776878.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sandboxie 5.23.7 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776862.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BurnAware Professional 9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776846.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Cyberfox 46.0.2 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776814.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Anvir Task Manager 8.0.1 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776802.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Opera 51.0.2830.55 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776796.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ naps2 5.7.1.42651 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776781.jpg" />
 </div>
 
 

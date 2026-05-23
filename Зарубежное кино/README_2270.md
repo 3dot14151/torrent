@@ -1,55 +1,3 @@
-###  Публикация: 1815355   (5415) от 29.08.2025
-
-Хозяин морей: На краю Земли / Master and Commander: The Far Side of the World (2003) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Время Наполеоновских войн. Военный парусник Ее Величества «Сюрприз», бороздящий просторы Атлантики, был неожиданно атакован огромным неизвестным кораблем, появившимся из тумана. Благодаря смелости и находчивости команды «Сюрпризу» удается уйти от смерти. Несмотря на тяжелые повреждения и потери, капитан Джек Обри по прозвищу Счастливчик принимает решение преследовать (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Miramax Films, Samuel Goldwyn Films LLC, Universal PicturesЖанр: боевик, драма, приключения, военный, историяРежиссер: Питер УирАктеры: Рассел Кроу, Пол Беттани, Джеймс Д’Арси, Эдвард Вудалл, Крис Ларкин, Макс Пиркис, Джек Рэндалл, Макс Бениц, Ли Инглби, Ричард ПейтсПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9D9B327B4656975FBFD978E0DD5440968130C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814746   (5411) от 29.08.2025
-
-Сент-Экзюпери / Saint-Exupery / Saint-Ex (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1930 год. Антуан де Сент-Экзюпери, пилот французской авиапочты в Аргентине, вместе с лучшим другом и коллегой Анри Гийоме решает проложить более короткий маршрут через горы. Когда Гийоме пропадает в Андах, Сент-Экзюпери отправляется в рискованный ночной полет по спасению своего товарища. Это смертельно опасное путешествие не только меняет его, но и вдохновляет на (   Читать дальше...   )Производство: Франция, Бельгия / BE TV, Canal+ fr, France 2 Cinéma, France TélévisionЖанр: драма, приключения, биография, историяРежиссер: Пабло АгуэроАктеры: Луи Гаррель, Венсан Кассель, Дайан Крюгер, Бенуа Мажимель, Изо, Габен Мальэрб, Бланш Редулу, Ной Тузеле Фернандес, Наталия Доко, Марио ДрагунскийПеревод: Дублированный (Велес)Язык озвучки: Русский, ФранцузскийСубтитры: Русские, Французские (Forced, SDH), АнглийскиеПродолжительность: 01:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F080A9AB5B6EC31910DAF6B14F3E63A5BF33F967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815205   (5399) от 29.08.2025
 
 Выживший / The Revenant (2015) BDRip [H.265/2160p] [4K, HDR, 10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5399.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5378.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5347.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5343.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5314.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5291.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5260.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5254.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5239.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5230.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5229.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5228.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5203.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5102.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5089.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5086.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5084.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5074.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5031.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5018.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4991.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4907.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4897.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4888.jpg" />
 </div>
 
 
@@ -672,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F72F04B0DB1BA83539F4675EF1866FEC3D7315A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438638   (4881) от 01.09.2025
+
+Школа рока / The School of Rock (2003) BDRip [H.265/1080p-LQ] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4881.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нескольких лет подъема блестящая карьера рок-звезды Дьюи Финна заканчивается полным провалом. Все, что его теперь ждет, это неоплаченные долги и тяжелая депрессия. Но, перехватив не предназначавшийся ему телефонный звонок и придя в изумление от зарплаты (650 долларов в неделю), Дьюи устраивается работать в частную школу.
+Его отношение к музыке и детям творит (   Читать дальше...   )Производство: США, Германия / Paramount Pictures, Scott Rudin Productions, MFP Munich Film Partners GmbH & Company I. Produktions KG, New Century, Sor ProductionsЖанр: комедия, музыкаРежиссер: Ричард ЛинклейтерАктеры: Джек Блэк, Джоан Кьюсак, Майк Уайт, Сара Силверман, Адам Паскаль, Лукас Папаэлиас, Крис Стэк, Лукас Бабин, Джордан-Клэр Грин, Вероника АффлербахПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийСубтитры: русскиеПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F61E1A83A1052E5010A329E8774DBE65E227339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815912   (4862) от 01.09.2025
+
+Мидуэй / Midway (2019) UHD BDRip [H.265/1080p] [10-bit] [CAN Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4862.jpg" />
+</div>
+
+
+###  Подробнее
+
+История одного из самых масштабных и стратегически важных морских сражений на Тихом океане Второй мировой войны. После разгрома японской авиацией большей части флота США в Перл-Харборе до этого придерживавшаяся нейтралитета Америка вступает в войну. В июне 1942 года остатки американского флота под командованием адмирала Честера Нимица сражаются с Императорским флотом (   Читать дальше...   )Производство: США, Китай, Канада, Гонконг / AGC Studios, Centropolis Entertainment, Entertainment OneЖанр: военный, боевик, история, биографияРежиссер: Роланд ЭммерихАктеры: Эд Скрейн, Патрик Уилсон, Вуди Харрельсон, Люк Эванс, Мэнди Мур, Люк Клеинтенк, Дэннис Куэйд, Аарон Экхарт, Киан Джонсон, Ник ДжонасПеревод: дублированный официальный (СинеЛаб СаундМикс)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (forced, full, SDH)Продолжительность: 02:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5F521CF5C638EF16727B5BBD63C3A01877D4C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

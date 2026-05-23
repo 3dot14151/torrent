@@ -1,29 +1,3 @@
-###  Публикация: 771359   (845206) от 28.03.2014
-
-Grim Legends: The Forsaken Bride / Зловещие легенды. Брошенная невеста (2014) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Девушка приезжает на свадьбу сестры, но счастливое событие превращается в трагедию. На празднестве появляется огромный медведь и похищает невесту. Несчастный жених вместе с сестрой своей нареченной отправляется в погоню. Какие испытания и приключения придется пережить отважным преследователям? Начните это захватывающее приключение и спасите мир от Зла!(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4942950EA53DAE834749FFDB890157E9EAC7734F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002994   (845104) от 02.04.2016
 
 Whispered Secrets 5: Ever Burning Candle (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Whispered Secrets 5: Ever Burning Candle (2016) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845104.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ New York Mysteries 3: The Lantern of Souls (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845025.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Heaven's Hope (2016) [En/De] (1.0) License CODEX [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844734.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Congo (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844580.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack Choice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844577.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Radial-G: Racing Revolved (2016) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844465.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Lost Lands 7: Redemption / Затерянные земли 7: Искуплени
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844410.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Entwined 2: The Perfect Murder / Запутанное дело 2: Идеальн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844409.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Light of Darkness (2011) [Ru] (28.03.16) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844340.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Tank Mechanic Simulator (2020) [Ru/En] (1.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844266.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Inspector Waffles (2021) [Multi] (1.0.2.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844151.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ LUNA The Shadow Dust (2020) [Graphic] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844114.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Hektor (2015) [En] (1.1.0b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843477.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Frankenstein 2: The Village (2016) [En/Multi] (1.1) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842869.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Beyond the Invisible: Evening / За гранью невидимого: Суме
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842734.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ ABRACA - Imagic Games (2016) [Multi] (1.0) License PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842701.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Swordbreaker: The Game / Мечелом (2015) [Ru/En] (1.0 u1) Repack DARKSiDER
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842622.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Carnivore Land (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842618.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Blue Sheep (2016) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842501.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Hidden Motives: The Diamond Rush / Скрытые мотивы: Алмазная
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842467.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Pixel Privateers (2017) [En] (1.0.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842459.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ SHENZHEN I/O (2016) [En] (1.0.0.22) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842444.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Ultimate Marvel vs. Capcom 3 (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842439.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Mana Spark (2018) [Ru/Multi] (1.1.08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842376.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842334.jpg" />
 </div>
 
 
@@ -668,6 +642,38 @@ A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB99787ECFF8838E97D1572D7043A72A515B5E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309216   (842296) от 15.03.2011
+
+HdO Adventure. FBI: Paranormal cases / Мистические истории. Секретные материалы ФБР (P) [Ru] 2010
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные агенты ФБР Малди и Скаллер занимаются расследованием мистических дел. Однажды они сталкиваются с загадкой, которой предстоит перевернуть всю их жизнь. Оборотни, призраки, заклятия вуду, реинкарнация, невидимость, внеземные цивилизации – на пути к истине им придется повстречаться с ужасными и таинственными созданиями из легенд. Малди и Скаллер понимают, что это расследование может погубить их, но все равно продолжают свое расследование…Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: Системные требования:
+Операционная система: Windows XP/Vista
+Процессор: Pentium IV 1 ГГц
+Оперативная память: 512 Мб
+Видеоадаптер: 128 Мб
+Дополнительное программное обеспечение: DirectX 9.0 или выше
+Свободного места на жестком диске: 600 МбЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153E5AAD8A1ABC14EDC402FC1710B20CFF266EFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069195.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mafia II (2): Definitive Edition (2020) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069185.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mafia III (3): Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069184.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ True Crime: New York City (2006) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069135.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ True Crime: Dilogy (2004-2006) [En] (1.0/1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069133.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack Wanterlude [Ultima
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069039.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Dead Rising 4 (2017) [Ru/En] (1.0 upd4/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068896.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6 upd6/dlc) Repack FitGirl [Apocalypse Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068895.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068806.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068795.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack Wanterlude [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068765.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Wanterlude [Gold Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068688.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Wanterlude [Ultimate Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068686.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Dishonored (2013) [Ru/Multi] (334700_2022/dlc) Repack Wanterlude [Definitive Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068682.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068566.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Conan Exiles Enhanced (2018) [Ru/Multi] (1.0.1/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068339.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Just Cause (2006) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068311.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ American McGee presents Bad Day L.A. / Bad Day L.A. (2006) [Ru/En] (1.1.0) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068137.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Grand Theft Auto: Vice City (2003) [Multi] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067216.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dead Space (2008) [Ru/En] (1.0.0.222) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066831.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) Repack FitGirl [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066740.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064428.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.47/dlc) Repack Let'sРlay [Deluxe Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064401.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack dixen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064300.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mindseye (2025) [Ru/Multi] (6508009/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063236.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (Build 223150
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062273.jpg" />
 </div>
 
 

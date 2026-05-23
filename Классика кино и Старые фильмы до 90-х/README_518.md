@@ -1,31 +1,3 @@
-###  Публикация: 100084   (326295) от 20.11.2014
-
-Матрос с Кометы (1958) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В небольшом южном городе живет матрос Сергей Чайкин. Друзьям нравятся его веселые и задушевные песни. Сергей влюблен в спортсменку Лену, к которой неравнодушен также директор Дворца моряков Вадим.
-
-Лена и Вадим уезжают в Москву на VI Всемирный фестиваль молодежи и студентов, следом за ними вылетает в Москву и Сергей, заменивший в ансамбле моряков заболевшего солиста…Производство: СССР, киностудия "Мосфильм"Жанр: Мюзикл, мелодрамаРежиссер: Исидор АнненскийАктеры: Глеб Романов, Николай Крючков, Николай Свободин, Татьяна Бестаева, Майя Менглет, Владимир Сошальский, Иван Любезнов, Анна Лисянская, Андрей Тутышкин, Николай Прокопович, Валентин Печников, Георгий Гумилевский, Юрий Киреев, Маргарита ЖароваПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 93629   (326293) от 20.11.2014
 
 Звезда экрана (1974) DVDRip
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_326293.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_326285.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326245.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_326230.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_326227.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_326171.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326122.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326046.jpg" />
 </div>
 
 
@@ -246,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326031.jpg" />
 </div>
 
 
@@ -272,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325822.jpg" />
 </div>
 
 
@@ -298,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325710.jpg" />
 </div>
 
 
@@ -324,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325683.jpg" />
 </div>
 
 
@@ -350,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325627.jpg" />
 </div>
 
 
@@ -376,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325521.jpg" />
 </div>
 
 
@@ -402,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325508.jpg" />
 </div>
 
 
@@ -428,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325501.jpg" />
 </div>
 
 
@@ -455,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325472.jpg" />
 </div>
 
 
@@ -481,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325464.jpg" />
 </div>
 
 
@@ -507,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_325458.jpg" />
 </div>
 
 
@@ -535,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325440.jpg" />
 </div>
 
 
@@ -561,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_325318.jpg" />
 </div>
 
 
@@ -587,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325305.jpg" />
 </div>
 
 
@@ -613,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_325270.jpg" />
 </div>
 
 
@@ -639,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_325269.jpg" />
 </div>
 
 
@@ -665,13 +637,39 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_325264.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Пока французы и англичане сражались за североамериканские территории, индейские племена гуронов и делаваров также дрались между собой за свои родные земли. И в этой войне благородной и отважный Чингачгук, один из лучших воинов-делаваров, проявлял чудеса героизма.Производство: СССР, студия "Союзтелефильм"Жанр: ПриключенияРежиссер: Андрей РостоцкийАктеры: Андрей Хворов, Павел Абдалов, Эдуард Мурашов, Елена Кондулайнен, Ольга Машная, Георгий Пицхелаури, Сергей Лодзейский, Всеволод Хабаров, Наталья Табакова, Владимир Епископосян, Александр Гизгизов, Владимир Пивоваров, Владимир Бадов, Галина Кондрашова, Семен Заков, Борис Миронов, Игорь ИльинПродолжительность: 02:23:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 104910   (325256) от 21.11.2014
+
+Дача (1974) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_325256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скопив на дачу денег и облюбовав подходящий домик, супруги Петровы решили не мешкая вступить в права владения. Прямо из сберкассы жена едет на садовый участок, а мужу предстоит расплатиться в Москве с хозяевами. Однако толстая пачка денег исчезает из его кармана…Производство: СССР, киностудия "Мосфильм"Жанр: КомедияРежиссер: Константин ВоиновАктеры: Лидия Смирнова, Анатолий Папанов, Людмила Гурченко, Евгений Евстигнеев , Клара Лучко, Роза Макагонова, Александр Вокач, Станислав Чекан, Олег Табаков, Людмила Шагалова, Георгий Юматов, Владимир Басов, Николай ГраббеПродолжительность: 01:23:58
 
 ## Скачать торент
 ```bash

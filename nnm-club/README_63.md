@@ -1,138 +1,3 @@
-###  Публикация: 1869688   (1068527) от 
-
-VA - A State of Trance 2026 (Mixed by Armin van Buuren) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia - As We Become One (Mixed) (Intro Mix) [3:53]
-02. Max Styler x Three Drives & Three Drives On A Vinyl - Greece 2000 (Mixed) (Max Styler Rework) [2:45]
-03. Ginchy feat. Sultan + Shepard - The Way (Mixed) (Ginchy Remix) [3:00]
-04. Ruben De Ronde & Amber Revival - River In Me (Mixed) [3:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101066AB2AFBB89E5CB3B6167533FD2653B63E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869704   (1068526) от 
-
-AnyDesk 9.7.3 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158534FEEEBAE513E8073AE7649BB23D9C56E628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869706   (1068525) от 
-
-Трудная мишень 2 / Hard Target 2 (2016) BDRip [H.265/1080p] [10-bit] [hand made AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Боец смешанных боевых искусств Уэс Бейлор по прозвищу Тюремщик, не рассчитав силу удара во время боя, случайно убивает на ринге своего друга Джонни, у которого остались жена и маленький сын. Терзаемый муками совести за содеянное, Уэс уезжает в Таиланд. Теперь он живёт в хибаре, участвует в нелегальных боях без правил, а вечером глушит боль спиртным...Производство: США, Таиланд / Universal 1440 EntertainmentЖанр: боевик, триллерРежиссер: Роэль РейнАктеры: Скотт Эдкинс, Роберт Неппер, Рона Митра, Анн Чуонг, Темуэра Моррисон, Адам Саундерс, Питер Харди, Шон Кинэн, Джейми Тимони, Амарин ЧолвибулПеревод: Дублированный (Blu-ray CEE), многоголосый (''Favvora Film'')Язык озвучки: Русский, узбекский, английскийСубтитры: Русские, английскиеПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33206DD7F6D4C21C63EDD6F48AB624E40EE7107F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 106030   (1068524) от 
-
-Прожекторперисхилтон. Выпуски с 1 по 100 + Прожекторевровижн. Выпуск 1 и 2 [2008, SATRip, XviD] Мегараздача от knvforall
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Специальные заседания самых остроумных и едких телеведущих перед полуфиналами и финалом конкурса "Евровидение-2009" на Первом!
-Самые лучшие обсуждения свежих новостей "Евровидения" только в программе "Прожекторевровижн"!
-"Прожекторперисхилтон" - новая программа Первого канала, премьера которой многих рассмешила, кого-то удивила, (   Читать дальше...   )Продолжительность: ~00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5696BA55E46E928FCADBAB4E7C765B78AAED9840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869709   (1068523) от 
-
-Total Commander 11.57 Final [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E478DA6C88E2158E81C46DEEF1F0D7C90D89A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869707   (1068522) от 
 
 Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (2019) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068522.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068521.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068520.jpg" />
 </div>
 
 
@@ -219,7 +84,7 @@ Mixtape (2026) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068519.jpg" />
 </div>
 
 
@@ -245,7 +110,7 @@ Mixtape (2026) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068518.jpg" />
 </div>
 
 
@@ -271,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068517.jpg" />
 </div>
 
 
@@ -297,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068516.jpg" />
 </div>
 
 
@@ -323,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068515.jpg" />
 </div>
 
 
@@ -349,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068514.jpg" />
 </div>
 
 
@@ -375,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068513.jpg" />
 </div>
 
 
@@ -401,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068512.jpg" />
 </div>
 
 
@@ -427,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068511.jpg" />
 </div>
 
 
@@ -453,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068510.jpg" />
 </div>
 
 
@@ -480,7 +345,7 @@ VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068509.jpg" />
 </div>
 
 
@@ -509,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068508.jpg" />
 </div>
 
 
@@ -535,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068506.jpg" />
 </div>
 
 
@@ -561,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068505.jpg" />
 </div>
 
 
@@ -587,7 +452,7 @@ Songs of Silence (2024) [Ru/Multi] (1.9.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068504.jpg" />
 </div>
 
 
@@ -613,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068502.jpg" />
 </div>
 
 
@@ -639,7 +504,7 @@ Guitar Pro 5.2 + RSE
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068501.jpg" />
 </div>
 
 
@@ -665,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068500.jpg" />
 </div>
 
 
@@ -676,6 +541,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D80341F4433303996AA8A64E5D7C9A3658E86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869768   (1068499) от 
+
+Нонсенс / Neonsenseu / The Nonsense (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юна — беспристрастная страховая следователь, чья задача отделять правду от лжи в делах о выплатах. Расследование смерти мужчины, разбившегося при падении, приводит её к Сун Гю — загадочному попечителю умершего, чьи «сеансы смехотерапии» балансируют на грани гениальности и шарлатанства. Чем глубже Юна погружается в дело, тем острее встает вопрос: перед ней просветлённый (   Читать дальше...   )Производство: Корея Южная /  Korean Academy of Film ArtsЖанр: детектив, триллер, драмаРежиссер: Ли Джэ-хиАктеры: О А-ён, Пак Ён-у, О Мин-э, Ли Джу-миПеревод: Многоголосый любительский (KimchiTV)Язык озвучки: Русский, КорейскийСубтитры: ОтсутствуютПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16496BDC3CD8062ECC69CAAC60B35F9F428A65E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869745   (1068498) от 
+
+YouTube канал "Азербайджанские Фильмы" (1925-2013) WEBRip [H.264/720p]
+
+>>Коллекции / *логии
+>>Отечественное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции удалённого YouTube канала "Азербайджанские Фильмы" / UCkYwiOL-VQebtwalCoYkKzA по состоянию на 15 августа 2021 года.
+
+Бакинская киностудия основана в 1920-е годы как первая киностудия в Азербайджанской ССР.
+Первоначально называлась «Азербайджанская кинофабрика» или Бакинская киностудия художественных фильмов.(   Читать дальше...   )Производство: СССР, Бакинская киностудия, АзербайджанфильмЖанр: Отечественная КлассикаПродолжительность: 161:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF00F4DDB800A14036D70F8AFE7875DE943413B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869766   (1068497) от 
+
+Mr. Big - Hey Man (2026 Remastered) (1996) Remastered, 2026, evoXS [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trapped in Toyland (04:25)
+ 02. Take Cover (04:38)
+ 03. Jane Doe (03:36)
+ 04. Goin' Where the Wind Blows (04:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A853473325C3BA01A67F14ADFE9DC6F6A8F35E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869771   (1068496) от 
+
+Папины дочки. Новые (2026) WEBRip [H.264/2160p] [4K, SDR, 8-bit] (сезон 5, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даша возвращается домой после двух лет отсутствия и сталкивается с неожиданными проблемами: Веник отвык от жены, а повзрослевшие дочки стали слишком самостоятельными. Параллельно Боря и Галина Сергеевна учатся быть родителями, Диана и Лиза ищут своё место в изменившейся семейной иерархии, а Соня решает переехать в Петербург, что не нравится Венику, который не готов (   Читать дальше...   )Производство: Россия | «Start»Жанр: КомедияРежиссер: Павел БрусочкинАктеры: Филипп Бледный, Анастасия Сиваева, Елизавета Арзамасова, Мирослава Карпович, Дарья Мельникова, Татьяна Орлова, Андрей Леонов, Алексей Демидов, Нонна Гришаева, Ольга Волкова и др.Субтитры: Русские (SDH)Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84780501FF2DD1193C28254854C0F359749E4D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869772   (1068495) от 
+
+Вот это драма! / The Drama (2026) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли и Эмма влюблены друг в друга и вот-вот поженятся. Место свадьбы выбрано, приглашения разосланы, до долгожданной церемонии остаются считанные дни. Но одно, казалось бы, невинное откровение переворачивает всё — Чарли узнаёт об Эмме то, что предпочёл бы не знать. Теперь на пути к «долго и счастливо» их отношениям предстоит пройти через неожиданную драму.Производство: США / A24, Live Free or Die Films LLC, Square PegЖанр: драма, мелодрама, комедияРежиссер: Кристоффер БорглиАктеры: Зендея, Роберт Паттинсон, Алана Хаим, Мамуду Ати, Хейли Гейтс, Зои Уинтерс, Ханна Гросс, Сидни Леммон, Анна Барышников, Майкл Эбботт мл.Перевод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE581F5D573B9B132D7613C606D9DEF8DFFEB0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

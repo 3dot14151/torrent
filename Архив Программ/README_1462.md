@@ -6,7 +6,7 @@ mini10PE by niknikto 18.11.12 [Ru][x86] (авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294594.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tor Browser Bundle 7.0.10 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294582.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Re-Loader Activator 2.0 RC 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294577.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Start Menu X 5.72 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294576.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ EASEUS Partition Master 13.5 Unlimited Edition (29.10.2019) RePack by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294519.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ArtRage 6.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294517.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AnyDesk 5.3.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294515.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Avira Phantom VPN Pro 2.28.6.26289 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294509.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Nvidia DriverPack v.441.08 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294508.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Daum PotPlayer 1.6.57398 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294490.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ YouTube Video Downloader PRO 5.1.0 (20151113) Portable by PortableWares [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294487.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FPS Monitor 4910 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294476.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ TechSmith Camtasia Studio 2018.0.7 Build 4045 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294473.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294469.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PDF-XChange PRO 8.0.333.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294439.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Acronis True Image 19.0.6027 / Universal Restore 11.5.39006 / Disk Director 12.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294374.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Speccy 1.29.714 Professional | Technician Edition RePack (& Portable) by D!akov 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294369.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ CommFort Client+Server 4.40&CrazyPlugin 1.40+ [Рус/Англ/Нем/Итал]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294296.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SketchUp Pro 2016 v16.0.19911 (x32) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294275.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Tag&Rename 3.9.10 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294149.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ZD Soft Screen Recorder 10.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294092.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Prelude CC 2017 6.0.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294087.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ DGindexNV 2052 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294005.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dism++ 10.1.17.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293983.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Resource Hacker 4.5.30 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293887.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Unreal Commander 3.57 Beta 1 Build 1182 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293761.jpg" />
 </div>
 
 

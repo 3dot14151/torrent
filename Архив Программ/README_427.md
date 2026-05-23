@@ -6,7 +6,7 @@ Privacy Eraser Free 4.32.0 Build 2470 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Driver Booster Pro 7.4.0.730 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824113.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Earth Pro 7.3.3.7699 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824108.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Allegorithmic Substance Designer 6.0.2 build 20117 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824093.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TurbulenceFD v1.0 build 1419 Repack by soyv4  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824085.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Advanced SystemCare Pro 13.50.263 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823991.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows Excel 2020.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823988.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823970.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CrystalDiskInfo 7.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823889.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Notepad++ 7.5.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823881.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4911.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823823.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wolfram Mathematica 11.1.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823820.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823817.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CCleaner 5.28.6005 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823816.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Total Commander 9.12 VIM 29 Portable by Matros[Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823737.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MInstAll Portable-Soft 01.01.2018 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823727.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Uninstall Tool 3.5.4 Build 5572 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823725.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Box Sync 4.0.7318 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823636.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sleipnir 6.1.11.4000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823481.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Slimjet 9.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823479.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Dropbox 3.18.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823475.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Ashampoo Snap 8.0.10 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823398.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Wise Care 365 Pro 4.14.399 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823395.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ MEGA Sync Client 2.9.0 (ae910) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823381.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Wise Care 365 Pro 4.14.399 RePack (&Portable) by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823309.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ AdwCleaner 5.111 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823301.jpg" />
 </div>
 
 

@@ -1,117 +1,3 @@
-###  Публикация: 924477   (558871) от 03.08.2015
-
-VA - Летний марафон № 178 / Видеоклипы (Зажигательный Латинский Хит ) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Летние (03.08.2015) поп. новинки латинской эстрады. Не пропустите, держите новые треки.1. Ale Blake ft. Hevito- Latin Heart (Official Video) (00:03:30)
-2. Alexis y Fido - Santa de mi devoción (Official Video) (00:04:27)
-3. All The Way ft. Bebe Rexha - Reykon (Official Video) (00:04:04)
-4. BB Bronx ft. Farruko - Bronx Whine (Official Video) (00:03:22)(   Читать дальше...   )Жанр: Latino, ReggaetonПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F18B824C7C3EDE7176762D09BFB5DB2F49AF980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924050   (558870) от 03.08.2015
-
-Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Индейская музыка - музыка, которая используется, создается или выполняется коренными американцами в Соединенных Штатах и людьми индейцев Канады, определенно традиционной племенной музыки. В дополнение к традиционной музыке индейских групп, там теперь существуют межплеменные жанры, а также отличные индейские поджанры популярной музыки включая: скала, блюз, хип-хоп, (   Читать дальше...   )01. Blue Chip Orchestra - Ate Heye Lo [03:53]
-02. The Wings  [23:51]
-03. Big City Indians Earth Is Crying - Dry Her Tears - Earth Hour Song [05:00]
-04. Nature - Song for Mornings Stars [02:36](   Читать дальше...   )Жанр: Native American, Folk, New Age, EthnoПродолжительность: 03:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC37DB0C07469DA000B3E0464030BB70A54B608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983626   (558449) от 12.07.2018
-
-Ария – Живой Огонь. Часть 2 (2004) 2006 Moroz Records, DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Палач (8:27)
-02. Бой Продолжается (6:30)
-03. Там Высоко (5:36)
-04. Штиль (6:45)(   Читать дальше...   )Жанр: Heavy MetalПеревод: ОтсутствуетПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F49C926896027071C2DFE1460B20CF69D95697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045593   (557942) от 24.08.2016
-
-Александр Галин - Крыша (1990) SATRip (Театр-студия О. Табакова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Александра Галина.
-«Крыша» - спектакль о непростых взаимоотношениях молодых людей, роли человека в обществе, его ценности и, конечно же, о любви. И, несмотря на то, что действие происходит в 70-х годах прошлого века, обращение к вечной теме придает спектаклю вневременной характер. Студенты, живущие в общежитии, ходят на лекции, готовятся к экзаменам, (   Читать дальше...   )Производство: СССР, Театр-студия О. ТабаковаЖанр: Телеспектакль, драмаРежиссер: Олег ТабаковАктеры: Алексей Селиверстов, Сергей Шкаликов, Алексей Серебряков, Александр Мохов, Галина Чурилова, Надежда Тимохина, Марина Зудина, Сергей ГазаровПродолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C732F45B207866A17EC91DBE2318A4AE37ECBCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045614   (557938) от 24.08.2016
 
 Евгений Шварц - Два клёна (1974) SATRip
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557938.jpg" />
 </div>
 
 
@@ -147,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557933.jpg" />
 </div>
 
 
@@ -173,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557828.jpg" />
 </div>
 
 
@@ -200,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557651.jpg" />
 </div>
 
 
@@ -227,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557581.jpg" />
 </div>
 
 
@@ -255,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557569.jpg" />
 </div>
 
 
@@ -283,7 +169,7 @@ Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557402.jpg" />
 </div>
 
 
@@ -312,7 +198,7 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557234.jpg" />
 </div>
 
 
@@ -341,7 +227,7 @@ The Cure - In Orange (1987) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556875.jpg" />
 </div>
 
 
@@ -367,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556833.jpg" />
 </div>
 
 
@@ -393,7 +279,7 @@ The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556798.jpg" />
 </div>
 
 
@@ -422,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556721.jpg" />
 </div>
 
 
@@ -449,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556718.jpg" />
 </div>
 
 
@@ -475,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556670.jpg" />
 </div>
 
 
@@ -501,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556666.jpg" />
 </div>
 
 
@@ -527,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556270.jpg" />
 </div>
 
 
@@ -553,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555916.jpg" />
 </div>
 
 
@@ -579,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555802.jpg" />
 </div>
 
 
@@ -606,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555800.jpg" />
 </div>
 
 
@@ -632,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555798.jpg" />
 </div>
 
 
@@ -659,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555795.jpg" />
 </div>
 
 
@@ -685,7 +571,7 @@ Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554554.jpg" />
 </div>
 
 
@@ -699,6 +585,110 @@ Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE4A24CA9ED6CC6A687ECD466EE80D70AA78AAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307851   (554427) от 12.06.2019
+
+Квартирник НТВ у Маргулиса. Группа "Несчастный случай" (08.06.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554427.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске «Квартирника» атмосферную студию пришла популярная российская рок-группа «Несчастный случай». Образованная в далеком 1983 году Алексеем Кортневым и Валдисом Пельшем группа прошла путь от студенческого дуэта до мегапопулярного театрально-музыкального коллектива, выступающего на лучших площадках России и зарубежных стран. Артисты исполнили свои самые (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C51B65F58A22D64B0F87EE68BFF04A1C061F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538471   (553441) от 25.08.2016
+
+Лесь Подервянский - Павлик Морозов / Лесь Подерв'янський - Павлік Морозов (2012) DVDRip [UKR]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпическая трагедия "ПАВЛИК МОРОЗОВ" по пьесе популярного и одновременно скандального украинского драматурга и художника Леся Подервянского.Производство: УкраинаЖанр: Эпическая трагедия, ТеатрРежиссер: Андрей КритенкоАктеры: Евгений Капорин, Елена Репина, Елена Хижная, Владимир Ямненко, Олег Примогенов, Егор Пчелкин, Георгий Фомин, Сергей Калантай, Николай Вересень, Андрей Середа, Светлана Вольнова, Иван Денисенко, Павел Пронтенко, Ирина Стригина, Екатерина ШаминаЯзык озвучки: Украинский. Присутствует ненормативная лексикаПродолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49FA92F5BE9A340DF63C11391C12CB463F793CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237062   (553209) от 22.07.2018
+
+Владимир Ждамиров. За забором весна (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Ждамиров и группа Вольный Ветер в Минске! Отличное качество, живой звук! Презентация программы За забором весна. 2015. МинскПроизводство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3B88023ED28DBD4341974090FBC734A983D4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237138   (553198) от 22.07.2018
+
+Стинг. Концерт в „Олимпии“ / Sting a l'Olympia de Paris (13.04.2017) DVB [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в рамках мирового гастрольного тура Стинга «57th & 9th Tour» в поддержку 12-го (одноименного) сольного альбома исполнителя. Выступление было записано в апреле 2017 года в парижском концертном зале «Олимпия». Яркое исполнение новых песен, включая заразительную гитарную композицию «I Can’t Stop Thinking About You» и похожую на гимн «50 000», а также классика (   Читать дальше...   )Телекомпания: Великобритания / EAGLE ROCKЖанр: Документальный, ИскусствоПеревод: Не требуется (нет диалогов и комментариев)Субтитры: Русские, телетекстПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC173EFB59869D00FB72A9D64116D318A034A858
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ USDownloader 1.3.5.9 Portable (29.02.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940752.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ClipGrab 3.8.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940680.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tixati 2.68 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940676.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BELOFF [dp] 2020.02 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940674.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Beyond Compare Pro 4.3.4.24657 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940580.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CrystalDiskInfo 8.4.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940574.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ WinRAR 5.90 Beta 3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940502.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Avast Free Antivirus 20.1.2397 (build 20.1.5069.528) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940478.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Avast Premium Security 20.1.2397 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940465.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wallpaper Engine 1.1.341 RePack by Butter_[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940439.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Rufus 3.9.1624 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940425.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VidCoder 2.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940229.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Alternate Password DB 2.210 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940151.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ K-Lite Codec Pack Update 12.7.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940124.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ xrecode II 1.0.0.229 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940089.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ USDownloader 1.3.5.9 (08.02.2016) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940081.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ SRWare Iron 48.0.2550.0 DC 08.02.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940064.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Norton Removal Tool 22.5.0.22 DC 10.01.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940032.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VSO ConvertXtoDVD 6.0.0.24 Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939988.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ XnViewMP 0.78 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939984.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ InnoEx 0.9.2 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939979.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VSO ConvertXtoVideo Ultimate 1.6.0.48 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939975.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cumulative Update KB3210721 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939958.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Cumulative Update KB3210720 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939953.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ FinePrint 9.03 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939941.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Adobe Acrobat Reader DC 2015.023.20053 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939936.jpg" />
 </div>
 
 

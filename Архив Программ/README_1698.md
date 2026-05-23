@@ -6,7 +6,7 @@ Wise Memory Optimizer 4.1.9.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207191.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KStars 3.6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207176.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Firefox Browser 116.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207167.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Photo AI 1.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207155.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 110.0.5481.104 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207146.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PIDKey Lite 1.64.4 b30 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207144.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Edge WebView2 Runtime 1.3.173.45 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207137.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Opera Crypto Browser 95.0.4635.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207136.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ImgDrive Free 2.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207118.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ LosslessCut 3.52.0 Standantalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207111.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Avidemux 2.8.2 Nightly(r230212) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207108.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ HomeBank 5.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207093.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NewFileTime 7.07 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207090.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.0 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207085.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ashampoo UnInstaller 12.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207083.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Floorp Browser 11.1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207063.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.2.3172 Full / Lite RePack by KpoJIuK  [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207060.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Universal USB Installer 2.0.1.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207037.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Wondershare UniConverter Ultimate 15.0.1.5 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207036.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Corel VideoStudio Ultimate 2022 25.2.0.566 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207032.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ uTorrent Pack 1.2.3.73 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207031.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Boilsoft Video Splitter 8.3.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207029.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Multi Commander Full Edition 13.1 Build 2955 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207028.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Display Driver Uninstaller 18.0.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207023.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Start Everywhere 1.4.0.36 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206994.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Imagine 1.1.5 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206974.jpg" />
 </div>
 
 

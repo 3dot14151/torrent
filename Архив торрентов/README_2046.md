@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.1.003 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594299.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Apowersoft Video Download Capture 6.0.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594268.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mozilla Firefox 48.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594262.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594256.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Red Giant Effects Suite 11.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594249.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Red Giant Shooter Suite 12.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594247.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Charles Web Debugging Proxy 4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594217.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Toast Titanium 15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594214.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Microsoft Windows and Office ISO Download Tool 3.08 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594212.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594209.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Viber 6.2.0.1284 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594207.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Acrobat Reader DC 2015.017.20053 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594204.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594200.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Red Giant Keying Suite 11.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594199.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Red Giant Magic Bullet 12.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594193.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594179.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Microsoft Windows 10 Pro/Home Insider Preview 10.0.10162 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594178.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Auslogics Disk Defrag Professional 4.8.0.0 DC 01.08.2016 RePack (& Portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594153.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Auslogics Driver Updater 1.9.0.0 DC 01.08.2016 RePack (& Portable) by TryRooM [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594151.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Auslogics Anti-Malware 2016 1.8.0.0 DC 01.08.2016 RePack by D!akov  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594150.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Apple iWork: Keynote 6.6.2, Numbers 3.6.2 & Pages 5.6.2 (upd 10.05.2016) [Multi/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594145.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Photodex ProShow Producer 8.0.3645 Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594142.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe Acrobat XI (v11.0.17) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594114.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Adobe Acrobat Pro DC 2015.017.20053 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594110.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Windows Update MiniTool 30.07.2016 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594097.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594092.jpg" />
 </div>
 
 

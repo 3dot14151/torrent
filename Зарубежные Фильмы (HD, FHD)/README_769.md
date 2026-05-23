@@ -1,55 +1,3 @@
-###  Публикация: 1535165   (249680) от 21.03.2022
-
-Чужой: Завет / Alien: Covenant (2017) WEB-DLRip [H.264/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Во время обследования удаленной планеты, расположенной на другой стороне галактики, экипаж колониального корабля «Завет» обнаруживает, что то, что они изначально приняли за неизведанный рай, на самом деле — тёмный и опасный мир. Его единственный житель — синтетический андроид Дэвид, оставшийся в живых после обреченной экспедиционной миссии «Прометей»Производство: США, Великобритания / 20th Century Fox Film Corporation, Brandywine ProductionsЖанр: фантастика, триллер, ужасыРежиссер: Ридли СкоттАктеры: Майкл Фассбендер, Кэтрин Уотерстон, Билли Крадап, Дэнни МакБрайд, Демиан Бишир, Кармен Эджого, Джусси Смоллетт, Калли Эрнандес, Эми Саймец, Натаниель ДинПеревод: ДублированныйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DF465DFF638D413F8E4E74A5DBF68E0ADAB9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538864   (249667) от 22.03.2022
-
-Одинокий рейнджер / The Lone Ranger (2013) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-История блюстителя закона Джона Рида, который с помощью индейца Тонто стал легендарным мстителем в маске, стоящим на защите справедливости. Тонто с юмором и небылицами повествует о тех приключениях, которые пришлось пережить двум непохожим друг на друга героям, сведённым судьбой для того, чтобы вместе сражаться против общего врага. Им приходится противостоять жадности (   Читать дальше...   )Производство: США / Blind Wink Productions, Classic Media, Infinitum Nihil Production, Jerry Bruckheimer Films, Silver Bullet Productions (II), Walt Disney Studios MotionЖанр: вестерн, приключения, боевик, комедияРежиссер: Гор ВербинскиАктеры: Джонни Депп, Арми Хаммер, Том Уилкинсон, Уильям Фихтнер, Рут Уилсон, Барри Пеппер, Хелена Бонем Картер, Брайант Принц, Стивен Рут, Леон РиппиПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, forced, SDH)Продолжительность: 02:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C77248B09BED9EFC9536A2BD2253D608583B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538888   (249662) от 22.03.2022
 
 Помогите, я уменьшил своих друзей! / Hilfe, ich hab meine Freunde geschrumpft (2021) BDRip  [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249662.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249641.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249637.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249618.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249612.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249599.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249575.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249569.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249554.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249529.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249463.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249445.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249444.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249418.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249416.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249410.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249401.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249359.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249356.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249341.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249320.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249318.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249296.jpg" />
 </div>
 
 
@@ -657,13 +605,66 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249249.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Нельзя сказать, что Гейл счастлива в браке: они с мужем на грани развода. Но однажды она принимает судьбоносное для семьи решение: отправиться в путешествие по бурной реке, знакомой ей с молодых лет. Семейные дрязги отходят на второй план, когда Гейл замечает в воде тонущих. Спасенный Уэйд, на первый взгляд, казался человеком порядочным. Но когда, он достал оружие, (   Читать дальше...   )Жанр: Триллер, Криминал, ПриключенияРежиссер: Кёртис Хэнсон / Curtis HansonАктеры: Мэрил Стрип, Кевин Бэйкон, Дэвид Стрэтэйрн, Джон С. Рейли, Джозеф Маццелло, Стефани Сойер, Бенджамин Брэтт, Виктор Гэллоуэй, Элизабет Хоффман, Уильям ЛаккингПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:51:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494461   (249234) от 09.05.2012
+
+Пожиратели / Intruders (2011) [1080p] Blu-ray
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249234.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Мадриде 8-летний мальчик Хуан рассказывает родителям жуткие истории. Его мать, Луиза, предполагает, что богатое воображение отрока, подпитанное яркими и реалистичными ночными кошмарами являются основной причиной нарушения сна и психического надлома ребенка. Однако Хуан продолжает настаивать на том, что жуткие существа вовсе не плод его больного воображения.
+В то (   Читать дальше...   )Производство: США, Великобритания, ИспанияЖанр: Ужасы, ТриллерАктеры: Клайв Оуэн, Кэрис Ван Хаутен, Даниэль Брюль, Керри Фокс, Элла Пурнелла, Лолита Чакрабарти, Пилар Лопес де Айяла, Марк Уингетт, Эктор Альтерио, Адам ЛизПеревод: ДубляжСубтитры: (PGS): Английский, Чешский, Венгерский, Польский, Португальский, Румынский, Русский, Испанский, Тайский, ТурецкийПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493881   (249221) от 09.05.2012
+
+Спросите Синди / Good Advice (2001) [720p] HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попав в переплет, биржевой маклер Райан Тернер остался без гроша в кармане, без работы, квартиры, любовницы и девушки. Но Тернер не привык сдаваться!  Он хочет взять реванш и начинает писать в женской газетной колонке «Спросите Синди» от имени сбежавшей подружки. И быстро понимает, что на большинство вопросов просто не способен ответить. Ему приходится включить всю (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, комедияПеревод: Многоголосый закадровыйСубтитры: русские, английскиеПродолжительность: 01:32:32
 
 ## Скачать торент
 ```bash

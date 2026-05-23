@@ -1,85 +1,3 @@
-###  Публикация: 690101   (566138) от 17.08.2013
-
-Александр Пушкин | Повести Белкина (Радиоспектакль) [1973] [MP3, Виктор Монюков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагаются инсценированные повести А. С. Пушкина: «Барышня-крестьянка», «Выстрел», «Гробовщик».
-
-Инсценировка Виктора Монюкова и Владимира Михайловского.Жанр: ИнсценировкаИздательство: Мелодия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF3D082C6D71989C7E7AC4A51E59EB07A9D5C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690087   (566115) от 17.08.2013
-
-Александр Островский | Лес [1949] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Радиокомпозиция спектакля Ленинградского государственного академического театра драмы им. А. С. Пушкина.
-
-Два бедных актера, Несчастливцев и Счастливцев, - нет денег, нет работы, табаку и того нет, нацепив бутафорские ордена, вооружившись пистолетом и гитарой, решают навестить богатую тетушку Несчастливцева - помещицу Гурмыжскую. А там, в поместье, своя жизнь.Жанр: Радиоспектакль
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BC15284A57A81087059847F57A8035E87DE7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555960   (565516) от 06.06.2022
-
-Сергей Вересков | В краю молочных рек (2022) [MP3, Станислав Воронецкий]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Пришествие» – сильная община, о которой все пишут и которую все обсуждают. Ее возглавляет молодой харизматичный Лидер – про него говорят, что он способен творить настоящие чудеса. Те, кого отвергла семья и отвергло общество, всегда могут рассчитывать на его помощь. Дима и Лиза едут в общину по разным причинам. Ему недавно исполнилось восемнадцать, и для него «Пришествие» (   Читать дальше...   )Жанр: Истории из жизни, Современная русская литератураПродолжительность: 05:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8BC97F92EAC0DCF33823440A6BFA92ECE351F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556014   (565504) от 06.06.2022
 
 Александра Эндрюс | Кто такая Мод Диксон? (2022) [MP3, Марина Гладкая]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565504.jpg" />
 </div>
 
 
@@ -115,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565470.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565461.jpg" />
 </div>
 
 
@@ -167,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565368.jpg" />
 </div>
 
 
@@ -193,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565367.jpg" />
 </div>
 
 
@@ -219,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565355.jpg" />
 </div>
 
 
@@ -248,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565335.jpg" />
 </div>
 
 
@@ -276,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565333.jpg" />
 </div>
 
 
@@ -304,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565271.jpg" />
 </div>
 
 
@@ -330,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565170.jpg" />
 </div>
 
 
@@ -356,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565009.jpg" />
 </div>
 
 
@@ -382,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564988.jpg" />
 </div>
 
 
@@ -408,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564910.jpg" />
 </div>
 
 
@@ -434,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564740.jpg" />
 </div>
 
 
@@ -460,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564509.jpg" />
 </div>
 
 
@@ -487,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564499.jpg" />
 </div>
 
 
@@ -513,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564391.jpg" />
 </div>
 
 
@@ -539,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564389.jpg" />
 </div>
 
 
@@ -565,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564372.jpg" />
 </div>
 
 
@@ -591,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564175.jpg" />
 </div>
 
 
@@ -617,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564039.jpg" />
 </div>
 
 
@@ -643,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563979.jpg" />
 </div>
 
 
@@ -669,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563963.jpg" />
 </div>
 
 
@@ -680,6 +598,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399B28E9D8EBBF55DAC2C85C80AD4A8CBEBD96D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690651   (563781) от 18.08.2013
+
+Аркадий и Борис Стругацкие | Хищные вещи века. Второе нашествие марсиан [Владимир Левашёв] [2013] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563781.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хищные вещи века» – фантастический детектив, главный герой которого проводит расследование в маленькой курортной стране, где появился новый смертельно опасный наркотик. В обществе изобилия – сытом мире, изнывающем от скуки, – благополучная жизнь соседствуют с убогостью духовных запросов. Здесь люди желают лишь «хлеба и зрелищ» и наслаждаются разрушением прекрасного, (   Читать дальше...   )Жанр: Научная фантастикаИздательство: Студия «АРДИС»Продолжительность: 11:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6889C826F951139E4C3C655CC671C510D5D226CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 813877   (563717) от 18.08.2014
+
+Лев Славин | Интервенция (1995) [MP3, Анатолий Папанов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пьеса Л. Славина «Интервенция» появляется в театрах страны спустя три года после романа «Наследник». Пьеса эта, кажется, ничем не подготовленная в отечественной драматургии, дерзкая, карнавально яркая, порой резкая до плакатности и гротеска, наивная и правдиво точная одновременно, не имевшая подражании, гак и стоящая на особицу, – она и сегодня живая и сущая.
+1919 (   Читать дальше...   )Жанр: аудиоспектакль
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0405ED4ED425E1793E6551EAD9D41224AE897F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152779   (563603) от 24.07.2017
+
+Леонид Пивер | Воспоминания провинциального телевизионщика (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга воспоминаний старейшего режиссера челябинского ТВ – это отнюдь не только рассказ о становлении и развитии областного телевидения, не только рассказ о профессии. Это яркое, ироничное и трогательное повествование о жизни, какой она была полвека назад и какой остается сегодня. Это осененные мягким авторским юмором и всем опытом пережитого короткие истории минувшего, (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 03:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3907193B889C20E32230FFBB3D9DC9B92320EEA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

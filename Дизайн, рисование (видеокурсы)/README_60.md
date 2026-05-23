@@ -6,7 +6,7 @@ Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 2: Refined Lines (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226798.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226760.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 4: Technical Drawing (2016) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226739.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 1: Gesture (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226708.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kantemir Bitokov | Курс по моделингу автомобиля кла�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226673.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CGEvent | Подборка мастерклассов по трехмерке К
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225385.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225377.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ CGEvent | Подборка мастерклассов по трехмерке П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225185.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225168.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224786.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224764.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224754.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ CG Cookie, Kent Trammell | HUMAN: Realistic Portrait Creation with Blender (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224382.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Creative Shrimp, Jeannot Landry | Hard Surface Rigging In Blender (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224349.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Skillshare, David Jaasma | Мастер-класс по системе част�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223803.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Creative Shrimp, Luca Rood | Procedural Texturing: Blender Master Class (2021) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223080.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ MachDigital, Тимур Магомедов | MachDigital - Моделирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222081.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221811.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Coloso, Hyoungtaek Nam | Realistic Character Design (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219793.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ FreelStep | After Effects from FreelStep (2022) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219756.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui| Полное руководство по 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219614.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Skillbox, Михаил Розов | Cinema 4D для веб-дизайна (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219470.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217575.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ CGTarian, Вадим Беседин | CG Generalist (2015) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217162.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216242.jpg" />
 </div>
 
 

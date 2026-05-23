@@ -1,87 +1,3 @@
-###  Публикация: 1400087   (722851) от 03.08.2020
-
-Ричард Бахман (Стивен Кинг) | Блейз (2020) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После смерти знаменитого преступника Джорджа Рэкли его ученик Блейз решает в одиночку осуществить задуманный Рэкли план – похищение ребенка из семьи миллионеров.
-Теперь Блейз, держа маленького Джо в заложниках, скрывается в лесах штата Мэн… а полиция все ближе. И «преступление века» превращается в настоящую гонку со временем.
-
-В сборник также включен рассказ «Память», (   Читать дальше...   )Жанр: зарубежные детективы, современные детективы, триллерыПродолжительность: 10:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9769BD719CC6B992F6DA6919CB605D3B227253B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400137   (722726) от 03.08.2020
-
-Андрей Величко | Юрьев день (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Никогда не разговаривайте с неизвестными» – так предупреждал Булгаков. Сан Саныч Смолянинов, авиационный инженер на пенсии, не внял совету классика… И угодил прямиком в конец XIX века.
-
-Вроде бы в такой рокировке много приятного – молодость, богатство, неограниченные возможности карьерного роста… Но появились и новые обязанности, которые он вынужден сам на себя (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 09:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466FDBCA6C7F4CBCA7E1BCB93E72AAD078876FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531573   (722703) от 15.02.2022
-
-Филипп Клодель | Собачий архипелаг (2020) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эта история могла произойти где угодно, и героем ее мог быть кто угодно. Потому что жесткость, подлость и черствость не имеют географических координат, имен и национальностей.
-На Собачьем архипелаге случается происшествие: на берег выбрасывает три трупа. Трое чернокожих мужчин, вероятно нелегальных мигрантов, утонули, не доплыв до вожделенной земли, где рассчитывали (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 06:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF1075A3D1316E0871652BA8F3A57B859100367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531561   (722700) от 15.02.2022
 
 Татьяна Ма | Амнистия по четвергам (2022) [MP3, Наталия Штин]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722700.jpg" />
 </div>
 
 
@@ -116,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722693.jpg" />
 </div>
 
 
@@ -142,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722681.jpg" />
 </div>
 
 
@@ -168,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722676.jpg" />
 </div>
 
 
@@ -195,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722644.jpg" />
 </div>
 
 
@@ -224,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722635.jpg" />
 </div>
 
 
@@ -250,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722598.jpg" />
 </div>
 
 
@@ -276,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722559.jpg" />
 </div>
 
 
@@ -302,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722553.jpg" />
 </div>
 
 
@@ -328,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722537.jpg" />
 </div>
 
 
@@ -354,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722487.jpg" />
 </div>
 
 
@@ -380,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722479.jpg" />
 </div>
 
 
@@ -406,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722433.jpg" />
 </div>
 
 
@@ -432,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722361.jpg" />
 </div>
 
 
@@ -460,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722319.jpg" />
 </div>
 
 
@@ -486,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722252.jpg" />
 </div>
 
 
@@ -512,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722247.jpg" />
 </div>
 
 
@@ -538,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722164.jpg" />
 </div>
 
 
@@ -565,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722163.jpg" />
 </div>
 
 
@@ -591,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722066.jpg" />
 </div>
 
 
@@ -619,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722039.jpg" />
 </div>
 
 
@@ -645,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722023.jpg" />
 </div>
 
 
@@ -671,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721916.jpg" />
 </div>
 
 
@@ -682,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56CF772828158A8B64BC687E303F32826C59A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327425   (721768) от 23.04.2011
+
+Герман Гессе | Степной волк (2006) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Золотой фонт мировой классики».
+Герман Гессе (1877–1962) – немецкий писатель, лауреат Нобелевской премии (1946), создатель интеллектуальной прозы 20 века.
+Степной волк» (1927) – один из культовых романов писателя – в значительной мере посвящен проблемам взаимоотношений между обывателями и богемой общества. Мечущийся художник Гарри Галлер, раздираемый фаустовскими (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: : Студия «АРДИС»Продолжительность: 09:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF69B181EDDA4667037D94FA4E1391BA7860CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023532   (721619) от 06.06.2016
+
+Сергей Лысак | От Гудзона до Ла-Платы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экипаж «Тезея» прочно становится на ноги и с боем завоевывает место под солнцем в чужом для себя мире. Но… Если тебе сопутствует успех, то всегда найдутся те, кто посчитает себя несправедливо обойденным. И русский город Форт Росс, возникший в Новом Свете на два века раньше, станет для них сродни Карфагену, который должен быть разрушен…Жанр: Боевая фантастикаПродолжительность: 12:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE743005F85C7CF642ADC8261930C02DBD264F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218541   (721548) от 10.04.2018
+
+Эндрю Тейлор | Анатомия призраков (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатая и знатная меценатка, патронирующая один из элитных колледжей в Кембридже, нанимает Джона Холдсворта, автора популярной книги о призраках, провести частное расследование. Джон должен выяснить, почему ее сын Фрэнк, студент того же колледжа, внезапно тронулся рассудком. Считается, что причиной умопомешательства стало привидение, которое Фрэнк увидел в университетском (   Читать дальше...   )Жанр: Фантастика, МистикаПродолжительность: 15:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D351900FB67ADBC790DA5C5A3AEDE19988C2B90
 ```
 
 https://mybot314.ru/tekegram_catalog/

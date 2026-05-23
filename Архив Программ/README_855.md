@@ -6,7 +6,7 @@ Junkware Removal Tool 7.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612679.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Telegram Desktop 1.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612647.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Download Master 6.5.1.1471 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612566.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BitTorrent Bleep 1.0.5962.40186 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612543.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Macgo Windows Blu-ray Player 2.15.3.1995 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612512.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MiniTool Partition Wizard Technician Edition v7.5 Final + Portable [2012,Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612503.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sony Sound Forge Pro 10.0d Build 503 RePack v2 by MKN [Русский/Англи
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612496.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wondershare Filmora 8.2.5.1 + Complete Effect Packs [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612459.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ GPU-Z 0.8.4 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612440.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Vivaldi 1.0.209.3 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612431.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ CCleaner 5.07.5261 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612428.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Universal USB Installer 1.9.6.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612425.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NVIDIA GeForce Experience 2.4.5.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612356.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Aurora Blu-ray Media Player 2.17.2.1987 RePack (& Portable) by AlekseyPopovv [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612351.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Vivaldi 1.15.1147.47 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612334.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CCleaner 5.07.5261 Professional [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612305.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BitDefender Total Security 2015 18.23.0.1604 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612304.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612302.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bitdefender AntiVirus Plus 2015 18.23.0.1604 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612301.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Maxthon Browser 5.2.3.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612274.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ CCleaner 5.07.5261 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612220.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe Components: Flash Player 18.0.0.194 + AIR 18.0.0.144 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612212.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ UltraSurf 15.01 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612211.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Bitdefender Internet Security 2015 18.23.0.1604 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612119.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Your Universal MultiBoot Installer 2.0.1.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612116.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Piriform CCleaner Professional Plus 5.07.5261 Portable by PortableAppZ [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612114.jpg" />
 </div>
 
 

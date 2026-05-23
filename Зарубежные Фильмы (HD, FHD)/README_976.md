@@ -1,55 +1,3 @@
-###  Публикация: 1434553   (148663) от 25.12.2020
-
-Еще по одной / Druk (2020) WEB-DL [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Заходят как-то в бар профессор истории, психолог, музыкант и физрук. И решают проверить научную теорию о том, что c самого рождения человек страдает от нехватки алкоголя в крови. Чтобы стать по-настоящему счастливым, нужно быть немного нетрезвым. Бокал вина утром, пинта пива в обед, стакан виски вечером. Казалось бы, что может пойти не так?Производство: Дания, Швеция, Нидерланды / Zentropa Entertainments, Film i Väst, Zentropa International SwedenЖанр: Драма, комедияРежиссер: Томас ВинтербергАктеры: Мадс Миккельсен, Томас Бо Ларсен, Магнус Милланг, Ларс Ранте, Мария Бонневи, Хелена Рейнгор Нойманн, Суссе Вольд, Магнус Шёруп, Сайлас Корнелиус Ван, Альберт Рудбек ЛиндхардтПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED2123808B1727BCAA596A9F60E05893E132E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513900   (148559) от 24.12.2021
-
-Лучшее лето / Den Basta Sommaren (2000) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Аника и Мортен, сироты, приезжают пожить летом 1958 года в деревню к господину Йоханссону, местному предпринимателю, занимающемуся организацией похорон. Сначала дети думают, что господин Йоханссон несколько чёрств и угрюм, но постепенно они проникаются симпатией к этому по-своему одинокому и добродушному человеку...Производство: Швеция, Дания, Memfis FilmЖанр: драма, мелодрама, комедия, семейныйРежиссер: Ульф МальмросАктеры: Челль Бергквист, Анастасиос Соулис, Ребекка Шейя, Сесилия Нилссон, Брассе Брэннстрём, Маркус Хассельборг, Гачуго Макини, Горан Торелл, Анн Петрен, Пале ОлофссонПеревод: любительский одноголосый (Вячеслав Прошин)Субтитры: русские, английскиеПродолжительность: 01:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD1F8341DD537B51E963BACFC3DF5457E8E732A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270421   (148505) от 24.12.2018
 
 Волшебное Озеро / Magic in the Water (1995) WEB-DL [H.264/1080p] [Open Matte]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148505.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148438.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148391.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148346.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148245.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148210.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148205.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148204.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148202.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148194.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148156.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148121.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148104.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148100.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148094.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148072.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148048.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148035.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148033.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148022.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148009.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147987.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147975.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147956.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB67B97052EA2E5A7357D78423C37376C81B7270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519365   (147946) от 24.12.2021
+
+Обитель зла: Раккун-Сити / Resident Evil: Welcome to Raccoon City (2021) WEB-DLRip [H.265/1080p-LQ] [10-bit] [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147946.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 сентября 1998 года. Клэр Редфилд возвращается в родной Раккун-Сити, откуда сбежала несколько лет назад ещё ребёнком. Тогда, после потери родителей, она с братом жила в местном приюте, который спонсировала градообразующая корпорация Umbrella, но теперь компания переехала, и городок приходит в упадок. Клэр замечает, что местные как будто чем-то заражены, но её брат-полицейский (   Читать дальше...   )Производство: США, Германия, Франция / Constantin Film, Davis FilmsЖанр: ужасы, боевик, фантастикаРежиссер: Йоханнес РобертсАктеры: Кая Скоделарио, Ханна Джон-Кэймен, Робби Амелл, Том Хоппер, Эван Джогиа, Донал Лог, Нил МакДонаф, Лили Гао, Чад Рук, Марина МазепаПеревод: Профессиональный (многоголосый, закадровый) Jaskier *ненормативная лексика!Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E7B2200D9E97B8D3EEBF9AFB05DAF796686879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519064   (147943) от 24.12.2021
+
+Разлучённые души / Разлука / Separation (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама маленькой Дженни требует развод и единоличную опеку над ребёнком — муж Джефф, в прошлом автор популярного комикса, уже давно сидит без идей и работы, а она сама вынуждена до ночи пропадать в офисе. Когда женщина внезапно гибнет под колёсами автомобиля, Дженни начинает странно себя вести, а Джефф подозревает, что в их доме активизировалось нечто потустороннее.Производство: США / Yale Productions, Post Film, RainMaker FilmsЖанр: Ужасы, драмаРежиссер: Уильям Брент БеллАктеры: Руперт Френд, Виолет Макгроу, Мадлен Брюэр, Мэми Гаммер, Брайан Кокс, Эрик Миллер, Саймон Куотерман, Мэнни Перес, Лорри Одом, Лайла ШривПеревод: Дублированный (Dub, IYUNO-SDI GROUP, Кинопоиск HD)Субтитры: Русские (forced, full), украинские, английские, французские .srt, испанские, датские, норвежские, финские, шведские .pgsПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54855BD015A715DD9CF73BB55E9584CFA28B8BAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

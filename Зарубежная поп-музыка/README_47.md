@@ -6,7 +6,7 @@ Roxette - It's Possible (Unofficial Release) & The Sweet Hello, The Sad Goodbye 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507465.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Michael Jackson - Memorial (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505006.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Hurts - Happiness (2010) [MP3|320 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504296.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ VA - 300 Hits - Love Songs (2012) [MP3|320 кб/с]<Pop, R&B, Soul, Rock, Countr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504170.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Eruption - Eruption - The Best Of Eruption (1981) Compilation, Remastered, 2017,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503513.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Jessie J - Who You Are (2011) Deluxe Edition [MP3|320 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503111.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ A-Ha - Cast In Steel (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503093.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ ABBA - Singles Collection 1972 - 1982 (1999) Box Set 27CD [MP3|320 Kbps] <Pop, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500280.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Phildel - The Disappearance Of The Girl (2013) [OGG| 397-475 кб/с]<Alternativ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499461.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Driving In My Car: Ultimate Car Anthems (2019) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499435.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Prince - HITnRUN Phase One (2015) [MP3|320 кб/с]<Pop, Soul, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499408.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Lenka - Lenka (2008) [MP3|320 kbps]<Pop, Easy-listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498602.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Bandolero - Reference 80 (2011) [MP3|320 кб/с]<Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498151.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Leona Lewis - I Am (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496288.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Die 2000er (The Hands Up Edition) (2018) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496096.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Claudio Damiani - 2 Albums (1981, 1996) [MP3|320 Kbps] <Electronic, Disco, Pop R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495847.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Nrj Holiday Hits (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495681.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Berlin - Transcendance (2019) [MP3|320 Kbps] <Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494703.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - NOW That's What I Call Club Hits (2014) [MP3|320 кб/с]<Pop, Dance, Club>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494431.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Party Fun 2018 Vol. 2 (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494128.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Are We There Yet? 101 Car Songs (2018) 5CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494116.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Festivalbar '79 (1979) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Bal
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493712.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Vanessa Mai - Regenbogen (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493329.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ VA - 90's Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493208.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492473.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Superhumanoids - Do You Feel OK? (2015) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492372.jpg" />
 </div>
 
 

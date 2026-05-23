@@ -6,7 +6,7 @@ Movavi Photo Editor 24.3.0 RePack (& Portable) by elchupacabra (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28095.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Movavi Photo Editor 24.3.0 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27888.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ InPixio Photo Maximizer Pro 5.3.8624 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27454.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ inPixio Photo Focus Pro 4.3.8624 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27446.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26524.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pipette 24.8.31 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26487.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Digiarty AIArty Image Matting 2.5 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26001.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Aiarty Image Enhancer 3.3 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25581.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Icecream Slideshow Maker PRO 5.16 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25412.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AVS Image Converter 7.0.2.22 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24828.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ inPixio Photo Cutter 10.5.8105 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24300.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ inPixio Photo Eraser 10.5.7924 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24292.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ InPixio Photo Editor 10.5.8103 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24073.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ InPixio Photo Maximizer Pro 5.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24068.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ inPixio Photo Focus Pro 4.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24058.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ ABViewer Enterprise 15.2.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23972.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ inPixio Photo Editor 10.5.8103 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23876.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Topaz Gigapixel AI Pro 8.3.3 RC [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23586.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Polarr Photo Editor Pro 5.11.10 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23144.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ FotoSketcher 3.98 Final + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22836.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Serif Affinity Photo 2.6.2.3228 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22114.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Topaz Photo AI Pro 3.6.2 (x64) [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21381.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ XnConvert 1.105.0 + Portable (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21054.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Chasys Draw IES 5.35.01 include Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20991.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Adobe Photoshop 2024 25.12.3.1067 Light (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19941.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Adobe Photoshop 2024 25.12.3.1067 Full (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19905.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 939777   (472942) от 22.09.2015
-
-Ронин / Ronin (1998) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хотя холодная война давно закончена, тайные наемники, чьи навыки в слежке, шпионаже и силовых схватках буквально легендарны, остаются востребованными при новом мировом порядке и всегда находят высокооплачиваемую работу. Некий таинственный клиент собирает в Париже команду таких «платных оперативников», известных как «Ронины»,  для похищения сверхсекретного портфеля. (   Читать дальше...   )Производство: Великобритания, Франция, США / FGM Entertainment, United Artists, United Artists Corporation Ltd.Жанр: Боевик, Триллер, Криминал, ПриключенияРежиссер: Джон ФранкенхаймерАктеры: Роберт Де Ниро, Жан Рено, Наташа МакЭлхоун, Стеллан Скарсгард, Шон Бин, Скипп Саддат, Микаэль Лонсдаль, Ян Триска, Джонатан Прайс, Рон ПеркинсПеревод: Дублированный, многоголосый, двуголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE73F7F4760F35BBCD955AF025C6A61BDA6FF768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603091   (472875) от 17.08.2019
-
-Останься / Stay (2005) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Находящийся на грани помешательства студент Генри Лезем рассказывает психиатру Сэму Фостеру о том, что покончит с собой в субботу в полночь. Не желая допустить гибели Генри, Сэм решает сделать все от него зависящее, чтобы избавить парня от навязчивой идеи.
-Он отправляется вместе с ним в путешествие по городу, в ходе которого и сам постепенно начинает погружаться (   Читать дальше...   )Производство: США, Regency Enterprises, New Regency Pictures, Epsilon Motion PicturesЖанр: Триллер, Драма, ДетективРежиссер: Марк ФорстерАктеры: Эван МакГрегор, Наоми Уоттс, Райан Гослинг, Элизабет Ризер, Боб Хоскинс, Джанин Гарофало, Б.Д. Вонг, Джон Торми, Хосе Рамон Росарио, Бекки Энн БэйкерПеревод: Многоголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22A2A6A66AFA6FBFAE3639B3EF5CD86FA04F192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327866   (472868) от 17.08.2019
 
 Пекло / Sunshine (2007) [1080p] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472868.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472864.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472806.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472786.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472640.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472624.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472617.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472610.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472606.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472501.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472393.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472357.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472355.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472352.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472345.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472340.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472241.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472224.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471939.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471825.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471821.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471815.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471813.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471812.jpg" />
 </div>
 
 
@@ -673,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F0A65A5EE21BDF8038778C6862DE3C9A47C45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547860   (471729) от 16.09.2012
+
+Счастливый случай / It Could Happen to You (1994) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая большая неудача в жизни полицейского Чарли Лэнга — это его жена, которая с утра до вечера может говорить и думать только о деньгах. У него самого их не хватает даже на чаевые очаровательной официантке. В кармане — только лотерейный билет, купленный по совету мудрой супруги.
+Не задумываясь, Чарли обещает девушке половину своего выигрыша. И вот четыре миллиона (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Эндрю БергманАктеры: Николас Кейдж, Бриджит Фонда, Рози Перес, Уенделл Пирс, Айзек Хейз, Виктор Рохас, Сеймур Кэссел, Стенли Туччи, Дж. Э. Фримен, Ред БаттонсПеревод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 01:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901DB8D843F9E77801AEC9F189B5B2EF36E135BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245317   (471697) от 06.09.2018
+
+Заложник / Hostage (2005) BDRip [H.264/720p] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеф Тэлли, бывший переговорщик секретных служб Лос-Анджелеса, переезжает работать в провинциальный городок, оставив жену и дочь в Лос Анджелесе. Когда в его округе происходит ограбление, три преступника, не сумев укрыться от погони, берут в заложники ничего не подозревающую семью. Но у отца семейства есть тайна, которая могла бы поставить под угрозу его семью, а (   Читать дальше...   )Производство: США, Германия, Cheyenne Enterprises, Equity Pictures Medienfonds GmbH & Co. KG II, Hostage GmbH, Miramax Films, Stratus Film Co.Жанр: Боевик, Триллер, ДрамаРежиссер: Флоран Эмилио СириАктеры: Брюс Уиллис, Кевин Поллак, Бен Фостер, Джонатан Такер, Маршалл Оллман, Мишель Хорн, Джимми Беннетт, Серена Скотт-ТомасПеревод: Дублированный, профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: русские, английскиеПродолжительность: 01:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D425AAD820D401B9704D084F8CAD7765032E92CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

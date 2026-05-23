@@ -1,29 +1,3 @@
-###  Публикация: 1815475   (5182) от 30.08.2025
-
-LEGO Builder's Journey (2021) [Ru/Multi] (4.0.0) Repack FitGirl
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Builder's Journey - это лирическая головоломка, которая разворачивается в мире из элементов и кубиков LEGO. Кубик за кубиком проходите уровни, решая головоломки, которые иногда требуют следовать инструкциям, а иногда - дать волю воображению, нарушив правила. В этой истории есть взлёты и падения, сложные задачи и минуты торжества. Смело экспериментируйте, и, возможно, (   Читать дальше...   )Тип издания: RepackРазработчик: Light Brick StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E8BA6661160891564D369BDCF1714349C79E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815351   (5180) от 30.08.2025
 
 Hotline Miami (2012) [Ru/Multi] (gog-8(a)) Repack Wanterlude
@@ -32,7 +6,7 @@ Hotline Miami (2012) [Ru/Multi] (gog-8(a)) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5180.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5156.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ DAVY x JONES (2025) [Ru/Multi] (0.12.1) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5073.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5066.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5060.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Astral Ascent (2023) [Ru/Multi] (2.2.3/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5058.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Oddsparks: An Automation Adventure (2024) [Multi] (s31271/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5057.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Automobilista 2 (2020) [Multi] (1.6.7.0.2953.AVX/dlc) Repack Let'sРlay [IMSA Bu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5055.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5050.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5039.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5033.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5030.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5029.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5028.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5012.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4998.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ WolfQuest: Anniversary Edition (2019) [En] (19315088/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4984.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ PGA Tour 2K23 (2022) [Multi] (1.0) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4983.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4974.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4903.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4900.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11500) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4891.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4879.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Mechabellum (2023) [Ru/Multi] (1.7.1.0.1780/dlc) Repack Let'sРlay [Premium Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4874.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4873.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E0A28E12788B13875272AE7D8E1E6198C93EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815849   (4852) от 01.09.2025
+
+INCISION (2022) [En] (1.0) License GOG
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все в стиле олдскульного FPS. Много крови. Прокладывайте себе путь через кошмарные промышленные лабиринты, преображенные городские пейзажи и сюрреалистические инопланетные сооружения, чтобы сократить рост в этом ультрасовременном, быстро развивающемся и беспощадном шутере от первого лица в стиле ретро.Тип издания: LicenseРазработчик: SmoothBrainDevЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AB1A11AF971A61BFEE2625950E53689D653A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

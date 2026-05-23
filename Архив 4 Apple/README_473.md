@@ -6,7 +6,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277521.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Audirvana 3.5.25 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277435.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ File Cabinet Pro 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277390.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sound Studio 4.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277384.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Ulysses 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277381.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ DockShelf 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277373.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Dash 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277371.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Memory Clean 3 v1.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277341.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Lyn 1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277327.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Dash 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277294.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ A Better Finder Attributes 6 v6.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277293.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Luminar 2018 v1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277057.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pixelmator Pro 1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276964.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Mocha Pro 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276936.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Capture One Pro 11 v11.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276763.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Multitouch 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276602.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ MacPilot 10 v10.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276592.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ AnyMP4 Mac Video Converter Ultimate 8.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276496.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276422.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ WiFi Explorer Pro 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276414.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Find Any File (FAF) 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276382.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ PatterNodes 2 v2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276379.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ EazyDraw 9 v9.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276378.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Folder-Factory 5.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276377.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Disk Graph 2.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276375.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Exposure Software Blow Up 3 v3.1.3.272 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276372.jpg" />
 </div>
 
 

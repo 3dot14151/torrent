@@ -1,83 +1,3 @@
-###  Публикация: 1690616   (123855) от 08.01.2024
-
-Денис Тимофеев | S-T-I-K-S: Человек из Пекла (Книга 2. Часть 3) (2024) [MP3, Skorostnik]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пройдено многое, пережито ещё больше и Медоед движется на Запад, назад, домой, туда, откуда ушёл. Найдутся ли ответы на оставшиеся вопросы? Заполнится ли, наконец, та пустота, что так долго терзает душу?Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 14:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9830F9475D697DAE23EFF906C2DC425FD098B026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338961   (123844) от 08.01.2024
-
-Вячеслав Шишков | Прохиндей (2007) [MP3, Георгий Столяров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классический реализм.
-Присущие большому искусству объективное изображение не существующих сторон жизни, глубина художественного познания действительности и интерес к проблеме личности и общества в полной мере нашли отражение в творчестве Вячеслава Шишкова (1873–1945). Настоящее и прошлое Сибири – главная тема его творчества. Его романы, повести и рассказы (   Читать дальше...   )Жанр: Русская литература, классика, историческая повестьИздательство: АрМирПродолжительность: 08:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC49D33FE8F4706C1BBFE22645F47153B3A926B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278463   (123839) от 08.01.2024
-
-Ги де Мопассан | Наше сердце (2007) [MP3, Нелли Вильская]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века. Он написал более 300 новелл.
-Роман «Наше сердце» написан в 1890 году, в нём рассказывается о любви эмансипированной женщины из высшего света. Увлекательный сюжет с неожиданными поворотами сопровождается столь глубоким и детальным анализом человеческих чувств и внутренних побуждений. (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 06:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351C87CE62B57609DAF504A899ACC8161B48EB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 338958   (123817) от 08.01.2024
 
 Вячеслав Шишков | Алые сугробы (2008) [MP3, Лидия Леликова]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123817.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123787.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123786.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123780.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123774.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123750.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123744.jpg" />
 </div>
 
 
@@ -275,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123743.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123737.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123734.jpg" />
 </div>
 
 
@@ -359,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123716.jpg" />
 </div>
 
 
@@ -386,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123715.jpg" />
 </div>
 
 
@@ -414,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123703.jpg" />
 </div>
 
 
@@ -442,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123696.jpg" />
 </div>
 
 
@@ -470,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123682.jpg" />
 </div>
 
 
@@ -498,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123677.jpg" />
 </div>
 
 
@@ -524,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123662.jpg" />
 </div>
 
 
@@ -553,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123658.jpg" />
 </div>
 
 
@@ -579,7 +499,7 @@ Findroid | Владыка металла (Книга 2) (2023) [MP3, Алекс�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123656.jpg" />
 </div>
 
 
@@ -607,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123655.jpg" />
 </div>
 
 
@@ -633,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123640.jpg" />
 </div>
 
 
@@ -660,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123594.jpg" />
 </div>
 
 
@@ -688,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123589.jpg" />
 </div>
 
 
@@ -700,6 +620,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0879B2BBC19BA97BABDF5B2A723E250FE82900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365829   (123580) от 10.01.2024
+
+Зиновий Высоковский | Мой Высоцкий (2006) [MP3, Зиновий Высоковский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неутомимый, любознательный и простодушный Пан Зюзя из популярнейшего телевизионного «Кабачка 13 стульев», автор и исполнитель эстрадных монологов, с легкой руки которого чуть ли не в каждой семье появился свой «Люлёк» – это наиболее узнаваемые проявления Народного артиста России Зиновия Высоковского.
+Более внимательные зрители помнят и ценят его обаятельного Мишку-фотокорреспондента (   Читать дальше...   )Жанр: Жизнь замечательных людей, мемуары, поэзияПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1971651AF4F7668C7EE6B7A044F3428C4959127F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385134   (123579) от 10.01.2024
+
+Михаил Салтыков-Щедрин | Господа Головлёвы (Радиоспектакль) (2005) [MP3, Аркадий Смирнов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива Гостелерадиофонда.
+Спектакль «Господа Головлевы» по роману великого русского сатирика Салтыкова-Щедрина ярко, образно и с большим мастерством преподносит нам дух той эпохи, которую Н.Некрасов определил как: "Бывали хуже времена, но не было подлей". Отчетливо проступает образ нынешней России, хотя произведению уже более 130 лет. Главный (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C92D12D19C7E528F80DCE353311186529C33B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326164   (123576) от 10.01.2024
+
+Михаил Салтыков-Щедрин | Рассказы (2006) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Русская классика.
+Михаил Евграфович Салтыков-Щедрин (1826—1889), гениальный художник и мыслитель, блестящий публицист и литературный критик, талантливый журналист, был одним из самых ярких деятелей русского освободительного движения.  Его дар – явление редчайшее, трудно представить себе классическую русскую литературу без М.Е. Салтыкова - Щедрина.Жанр: Русская литература, классика, сатира, рассказИздательство: РавновесиеПродолжительность: 05:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12959A6D2DBBE30E8FA79C391F3CEE94D7D313D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

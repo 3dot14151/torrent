@@ -6,7 +6,7 @@ Fort Firewall 3.10.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122352.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CPU-Z 2.09.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122298.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CCleaner 6.20.10897 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122287.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ qBittorrent 4.6.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122279.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DefenderKiller 11.1.3 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122272.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Internet Download Manager 6.42 Build 3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122265.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ qBittorrent 4.6.3 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122253.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Vit Registry Fix Pro 14.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122252.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Capture One 23 Enterprise 16.3.4.1884 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122247.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Air Explorer Pro 5.4.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122241.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WSCC (Windows System Control Center) 7.0.7.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122236.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ultimaker Cura 5.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122232.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NVIDIA GeForce Desktop Game Ready 546.65 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122227.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft .Net Packages AIO 09.01.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122223.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CPU-Z 2.09.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122212.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FontLab 8.3.0.8766 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122202.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Telegram Desktop 4.14.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122198.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Perfectly Clear WorkBench 4.6.0.2632 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122187.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ BitComet 2.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122185.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Java SE Development Kit 21.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122181.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ WhyNotWin11 2.6.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122180.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Java SE Development Kit 17.0.10 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122170.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ NonVisual Desktop Access (NVDA) 2023.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122160.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kaspersky Free 21.16.6.467 Repack by LcHNextGen (19.01.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122120.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 01.2024 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122114.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ The Bat! Professional 11.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122108.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1539378   (249395) от 25.03.2022
-
-Не будем прощаться / Hasta que nos volvamos a encontrar / Backpackers / Without Saying Goodbye (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Сальвадор Камподонико - успешный испанский бизнесмен, его семья владеет крупнейшей гостиничной сетью во всей Испании. Для строительства своего первого международного проекта они выбирают землю в Куско. Именно в этом мистическом и волшебном месте Сальвадор встречает Ариану, авантюрного туриста, который живет жизнью, полностью противоположной его собственной, свободной (   Читать дальше...   )Производство: Испания, Перу, Netflix Studios, Tondero FilmsЖанр: Мелодрама, комедияРежиссер: Бруно АсенцоАктеры: Макси Иглесиас, Стефани Кайо, Джели Реатеги, Висенте Вергара, Рената, Муки Сабогал, Анаи Падилья, Амиел Кайо, Майелья Льокля, Родриго ПаласиосПеревод: Многоголосый профессиональный (Синема УС)Субтитры: Русские, английские, испанские, французские, украинские, немецкие, португальскиеПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD69A5E5A2C7E1F77DBB5D00198DCE367564377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620197   (249389) от 20.03.2023
-
-Мстительная красотка / Xue fu rong / The Vengeful Beauty (1978) BDRemux [H.264/1080p] [REMASTERED] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Император династии Цин Юн Чжэн создавал видимость гуманного правителя. Но фактически он правил страной железной рукой с помощью группы убийц летающие гильотины. Многие произведения литературы сжигались. Те, кто критиковали императора приговаривались к смертной казни. Однажды чиновник Хань поймал одного из убийц и выбил из него признание, что во всех убийствах чиновников (   Читать дальше...   )Производство: Гонконг, Shaw BrothersЖанр: боевик, драма, приключенияРежиссер: Хо МэнхуаАктеры: Чэнь Пин, Юэ Хуа, Ло Лье, Норман Чу, Сьюзан Шоу, Хунг Вэй, Джонни Ван, Линь Хуэйхуан, Нэн Чианг, Чинг Хо ВонгПеревод: Авторский (AVO, Виктор Береговых)Язык озвучки: русский, китайскийСубтитры: Английские (PGS)Продолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1FE4F74C00D3916A6A04A468073CA61E5B9927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539520   (249367) от 26.03.2022
 
 Ремонт малых двигателей / Small Engine Repair (2021) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249367.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249359.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249356.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249352.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249344.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249341.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249323.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249320.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249318.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249303.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249296.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249290.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249249.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249247.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249234.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249221.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249183.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249051.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248985.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248953.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248947.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248894.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248888.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248832.jpg" />
 </div>
 
 
@@ -670,6 +618,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:130A835ABC52969617EA59E410403786ACD516E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493095   (248679) от 07.05.2012
+
+Перси Джексон и похититель молний / Percy Jackson & the Olympians: The Lightning Thief (2010) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юноша по имени Перси Джексон живет в обычном реальном мире. Он также как и все дети ходит в школу, посещает музеи… греческой мифологии. Но он даже не подозревает, что те боги и существа, о которых рассказывает гид-в-инвалидном-кресле на самом деле не выдумка, а полноценная реальность и он (Перси Джексон) не кто иной как сын самого Посейдона, бога морей и океанов и, как следствие, он полубог.
+Как и следует из названия картины «Перси Джексон и похититель молний» некто похитил те самые молнии. Естественно Зевс не может это просто так оставить, ведь молнии есть не что иное как самое могущественное орудия, принадлежащее Зевсу. И вот тут-то появляется невиновный Перси. Зевс обвиняет Посейдона в том, что это именно его сын (Посейдона, коим является Перси) украл молнии. Зевс дает две недели на то, чтобы Перси их вернул… любой ценой. Отсюда все и начинается...Жанр: Фэнтези, Приключения, СемейныйРежиссер: Крис КоламбусАктеры: Логан Лерман, Брэндон Т. Джексон, Александра Даддарио, Джэйк Абель, Шон Бин, Пирс Броснан, Стив Кугэн, Розарио Доусон, Мелина Канакаредес, Кэтрин Кинер и др.Перевод: 1 - Профессиональный (полное дублирование)
+2 - Профессиональный (полное дублирование)Продолжительность: 01:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAA9DF31A47BA706B6FCB9885E53285A50A8F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492812   (248661) от 07.05.2012
+
+Чрево / Womb (2010) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. Семилетние Ребекка и Томас живут в небольшом прибрежном городке и дружат с самого детства. После окончания школы семнадцатилетняя Ребекка возвращается в родной городок и у нее завязывается бурный роман с подросшим Томасом.
+Спустя несколько месяцев Томас погибает в нелепой автокатастрофе. Отчаявшаяся Ребекка не находит себе места до тех пор, пока ей не приходит в голову безумная идея. В недалеком будущем вполне обыденным явлением стало клонирование людей, пусть общество и не до конца принимает это научное изобретение. Ребекка решает дать новую жизнь своему потерянному возлюбленному…
+В доме на берегу моря повзрослевшая Ребекка растит обаятельного сына Томаса, который уверен, что его отец погиб в автокатастрофе. Ребекка никогда не говорит вслух о клонировании. Пока не появляется кое-кто из прошлой жизни и тайное не становится явным...Жанр: ДрамаРежиссер: Бенедек ФлигауфАктеры: Эва Грин, Мэтт Смит, Лесли Мэнвиль, Питер Уайт, Иштван Ленарт, Наталья Тена, Аманда ЛоуренсПеревод: Многоголосый закадровыйПродолжительность: 01:51:53
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

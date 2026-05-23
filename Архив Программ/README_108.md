@@ -6,7 +6,7 @@ ByClick Downloader Premium 2.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018911.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 Manager 3.4.7.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018904.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 90.0.4430.93 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018902.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BELOFF 2021.04 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018843.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ArchiCAD 24 Build 5000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018839.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Opera 76.0.4017.94 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018797.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Glary Utilities Pro 5.165.0.191 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018794.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mirillis Action! 4.17.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018790.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ SyncBackFree 9.5.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018787.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Glary Utilities Pro 5.165.0.191 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018773.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Telegram Desktop 2.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018771.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Opera 76.0.4017.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018761.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ PotPlayer 1.7.21482 [210428] [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018752.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Product Key Explorer 4.2.8.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018748.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Transcend SSD Scope 4.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018744.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Zentimo xStorage Manager 2.4.2.1284 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018737.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ USB Safely Remove 6.4.2.1297 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018726.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v7 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018700.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Opera GX 75.0.3969.255 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018651.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ PrivaZer 4.0.22 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018638.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ BurnAware Free 14.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018637.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ PrivaZer 4.0.22 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018616.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ OCCT 8.1.2 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018608.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Opera GX 75.0.3969.259 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018605.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ant Download Manager Pro 2.2.3 Build 77885 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018603.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Wise Data Recovery 5.1.9.337 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018601.jpg" />
 </div>
 
 

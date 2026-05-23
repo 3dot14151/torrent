@@ -1,82 +1,3 @@
-###  Публикация: 1597150   (167660) от 13.12.2022
-
-Наталья Александрова | Поющие в коровнике (2022) [MP3, Анастасия Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-На что готова пойти влюбленная женщина, лишь бы объект ее воздыханий не достался сопернице? Дуся Синицына поспорила, что проведет ночь в морге под видом покойника и не сбежит оттуда до утра. Не такая уж и высокая цена за то, чтобы услышать долгожданное предложение руки и сердца. Сказано – сделано. Однако когда в покойницкую ворвались бандиты и перед Дусей замаячила (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 10:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB34EA055E1BD5A25466218C6B91B9BF2DD67A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597141   (167658) от 13.12.2022
-
-Софи Саренбрант | Стыд (2022) [MP3, Элнара Салимова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Девушка лежит на рельсах в Бромме и ждет приближающегося трамвая. На другом конце Швеции мужчина оказывается в глубокой могиле, вырытой в лесу. Никто не догадывается о приближающейся катастрофе. Спасет ли кто-то жизни этих людей? Они незнакомы, но оба хранят одну тайну, жизненно важный секрет. Следователь Эмма Щельд, борющаяся со своими собственными демонами, должна (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 10:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436ACFC3E134C7FE7467320B4066E6F4B30F7A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326681   (167654) от 29.10.2023
-
-Марина Цветаева | Вольный проезд (2004) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: XX век. Русская проза. Проза Серебряного Века.
-Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик. «Вольный проезд» – автобиографическая проза, превратившаяся в летопись событий 1917–1923 гг. Политики в книге нет: есть страстная правда, правда холода, голода, гнева, хроника кошмара, записанная будничным, подчас чуть ли не веселым пером.Жанр: Русская литература, классика, проза, очеркИздательство: Студия «АРДИС»Продолжительность: 11:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27665B9583C849D65E9FC600FBA7CEBD292BE6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344991   (167652) от 13.12.2019
 
 Питер Уоттс | Ложная слепота. Боги насекомых. Полковник (2019) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167652.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167650.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167649.jpg" />
 </div>
 
 
@@ -168,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167647.jpg" />
 </div>
 
 
@@ -194,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167644.jpg" />
 </div>
 
 
@@ -221,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167639.jpg" />
 </div>
 
 
@@ -247,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167635.jpg" />
 </div>
 
 
@@ -273,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167617.jpg" />
 </div>
 
 
@@ -299,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167615.jpg" />
 </div>
 
 
@@ -325,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167607.jpg" />
 </div>
 
 
@@ -351,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167603.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167601.jpg" />
 </div>
 
 
@@ -405,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167600.jpg" />
 </div>
 
 
@@ -434,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167597.jpg" />
 </div>
 
 
@@ -461,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167595.jpg" />
 </div>
 
 
@@ -487,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167589.jpg" />
 </div>
 
 
@@ -514,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167574.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167571.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167568.jpg" />
 </div>
 
 
@@ -592,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167550.jpg" />
 </div>
 
 
@@ -618,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167548.jpg" />
 </div>
 
 
@@ -645,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167538.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167503.jpg" />
 </div>
 
 
@@ -682,6 +603,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61467D4C4AB120D1AF1DCBC68D7A5E5122593C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345419   (167494) от 14.12.2019
+
+Александр Штейн | Флаг адмирала (1950) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая пьеса "Флаг адмирала" Александра Петровича Штейна посвящена Ф.Ф. Ушакову (1745-1817) - флотоводцу, адмиралу, одному из создателей российского Черноморского флота.Жанр: Драма, историяВ ролях: Николай Корн, Владислав Стржельчик, Павел Панков, Сергей Карнович-Валуа, Василий Софронов и др. актёрыПродолжительность: 01:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365776506390931C760909A3C49CDF5015FCAAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515962   (167484) от 09.12.2021
+
+Валерий Большаков | Однополчане (Книга 2). Русские своих не бросают (2021) [MP3, Олег Семилетов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1942 года. Немцы разбиты в Демянском котле, снята блокада Ленинграда, наступление немцев под Харьковом обернулось не прорывом Вермахта к Волге, а разгромом группы армий «Юг».
+
+В бой идут краснозвездные реактивные истребители, зенитные ракеты сбивают «Юнкерсы», управляемые бомбы крушат немецкие бетонные ДОТы.
+(   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CF9C7978D163A5401712388E25446BD4E80A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345428   (167477) от 14.12.2019
+
+Евгений Носов | Усвятские шлемоносцы (1980) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль ЦТСА
+Односельчане посёлка Усвяты мечтали о близких счастливых днях: кто надеялся, что завтра повесят радио и хлопотал о столбе возле своего дома; кто посматривал на землю и думал о завтрашнем урожае; где-то ждали рождения третьего ребенка.
+ Но вместо этого пришла война и мужчины ушли защищать свою землю...Жанр: Радиоспектакль. Военная драмаВ ролях: Александр Вилькин, Пётр Вишняков, Константин Захаров, Алина Покровская, Гена Тишков, Петя Чубаров, Виктор Штернберг, Алексей Инжеватов, Леонид Персиянинов, Михаил Еремеев, Андрей Майоров, Алексей Миронов, Алла Котельникова, Владимир Бурлаков, Галина Морачева, Екатерина Кудрявцева, Валерий Баринов, Валентина Савельева, Виталий Ованесов, Людмила Богомолова, Ольга Дзисько, (   Читать дальше...   )Продолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E468BA19023DDC61A656917E6D0C81EED76142
 ```
 
 https://mybot314.ru/tekegram_catalog/

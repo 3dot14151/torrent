@@ -6,7 +6,7 @@ Wise Care 365 Pro 4.19.405 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 4.19.405 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722159.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 3.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722151.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ USDownloader 1.3.5.9 Portable (04.06.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722145.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Cakewalk SONAR Platinum 23.4.0 Build 38 (2017.04) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722138.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Photoshop 2021 22.5.6.749 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722104.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722098.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Photoshop 2022 23.2.0.277 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722091.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MInstAll v.31.12.2021 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722085.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SlimBrowser 8.00 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722042.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Google Chrome 51.0.2704.84 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721918.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ WifiInfoView 2.05 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721834.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ XYplorer 16.90 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721824.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CoolUtils PDF Combine 6.1.0.121 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721732.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Nitro4D NitroBlast v2.0 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721718.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CSI Etabs 2015 Ultimate v15.2.0 build 1295 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721709.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Mozilla Firefox 47.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721705.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ AnyMP4 DVD Copy 3.1.28 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721632.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Mozilla Firefox 38.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721622.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ O&O DiskImage Professional 12.1 Build 149 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721532.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Wise Disk Cleaner 9.7.3.690 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721528.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721497.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VLC media player 2.2.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721493.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.41 (6/2/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721492.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ CDBurnerXP 4.5.5.5571 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721447.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ pdfFactory Pro 6.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721402.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1637482   (20351) от 25.04.2025
-
-Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Умиротворяющий симулятор фермы с элементами песочницы, где вы будете управлять своим хозяйством и незабываемо проведете лето наедине с природой. Создайте собственного персонажа и отправляйтесь в увлекательное путешествие в долину Евердрим, где обитает настоящая магия. Днем занимайтесь хозяйством, а с наступлением ночи вам предстоит раскрыть темную сторону очаровательного (   Читать дальше...   )Тип издания: LicenseРазработчик: MooneatersЖанр: Приключение, Строительство, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299336   (20342) от 25.04.2025
 
 Imperator: Rome (2019) [Ru/Multi] (2.0.4.13/dlc) License GOG [Deluxe Edition] (обновляемая)
@@ -32,7 +6,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.4.13/dlc) License GOG [Deluxe Edition] (�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20342.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BIOMORPH (2024) [Ru/Multi] (2.0.27583) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20333.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20330.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20326.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20324.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.5/dlc) Repack Let'sРlay [Centurion Bundl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20322.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack seleZen [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20306.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20304.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20298.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20293.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20256.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20255.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Menace from the Deep (2024) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20252.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20251.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack FitGirl [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20250.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Mega City Police / Mega City Force (2023) [Ru/Multi] (1.092) License GOG [Digita
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20245.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20234.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20230.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20226.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack FitGirl [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20198.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20181.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20178.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20116.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20105.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20104.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3AB9DB258251D0D3B23BFED64B987577FA93BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793953   (20091) от 27.04.2025
+
+Avorion (2020) [Ru/Multi] (2.5.7/dlc) Repack Pioneer
+
+>>Win Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avorion (Аворион) - игра-песочница, где ты будешь проводить все своё время в огромном космическом пространстве. Все вокруг полностью неизведанное и таит в себе тысячи секретов. Все приключение ты сможешь проходить вместе с другими пользователями, так как игра предоставила нам режим мультиплеера. Более того, здесь ты сможешь построить свой собственный, уникальный (   Читать дальше...   )Тип издания: RepackРазработчик: BoxelwareЖанр: Экшены, Инди, СимуляторыЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3A01863859E7E815444BBADBEB4B827B3B2CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

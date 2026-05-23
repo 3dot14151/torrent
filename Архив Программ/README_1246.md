@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_411706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IsMyLcdOK 2.74 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411683.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TheAeroClock 3.99 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411679.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NirLauncher Package 1.19.108 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411675.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ReGen - KeyCode 1.5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411673.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 (44in1) Sergei Strelec x86/x64 1903 (build 18362.356) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411594.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Windows 10 1903 16in1 (x86/x64) by Eagle123 (09.2019) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411587.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411580.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411574.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ashampoo Photo Commander 16.2.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411573.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ OBS Studio 26.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411569.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Task Manager DeLuxe 3.7.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411565.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Calibre 5.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411564.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Edge 85.0.564.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411562.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ PDF24 Creator 9.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411561.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ooVoo 3.5.3.22 Final [Multi/Rus] Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_411542.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Download Master 6.10.2.1527 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411534.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Unreal Commander 3.57 alpha 15 Build 1165 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411532.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ OneLoupe 3.99 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411522.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Zoner Photo Studio X 19.1610.2.6 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411518.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Mozilla Firefox 42.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411498.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tixati 2.76 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411446.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ WinContig 3.0.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411439.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Blender E-Cycles + E-Cycles RTX 2.83.4 LTS Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411436.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ iDeer Blu-ray Player 1.10.4.2001 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411377.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ NVIDIA Inspector 1.9.7.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411373.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1027242   (697905) от 18.06.2016
-
-Spirit of Revenge 3: Gem Fury / Месть духа 3: Самоцвет ярости (2015) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ваша сестра нуждается в помощи. Пропала ее дочь Лиза и еще несколько детей, отдыхавшие в летнем лагере. Вы, как парапсихолог и сотрудник полиции привыкли к преступным деяниям разнообразных призраков и потусторонних сил. Но готовы ли вы к встрече с духом мести, который бесчинствует в городе?Тип издания: UnofficialРазработчик: Vendel GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F796FDDA8AAE6D1B8F8924869F5455FE450D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027366   (697700) от 18.06.2016
 
 Deathtrap (2015) [Ru/Multi] (1.0.6) License DEFA
@@ -32,7 +6,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License DEFA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697700.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697682.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ War Truck Simulator (2016) [Ru/Multi] (1.20) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697567.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697559.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697466.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ Haunted Legends 6: The Dark Wishes (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697410.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ Labyrinths of the World 9: Lost Island / Лабиринты Мира 9: Зате
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697269.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Automobilista 2 (2020) [En] (1.0.2.1/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697209.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ Dark Dimensions 5: Homecoming / Темные измерения 5: Возвра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696988.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ Mystery Trackers 11: Train to Hellswich / Охотники за тайнами 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696710.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ Nevertales 7: Creators Spark / Несказки 7: Искра Создателя
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696618.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Dragon Kingdom War (2017) [En] (1.0) License PROPHET
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696593.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Saga Of The Nine Worlds 2: The Four Stags / Сага о Девяти Мирах 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696499.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 (2013) [Ru/En] (1.0 build
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695504.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695487.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695434.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (2011) [Ru/Mult
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695337.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694894.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ Deadly Tropics (2018) [En] (1.00) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694813.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694767.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ MX vs ATV Supercross Encore (2015) [Multi] (1.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694764.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694619.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Cadenza 5: The Eternal Dance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694184.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Noir Chronicles: City of Crime (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694183.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Demon Hunter 4: Riddles of Light (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694180.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ Demon Hunter 4: Riddles of Light (2017) [En] (1.0) Unofficial [Collector's Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D2296BCB9001283656C627AF466E00B649AEA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027970   (693896) от 20.06.2016
+
+Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы соскучились по ураганным сражениям, масштабным боевым действиям, то компания Teyon предлагает вашему вниманию уникальный продукт. Вас ожидает огромное количество миссий, каждая из которых обладает своим неповторимым шармом и сюжетом. Вашему главному герою предстоит стоять насмерть и защищать мирных жителей, уничтожать врагов, которые прорываются к вашим позициям. (   Читать дальше...   )Тип издания: RepackРазработчик: TeyonЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D5D11FE7E8816408612DA92A81EB61106FE38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

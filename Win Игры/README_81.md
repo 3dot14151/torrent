@@ -1,29 +1,3 @@
-###  Публикация: 624579   (950348) от 01.03.2013
-
-Costume Quest + 1 DLC [Ru] (Repack/1.0.0.11) 2013 | Fenixx
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Costume Quest — это приключение на тему Хеллоуина от компании Tim Schafer's Double Fine Productions. В этой чарующей ролевой игре, вы сможете выбрать своего героя и попробовать повыпрашивать сладости на трех чудесных локациях, которые полны забавным юмором и интересными историями. Пройдите все квесты, созовите друзей и соберите все костюмы на протяжении вашего пути, которые позволят вам стать понастоящему могущественными войнами против зла в республике Repugia. Эта героическая воскресная сказка поразит воображение детей и тех, кто еще в душе ребенок. (   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46A239E0523524C7C57DB2996050EA84436E6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089836   (950134) от 04.01.2017
 
 Chariot (2014) [Ru/Multi] (1.0) License HI2U
@@ -32,7 +6,7 @@ Chariot (2014) [Ru/Multi] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950134.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Wheely (2016) [Ru/Multi] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950039.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Worms Ultimate Mayhem / Worms: Убойные разборки (2011) [Ru/Multi]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950034.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Kingdom: New Lands (2016) [Ru/Multi] (1.2.1) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950033.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Camper Jumper Simulator (2017) [En/Pl] (1.0) License HI2U
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949932.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Ace Combat: Assault Horizon (2013) [Ru/Multi] (1.0.143.72) RePack =nemos= [Enhan
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949256.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lost Brothers (2020) [Ru/En] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949113.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ La-Mulana 2 (2018) [Multi] (1.7.7.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949111.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949016.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Runner2: Future Legend of Rhythm Alien [En] (L) 2013 | FANiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948690.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Wings of Prey / Крылатые хищники (2009) [Ru/Multi] (1.0.5.1/dlc) 
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948407.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Gods Will Be Watching (2014) [Ru/Multi] (1.0.0.11) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947802.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947674.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947555.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947020.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Death Track: Resurrection [En/Multi6] (L) 2008 | PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946974.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Risen [Ru/En/Multi7] (L) 2009 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946778.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Doctor Who: The Eternity Clock (2012) [En/Multi] SteamRip Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946518.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Tropico 5 (2014) [Ru/En] (1.10/dlc) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946485.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Royal Trouble 2: Honeymoon Havoc / Королевские неприятност
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946456.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Nuclear Throne (2015) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946442.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946434.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Conglomerate 451 (2020) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946293.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ World of Subways Vol. 1: New York Underground "The Path" / Метро Нью-Й�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945960.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (1.0/upd5) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945479.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (1.0/upd5) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4672CB86C532B88E898664F008F86A3AAD5881D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363096   (944776) от 26.02.2020
+
+Broken Lines (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Lines — это тактическая ролевая игра с разветвленным сюжетом в сеттинге альтернативной истории Второй мировой войны. Играйте за группу из восьми солдат, потерпевших крушение за линией фронта. Помогите отряду выбраться и преодолеть ужасы войны.Тип издания: RepackРазработчик: PortaPlayЖанр: Strategy, TBS, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C025FD85E1AEA29CC3174DFCA25585F657969FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

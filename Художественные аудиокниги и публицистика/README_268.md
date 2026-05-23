@@ -1,81 +1,3 @@
-###  Публикация: 1502008   (831662) от 12.10.2021
-
-Андрей Земляной | Один на миллион (Книга 3). Игра без правил (2021) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Верхушка Демсоюза, заручившись поддержкой Китая и добившись нейтралитета со стороны Индии, в спешном порядке готовит мероприятия по фактическому уничтожению Российской Империи. Ведь после сокрушительного удара по всем целям сразу, Империя просто не сможет устоять и тогда Демсоюз вернет себе заветную функцию — вновь стать жандармом человеческой цивилизации. Но пусть (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастикаПродолжительность: 10:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192C78744838523F76F96FBB8A14B6B8C9630E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380711   (831576) от 04.05.2020
-
-Тананарив  Дью | Коллективный иммунитет (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Китайский трехдневный грипп в считанные месяцы уничтожил практически все человечество. Немногие оставшиеся в живых разобщены. Наима, отчаявшаяся от одиночества, замечает на горизонте мужчину. Она стремится догнать его, но он не спешит идти на контакт. Почему? Ведь вместе выживать легче. Тем более, если у тебя естественный иммунитет...Жанр: ФантастикаПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E556EE796341B8A88DE985C5BF66C2379B270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311985   (831531) от 21.03.2011
-
-Михаил Булгаков | Юмористические рассказы (2011)  [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Юмористические рассказы и сатирические фельетоны Михаила Булгакова – это остроумные зарисовки столичной жизни в разгар нэпа, блистательно-глумливое изображение «нового советского быта» и «разрухи в головах», живые и веселые житейские истории.Жанр: Сатира, юмор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED7B50561D368577942F08E91F0C4A223003822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380688   (831452) от 04.05.2020
 
 Надежда Кузьмина | Магиня для эмиссара (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831452.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831450.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831446.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831419.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831375.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831365.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831362.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831235.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831227.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831144.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831126.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831124.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831109.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831105.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831099.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831066.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830957.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830914.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830822.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830805.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830700.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830666.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830537.jpg" />
 </div>
 
 
@@ -675,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A3C82E8E9AE113C12954F098284451C0DAEAF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195673   (830459) от 25.04.2010
+
+Джонатан Свифт | Путешествия Гулливера (2007) [MP3, Валерий Кухарешин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830459.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Школьная библиотека» знакомит своих слушателей с творчеством английского писателя-сатирика, поэта, публициста и политического деятеля Джонатана Свифта. Его бессмертная книга «Путешествия Гулливера» – не только острая сатира на европейское общество, но и роман-путешествие, и фантастический роман, и философская притча, в которой Свифт делится своими неутешительными (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: АСТ, АудиокнигаПродолжительность: 12:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA793C9612B1B75E91D0A930199639492E21DC03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195508   (830260) от 25.04.2010
+
+Владимир Васильев | Техник Большого Киева (Охота на дикие грузовики) (2010) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершенно невероятная смесь фэнтези и фантастики, иронии – и серьезности. Мир, где маги работают техниками, эльфы обитают в «спальных районах», гномы издавна освоили профессию шахтеров, а вервольфы – «крестные отцы» местной мафии.
+Мир, в котором ведьмаки сражаются не с чудовищами, а – со взбесившейся техникой…
+Мир Большого Киева…Жанр: Фантастика
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502209   (830205) от 13.10.2021
+
+Марина Серова | Секретный агент Багира. Цель оправдывает средства (2021) [MP3, Ирина Данилова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Багира в шоке – ничего себе секретный агент! Да таких агентов, которых по телевизору показывают во время выполнения задания, на пушечный выстрел к разведработе нельзя подпускать! Как же она камеры не заметила?! Теперь вся операция поставлена под угрозу из-за кадров, где она красуется в компании наркоторговца Асхана. И как раз сейчас, когда она уже вплотную подобралась (   Читать дальше...   )Жанр: ДетективПродолжительность: 05:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D51079E7976AAC6421C436471358456D62E99A
 ```
 
 https://mybot314.ru/tekegram_catalog/

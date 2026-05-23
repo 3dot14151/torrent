@@ -6,7 +6,7 @@ AdminPE 3.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666306.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EssentialPIM Pro Network 4.2.0.0 [Multilanguage/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_666293.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hotspot Shield Elite 4.15.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666252.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition (v.27.05.17) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666211.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Google Earth Pro 7.1.5.1557 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666169.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Freemake Video Downloader 2.1.5.2 [Multilanguage/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_666118.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666061.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Krita 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666005.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Movavi Screen Capture Studio 9.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665942.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Opera 53.0.2907.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665935.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ EssentialPIM Pro Business Edition 7.65 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665888.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Movavi Video Suite 17.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665887.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Java SE Runtime Environment 10.0.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665881.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VirtualBox 5.2.12 Build 122591 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665827.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6798.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665826.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AIMP 4.51 Build 2077 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665818.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665816.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BitDefender Total Security 2012 Beta Build 15.0.21.599 Beta [английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665783.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_665781.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6798.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665763.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ BELOFF 2018.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665758.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Borland JBuilder X Enterprise 10.0 for Windows 2000/XP 10.0.176.0 [Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665706.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ USB Safely Remove 6.0.6.1258 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665496.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft Edge 99.0.1150.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665438.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Calibre 5.39.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665437.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Chromium 99.0.4844.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665385.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Toby Hitchcock - Changes (2021) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797547.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Monarch Trail - Wither Down (2021) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797512.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Smokie - Gold (2020) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797382.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Invertigo - Veritas (2012) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796917.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Atomic Bitchwax - Force Field (2017) [FLAC|Lossless|tracks] <Hard Rock, Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796910.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Memoria Avenue - Memoria Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796870.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Procol Harum - Conquistador (1991) [FLAC|Lossless|image + .cue]<Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796811.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Glass Hammer - Dreaming City (2020) [FLAC|Lossless|tracks + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796668.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Metal For The Masses 7th Deadly (2008) [FLAC|Lossless|image + .cue] <Hard R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796433.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Circa Survive - The Amulet (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796376.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jim Peterik And World Stage - Tigress: Women Who Rock The World (2021) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796280.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Animals - The Best Of (2000) compilation [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796121.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Black Noodle Project - Divided We Fall  (2017) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795698.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Billy Squier - Absolute Hits (2005) [FLAC|Lossless|image + .cue] <Rock, Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795577.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Groundbreaker - Soul To Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_795009.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ T. Rex - Bolan Boogie (1988) [FLAC|Lossless|image + .cue]<Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794959.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Placebo - Covers (2003) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794907.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jethro Tull - Benefit (1970) 4xCD, The 50th Anniversary Enhanced Edition, Compil
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794888.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Jimi Hendrix Experience - Radio One (1989) [FLAC|Lossless|tracks + .cue]<Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794821.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Essential Collection - Rock and Roll volume 1 (1995) 2CD [APE|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794720.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Zucchero - Black Cat (2016) [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794638.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Capital Gold British Legends (2003) Box Set, 2CD [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794306.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Robert Reed - Sanctuary II 2 CD+DVD (2016) [FLAC|Lossless|tracks + .cue]<Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794113.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Brain Echoes - Blackbird (On A White Oak Tree) (2021) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794083.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Nancy Wilson - You And Me (2021) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794076.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jack Johnson - All the Light Above It Too (2017) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794019.jpg" />
 </div>
 
 

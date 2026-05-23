@@ -6,7 +6,7 @@ HomeBank 5.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130837.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ PGWare SuperRam 6.1.1.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130826.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ IrfanView 4.65 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130803.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ASAP Utilities for Excel 8.3 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130768.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.77 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130758.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nitro Pro 14.18.1.41 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130743.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130706.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ RegSeeker 2.1 Build 4412 Beta Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130698.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.3 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130652.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ HDDlife Pro 4.0.192 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130630.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Internet Download Manager 6.11 Build 7 Final  [Мульти, есть русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130552.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ PotPlayer 220106 (1.7.21595) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130537.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VOX - JamVOX v.3.00 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130529.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Spyware Terminator 2012 3.0.0.61 Portable x32 x64 by Noby  [Многоязычн
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130516.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Multi Commander Full Edition 11.6 Build  2844 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130513.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ X-Mouse Button Control 2.19.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130503.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Balabolka 2.15.0.810 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130473.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Audiority - Echoes T7E MkII 2.1.4 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130379.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Audiority - Deleight 1.3.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130377.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Adobe Audition CS6 5.0 build 708 Portable by Punsh (paf) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130369.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Opera 82.0.4227.58 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130366.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Windows 7 x86 Ultimate UralSOFT v.5.1.12 [2012/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130359.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130354.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ HitmanPro 3.8.28 Build 324 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130254.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Hard Disk Sentinel PRO 5.70.10 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130219.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VirtualBox 6.1.32 Build 149290 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130208.jpg" />
 </div>
 
 

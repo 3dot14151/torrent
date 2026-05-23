@@ -6,7 +6,7 @@ MemTest86 10.2 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159528.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 11 Manager 1.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159508.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blue Iris 5.3.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159507.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PotPlayer 231110 (1.7.22037) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159505.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ OpenVPN 2.6.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159497.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Total Commander 11.02 Extended 23.11 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159493.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ AOMEI Partition Assistant Technician Edition 10.2.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159472.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Process Lasso Pro 12.4.2.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159456.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MCS Drivers Disk 23.9.20.2100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159451.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159446.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Acrobat Reader 2023.006.20380.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159445.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PreviewMarkdown 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159444.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Office 2013-2024 C2R Install + Lite 7.7.6 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159439.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ GroupsPro 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159434.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Stardock Start 2.0.0.6 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159432.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Rogue Amoeba Farrago 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159423.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Total Commander 11.02 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159417.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Total Commander 11.02 LitePack & PowerPack + Portable 2023.11 by SamLab [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159413.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ iCollections 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159410.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ GIFfun - Video,Photos to GIF 9.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159406.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ GrandTotal 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159404.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Adobe Acrobat Pro DC 23.6.20380 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159403.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ KMSAuto++ Portable 1.8.6 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159401.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Professional Recorder & Editor 6.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159394.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Tipard Blu-ray Player for Mac 6.2.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159374.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Battery Indicator for Mac 2.14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159372.jpg" />
 </div>
 
 

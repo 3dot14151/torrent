@@ -1,29 +1,3 @@
-###  Публикация: 1195488   (139420) от 30.12.2017
-
-RaceTime: Undercover (2017) [Ru/En] (1.0.2) License
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-RaceTime: Undercover – это увлекательная гоночная история. Вас ждут интереснейшие гонки, захватывающие погони на огромных скоростях. Сможете ли добраться до финиша? Никто не обещает, что будет легко.Тип издания: LicenseРазработчик: NoNameDevЖанр: Arcade, RacingЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C23F404F929E2CC2EE268B2506711AADE6D31B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195761   (139398) от 30.12.2017
 
 Wargame. Anthology / Wargame. Антология (2012-2014) [Ru/Multi] (17.08.17/17.09.18/17.09.20/dlc) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ Wargame. Anthology / Wargame. Антология (2012-2014) [Ru/Multi] (17.08.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139398.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Redemption Cemetery 15: The Stolen Time / Кладбище искупления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139389.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Kerbal Space Program (2015) [Ru/En] (1.8.1.2694/dlc) Repack Mr_Weegley
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138867.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138775.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138735.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138605.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ City Car Driving (2016) [Ru/En] (1.5.9.1.27346) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138484.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138479.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ The King of Fighters XIV (2017) [En/Ja] (1.25) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138446.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPH
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138374.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Panzar: Forged by Chaos (2012) [Ru/En] (46.4) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138359.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138343.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.10.f) Repack R.G. Ca
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138328.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138289.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Memoirs of Murder 3: Behind the Scenes / Воспоминание об убий�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137694.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137630.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Ed
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137612.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137588.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Teslagrad (2013) [Ru/Multi] (1.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137532.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Helldorado (2009) [Multi] (2.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137521.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Yuletide Legends 2: Frozen Hearts / Святочные истории 2: Хол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137514.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137469.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven / Темные Истории 10: Э�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137465.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137454.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137416.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Champions of Anteria – тактическая стратегия, расска
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53D586173FBEA11E63342F8F4B06A86C2AD9BE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088607   (137373) от 31.12.2016
+
+Grave Danger (2016) [En] (1.0.1) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разыскиваются Данте, Мэлис и Эллиот – они были объявлены преступниками, и теперь вам предстоит очистить их имена. Grave Danger является логическим платформером, где вы управляете тремя совершенно разными героями, каждый из которых наделен уникальными способностями. Только правильное совмещение их умений поможет найти решение всех задачек на уровнях. Данте может взбираться (   Читать дальше...   )Тип издания: RepackРазработчик: JB Gaming Inc.Жанр: Arcade (Platform)Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D957CB8A14548BA6A07B4C681476B95785113787
 ```
 
 https://mybot314.ru/tekegram_catalog/

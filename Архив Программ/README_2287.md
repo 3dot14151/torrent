@@ -6,7 +6,7 @@ Wondershare PDFelement 11.4.7.3336 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26053.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XYplorer 26.90.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26049.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Music Collection 3.8.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26028.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SketchUp Pro 2025 25.0.571 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26026.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ventoy 1.1.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26013.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Far Manager 3.0.6446 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26004.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Apowersoft Video Download Capture 6.5.6.1 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25972.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Artweaver Plus 8.0.3.2875 [De/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25956.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Beyond Compare Pro 5.0.6.30713 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25952.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VidCoder 11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25947.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ PicPick Free+Pro 7.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25945.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PrivaZer Pro 4.0.100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25940.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Imagine 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25925.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HandBrake 1.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25920.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Archicad 28.1.0 Build 4001 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25908.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25888.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ OCCT 13.1.15 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25881.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ IsMyHdOK 4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25880.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 27.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25874.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ IsMyLcdOK 5.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25865.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XnConvert 1.104.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25857.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Opera One 117.0.5408.53 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25854.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ HDCleaner 2.088 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25852.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Wise Registry Cleaner Pro 11.1.10.725 RePack (& portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25844.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Wise Disk Cleaner 11.2.0.837 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25827.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ O&O DiskImage Professional 20.2 Build 353 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25825.jpg" />
 </div>
 
 

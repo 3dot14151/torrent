@@ -6,7 +6,7 @@ Adobe Flash Player 18.0.0.107 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713240.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Universal USB Installer 1.9.5.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713217.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rohos Logon Key 3.2 DC 09.06.2016 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713210.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Unity Pro 2019 4.5f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713184.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Evaer Video Recorder for Skype 1.6.2.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713156.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713153.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713149.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713136.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Privacy Eraser Free 4.48.0 Build 2791 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713119.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ SPC Plugins - ArcSyn 3.0.0 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713116.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe Photoshop Lightroom 6.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713047.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ FastStone Capture 8.2 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713031.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WinPE8.0 (x86/Native x86) WinPE10 (x64) Sergei Strelec 2016.06.09 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713025.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Mozilla Thunderbird 78.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713001.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Google Chrome 72.0.3626.121 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712981.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ USB Safely Remove 5.3.8.1233 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712933.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4678.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712919.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adobe Premiere Pro CC 2018 12.1.0.186 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712916.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Acronis True Image 2018 Build 11530  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712914.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712913.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wise Care 365 Pro 5.2.7.522 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712878.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ DMG Audio – Plugins Bundle (2019.2.2) VST, VST3, AAX, RTAS (x86/x64) RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712876.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Google Chrome 72.0.3626.121 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712864.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ HWiNFO x32/x64 6.02-3670 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712854.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ DSP pack 1.41 (Winamp / Aimp3) RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712848.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ XMind 6 Pro 3.5.2 Build 201504270119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712811.jpg" />
 </div>
 
 

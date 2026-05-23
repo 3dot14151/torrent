@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254512.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254510.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254506.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ kontentica, Сергей Беляк | Нейросети. Старт (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254468.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254447.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254429.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Udemy, Rob Tuytel | Creating 3D Environments in Blender 3.2 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254410.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254401.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Sculpt Art, Александр Спиридонов, Сергей Носолюк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252339.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Gumroad, Fxforfun | SideFX – FFF Houdini Subject 071 (2022) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252243.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Timesavervfx, Юлия Корчагина| Моушн-графика в Davinci 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252217.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252209.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252203.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Udemy, Nikolay Naydenov | 3D Character Sculpting in Blender - Viking Edition (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252199.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Udemy, Артем Яковлев | Blender 2023 - полный базовый к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252138.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Rebelway, Urban Bradesko | Meteor in Houdini and Karma (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250193.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Udemy, Motion Guru | Complete Modeling & Animating a Drone in Blender 3.0 (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250151.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Liveclasses, Андрей Козьяков | Adobe Illustrator: Расширен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250080.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ SideFx, Attila Torok | Sexy Explosions in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250049.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Rebelway, Nick Chamberlain | 8 Essential Compositing Techniques: Free Webinar (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250043.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Rebelway, Urban Bradesko | Free Houdini Plugin: Using the Axiom Solver in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250040.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Scott Eaton | Portraiture and Facial Anatomy Week 1-6 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249988.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Scott Eaton | Anatomy for Artists Week 1-8 (2012) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249968.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ CGcircuit, Steven Knipping | Applied Houdini Particles II-V (2017) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249957.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ CGMA, Johannes Richter | VEX in Houdini with Johannes Richter (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249942.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Gumroad, Chris Legaspi | Shading Techniques in Photoshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249931.jpg" />
 </div>
 
 

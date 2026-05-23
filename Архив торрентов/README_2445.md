@@ -6,7 +6,7 @@ Insofta Cover Commander 3.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506937.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506933.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ EasyBCD 2.3.0.201 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506931.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AIMP 3.60 Build 1500 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506929.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Icecream Screen Recorder PRO 5.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506914.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506909.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AusLogics BoostSpeed 8.0.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506908.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SAM CoDeC & DeCoDeR Pack 2015 5.90 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506900.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Auslogics BoostSpeed 8.0.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506899.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Project CARS (2015) [Ru/Multi] (3.0/dlc) Repack YelloSOFT [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506892.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Opera 62.0.3331.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506869.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506839.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Homeworld Remastered Collection (2015) [Multi/Ru] [OS X Native game] [AppStore]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506834.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Maxthon Browser 5.3.8.1300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506826.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ashampoo Snap 10.1.0 RePack (&Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506823.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Display Driver Uninstaller 18.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506818.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Revo Uninstaller Pro 4.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506816.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Vocal Trance Volume 41 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506810.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - 15 Top Trance Hits 08 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506805.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ DJ Kocmoc - Euphoria Summer Dance vol.4 (2012) [MP3|320 кб/с]<Electro House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506802.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506797.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ DJ Kocmoc - Euphoria Summer Dance vol.5 (2012) [MP3|320 кб/с]<Electro House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506795.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AdwCleaner 5.005 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506785.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Adobe Illustrator CC 2019 23.0.5.625 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506764.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Auslogics BoostSpeed 11.0.1.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506762.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ NETGATE Registry Cleaner 4.0.405.0 Final [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506739.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PhoneClean Pro 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319616.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SuperDuper! 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319333.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MediaHuman YouTube Downloader 3.9.8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319330.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Paste 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319273.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ iMazing 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319212.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Winclone Pro 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319206.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ SmartAlbums 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319120.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Aurora HDR Pro 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318999.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ TG Pro (Temperature Gauge Pro) 2.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318939.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Cinemagraph Pro 1.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318861.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ iSubtitle 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318828.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Forecast Bar 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318819.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Smultron 9.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318817.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ iTrash 4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318670.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ RapidWeaver 8 v 8.4.0 (build 20812) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318669.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Disk Xray 2.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318668.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Mate Translate 6.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318666.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Alfred 4 Powerpack 4.0.5 (1118) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318665.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Athentech Perfectly Clear Complete 3.8.0.1682 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318664.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Translatium 9 v9.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318663.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.32[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318662.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Cinch 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318661.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ InstaBro | Instagram Browser 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318660.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ BetterSnapTool 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318658.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ KCNcrew Pack 10-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318510.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ TG Pro (Temperature Gauge Pro) 2.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318507.jpg" />
 </div>
 
 

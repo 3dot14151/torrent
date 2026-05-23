@@ -1,55 +1,3 @@
-###  Публикация: 1047992   (548067) от 31.08.2016
-
-Заклятие 2 / The Conjuring 2 (2016) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на случае, с которым столкнулись практикующие исследователи паранормальных явлений Эд и Лоррэйн Уоррены. На этот раз вызов будет из северного пригорода Лондона, где семья, состоящая из четырех детей и матери-одиночки, подвергается нападениям потусторонних сил. Супругам предстоит выяснить, какова природа этих явлений, полтергейст ли это, или что-то другое, (   Читать дальше...   )Производство: США, Канада / New Line Cinema, Evergreen Media, Atomic Monster, RatPac-Dune Entertainment, Safran Company, TheЖанр: Ужасы, Триллер, ДетективРежиссер: Джеймс ВанАктеры: Патрик Уилсон, Вера Фармига, Мэдисон Вульф, Фрэнсис О’Коннор, Лорен Эспозито, Бенжамин Хэй, Патрик МакОли, Саймон МакБерни, Мария Дойл Кеннеди, Саймон Делани, Франка Потенте, Боб Адриан, Робин Аткин Даунс, Бонни Ааронс, Хавьер Ботет, Стив Култер, Абхи Синха, Крис Ройдс, Стерлинг Джеринс, Энни ЯнгПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3794B69B9DEB00CF0197D08BB814196B4E88A6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693721   (548058) от 27.08.2013
-
-Соблазнитель 2 / Kokowaah 2 (2013) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Генри — в прошлом известный ловелас. Однако пришло время забыть о прежних привычках и стать прилежным семьянином. Дети, бывший муж Катарины, Тристан со своей привлекательной подружкой, молодая няня, истеричный директор студии — все они превращают жизнь Генри в череду смешных, порой неловких ситуаций. Как найти время на всех и в то же время побороть инстинкты, ведь (   Читать дальше...   )Производство: Германия - barefoot films, Béla Jarzyk Production, Warner Bros. Film Productions GermanyЖанр: Комедия, СемейныйРежиссер: Тиль Швайгер, Торстен КюнстлерАктеры: Тиль Швайгер, Эмма Швайгер, Самуэль Финци, Жасмин Герат, Маурицио Магно, Маттиас Швайгхефер, Михаэль Островский, Яна Рейнерманн, Гедеон Буркхард, Юлия ЙенчПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: HamsterStudioСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, немецкийПродолжительность: 02:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBF97A5E287EC2AA8ADEC1DBFCAFC277F056D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047873   (548039) от 31.08.2016
 
 Налетчики / Marauders  (2016) BDRip [H.264/1080p] [EN]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548039.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548026.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548022.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548004.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547988.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547987.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547984.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547979.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547955.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547951.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547949.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547946.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547945.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547943.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547900.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547839.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547755.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547741.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547682.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547681.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547677.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547583.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547573.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547510.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB678A3A5CF5849529849B76D49056A25EA5FDBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310359   (547509) от 23.06.2019
+
+Земля гангстеров / Gangster Land (2017) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547509.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Аль Капоне и его правой руки Джека Макмюррея по прозвищу Пулемёт о борьбе с ирландской мафией, возглавляемой Джорджем Мораном по прозвищу Рехнувшийся. Ужасные бандитские бои завершились знаменитой резнёй в День святого Валентина в 1929 году, в результате которой семь человек погибли от пулеметного нападения, которое, как считается, было заказано самим Капоне. (   Читать дальше...   )Производство: США / Status Media & EntertainmentЖанр: Боевик, драма, криминалРежиссер: Тимоти Вудворд мл.Актеры: Шон Фэрис, Майло Гибсон, Джейсон Патрик, Джейми-Линн Сиглер, Питер Фачинелли, Марк Ролстон, Майкл Паре, Шон Кэнан, Ал Сапиенца, Дон ХарвиПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF18A1B14A2CE9C567A6FA1BFFE2686062A6738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310323   (547508) от 23.06.2019
+
+Американские животные / American Animals (2018) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547508.jpg" />
+</div>
+
+
+###  Подробнее
+
+История четырех молодых людей, которые предпринимают одно из самых дерзких ограблений в истории США. Они планируют украсть одну из самых дорогих книг в мире — «Птицы Америки» Джона Джеймса Одюбона.Производство: Великобритания, США, Film4, New Amsterdam Film Company, RAWЖанр: Триллер, драма, криминал, биографияРежиссер: Барт ЛэйтонАктеры: Барри Кеоган, Эван Питерс, Джаред Абрахамсон, Блейк Дженнер, Spencer Reinhard, Warren Lipka, Eric Borsuk, Chas Allen, Betty Jean Gooch, Эдди КингПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33912279564E707355F16E8CAF3965E6A915641D
 ```
 
 https://mybot314.ru/tekegram_catalog/

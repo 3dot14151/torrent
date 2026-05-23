@@ -1,29 +1,3 @@
-###  Публикация: 1056554   (479633) от 22.08.2017
-
-Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Virginia - триллер от первого лица про маленький городок со скелетом в шкафу. В роли начинающего агента ФБР Анны Тарвер вы попытаетесь разыскать пропавшего мальчика. Вместе с опытным агентом Марией Гальперин вы отправитесь в городок Кингдом в округе Бёрджесс, Вирджиния, где бесследно пропал мальчик.Тип издания: RepackРазработчик: Variable StateЖанр: Adventure, 3D, 1st PersonЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114AE98A0672FAC698BB6E0F36393F42F08544FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031302   (479523) от 22.08.2017
 
 Samorost 3 (2016) [Ru/Multi] (1.4.465) Repack Other s [Cosmic Edition]
@@ -32,7 +6,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) Repack Other s [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479523.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ INFRA (2016) [En] (2.0.0) License HI2U [Part 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478924.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Blasphemous (2019) [Ru/Multi] (2.0.27/dlc) Repack Other s [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478517.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478068.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477842.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477689.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Vanishing of Ethan Carter Redux (2015) [Ru] (1.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477637.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477579.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Great Perhaps (2019) [Ru/Multi] (1.32.14) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476690.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475612.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ DARQ (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474792.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472371.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Room Dilogy (2014-2016) [Ru/En] (1.0.1/1.0.4) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472354.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dark Fall Трилогия [Ru/En] (Repack) 2002-2009 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471290.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Warlock: The Curse of the Shaman / Чернокнижник: Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470588.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Tormented Souls (2021) [Ru/Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469751.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467930.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Firewatch (2016) [Ru/En] (1.03) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467844.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ The Raven: Legacy of a Master Thief (Episode 3: A Murder of Ravens) (2013) [En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462156.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461841.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461527.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460756.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457733.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack O
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457046.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [En/Ge] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456765.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C45C590BA536044808D61D66828BDAA6AB433039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962320   (456638) от 06.10.2016
+
+Dreamfall Chapters (2014-2016) [Ru/Multi] (5.3.1) License GOG [Special Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters — это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах. Первый выдержан в стиле мрачного футуристического киберпанка, другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread Games и Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893A172149A07CC7EE88A6A07616A1270365A686
 ```
 
 https://mybot314.ru/tekegram_catalog/

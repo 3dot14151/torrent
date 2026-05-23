@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993360.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Netrunner (интеграция KDE в Ubuntu) 12.12.1 Dryland [i386 + amd64] (2
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993354.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993353.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Metal Gear Rising Revengeance [Xbox 360] [DEMO] [Freeboot/Jtag] [Eng] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993350.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993349.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993347.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ ImTOO DVD Ripper Ultimate 7.7.2.20130122 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993343.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Sanctum [Ru/En] (RePack/1.5.18881) 2011 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993341.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Affinity Publisher Beta 1.8.0.531 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993333.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Understand 5.1 (build 1012) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993331.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ beaTunes 5 v5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993330.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ KCNcrew Pack 01-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993328.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Artboard 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993327.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Master of Typing - Состязание 2 v8.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993325.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ JixiPix Premium Pack 1.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993324.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ DmC: Devil May Cry [Ru/En/Multi10] (Steam-Rip/1.0/DLC) 2013 | R.G. GameWorks |б
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993303.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993302.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Screensaver Factory 6.4 Enterprise Portable by Kopejkin [Rus / Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993294.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ PhotoScape X Pro 4.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993285.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Radiocamp 0.1.22.0 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993284.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VidCoder 5.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993282.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Zillya! Antivirus 1.1.3450 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993252.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ WinZip Pro 17.0 Build 10381r [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993250.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ IObit Smart Defrag Pro 6.4.5.98 (COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993232.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ SAS: Zombie Assault 3 v3.11 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993228.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ BluffTitler Ultimate 14.7.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993224.jpg" />
 </div>
 
 

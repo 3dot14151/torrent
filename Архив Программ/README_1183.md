@@ -6,7 +6,7 @@ qBittorrent 3.4.0 Beta2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443678.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Reader XI 11.0.18 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443633.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tablacus Explorer 16.10.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443626.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Internet Download Manager 6.12.21 Final + Retail [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443602.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ qBittorrent 3.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443576.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Total Uninstall 6.20.1 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443564.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Google Earth Pro 7.1.7.2606 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443554.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Foxit PhantomPDF Business 5.4.2.0918 RePack by KpoJIuK [Русский / Анг�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443516.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ACDSee Photo Studio Ultimate 2018 11.0.1196 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443502.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ EZ CD Audio Converter 7.0.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443501.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ACDSee Photo Studio Professional 2018 11.0.785 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443476.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Acrobat Pro DC 2015.020.20039 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443465.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Revo Uninstaller Pro 3.1.7 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443461.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ StartIsBack++ 1.3.4 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443460.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443442.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AMD Catalyst 12.9 Beta (с .NET 4.0)  [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443430.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Internet Download Manager 6.12.21 Final RePack by KpoJIuK  [Русский /Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443426.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wise Care 365 Pro 2.02.148 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443424.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443422.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Autodesk AutoCAD LT 2018.1.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443390.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Sanuel Family Pro 11.1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443294.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ MediaHuman YouTube Downloader 3.9.9.45 (1509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443262.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ FastStone Capture 7.3 Final RePack (& portable) by KpoJIuK [Русский/Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443157.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Viber 13.8.0.25 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443152.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Viber 13.8.0.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443151.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ CherryPlayer 3.1.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443147.jpg" />
 </div>
 
 

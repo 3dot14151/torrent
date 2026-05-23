@@ -6,7 +6,7 @@ Nioh 3 (2026) [Ru/Multi] (1.03/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055841.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055839.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nioh 3 (2026) [Ru/Multi] (1.02.02/dlc) Repack seleZen [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055834.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ God Forsaken (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055661.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maelstrom: The Battle for Earth Begins (2026) [Ru/Multi] (1.3.0) Repack FitGirl 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055655.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (1.0.1) Repack FitGirl [Collector's Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055498.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ City Tales - Medieval Era (2025) [Ru/Multi] (1.0.0.4/dlc) Repack Let'sРlay [Flu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055260.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DeadCore Redux (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055140.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054983.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054982.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054860.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ I Hate This Place [Multi] (1.0.0.15852) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054858.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cairn (2026) [Ru/Multi] (1.0.299/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054857.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054856.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054855.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Other s [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054854.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (1.0.2) Repack Let'sРlay [Collector's E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054792.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054677.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054581.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ I Hate This Place [Ru/Multi] (1.0.13_15856) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054580.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sin Spire (2026) [Ru/Multi] (1.0.1) Repack Other s [18+]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054346.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Tennis Elbow 4 (2021) [Ru/Multi] (Build 21506891) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053912.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Tennis Elbow 4 (2021) [Ru/Multi] (1.0a Build 154-2026.1.15) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053911.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (21493729/dlc) Sc
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053861.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Loot & (and) Ledger (2026) [Ru/Multi] (1.0) Reack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053718.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Legend of Heroes: Trails beyond the Horizon (2026) [Multi] (1.0.6/dlc) Licen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053690.jpg" />
 </div>
 
 

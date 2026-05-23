@@ -6,7 +6,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023383.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023353.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tenchi Souzou Design Bu | Heaven's Design Team | Небесное бюро ди�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023210.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kemono Jihen | Инцидент с монстром [2021, TV, 12] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023208.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Osomatsu-san (2020) | Mr. Osomatsu 3rd Season | Осомацу-сан [ТВ-3] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023207.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aya to Majo | Earwig and the Witch | Ая и ведьма [2020, Special, 1 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022923.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022840.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022742.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Majutsushi Orphen Hagure Tabi: Kimluck Hen | Sorcerous Stabber Orphen: Battle of
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022692.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Log Horizon 3 / Лог горизонта [ТВ-3] [2021, TV, 12] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022513.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SK∞ | SK8 the Infinity | На скейте в бесконечность [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022352.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Super Seishun Brothers | Супербратья Сэйсюн [2013, TV, 14] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022244.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Gekidol: Actidol Project | Театрайдол [2021, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022232.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Horimiya | Хоримия [2021, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022153.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022144.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022143.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022142.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Сл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022141.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Slam Dunk | Слэм-данк [1993, TV, 101 из 101] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022140.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Love Rice 2 | Love Kome: We Love Rice Nikisaku | Мы любим рис 2 [2017,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021587.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Musekinin Galaxy Tylor | Безответственная галактика Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021574.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021543.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Kaitou Saint Tail | Mysterious Thief Saint Tail | Таинственная гр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021471.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Romeo no Aoi Sora | Romeo's Blue Skies | Голубые небеса Ромео 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021235.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Cutie Honey Universe | Cutey Honey Universe | Вселенная Милашки 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021188.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020804.jpg" />
 </div>
 
 

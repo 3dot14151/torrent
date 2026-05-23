@@ -6,7 +6,7 @@ IconTOY 3.10 RePack by вовава [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913902.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TrayTeacher 1.0 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913647.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniBin 6.6.0.0 + Themes [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913456.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GPS Track Editor 1.15.141 beta [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909141.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GPS Track Editor 1.15.141 beta Portable by AlekseyPopovv [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908860.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Folder Marker Pro 4.5.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908228.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Hotkey Pro 1.2.7.57 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907096.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Image Dupe 1.2.2.0 RePack by вовава [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906463.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ HashTab 5.2.0.14 DC 20.11.2015 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905667.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ System Font Size Changer 2.1.0.10 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903628.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903608.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ File Association Fixer v2 for Windows 10 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901409.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ TechSmith SnagIt 2020.1.1 Build 5510 RePack by KpoJIuK [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898071.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ HelpSmith 6.4.17.127 Repack by Alex Zaguzin [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894498.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Stardock CursorFX Plus 2.16 DC 25.09.2015 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890323.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Xpadder 2015.01.01 RePack by Canek77 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888890.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Spartan 16.11 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888514.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Hasher Pro 3.4 Portable by AlekseyPopovv [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888322.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ SkyChart 4.2.1 Build 4073 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880135.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878822.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Font Renamer 2.1.6 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877801.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ WinDjView 2.1 + PortableApps [En/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876938.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Windows 10 Login Changer 0.0.1.5 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871139.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePac
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869363.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Linux Live USB Creator 2.9.4 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867499.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NuttyBoot by dialmak 2.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859351.jpg" />
 </div>
 
 

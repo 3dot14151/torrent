@@ -1,29 +1,3 @@
-###  Публикация: 1229302   (627939) от 05.06.2018
-
-Современные чудеса. Обратный отсчет / Modern Marvels Countdown (2012-2013) HDTVRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Торжество изобретательности, научной мысли и воображения - это все "Современные Чудеса". С присущей легкостью и остроумием выпуски передачи представляют собой увлекательные истории ученых, мечтателей и прагматиков, стоящих за созданием повседневных вещей, технологическими прорывами и настоящими рукотворными чудесами. Как получается кино? Кто изобрел телефон? (   Читать дальше...   )Телекомпания: Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательный, изобретения, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 8 x ~ 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F18BD04D6BB689A7BBE11B26F66C4E2BBD0F682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909409   (627929) от 17.06.2015
 
 Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTVRip [Серии 1-8]
@@ -32,7 +6,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627929.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627770.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627677.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ NG. Шершни из ада / Hornets from hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627462.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Discovery: Легенда о золоте крокодилов / The Legend of C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626915.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ NG: С точки зрения науки. Тайна возникновения
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626591.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626330.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626175.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626165.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ NGW: Дикая природа Ирана / Iran's Wild Side (2018) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625808.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ NG. Осушить Титаник / Drain the Titanic (2015) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625423.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625365.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ BBC: Жизнь с холодной кровью / Life in Cold Blood (2006) DVD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625294.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624679.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ NG: Суперсооружения: Мегазаводы. MV Agusta / MegaStruct
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624611.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624574.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624435.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624382.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ NGW: Гризли Аляски бросают вызов. Арктические
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624369.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ NGW: Акулотрас / Sharkatraz (2016) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624365.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ BBC: Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624338.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624335.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ DV: Невероятное вокруг нас. Биоэнергия [8 из 28]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624300.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Discovery: Дьявольский каньон / Devil's Canyon (2017) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624231.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ BBC: Третья мировая война: взгляд из командно�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624161.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ BBC: Третья мировая война: взгляд из командно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6158599647C89E3CC91217546801CC9C7A80B462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295041   (623978) от 10.04.2019
+
+NGW: Дикая природа: Остров Воскресения / Wild Life: Resurrection Island (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинорежиссер Берти Грегори пускается в путешествие по легендарному острову Южная Георгия. Этот остров знаменит тем, что на нем собралось такое множество представителей дикой природы, что их концентрация является одной из самых высоких в мире.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Берти ГрегориПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB9A0A219B808E22A386FD2BD15DCC1A633C371
 ```
 
 https://mybot314.ru/tekegram_catalog/

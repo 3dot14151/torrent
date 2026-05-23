@@ -6,7 +6,7 @@ Wise Program Uninstaller 2.2.8.128 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312056.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comodo IceDragon 62.0.2.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312054.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 56.0.3051.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312028.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MusicBee 3.1.6512 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311912.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Athentech Perfectly Clear + Essentials v3.6.1.1328 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311875.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BurnAware Professional 11.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311864.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ pdfFactory Pro 6.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311835.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Recovery DVD for HP Pavilion dv6-2019er / Windows 7 Home Basic (х64) [русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_311764.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ WinScan2PDF 5.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311686.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ HDCleaner 1.276 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311684.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Take Command 25.00.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311675.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AusLogics Disk Defrag Pro 4.9.5.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311631.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ FinePrint 9.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311619.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Windows 7 Enterprise x86/x64 для незрячих (без очистки HDD)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311548.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ YouTube Video Downloader PRO 5.8.1 (20161111) Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311538.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ TweakPower 1.076 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311507.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ eM Client Pro 7.2.36908.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311501.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Easy Duplicate Finder 5.27.0.1083 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311489.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mozilla Firefox Quantum ESR 68.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311487.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Allegorithmic Substance Painter 2017.3.1 Build 1893 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311448.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ MediaHuman YouTube Downloader 3.9.9.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311411.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ PreSonus - Studio One 4 Professional 4.1.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311410.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ uTorrent 3.5.4 Build 44846 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311406.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Mp3tag 2.80 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311357.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Microsoft SQL Server 2014 12.0.4100.1 (Service Pack 1) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311351.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Cowboy WPI pe xp StartSoft 90-2015 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311346.jpg" />
 </div>
 
 

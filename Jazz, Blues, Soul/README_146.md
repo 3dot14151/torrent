@@ -6,7 +6,7 @@ Davina and The Vagabonds - Nicollet and Tenth (2016) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776958.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Jazzland of New Orleans (2016) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776949.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cheryl Bentyne - Lost Love Songs (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776940.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Smooth Jazz Vocal Grooves (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776927.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Allan Holdsworth - One City Night (1995) [FLAC|Lossless|tracks] <Jazz, Fusion, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776923.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy Owens - The Monk Project (2011) IPO Recordings [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776912.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lou Levy Trio - A Most Musical Fella (1956, 1957) 2016, Sony Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776911.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776900.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Michael Musillami - Groove Teacher (1999) Playscape Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776873.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jill Fulton - Southern Breeze (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776861.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Michael Musillami Octet - Spirits (2004) Playscape Recordings [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776579.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Aidan - Chapter One (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776572.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Johnny Rieger Band - Come Closer (2013) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776568.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Timewarp Inc. - Ghetto Drunk (2013) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776566.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Terrie Odabi - My Blue Soul (2016) [MP3|320 кб/с] <Blues, Rhythm & Blues, Jaz
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776565.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eve Seltzer & Terminal Swing - Live at Shapeshifter Lab (2016) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776560.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Benny Goodman Quartet - Together Again! (1963) 2016, Sony Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776545.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mick Abrahams (Мик Абрахамс) - All Said And Done (1991) Elite [MP3|32
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776543.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Michael Juan Nunez - Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776533.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Robert Burton Hubele & Brad Steckel - She Won't Talk To Me (2016) [MP3|320 кб/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776529.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dan Patlansky - Introvertigo (2016) [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776526.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mick Abrahams (Мик Абрахамс) - Mick's Back (1996) Indigo Delux Record
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776516.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mick Abrahams (Мик Абрахамс) - Mick Abrahams (1971) A&M Records [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776513.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Blind Pig Presents: Night Time Blues (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776487.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Astrud Gilberto & Walter Wanderley - A Certain Smile A Certain Sadness (1966) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776476.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Donald Harrison & Ron Carter, Billy Cobham - Heroes (2004) [APE|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776179.jpg" />
 </div>
 
 

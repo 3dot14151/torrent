@@ -1,29 +1,3 @@
-###  Публикация: 1707061   (62918) от 15.03.2024
-
-Beneath the Mountain (2024) [En] (1.3) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Beneath the Mountain погружает пользователей в подземные ходы древних и суровых дварфов, где предстоит занять роль короля небольшой цивилизации. Гномы обосновались глубоко под землей, прорывая туннели и застраиваясь необходимыми производственными постройками и домами для жителей. Игроку предстоит координировать действия народа, направляя персонажей на выполнение (   Читать дальше...   )Тип издания: RepackРазработчик: Omnis Rector StudiosЖанр: Экшены, Казуальные игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA636C8F2D65151F61372A815E70CFB9B8B2FECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707041   (62898) от 15.03.2024
 
 Monuments Renovator (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ Monuments Renovator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62898.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.21) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62889.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Microcosmum 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62838.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tomb Raider (2013) [Ru] (1.1.838.0/dlc) Repack Decepticon [Game of The Year Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62837.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Feb 26 2024/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62834.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1027.0/dlc) Repack Decepticon [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62832.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tank Operations: European Campaign (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62813.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Unknown (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62799.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Cats Love Boxes (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62786.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Chambers (2024) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62785.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Silent Cause (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62764.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Living Legends 11: The Red Trace (2024) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62744.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62732.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62728.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0/dlc) Repack Decepticon [Defi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62632.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62601.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Quarry (2022) [Ru/Multi] (1.07/dlc) Repack Decepticon [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62517.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.02.941) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62494.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Death Trick: Double Blind (2024) [Multi] (1.1.13) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62484.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62480.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Trans-Siberian Legends (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62419.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62398.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Goblin Stone (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62397.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62385.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62313.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E05C1A25B4795EA5E4C29140712ADEF6079B31EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708543   (62305) от 21.03.2024
+
+God of War (2022) [Ru/Multi] (1.0.13) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62305.jpg" />
+</div>
+
+
+###  Подробнее
+
+God of War – новый взгляд на популярную серию, где бессмертный полубог принимает решение измениться. Для Кратоса это значит нарушить цикл насилия, недоверия и предательства, которое было с незапамятных времен в его семействе. Именно этот цикл привел его к самым ужасным решениям – сделке с Аресом, убийству семьи, сумасшествию и мести, что в итоге стало причиной уничтожения (   Читать дальше...   )Тип издания: LicenseРазработчик: PlayStation PC LLCЖанр: Экшены, Ролевая игра, ПриключeнияЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D7A85AC65BAA1D5BCFF15D4CEC6CD81C1632DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

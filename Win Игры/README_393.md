@@ -1,29 +1,3 @@
-###  Публикация: 1654181   (114773) от 02.03.2024
-
-Homeseek (2023) [Ru/Multi] (1.0.9) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Homeseek перенесет вас в мир, где ценности уже не те, что прежде. Это территория после апокалипсиса, где вода - это драгоценный ресурс, а каждое ваше решение может стать роковым. Вам предстоит возглавить группу выживших и помочь им найти новый дом, чтобы начать все сначала. Но будьте осторожны - засушливая пустыня не прощает ошибок, а враги поджидают на каждом шагу.Тип издания: LicenseРазработчик: TrapticsЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский, Португальский и другиеЯзык интерфейса: Русский, Английский, Японский, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E7563ACCBE06F2D9CC3BF61EDFBBDE63A21CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703944   (114749) от 02.03.2024
 
 Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
@@ -32,7 +6,7 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114749.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114734.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Hero We Need (2024) [En] (0.8.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114733.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114699.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Brew Barons (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114585.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114574.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Intra (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114572.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114567.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114541.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114454.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114445.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114426.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Classified: France '44 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114281.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Mobius Machine (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114271.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114266.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114084.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113604.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112974.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112672.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112445.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112424.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112420.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Criminal Archives 3: Murder in the Pages / Криминальные архивы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112381.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112379.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112378.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Yooka-Replaylee - это усовершенствованная версия и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAFCB7B514E6E70B4BEFA80F5E6AE75D6D7B1349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823068   (112360) от 09.10.2025
+
+Absolum (2025) [Ru/Multi] (02 r34045) Repack Let'sРlay [Soundtrack Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Absolum создана с любовью командой мечты, которая переосмысливает жанр классических сайд-скроллеров beat ‘em up. Игра сочетает боевой экшен высшего класса с современными roguelite-элементами, привнося дух легендарных фэнтезийных аркад прошлого в это захватывающее приключение в оригинальном мире Талам.Тип издания: RepackРазработчик: Dotemu, Guard Crush Games, SupamonksЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4544BAFE3CB28DA9816CE9B554B677686D12A27
 ```
 
 https://mybot314.ru/tekegram_catalog/

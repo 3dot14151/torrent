@@ -1,30 +1,3 @@
-###  Публикация: 1850409   (1054476) от 29.01.2026
-
-Рипол классик | Рисуем на коленке [17 книг] (2016-2017) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Хочешь научиться рисовать, но не знаешь, с чего начать? Эти 10 книг помогут тебе! Серия «Рисуем на коленке» предназначена для всех, кто мечтает научиться рисовать. Книги разбиты по темам — в каждом издании собраны практические советы и схемы по изображению животных, растений, фруктов и др.
-Методы рисования, которые предлагаются в книгах, подходят для начинающих и (   Читать дальше...   )Жанр: РисованиеИздательство: Рипол классикФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A325B3F6024DD56EC4DE07439E153FAD812050BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850270   (1054471) от 29.01.2026
 
 Daniel D. Mais, Kimberly W. Sanford | Quick Compendium of Clinical Pathology. 5th edition. Self Test. 3ed [2 книги] (2023-2024) [PDF] [EN]
@@ -33,7 +6,7 @@ Daniel D. Mais, Kimberly W. Sanford | Quick Compendium of Clinical Pathology. 5t
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054471.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autono
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054469.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054459.jpg" />
 </div>
 
 
@@ -113,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054356.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054354.jpg" />
 </div>
 
 
@@ -165,7 +138,7 @@ Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054292.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054291.jpg" />
 </div>
 
 
@@ -221,7 +194,7 @@ Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054289.jpg" />
 </div>
 
 
@@ -247,7 +220,7 @@ John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connec
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054280.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054242.jpg" />
 </div>
 
 
@@ -299,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054162.jpg" />
 </div>
 
 
@@ -327,7 +300,7 @@ Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Ap
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054145.jpg" />
 </div>
 
 
@@ -353,7 +326,7 @@ Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054144.jpg" />
 </div>
 
 
@@ -379,7 +352,7 @@ Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduc
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054143.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054080.jpg" />
 </div>
 
 
@@ -436,7 +409,7 @@ Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054044.jpg" />
 </div>
 
 
@@ -464,7 +437,7 @@ Aleksandr Ovsianikov, James Yoo, Vladimir Mironov | 3D Printing and Biofabricati
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054041.jpg" />
 </div>
 
 
@@ -490,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053999.jpg" />
 </div>
 
 
@@ -516,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053936.jpg" />
 </div>
 
 
@@ -542,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053833.jpg" />
 </div>
 
 
@@ -571,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053832.jpg" />
 </div>
 
 
@@ -599,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053831.jpg" />
 </div>
 
 
@@ -625,7 +598,7 @@ Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053799.jpg" />
 </div>
 
 
@@ -651,7 +624,7 @@ Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (200
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053798.jpg" />
 </div>
 
 
@@ -677,7 +650,7 @@ Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in Engl
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053797.jpg" />
 </div>
 
 
@@ -688,6 +661,32 @@ Today, Indian writing in English is a fi eld of study that cannot be overlooked.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586A088F63D1EFC186DC1DEE9312B1F9726BDABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849420   (1053796) от 23.01.2026
+
+Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
 ```
 
 https://mybot314.ru/tekegram_catalog/

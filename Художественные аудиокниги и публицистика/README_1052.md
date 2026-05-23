@@ -1,82 +1,3 @@
-###  Публикация: 1770405   (32289) от 01.01.2025
-
-Фёдор Достоевский | Бесы (2023) [MP3, Максим Суханов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Достоевский загорелся идеей «Бѣсов» после приезда Ивана Сниткина, брата его жены, в Дрезден. Вследствие волнений в Московском университете и активности студенческого движения, Сниткин и Достоевский много говорили про жизнь студентов, их нравы и настроения, что и вдохновило автора на написание романа. В одном из писем поэту Аполлону Майкову Достоевский писал: (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ВимбоПродолжительность: 36:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366339F1BAF6CC9906FF2E8C89AA5AB252E3789D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770401   (32283) от 01.01.2025
-
-Фёдор Достоевский | Бесы (2024) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Бесы» — один из самых спорных романов Достоевского. Одни видят в нем пророческий памфлет. Другие — эдакий литературный полигон для испытания различных философских идей. Третьи — изощренный психологический триллер.
-В основе сюжета лежит реальное событие — всколыхнувшее всю интеллектуальную Россию 70-х годов «дело Нечаева». Революционеры, члены небольшого законспирированного (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: РекскверПродолжительность: 25:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D9EA74CA259044B00E3D2D07578FFA8AC5B81F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770674   (32250) от 02.01.2025
-
-Андрей Панченко | Блуждающие огни (Книга 1) (2024) [MP3, Fan12]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отец у меня деспот и тиран, и всё же с любыми своими проблемами мы идём к нему, ибо он может абсолютно всё! Он бывший спецназовец и офицер всесильной спецслужбы, прошел множество горячих точек и с ног до головы увешен наградами и нашивками за ранения, охотник и рыбак, способный выжить с голым задом на безжизненной луне, а сейчас один из самых богатых и влиятельных (   Читать дальше...   )Жанр: Попаданцы в космос, Приключения, ФантастикаИздательство: Аудиокнига своими руками (Author.today)Продолжительность: 07:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80FA7BC79B2D7AE116DC86B3CD3391FAE4AD9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770675   (32232) от 02.01.2025
 
 Андрей Панченко | Блуждающие огни. Книга 2 (2024) [MP3, Fan12]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32232.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32225.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32220.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32198.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32187.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32089.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32007.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32004.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32001.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31935.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31928.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31923.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31895.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31874.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31812.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ Ascold Flow | Вторжение (Книга 2). Академия магоуби
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31807.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31803.jpg" />
 </div>
 
 
@@ -536,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31801.jpg" />
 </div>
 
 
@@ -565,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31798.jpg" />
 </div>
 
 
@@ -592,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31795.jpg" />
 </div>
 
 
@@ -621,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31788.jpg" />
 </div>
 
 
@@ -647,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31784.jpg" />
 </div>
 
 
@@ -674,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31735.jpg" />
 </div>
 
 
@@ -687,6 +608,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68882F7E9EB6AB68182B169F02C430F65CE7DB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771557   (31667) от 07.01.2025
+
+Иван Тайга | Земля Тунгусского метеорита. Крысогон и Ко.  (Книга 1). Янтарь. Вирус бессмертия (2024) [MP3, Роман Ефимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот это попал. Мало того, что очутился на параллельной Земле, непонятно где, да еще окружающие постоянно троллят, хохмят и дружески подкалывают. А еще какой-то странный своенравный питомец привязался. Параллельная Земля возникшая из-за Тунгусского метеорита, слышали о таком? В 1908 году в районе Подкаменной Тунгусски в землю врезался неопознанный объект, но ни кратера (   Читать дальше...   )Жанр: Постапокалипсис, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A7E5218D71C04979745985266156A00C144B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771934   (31623) от 08.01.2025
+
+Александр Прозоров, Алексей Живой | Легион (Книги 2-5) (2024) [MP3, Сергей Гладков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31623.jpg" />
+</div>
+
+
+###  Подробнее
+
+2. Не колеблясь, Ганнибал бросает свои войска в поход на Рим. Вторая Пуническая война началась. Федор Чайка и Леха Ларин, морские пехотинцы из России, занесенные в эту эпоху волею судьбы, отвоевывают себе место под солнцем в новом для них мире. Один среди солдат Карфагена, другой среди скифских воинов.
+
+Очутившись после морского сражения с римскими кораблями на испанском (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыИздательство: ЛитРес: чтец,  АвторПродолжительность: 51:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47780BE64FFBC6E2C94965105D8B26CED326DBD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771952   (31596) от 08.01.2025
+
+Ascold Flow | Вторжение (Книга 3). Академия магоубийц-3 (2024) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они идут. Они грядут.Но они не знают, против кого им предстоит вести битву. Иван теперь не один. Иван теперь не никому неизвестный сирота. Он воин. Он маг. Он убийца. И ему есть что терять. А подобные риски – недопустимы. А значит, бойся, враг – тебе не скрыться от возмездия.Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 07:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808932726AA97B2B0DCF8B59332E38E4F016CD88
 ```
 
 https://mybot314.ru/tekegram_catalog/

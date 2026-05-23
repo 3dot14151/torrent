@@ -1,55 +1,3 @@
-###  Публикация: 1442274   (1029890) от 21.02.2021
-
-Дневник Бриджет Джонс / Bridget Jones's Diary (2001) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Бриджет Джонс заводит дневник, чтобы описывать свои достижения и победы: как она будет избавляться от лишних килограммов и вредных привычек, а также налаживать личную жизнь. Родители хотят сосватать её за сына соседей, скромника Марка, а Бриджет без ума от своего неотразимого начальника Дэниэла. Неожиданно выбор оказывается совсем не простым.Производство: США, Великобритания, Франция / Universal PicturesЖанр: Драма, Комедия, МелодрамаРежиссер: Шэрон МагуайрАктеры: Рене Зельвегер, Колин Ферт, Хью Грант, Джемма Джонс, Селия Имри, Джеймс Фолкнер, Джим Бродбент, Чармиан Мей, Пол Брук, Фелисити МонтагуПеревод: Дублированный, многоголосый, двухголосыйСубтитры: русские, английскиеПродолжительность: 01:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5160A6BCC93F9411A05939C67A146A59B43256B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449320   (1029886) от 21.02.2021
-
-Идентификация Борна / The Bourne Identity (2002) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Команда итальянского рыболовецкого судна находит в водах Средиземного моря тело мужчины. У него два пулевых ранения в спине и имплантированный в бедро микрофильм, помеченный номером швейцарского банка. Когда незнакомец приходит в себя, оказывается, что он не помнит, кто он и что с ним случилось, однако он может говорить на нескольких языках и обладает другими необычными (   Читать дальше...   )Производство: США, Германия, Чехия, Франция / Universal Pictures, The Kennedy/Marshall Company, HypnoticЖанр: боевик, триллер, детективРежиссер: Даг ЛайманАктеры: Мэтт Дэймон, Франка Потенте, Крис Купер, Клайв Оуэн, Брайан Кокс, Адевале Акинойе-Агбаже, Гэбриел Манн, Джулия Стайлз, Тим Даттон, Уолтон ГоггинсПеревод: Дублированный, профессиональный двухголосый, авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: русские (Forced, Full), английские (Forced, Full, SDH, SDH-Colored)Продолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A568444CFC80AA2703E3613EBC1A78D80EC34B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449328   (1029880) от 21.02.2021
 
 Былые привычки / I Used to Go Here (2020) BDRip [H.265] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029880.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029873.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029872.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029871.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029864.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029855.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029848.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029846.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029840.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029834.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029773.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029770.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029767.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029766.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029765.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029760.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029710.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029698.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029694.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029672.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029659.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029657.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029650.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029649.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3EA1A8F4BEE663F471BAC634D0BCB2BDF860938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449329   (1029647) от 22.02.2021
+
+Королевский гамбит / Critical Thinking (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марио «Мистер Ти» Мартинез ведет факультатив шахмат для подростков из неблагополучных семей. От остальных учителей его отличает легкий стиль общения, эмпатия и высокий интеллект. На улицах города творится беспредел, подростки здесь постоянно попадают в неприятности, и многие берутся за самые рискованные дела, чтобы выжить. Какие тут могут быть шахматы? Но Мартинез (   Читать дальше...   )Производство: США / Cinema Veritas, Critical thinking, Hialeah Park Studios, NRSP, Perfect BalanceЖанр: ДрамаРежиссер: Джон ЛегуизамоАктеры: Джон Легуизамо, Рэйчел Бэй Джонс, Майкл Кеннет Уильямс, Коруин С. Тагглс, Хорхе Лендеборг мл., Энджел Куриэль, Джеффри Батиста, Уилл Хохман, Зора Касебере, Рамсес ХименесПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F947633A361012D2722073E2021A167E93CC40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449704   (1029644) от 22.02.2021
+
+Птица в клетке. Заражение / Songbird (2020) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029644.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году мир все еще находится во власти опасного вируса. Зараженных силой забирают из домов и отправляют в зловещие карантинные лагеря.
+У курьера Нико редкий иммунитет к болезни, и он свободно передвигается по городу. Когда его девушка Сара заражается, Нико понимает, что за ней уже выехали военные и у него есть считанные часы, чтобы спасти возлюбленную.Производство: США / STX Films, Invisible Narratives, Platinum DunesЖанр: Драма, фантастика, триллер, мелодрамаРежиссер: Адам МэйсонАктеры: Кей Джей Апа, София Карсон, Крэйг Робинсон, Брэдли Уитфорд, Петер Стормаре, Эльпидия Каррильо, Александра Даддарио, Лия МакХью, Пол Уолтер Хаузер, Деми МурПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (форс.), английские, украинскиеПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA8BBB61A61331DA2202850CFE70EE32FB97759
 ```
 
 https://mybot314.ru/tekegram_catalog/

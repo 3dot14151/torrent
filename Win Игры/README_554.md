@@ -1,29 +1,3 @@
-###  Публикация: 1770278   (17225) от 24.05.2025
-
-Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новый боeвик, в котором концепция серии Armored Core получила современное развитие за счёт знаний, накопленных компанией FromSoftware за время разработки игр о боевых роботах-мехах и фирменный продуманный игровой процесс. Управляйте собственной мехой в скоростных сражениях, где можно двигаться в любом направлении, и попробуйте добиться победы, используя преимущества (   Читать дальше...   )Тип издания: RepackРазработчик: FromSoftware, Inc.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228D27780FCE275627BD71133BA0AE1DF0667768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575988   (17216) от 24.05.2025
 
 SpaceEngine / Space Engine (2019) [Ru/Multi] (0.990.48.2065/dlc) License GOG [Early Access]
@@ -32,7 +6,7 @@ SpaceEngine / Space Engine (2019) [Ru/Multi] (0.990.48.2065/dlc) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17216.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Warhammer 40,000: Gladius (2018) [Ru/Multi] (1.16.0/dlc) Repack FitGirl [Complet
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17181.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17156.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Duck Detective: The Ghost of Glamping (2025) [Multi] (2.2.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17152.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17082.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17080.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17076.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.09.1/dlc) Scene Tenoke [De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17067.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17055.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.8767.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17051.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Deliver At All Costs (2025) [Multi] (250331-143608) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17043.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ DRAGON BALL XENOVERSE 2 (2016) [Ru/Multi] (1.24.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17042.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17041.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Last Hero of Nostalgaia (2022) [Ru/Multi] (3.3.6.7/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17025.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dragon Quest III (3) HD-2D Remake (2024) [Multi] (1.2.0.0 Build 18186891/dlc) Sc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17020.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.14/dlc) Repack Let'sРlay [Advance
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17011.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Deliver At All Costs (2025) [Multi] (250331-132937) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17001.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Synergy (2024) [Ru/Multi] (1.0.2505130427) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16995.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) License G
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16933.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16932.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16930.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16928.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.1.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16926.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16917.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16914.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D2EA46A0FCB0556992CF4B1C6D7F49A927E1CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762681   (16912) от 26.05.2025
+
+Terraforming Mars (2018) [Ru/Multi] (2.9.1.2284/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terraforming Mars – официальная адаптация популярной за океаном настольной игры о колонизации Марса и превращения этой планеты в пригодной для обитания человечества. Видеоигра представлена в виде пошаговой стратегии, где предоставляется достаточное количество времени для обдумывания дальнейших действий с целью извлечения максимальной выгоды. Игровой процесс строится (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B256A0452C7BDAF1BAB96FEA1745B48268F3D264
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797338.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797332.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797138.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797132.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. Северная Америка / North America (2013) HDTV [H.264/10
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797130.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797118.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797109.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796686.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVR
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796597.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Дикая природа Новой Зеландии: затерянный 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796549.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796541.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796508.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796056.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795250.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794923.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794852.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794625.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794592.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794581.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794569.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC. Искусство России / The Art of Russia (2009) HDTVRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794495.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ PBS: Истории из королевской спальни / Tales from the 
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794239.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793857.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793855.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793690.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793370.jpg" />
 </div>
 
 

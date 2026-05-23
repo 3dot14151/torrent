@@ -1,57 +1,3 @@
-###  Публикация: 1657792   (192248) от 05.09.2023
-
-InShot - Фото и видеоредактор 1.960.1416 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-InShot - впечатляющее своими возможностями и удобством приложение, что завоевало стойкую положительную репутацию у пользователей мобильных гаджетов. Проект представляет собой фоторедактор и видеоредактор, а так же обладает функцией превращения статичных изображений в так называемые живые фотографии. Не стоит ожидать от программы внешность и функционал профессионального (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.08.2023Разработчик: InShot Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8ECEF4B909F0A5124FA782F2DD42ED1E7FA0552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657852   (192215) от 05.09.2023
-
-VPN Inf - Security Fast VPN 7.5.824 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-VPN Inf - быстрый, безопасный и безлимитный VPN
-Это лучшее приложение для продвижения сайтов, безопасности Wi-Fi и защиты конфиденциальности.
-Не нужно никакой настройки, просто нажмите одну кнопку, и вы сможете безопасно путешествовать по Интернету.Тип издания: PremiumРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA9B0345E17483D19977CF31BEF4312618337B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657782   (192116) от 05.09.2023
 
 Square Home Launcher 2.4.15 Mod by PieMods [Ru/Multi]
@@ -60,7 +6,7 @@ Square Home Launcher 2.4.15 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192116.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ WPS Office + PDF 18.1.1 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191851.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ Battery HD Pro 1.99.06 (Google Play) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191814.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ ibis Paint X 10.2.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191801.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ BSPlayer Pro 3.19.247-20230828 Mod by ferhad.necef [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191777.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191485.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191430.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191275.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ Jellify - Живые фотографии v1.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191266.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191236.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ PREQUEL: Редактор фото и видео v1.51.0 Mod by Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190966.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ Plus Messenger (Telegram+) v10.0.5.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190921.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190891.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ ElectroCalc - DIY Electronics v3.9  Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190890.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190850.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ Picture Mushroom - Mushroom ID v2.9.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190742.jpg" />
 </div>
 
 
@@ -479,7 +425,7 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190516.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ Melon VPN - Secure Proxy VPN 7.9.215 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190492.jpg" />
 </div>
 
 
@@ -534,7 +480,7 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190490.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190452.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190413.jpg" />
 </div>
 
 
@@ -612,7 +558,7 @@ Picture Bird - Bird Identifier v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190008.jpg" />
 </div>
 
 
@@ -638,7 +584,7 @@ Picture Mushroom - Mushroom ID v2.9.20 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189970.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189862.jpg" />
 </div>
 
 
@@ -678,6 +624,59 @@ VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:553A6E39A34E471889079364D3A5064AACD07655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660267   (189752) от 12.09.2023
+
+Moon+ Reader Pro 8.4 (804001) Mod by Lucky Las [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon Reader - проект-читалка которая весьма известна и популярна среди поклонников ношения библиотеки на своём мобильном устройстве. Она понимает TXT, HTML, EPUB, PDF, MOBI, FB2 и многие другие стандартные и редкие "разновидности" файлов, что делает её пригодной для открытия не только обычных книг, но и различных документов, чертежей и прочего. Огромный (   Читать дальше...   )Тип издания: Lite-ModРелиз состоялся: 08.09.2023Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Украинский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAFBF8412EA1535AA691092A24EB5F11B450684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660315   (189592) от 12.09.2023
+
+VPN Monster - Secure VPN Proxy 2.0.1.5 Mod by RBMods [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189592.jpg" />
+</div>
+
+
+###  Подробнее
+
+VPN Monster - неограниченный бесплатный впн для Android! VPN со встроенным браузером!
+Лучшее бесплатное приложение VPN с безопасными и быстрыми впн-серверами для анонимной разблокировки веб-сайтов, приложений для обмена сообщениями, видеоплеера, социальных сетей, мобильных игр, а также для защиты Вашего соединения в точке доступа Wi-Fi или в любых условиях сети, (   Читать дальше...   )Тип издания: PremiumРазработчик: Innovative ConnectingПоддерживаемая ОС: Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330287A92BC110EAF536B32FE9ACCC909A256154
 ```
 
 https://mybot314.ru/tekegram_catalog/

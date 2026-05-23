@@ -1,56 +1,3 @@
-###  Публикация: 457848   (78423) от 25.02.2012
-
-Псы-воины / Dog Soldiers (2002) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отряд британских солдат под командованием сержанта Уэллса отправился на боевое задание в дикие леса горной Шотландии. Но то, что началось как обычные армейские учения, превратилось в настоящий кошмар. Прибыв на секретную военную базу, солдаты обнаружили истекающего кровью капитана Райана и растерзанные останки его подчиненных…Жанр: Триллер, Ужасы, БоевикРежиссер: Нил МаршаллАктеры: Шон Пертуи, Кевин МакКидд, Эмма Клисби, Лиам Каннингэм, Томас Локйер, Даррен Морфитт, Крис Робсон, Лесли Симпсон, Тина Ландини, Крэйг КонуэйПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF531FE066090FEDA665012AC6EED16978D7C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458014   (78422) от 25.02.2012
-
-Дублеры / The Replacements (2000) [H.264/720p-LQ] HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Еще вчера они были простыми работягами. Сейчас все изменилось: настал день их славы, когда, замещая бастующих профессионалов, они стали Дублерами. Невзрачные простаки превращаются в суперзвезд футбола!
-Шэйну Фалько, профессионалу американского футбола, пришлось возглавить команду недотеп, собранную ветераном спорта Джимми Макгинти. Поддерживать боевой дух Дублеров (   Читать дальше...   )Жанр: КомедияРежиссер: Говард Дойч ,Винс МакКевинАктеры: Киану Ривз,Джин Хэкмен, Орландо Джонс, Фэйзон Лав, Майкл Талиферро, Риз Айфэнс, Эйс Йонамине, Майкл Джейс, Дэвид Денмен, Джон Фавро, Трой УинбушПеревод: ДублированныйПродолжительность: 01:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE99BAC4F94BF02B1841DE923C33D66F3A9A9405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457894   (78406) от 25.02.2012
 
 Приключения Филибера / Les aventures de Philibert, capitaine puceau (2011) HDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78406.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78370.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78369.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78341.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78298.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78284.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78275.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78233.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78220.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78178.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78063.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78041.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78028.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78011.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77817.jpg" />
 </div>
 
 
@@ -457,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77806.jpg" />
 </div>
 
 
@@ -487,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77767.jpg" />
 </div>
 
 
@@ -513,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77718.jpg" />
 </div>
 
 
@@ -539,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77632.jpg" />
 </div>
 
 
@@ -565,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77611.jpg" />
 </div>
 
 
@@ -591,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77593.jpg" />
 </div>
 
 
@@ -617,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77417.jpg" />
 </div>
 
 
@@ -643,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77395.jpg" />
 </div>
 
 
@@ -670,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77381.jpg" />
 </div>
 
 
@@ -681,6 +628,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D82BDAE34D85A4CDA32FF2E99F2FD8254CDD3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455653   (77370) от 20.02.2012
+
+Одна ночь с королем / One Night with the King (2006) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в персидском городе Сузы. Король Ксеркс созывает всех на пир. Хадасса, красивая еврейская сирота, решает поехать с караваном в Иерусалим, чтобы увидеть Святую землю, вместе с другом Джесси Бен-Джозефом. Они приходят на пир короля, который тот устраивает накануне войны, ведомой, чтобы отомстить за смерть своего отца, Дария. Хадасса и Джесси видят, как королева Вашти отказывается приходить на праздник короля, так как она против войны, и созывает свой пир, говоря королю, что не станет унижаться и не придет на его пир.
+
+Король решает в таком случае лишить Вашти титула королевы и выбрать себе новую жену среди девушек Суз. Хадасса по рекомендации ее дяди Мордекая меняет свое имя на Эсфирь (в честь вавилонской богини Иштар). Во дворце за кандидатками следит королевский евнух Хигай. Девушкам предоставлены одежды, косметика, украшения - все, что понравится королю в свою единственную ночь. Эсфирь нравится Хигаю, благодаря своей находчивости и целостности, и он предлагает ей читать королю в ее (   Читать дальше...   )Жанр: ДрамаРежиссер: Майкл О. СажбелАктеры: Тиффани Дюпон, Люк Госс, Джон Ноубл, Омар Шариф, Джон Рис-Дэвис, Томми Листер, Джеймс Кэллис, Питер О’Тул, Джавен Кэмпбелл...Перевод: Двуголосый закадровыйПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E44394F2BDD9398543497F9A5479F8DC12F2BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454943   (77251) от 19.02.2012
+
+2016: Конец ночи / Hell (2011) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед тем как окончательно погаснуть, Солнце увеличилось до невероятных размеров и выжгло всю Землю, превратив ее в непригодную для жизни пустыню.
+Среди немногих выживших — группа молодых людей, которые отправились в горы в поисках воды и пищи. Но эта мысль посетила не только их, и очень скоро ребята оказываются втянуты в безжалостную борьбу за выживание.Производство: Германия, Швейцария | Caligari Film- und FernsehproduktionsЖанр: Ужасы, Фантастика, ТриллерРежиссер: Тим ФельбаумАктеры: Ханна Херцшпрунг, Стипе Эрчег, Михаэль Кранц, Ангела Винклер, Ларс Айдингер, Лило Баур, Энн Сара Хартунг, Лиза Викари, Нино Бёло, Кристоф ГоглерПеревод: Профессиональный (дублированный)Субтитры: Вшитые, отключаемыеЯзык субтитров: РусскийПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

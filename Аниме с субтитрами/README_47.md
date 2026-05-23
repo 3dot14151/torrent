@@ -6,7 +6,7 @@ Blade Runner: Black Lotus | Бегущий по лезвию: Чёрный ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732591.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 эп.+2OVA+4SP] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731875.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bishoujo Senshi Sailor Moon R / Sailor Moon R Movie: Promise of the Rose + SP / 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731724.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kazemakase Tsukikage Ran / Carried by the Wind: Tsukikage Ran / Перекати
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731673.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Amnesia / Амнезия [2013, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731391.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Haitai Nanafa | Привет Нанафа [ТВ-2]  [2013, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730883.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730711.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Fate/Kaleid Liner Prisma Illya Zwei! | Судьба: Девочка-волшеб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730449.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Classroom Crisis | Кризис в классе [2015, TV, 13 + 1sp] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730024.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Kuma miko | Kumamiko: Girl Meets Bear | Жрица и медведь [2016, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729975.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ E's Otherwise / Зовите меня Е [2003, TV, 26] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729554.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Hamatora The Animation / Хаматора [2014, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729424.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729018.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728992.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728982.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Kotoura-san | Котоура [2013, TV, 12 эп. + 6SP] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728981.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Gin no Saji | Silver Spoon | Серебряная ложка [2013, TV, 22] BDRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728925.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Miyakawa-ke no Kuufuku | The Miyakawa Family's Hunger | Голодные сёс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728923.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sakurasou no Pet na Kanojo | The Pet Girl of Sakurasou | Кошечка из С�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728920.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Mahou Shoujo Lyrical Nanoha Vivid | Magical Girl Lyrical Nanoha Vivid | Лири
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728552.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Tokusou Senshatai Dominion / New Dominion Tank Police / Доминион: Сок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726140.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Radiant | Радиант [2018, TV, 21] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726102.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Ensemble Stars! | Звёзды ансамбля! [2019, TV, 24 эп.] WEBRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725997.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Hakkenden: Touhou Hakken Ibun 2 / Hakkenden - Eight Dogs of the East S2 / Хак
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725972.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Kidou Senshi Gundam 00 | Mobile Suit Gundam 00 | Мобильный воин Г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725871.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Slow Start / Медленный старт [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725033.jpg" />
 </div>
 
 

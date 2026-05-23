@@ -6,7 +6,7 @@ IrfanView 4.66 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126951.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera One 106.0.4998.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126948.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Free Download Manager 6.20.0.5510 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126938.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SupRemo 4.10.4.2204 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126933.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wondershare PDFelement 10.2.1.2582 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126929.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ K-Lite Codec Pack Update 18.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126928.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MediaInfoXP 2.46 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126927.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ FileZilla Server 1.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126925.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Subtitle Edit 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126921.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WinMerge 2.16.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126920.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Simple Sticky Notes 6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126915.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sandboxie 5.67.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126903.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Opera GX 105.0.4970.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126900.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ FileZilla 3.66.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126898.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Sandboxie plus 1.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126896.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ AIMP 5.30 Build 2533 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126801.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Waterfox Current G6.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126758.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ GoodbyeDPI 0.2.2 Launcher 6.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126687.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Google Chrome 120.0.6099.130 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126643.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ LDPlayer 9.0.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126633.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ FastStone Capture 10.4 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126629.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Google Chrome 120.0.6099.130 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126627.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 12.2023 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126559.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tor Browser Bundle 13.0.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126550.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Jetbrains WebStorm 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126547.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ JetBrains PyCharm Professional 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126546.jpg" />
 </div>
 
 

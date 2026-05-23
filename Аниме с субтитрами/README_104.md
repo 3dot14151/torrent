@@ -6,7 +6,7 @@ Yuurei Yashiki | Призрак замка [1990, Special, 1 эп.] WebRip 480p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185266.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ It's My Life | Это моя жизнь! [2019, OVA, 1 эп.] DVDRip 576p 10bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185192.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184743.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ I'll/CKBC | I'll/Crazy KOUZO Basketball Club | Лихая баскетбольн
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184442.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts | Жерт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184192.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184187.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184177.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Birdie Wing: Golf Girls Story | История гольфисток [ТВ-1] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183785.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ayane-chan High Kick | Ayane's High Kick | Высокий удар Аянэ [199
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183614.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming | A Herbivorous Dragon of 5,000 Yea
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183580.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Shiro Seijo to Kuro Bokushi / Saint Cecilia and Pastor Lawrence / Святая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183448.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Kuromukuro | Чёрная сталь [2016, TV, 26 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183015.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182888.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Hataraku Maou-sama!! 2nd Season / The Devil is a Part-Timer!! 2nd Season / По�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182728.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Mahou Sensei Negima! Shiroki Tsubasa Ala Alba | Волшебный учител�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182546.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mahou Sensei Negima! Mou Hitotsu no Sekai | Волшебный учитель Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182532.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Mahou Sensei Negima! Anime Final Gekijouban | Волшебный учитель 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182507.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182187.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Mugen no Juunin: Immortal | Blade of the Immortal | Клинок бессмер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182020.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) | Девушка на час [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181845.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ AI no Idenshi | The Gene of AI | Ген искусственного интел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181828.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Spy Kyoushitsu 2 / Spy Classroom 2 / Шпионский класс 2 [2023, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181806.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 из 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181784.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today | К
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181740.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi / Story of a Small Senior in My Comp
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181040.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Black Cat | Чёрный кот [2005, TV, 23 эп. + 1 SP] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181020.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 561793   (405762) от 18.10.2012
-
-Останки / Steve Niles' Remains (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень, крупье и танцор, оказывается в казино и в безопасности из-за его особого расположения, когда ядерный взрыв превращает всех людей на планете в зомби…Жанр: Ужасы, Боевик, ДрамаРежиссер: Колин ТхейсАктеры: Мико Хьюз, Лэнс Реддик, Грант Боулер, Тони Сайпресс, Бобби Райс, Джессика Грин, Энтони Маркс, Грег Натчер, Кристина СантьягоПеревод: Профессиональный (многоголосый)Продолжительность: 01:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A12DEF913AD9911F5D3E7DD40CADA5A5EE7FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561872   (405754) от 18.10.2012
-
-Вам письмо / You've Got Mail (1998) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Джо Фокс и Кэтлин Келли переписываются через Интернет. У Джо есть девушка, у Кэтлин — парень, но излить душу они могут лишь друг другу. Кэтлин принадлежит маленький книжный магазинчик детской литературы под названием «Магазин за углом», перешедший ей от матери. Для нее, трех ее сотрудников и покупателей это не просто место работы — это оазис тепла, человечности и (   Читать дальше...   )Производство: США /  Warner Bros. PicturesЖанр: Мелодрама, КомедияРежиссер: Нора ЭфронАктеры: Том Хэнкс, Мег Райан, Грег Киннер, Паркер Поузи, Жан Степлтон, Стив Зан, Хезер Бёрнс, Дэйв Шапелл, Дэбни Коулмэн, Джон Рэндольф, Дебора Раш, Холли Херш, Джеффри СкаперроттаПеревод: Дубляж, Авторский одноголосыйПродолжительность: 01:59:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560158   (405752) от 18.10.2012
 
 Приходи как есть / Hasta la Vista! (2012) BDRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405752.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405750.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405749.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405743.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405742.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405737.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405712.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405708.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405702.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405677.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405542.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405500.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405499.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405476.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405459.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405453.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405394.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405366.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405365.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405179.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405151.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405131.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405033.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405030.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ED4F8CD9EDB112E495B6E00DCB3D00AD8D0EAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711876   (405026) от 17.10.2013
+
+Штурм Белого дома / White House Down (2013) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cотрудник госбезопасности приходит вместе с дочерью в Белый дом на собеседование на должность в структуру охраны президента. И именно в этот день Белый дом атакуют некие неопознанные вооружённые силы. Офицер проявляет чудеса находчивости и отваги, пытаясь спасти жизнь своему ребёнку, себе и президенту США.Производство: США / Columbia Pictures, Mythology Entertainment (II), Centropolis EntertainmentЖанр: боевикРежиссер: Роланд ЭммерихАктеры: Ченнинг Татум, Джейми Фокс, Мэгги Джилленхол, Джейсон Кларк, Ричард Дженкинс, Джеймс Вудс, Джои Кинг, Николас Райт, Джимми Симпсон, Майкл МерфиПеревод: Профессиональный (полное дублирование) + Оригинал (английский)Язык субтитров: РусскиеПродолжительность: 02:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CED427C47516140EEDA7344DE5D6B7692149285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711830   (404985) от 17.10.2013
+
+Призрачный патруль / R.I.P.D. (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективы из загробного департамента расследуют преступления по ту сторону могилы и гоняются за не в меру ретивой нечистью. Молодой коп, после гибели от руки неизвестного злоумышленника угодивший в мир иной, в обмен на помощь при расследовании собственного убийства обязуется следующие сто лет посвятить службе в R.I.P.D. и, получив в напарники брутального стрелка (   Читать дальше...   )Производство: США / Universal Pictures, Original FilmЖанр: Фэнтези, Боевик, КомедияРежиссер: Роберт ШвенткеАктеры: Джефф Бриджес, Райан Рейнольдс, Кевин Бейкон, Мэри-Луиз Паркер, Стефани Зостак, Джеймс Хонг, Мариса Миллер, Роберт Неппер, Майк О’Мэлли, Девин РэтрейПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72943AB060AFD62498EC93F6508173F5DDC407C
 ```
 
 https://mybot314.ru/tekegram_catalog/

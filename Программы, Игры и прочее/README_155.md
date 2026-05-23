@@ -1,55 +1,3 @@
-###  Публикация: 1757646   (39005) от 28.10.2024
-
-Plus Messenger (Telegram+) v11.2.3.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.10.2024Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E413B656D6286818653279AA777B65612E12387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757652   (38997) от 28.10.2024
-
-Узлы 3D / Knots 3D v9.4.1 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Mod / FullРелиз состоялся: 28.10.2024Разработчик: Nynix LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734E4FAC66EB21FC0089AA237069C548F44090D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668856   (38878) от 30.10.2024
 
 Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
@@ -58,7 +6,7 @@ Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38878.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38843.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ Brotato: Premium 1.3.193 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38834.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ PowerDirector – Video Editor v14.5.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38793.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ Reface: Face Swap AI Generator v5.0.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38723.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.94 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38714.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v2.9.6 Mod by sserra
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38711.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ AudioLab v1.2.37 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38682.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ Next Track: Volume button skip v2.09 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38589.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ Chess King - Обучение шахматам v1.5.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38573.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38424.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v2.9.6 Mod by TryRoo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38423.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Pro Pool 2024 v1.57 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38413.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38412.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ Magic Eraser / Магический ластик v2.11.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38408.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by ElaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38396.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ Polarr v6.10.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38378.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ PicWish: AI Photo Editor v1.8.0 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38368.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ Bria Mobile: VoIP Softphone v6.18.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38088.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38005.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ AirBrush: ИИ Фоторедактор v7.4.505 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37974.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ Speedtest от Ookla 5.5.0 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37890.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37803.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37796.jpg" />
 </div>
 
 
@@ -673,6 +621,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6AFD5738676149A482C436D83C021E3331BD2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759536   (37785) от 09.11.2024
+
+Stellio - Music Player v6.10.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellio - продвинутый плеер, с мощным звуком, поддержкой тем и большим выбором звуковых настроек.
+Главной целью при разработке было получить звук высокого качества. Эта цель была достигнута с помощью внедрения мощной звуковой системы, которая управляет 12-ти полосным эквалайзером и большим разнообразием звуковых эффектов. Плеер даёт полную свободу для экспериментов, (   Читать дальше...   )Релиз состоялся: 08.10.2024Разработчик: Stellio SoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F405EAB57C4E1935D133ED634BC06D5094D81D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759551   (37769) от 09.11.2024
+
+PicWish: AI Photo Editor v1.8.1 Mod by derrin [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте самое простое приложение для редактирования фотографий с искусственным интеллектом! Удалите фон и размытие фотографии, чтобы ваши продукты выделялись! Вот ваши полностью автоматические функции ластик фона, улучшитель фотографий и ластик фотографий и ретушь. Никаких навыков не требуется. Супер простой в использовании.
+PicWish — фоторедактор с искусственным (   Читать дальше...   )Тип издания: ModРелиз состоялся: 08.11.2024Разработчик: WangxuTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4070C66FB379F58ACE7CA38F6332F104A53FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

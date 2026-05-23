@@ -6,7 +6,7 @@ PrivaZer 4.0.21 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023135.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FreeFileSync 11.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023133.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 75.0.3969.149 Portable by JolyAnderson [Multi/Ru] (авторская ра
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023130.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Visual Studio 2019 Professional 16.9.3 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023126.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Visual Studio 2019 Enterprise 16.9.3 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023123.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Format Factory 5.7.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023118.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ GIMP 2.10.24 Update 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023115.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ LibreOffice 7.1.2.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023113.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Spotify 1.1.56.595 Portable by JolyAnderson [En/Ru] (авторская разд
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023112.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Format Factory 5.7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023110.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ IObit Driver Booster Pro 8.4.0.420 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023109.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ PSPad 5.0.6 Build 585 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023100.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Visual Studio Code 1.55.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023091.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PotPlayer 210318 (1.7.21472) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023080.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Opera 75.0.3969.149 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023075.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft PowerToys 0.35.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023069.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ ByClick Downloader Premium 2.3.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023061.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sticky Password Premium 8.2.8.15 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023056.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ NetLimiter Pro 4.1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023047.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PotPlayer 1.7.21472 (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023044.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The KMPlayer 3.0.0.1442 (01.04.2021) RePack (&Portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023041.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CudaText 1.130.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023004.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Q-Dir 9.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022987.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Complete Internet Repair 8.1.3.5222 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022985.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ WhatsApp 2.2110.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022970.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022969.jpg" />
 </div>
 
 

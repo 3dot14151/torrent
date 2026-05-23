@@ -1,56 +1,3 @@
-###  Публикация: 1840588   (1047351) от 06.12.2025
-
-Pencil Photo Sketch : Drawing v2.2.61 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Pencil Photo Sketch - профессиональное приложение для редактирования фотографий. Вы станете настоящим мастером по созданию карандашных набросков из ваших фото. Pencil Photo Sketch - профессиональное приложение для обработки изображений, превращающее ваши фотографии в черно-белые или цветные карандашные рисунки. Выберите фото из галереи или сделайте снимок и сгенерируйте (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 04.12.2025Разработчик: Minerva Studios Private LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7981327F9F4713558C2C3292191BBB093FC4B4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840601   (1047346) от 06.12.2025
-
-Revo Uninstaller Mobile v3.4.480G Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Revo Uninstaller Mobile всегда старается предоставить своим поклонникам наилучший пользовательский опыт и функциональность. В этой новой версии приложения вы можете работать между несколькими вариантами управления уже установленными приложениями.
-Выбрав Pro-версию, вы теперь можете легко избавиться от всей рекламы во время использования приложения.Тип издания: ProРелиз состоялся: 05.12.2025Разработчик: VS Revo Group Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4588C3E232CC47C271EFAF535C23BC3029A083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840604   (1047342) от 06.12.2025
 
 Grok - ИИ ассистент v1.0.82-release.02 Mod by kljovyj [Ru/En]
@@ -59,7 +6,7 @@ Grok - ИИ ассистент v1.0.82-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047342.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ Email Aqua Mail - Fast, Secure v1.56.0 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047312.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ Exo Player - Видеоплеер и IPTV v2.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047289.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047287.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047285.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ Horary Chart / Астрология: Хорарная Карта v4.1.4 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047172.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ Astrological Charts / Астрологические Карты Pro v11.1.10 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047171.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047170.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047169.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047168.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046852.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ Grok - ИИ ассистент v1.0.81-release.04 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046709.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ Vanced Tube v5.5.80.178 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046707.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ LazyMedia Deluxe v3.417 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046706.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ Photo Editor v12.2 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046646.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ Photo Editor v12.2 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046645.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046643.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ Listen Audiobook Player v5.3.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046604.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ VivaVideo Video Editor v9.32.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046595.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ Channel - AI Videos and Chat v1.6.1.3174 Mod by kljovyj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046585.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ Cozy Timer - Sleep timer v4.0.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046583.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046249.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046190.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046186.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF8052AEA41F02CF189FD9336BFB7E4F83427FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603142   (1045808) от 08.01.2023
+
+MobileSheets Music Viewer v3.6.8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045808.jpg" />
+</div>
+
+
+###  Подробнее
+
+MobileSheets - это лучшая программа для просмотра нот для планшетов Android. Установите эту пробную версию, чтобы избавиться от необходимости таскать с собой книги и папки, а также получить доступ к любой партитуре в вашей библиотеке за секунды. Он также имеет ряд мощных функций для музыкантов, в том числе:Тип издания: FullРелиз состоялся: 07.01.2023Разработчик: ZubersoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7019177FEE67B06D6080EF88DE796DB4ADCB770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604675   (1045271) от 14.01.2023
+
+SUXOV v2.2.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для постобработки фотографий и видеороликов. Немало мощных фильтров. Имитация пыли. Возможность менять экспозициию и насыщенность.Тип издания: ProРелиз состоялся: 13.01.2023Разработчик: Sergey SukhovПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC788686908137C31F1171C0E5FD999377AEB83
 ```
 
 https://mybot314.ru/tekegram_catalog/

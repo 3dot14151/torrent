@@ -1,81 +1,3 @@
-###  Публикация: 1075934   (315775) от 24.11.2016
-
-Дарья Дезомбре | Тени старой квартиры (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Более полувека назад в одной питерской коммуналке люди любили, дружили, делили не только общую кухню, но и радости, печали и даже секреты. Одной из общих тайн было загадочное убийство старушки - божьего одуванчика из "бывших", которую, вероятнее всего, отравил кто-то из соседей. Но тогда преступника найти так и не удалось. Однако спустя 50 лет полюбившийся (   Читать дальше...   )Жанр: ДетективПродолжительность: 13:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80431E6EC1920C64A83BD5E755F2F4DB776048A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075968   (315675) от 24.11.2016
-
-Джо Аберкромби | Полвойны (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хоть размерами Тровенланду не сравниться с Гетландом или Ванстером, ключом к процветанию этого королевства стала крепость Мыс Бейла – ворота к Морю Осколков. Об этом прекрасно знают и отец Ярви, и, что еще важнее, Праматерь Вексен. Именно благодаря вероломству последней Тровенланд разорен захватчиками, его король и служитель убиты в собственном дворце, а принцесса (   Читать дальше...   )Жанр: Героическое фэнтезиПродолжительность: 11:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E46294FE78D2B95F38258F6912347B1F6E6266B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075775   (315565) от 24.11.2016
-
-Алексей Кулаков | Магнатъ (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мало достигнуть вершины, нужно еще и удержаться на ней – чтобы было, куда шагать дальше. Князь Агренев стал своим среди элиты Российской империи, двери лучших домов открыты перед ним, признание и успех… Но хватит ли этого? Покорятся ли ему новые горизонты, пойдет ли он вперед – или опора под его ногами окажется неустойчивой и обернется лавиной неудач? Время покажет…Жанр: Историческая фантастикаПродолжительность: 14:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2520A34171CCBE698A7F2DE504E6018ACC20B40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076000   (315563) от 24.11.2016
 
 Александр Прозоров | Золото мертвых (2016) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315563.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315469.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315464.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ Ellen Fallen | Психея (2020) [MP3]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315441.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315310.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315303.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315278.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315249.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315148.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315129.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314964.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314956.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314853.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314849.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314842.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314758.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314707.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314702.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314585.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314583.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314570.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314567.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314564.jpg" />
 </div>
 
 
@@ -674,6 +596,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E012D6618204C84C392DDDA62A4C8BEFB97151EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260083   (314555) от 06.11.2018
+
+Елена Арманд | Блаженны чистые сердцем (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный роман "Блаженны чистые сердцем" позволяет читателю совпасть с абсолютной реальностью, пережив изнутри жизнь России с 1905 по 1925 год, а также узнать дальнейшие судьбы большинства героев. Взрослые и дети ведут дневники, пишут стихи, письма, а позже и воспоминания. Это и есть текст романа. Главное его событие - создание в голодном 1920 году (   Читать дальше...   )Жанр: Документальный романПродолжительность: 35:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7776143579B4387446BE2E51FBAB8DB7B17AC930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959231   (314554) от 25.11.2015
+
+Алесь Адамович | Сборник произведений [5 книг] (2013-2014) [OGG]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекса́ндр (Але́сь) Миха́йлович Адамо́вич (белор. Аляксандр (Алесь) Міхайлавіч Адамовіч; 3 сентября 1927, деревня Конюхи, Копыльский район, Минская область — 26 января 1994, Москва) — белорусский писатель, сценарист, литературовед, доктор филологических наук (1962), профессор (1971), член-корреспондент АН БССР (1980).
+Родился 3 сентября 1927 года (   Читать дальше...   )Жанр: Документалистика, художественная литератураПродолжительность: 74:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A810439463A6F5FA1AFB082A66448062922F750D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259838   (314548) от 06.11.2018
+
+Салман Рушди | Ярость (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малик Соланка, историк идей и всемирно известный кукольник, однажды бросает в Лондоне семью и летит через океан, чтобы переплавить в горниле Нью-Йорка безумную, темную ярость, живущую в нем, заглушить голоса злобных фурий. И что же? Ярость повсюду вокруг него.
+Жизнью движет ярость… Ярость — сексуальная, лежащая в основе эдипова комплекса, скрытая в политике, в магии, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 14:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA41A6EFA912DC682DA924C0F4932F768633AB66
 ```
 
 https://mybot314.ru/tekegram_catalog/

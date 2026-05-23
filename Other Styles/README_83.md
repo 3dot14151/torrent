@@ -6,7 +6,7 @@ Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619064.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclas
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618992.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618799.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618797.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydec
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618606.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618093.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618037.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Steve Jablonsky - Transformers: The Last Knight / Трансформеры: По
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617747.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The 50 Best Instrumental Rock Songs Ever (2014) 2CD [MP3|192 кб/с]<Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617680.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panfl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617516.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617387.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Unknown Artist - Stand By Me (1994) Unofficial Release [APE|Lossless|image + .cu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617269.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617210.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617195.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Et
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617109.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617005.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Best Of Indian's songs - The sound of indians spirit,nature and dreams (200
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616990.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Amadeus - Discography 6CD(2002-2009) [MP3|128-192 кб/с]<Instrumental, Classic
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616644.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Chill Out Music 2017: 16 Ambient Downtempo And Mellow Tracks For Chilling A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616336.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616058.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614401.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflut
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614083.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614052.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014)
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613965.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree.
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613855.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks +
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613768.jpg" />
 </div>
 
 

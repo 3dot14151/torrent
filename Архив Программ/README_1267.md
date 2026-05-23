@@ -6,7 +6,7 @@ ICQ 8.0 Build 5784 Final [Multi/Rus] Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400907.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TeamSpeak 3.0.9.1 Final [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400900.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aiseesoft Blu Ray Converter Ultimate 6.3.36 [Multi/Rus] RuPack by WYLEK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400898.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FeedDemon Pro v4.1.0.0 + Portable by p2000s [Англ.\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400867.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CCleaner 3.24.1850 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400858.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Skype 6.0.32.120 Final [Multi/Rus] Portable by Baltagy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400824.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ RAM Saver Professional 12.3 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400813.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ JetClean Pro 1.4.0.124 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400788.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ TeamViewer 7.0.15723 Final RePack by elchupacabra [Ru/Eng/Ukr] [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400777.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Paragon Drive Copy 11 Professional 10.0.16.12919 Retail [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400750.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ K-Lite Codec Pack 9.4.0 Mega/Full/Basic/Standard/Update + x64 [Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400738.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Core Temp 1.0 RC4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400735.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400698.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ RusTV Player 2.5 [Multi/Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400656.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ CCleaner 3.24.1850 [Rus/Ukr/Eng] Business | Professional Edition RePack/Рortabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400655.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ CSoft Project Studio CS R5.5.011 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400643.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ CPU-Z 1.81.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400513.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ PrivaZer 3.0.28 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400507.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ All in One Runtimes 2.4.3 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400204.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Malwarebytes AdwCleaner 7.0.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400203.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ ACDSee Photo Studio Ultimate 2018 11.0.1200 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400115.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ AnyDVD HD 7.1.0.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399987.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wise Care 365 Pro 2.0.6.153 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399944.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ LeaderTask 7.5.0.2 [Multi/Rus] + RePack & Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399935.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ AIDA64 Extreme Edition 2.60.2160 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399921.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Xilisoft Audio Converter Pro 6.4.0.20121023 Final [Multi/Eng] Portable by Baltag
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399910.jpg" />
 </div>
 
 

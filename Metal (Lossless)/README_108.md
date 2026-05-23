@@ -6,7 +6,7 @@ Ramihrdus - The Sorrow of the Evergreens (2021) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667897.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Otargos - Fleshborer Soulflayer (2021) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667895.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Arcane Tales - Steel, Fire and Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667847.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Allegaeon - Damnum (2022) [FLAC|Lossless|image + .cue] <Technical Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667845.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Helloween - Keeper Of The Seven Keys, Part II (1988) Remastered, 2CD, 2006, Sanc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667829.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Follow The Cipher - Follow The Cipher (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667189.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cut Up - Wherever They May Rot (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666830.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ghost Iris - 6 Albums (2015-2022) [FLAC 2.0|44.1/16|WEB-DL|tracks] <Metalcore, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665446.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ensiferum - Дискография (2001-2009) [FLAC|Lossless]<Melodic Death, Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_665076.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Svart Crown - Abreaction (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664565.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Resurgency - No Worlds... nor Gods Beyond (2017) [FLAC|Lossless|image + .cue] <O
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664560.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Venenum - Trance of Death (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664501.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rude - Remnants... (2017) [FLAC|Lossless|image + .cue] <Ols School Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664496.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Azarath - In Extremis (2017) [FLAC|Lossless|image + .cue] <Death Metal, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664495.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Iron Fate - Cast In Iron (2010) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664488.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Helker - Firesoul (2017) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664486.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Vampire - With Primeval Force (2017) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664389.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ascended Dead - Abhorrent Manifestation (2017) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664382.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ StormHammer - Welcome To The End (2017) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664325.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Angel Vivaldi - Away With Words Pt.1 (2014) [FLAC|Lossless|tracks + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664264.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Angel Vivaldi - Universal Language (2011) [FLAC|Lossless|tracks + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664256.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663359.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Napalm Death - Resentment Is Always Seismic – A Final Throw Of Throes (2022) E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663283.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Poisonfog - Spellcaster's Revenge (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662458.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Lechery - We Are All Born Evil (2018) Japan [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661892.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Leather - II (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661882.jpg" />
 </div>
 
 

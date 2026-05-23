@@ -1,29 +1,3 @@
-###  Публикация: 1771345   (31782) от 06.01.2025
-
-DREAMERS (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-DREAMERS позволит тебе погрузиться в увлекательную историю о приключениях, дружбе и взрослении. Присоединяйся к трем главным персонажам в их эмоциональном путешествии по красочному миру, полному неизведанных стран и сюжетных линий, мини-игр и головоломок, в том числе в коллаборативном режиме на разделенном экране.Тип издания: RepackРазработчик: PlaySysЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Китайский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468DDC91D00E89DE573171320E46910FA85C6236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771549   (31768) от 07.01.2025
 
 Project Tower (2025) [Ru/Multi] (1.0) Repack R.G. Freedom
@@ -32,7 +6,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack R.G. Freedom
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31768.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31762.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31747.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31746.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31731.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31729.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31728.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Priest Simulator: Vampire Show (2022) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31719.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack FitGirl 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31712.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31711.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31697.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31687.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31671.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Supraland (2019) [Ru/Multi] (1.23.7/dlc) Repack Let'sРlay [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31670.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3411.0/1.70) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31648.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Toy Tactics (2023) [Ru/Multi] (1.1E) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31638.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31627.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ For The King II (2023) [Ru/Multi] (1.3.5) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31624.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mystery of Myths: Heart of Athens / Тайна мифов: Сердце Афин
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31621.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31617.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Rusted Moss (2023) [Ru/Multi] (1.76) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31616.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Supraland Six Inches Under (2022) [Ru/Multi] (1.2.3349) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31614.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31608.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31554.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31528.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43F57FB717AE095267B9AB5C87996B1AFB183E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772036   (31527) от 09.01.2025
+
+Forever Skies (2023) [Ru/Multi] (1.7.1) Repack Wagner [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forever Skies – это нетипичное выживание, в мире постапокалипсиса, где игроку предстоит стать капитаном дирижабля. К сожалению, протагонист единственный член экипажа, но даже это не уменьшает количество его проблем. Ведь он все равно нуждается в продовольствии, которого в воздухе практически нет за исключением редких птиц. А технике свойственно ломаться, и она требует (   Читать дальше...   )Тип издания: RepackРазработчик: Far From HomeЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DBA1A955E07C7C277BF98575541470A8E1C7647
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Just Xiangqi / Сянци (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ People Playground (2019) [En] (1.27.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45010.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.0.4) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44946.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44804.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blocky Farm (2024) [Ru/Multi] (20240830-5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44653.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44543.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1648/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44455.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Motel Manager Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44421.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Skoof Simulator / Симулятор Скуфа (2024) [Ru/En] (1.0) Scene Tenok
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44348.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Forklift Simulator (2024) [Ru/Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44316.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44254.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44141.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rising Star 2 (2020) [Multi] (2.98.342/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44026.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Satisfactory (2019) [Ru/Multi] (1.0) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43937.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Satisfactory (2019) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43850.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ KeepUp Survival (2024) [Ru/Multi] (20240906/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43849.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Grocery Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43801.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ We Heist Too (2024) [En] (5.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43710.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Leo: The Firefighter Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43548.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Motel Manager Simulator (2024) [Multi] (20240908) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43382.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Farmer's Life (2021) [Ru/Multi] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43108.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Garden Witch Life (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42814.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42646.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.22714s/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42631.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Virtual Rides 3 - Funfair Simulator (2017) [Multi] (2.6.0f2.2/dlc) License GOG [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42579.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42575.jpg" />
 </div>
 
 

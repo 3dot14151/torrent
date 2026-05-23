@@ -6,7 +6,7 @@ Autodesk AutoCAD Electrical 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85163.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare Video Converter Ultimate 5.7.6.2 + Portable by BALISTA [Мульти
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85124.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Total Commander SE v.8.0 beta 23 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85120.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ AIDA64 Extreme Engineer Edition l Business Edition 2.30.1900 Final Portable by P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85081.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Comodo Dragon 18.0.3.0 Final + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85059.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ XLaunchpad 1.0.5.317 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85011.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85007.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ ASUS Eee PC 1000HE вспомогательный DVD-диск версия 3.0 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84996.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AVG Internet Security / AVG Internet Security Business Edition / AVG Anti-Virus 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84992.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ AIDA64 Extreme Edition l Extreme Engineer Edition l Business Edition 2.30.1900 F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84991.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84989.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Adobe Flash Player 11.2.202.228 Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84985.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Platinum Hide IP 3.1.7.6 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84983.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ AVG Anti-Virus Free 2012 12.0.2126 Build 4890 Final [Мульти, Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84963.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Abbeyroadplugins EMI - RS 124 Compressor VST.RTAS v1.0.1 x86 by AiR [англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84960.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Wise Disk Cleaner Free 7.13 Build 466 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84874.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Activation Win7 v4.0 (март)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84835.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Kill Win Locker II by Core-2 v.27.3.12 [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84817.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ad Muncher 4.92 Build 32700/3915 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84811.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Green Disc 2012.4 v6.0.0.0 (22.03.2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84801.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Ultimate Bonus for Corel VideoStudio Pro X5 15.0.0.2581 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84789.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84730.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Autodesk AutoCAD Mechanical 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84709.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Autodesk AutoCAD Mechanical 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84683.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Know Extension Pro 2008-09 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84635.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84629.jpg" />
 </div>
 
 

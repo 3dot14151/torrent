@@ -1,29 +1,3 @@
-###  Публикация: 731915   (295120) от 08.12.2013
-
-The Fog / Туман (2013) [Ru] Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вышел месяц из тумана, вынул ножик из кармана..." - знакомо с детства, с той лишь разницей, что туман в этом приключении уж больно странный, ядовитый даже. Помогите же героине, хрупкой и одурманенной токсичными испарениями женщине, разобраться: что к чему, почему и откуда, собственно, ноги растут той аварии, в которую она попала, мирно следуя на авто, никого при этом не трогая и тихо напевая - "Ой, туманы мои растума-а-аны!"(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Alawar Games, CreobitЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02740601A011DC8D2350E419EBB4A265A3E74505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424014   (295000) от 15.11.2020
 
 Battlefleet Gothic: Armada (2016) [Ru/Multi] (2.0.26100/dlc) License GOG [Complete Edition]
@@ -32,7 +6,7 @@ Battlefleet Gothic: Armada (2016) [Ru/Multi] (2.0.26100/dlc) License GOG [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295000.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Surviving Mars (2018) [Ru/Multi] (237 425/dlc) License CODEX [Digital Deluxe Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294717.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294696.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Perception (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294690.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Blackguards (2014) [Ru/Multi] (1.6/dlc) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294627.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294574.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294470.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Absolver (2017) [Ru/Multi] (1.27 503/dlc) License GOG [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294462.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Hyperdimension Neptunia Re-Birth2: Sisters Generation (2015) [En/Ru] Repack R.G.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294377.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dungeon Souls (2016) [En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293449.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Колле
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293378.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293277.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Dreampath 3. Guardian of the Fores / Тропа мечтаний 3: Хранит
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293117.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License 0x0007
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293100.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Enchanted Kingdom 4: Fiend of Darkness / Зачарованное королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292982.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Spirit Legends 2: Solar Eclipse / Легенды о духах 2. Солнечн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292911.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292749.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292559.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Slender: The Arrival (2013) [Ru/En] (2.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292317.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291405.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Junk Jack (2016) [En] (3.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291385.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291220.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ King Lucas (2016) [En/Es] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291211.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ CRAZY CHICKEN Strikes Back (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291203.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290939.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3143637E375D15CCCF70B40961032104C431255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185541   (290760) от 22.11.2017
+
+Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики [Definitive Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в очаровательный мир, где каждое принятое решение и каждый выбранный путь оказывают влияние на вашу судьбу. Obsidian Entertainment и Paradox Interactive с гордостью представляют вашему вниманию новую RPG - Pillars of Eternity! Приготовьтесь, ибо вас ожидает головокружительное приключение, наполненное новыми открытиями и опасностями. Отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52910E6C3D6B3B4967520B78BA553689E268D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

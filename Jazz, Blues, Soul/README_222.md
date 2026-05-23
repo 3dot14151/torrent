@@ -6,7 +6,7 @@ Budapest Ragtime Band - Caravan (1994) BRB Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616698.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Illinois Jacquet - The Blues; That's Me! (1969) /2000, Original Jazz Classics/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616570.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gilberto Gil - Sao Joao Vivo  (2001) 2002, Warner Music Brasil [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616500.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rev. Sekou - In Times Like These (2017) [MP3|320 Kbps] <Blues, Gospel>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616496.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ornette Coleman - Skies Of America (1972) /2014, Columbia/[FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616442.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cannonball Adderley - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616435.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eartha Kitt - The Real... Eartha Kitt (The Ultimate Collection) (2015) 3CD [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616351.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ George Thorogood & The Delaware Destroyers - George Thorogood & The Delaware Des
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616193.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John McNamara - Rollin' With It (2017) [MP3|320 Kbps] <Blues Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615961.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615743.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615742.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chet Baker And Crew (1956, 1959) 2CD, 2018, Jazz Images [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615709.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Laurindo Almeida - Guitar From Ipanema (1964) Japan Edition, 2011, Capitol / EMI
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615675.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Melanie De Biasio - Blackened Cities (2016) [FLAC|Lossless|image + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615668.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Maria Christina, Federico Casagrande - Morning Swim (2018) [MP3|320 Kbps] <Jazz,
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615621.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Joanne Le Blanc - Found & Lost (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615492.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Blue Magic - Mystic Dragons (1976) [FLAC|Lossless]<Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615416.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Bob Leaper Big Band - Big Band, Beatle Songs (2005) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615408.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Branford Marsalis Quartet - The Secret Between The Shadow And The Soul (2019) Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615240.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Smooth Jazz Dinner Party (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615142.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ M. Pokora - PYRAMIDE (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Funk, Soul, Pop>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615059.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Milt Jackson - Mostly Duke (1982) 1998, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614773.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Gre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614772.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614771.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Stanley Turrentine - Six Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614770.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ Shri Blues Band - SHRI (2014) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614766.jpg" />
 </div>
 
 

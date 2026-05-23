@@ -1,29 +1,3 @@
-###  Публикация: 930033   (517015) от 21.08.2015
-
-Monstrum (2015) [En] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Monstrum - жуткий хоррор-экшен, где вам предстоит выжить на заброшенном корабле, который наполнен смертельными ловушками! Действие игры происходит на заброшенном корабле, который вот уже не одно десятилетие покоится в одном из старых доков. Однажды его команда полностью испарилась в неизвестном направлении, и после этого о нём все благополучно забыли. Наш главный (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Team JunkfishЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DCF591EAB436E19C8568B7775B1B6308C466F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229014   (516754) от 16.07.2019
 
 Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.6.1) License CODEX
@@ -32,7 +6,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.6.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516754.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mechanism (2018) [Ru/Multi] (1.0.6) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515938.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tyler Model 005 (2018) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515835.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Pure Hold'em (2015) [Ru/Multi] (1.0) License HI2U
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515811.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.1.1/dlc) Repack R.G. Catalyst [Deluxe Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515806.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shadowrun: Hong Kong (2015) [En] Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515805.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515761.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Overlord: Fellowship of Evil (2015) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515758.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Hive (2016) [En] (1.108) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515703.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Ghostrunner (2020) [Ru/Multi] (42507_446/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515417.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Experience 112 [Ru/En] (RePack/1.0) 2008 | Sash HD
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515356.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Dark Realm 2: Princess of Ice (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515201.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Violett Remastered (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514829.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Rollcage: Dilogy / Rollcage: Дилогия (1999-2000) [En] (1.3.8/1.1.8) Repac
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514822.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ FIA European Truck Racing Championship (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514783.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Truck Nation (2014) [Ru/Multi] (2.1) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514757.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Massive Chalice (2015) [En/Multi] (1.04) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514749.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Sir, You Are Being Hunted (2013) [Ru/En] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514748.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Transformers: Rise of the Dark Spark (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514744.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Torchlight II (2012) [Ru/Multi] (1.25.9.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514728.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08a HotFix 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514723.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Chaos Reborn (2015) [Ru/Multi] (1.13.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514721.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Secret City 3: The Human Threat (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513732.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Double Dragon Trilogy (2013) [Ru/Multi] (1.0/upd3) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513568.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Iron Danger (2020) [Ru/Multi] (1.03.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513305.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Iron Danger - игра, в основе которой лежат тактиче
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97143FAA93061D48EE9B8B88E43D620BCA2FEE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174863   (513303) от 06.07.2022
+
+Furi (2016) [Ru/Multi] (1.7.224/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы в плену врага. Взгляните, что они сделали с вами... Тюремщик - это ключ. Убейте его, и окажетесь на свободе. Сражайтесь на мечах, стреляйте и с боем прорывайтесь на свободу в этой динамичной и напряженной игре. Дизайн боссов - Такаси Оказаки. Музыка в исполнении Carpenter Brut, Danger, The Toxic Avenger, Lorn, Scattle, Waveshaper и Kn1ght!Тип издания: LicenseРазработчик: The Game BakersЖанр: Action, Сражения, ФантаcтикаЯзык озвучки: Английский, Французский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAD5C3CFF93E91BEB2D52C5D51F376D0AE67A93
 ```
 
 https://mybot314.ru/tekegram_catalog/

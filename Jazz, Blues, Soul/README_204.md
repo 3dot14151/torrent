@@ -6,7 +6,7 @@ Roy Rogers - Into The Wild Unknown (2015) [MP3|320 кб/с]<Blues, Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653313.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Manuel Rocheman - Cactus Dance (2007) Nocturne [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652731.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fred Astaire - The Great MGM Stars (1940-e - 1950-e) 1991, EMI Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652730.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kansas City Jazz Orchestra - Take One (2005) KCJO Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652729.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mighty Mike Schermer - Bad Tattoo (2019) [FLAC|Lossless|tracks + .cue] <Blues, B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652652.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Albert Vila - The Unquiet Sky (2016) Fresh Sound New Talent [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652648.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Jazz Vibes: Milestones Of Legends (1949 - 1962) 10CD, 2017, The Intense Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652637.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dave McKenna - Blues Up: Piano Solo (1955, 1963) 2007, Fresh Sound Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652566.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Marco Mezquida Trio + Bill McHenry - Cantabile (2015) Fresh Sound New Talent [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652565.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652564.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652563.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Mais
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652562.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Clementine - Cle (2003) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652561.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652559.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652556.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Duke Ellington - Elvin chez Duke: European Tour - January 1966 (2015) La Maison 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652551.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ David Bixler - Call It A Good Deal (2006) Zoho Music [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652469.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jack Teagarden - 1944 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652467.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Jazz Romance. Romantic Smooth Jazz for Two (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652462.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chuck Berry - Chuck (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652447.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Robin Trower - Let There Be A Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652193.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Denny Zeitlin Trio - Live at the Trident (1965) Remaster, 2014, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652166.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Hendrik Meurkens Quartet - A Night In Jakarta (2010) [FLAC|Lossless]<Jazz, Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652097.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ George Winston - Ballads And Blues 1972 - Piano Solos (1973) LP [MP3|320 Kbps] <
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651996.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kris Dollimore - All Grown Up (2015) [MP3|320 кб/с]<Acoustic Blues, Roots>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651923.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jai Malano - Rocket Girl (2015) [MP3|320 кб/с]<Rockabilly Blues, R&B, Blues S
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651730.jpg" />
 </div>
 
 

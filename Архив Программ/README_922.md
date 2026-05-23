@@ -6,7 +6,7 @@ ShareX 13.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583693.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Volume2 1.1.4.340 (RC5) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583671.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MakeMKV 1.9.4 Beta [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583669.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ O&O Defrag Professional 18.9 Build 60 Portable by KloneB@DGuY [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583625.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CyberLink YouCam Deluxe 7.0.0611.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583618.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TeraByte Unlimited Image for Windows 2.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583615.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AutoRun Pro Enterprise 14.4.0.373 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583614.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ USBboot Installer++ 1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583611.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ ArchiCAD 15 build 3006 x86+x64 [2011, ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583569.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1739]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583560.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Toon Boom Harmony Premium 21.0.0 Build 17367 (x64) RePack by PooShock [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583559.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Windows 7 Professional VL SP1 x64 (build 6.1.7601.25956) by ivandubskoj 23.05.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583556.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ V-Ray 5.20.05 for SketchUp 2017-2022 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583554.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Windows 7 Embedded x64 (lite) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583546.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Reg Organizer 7.15 DC 16.07.2015 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583542.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Windows 8.1-7 SP1 x64 PE Office 2013 StartSoft 38-39-41 2015 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583537.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Adobe Acrobat X Pro 10.1.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583534.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ USDownloader 1.3.5.9 Portable (07.08.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583419.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Glary Utilities Pro 5.119.0.144 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583335.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ MAGIX - VariVerb II 2.6.0 VST (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583326.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dashcam Viewer 3.2.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583274.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ MAGIX - Analogue Modelling Suite Plus 2.6.0 VST (x86/x64) RePack by VR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583266.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ uTorrent 3.4.8 Build 42449  Stable Portable by A1eksandr1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583249.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Adobe Prelude CC 2015.4.1 5.0.1 (20) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583245.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ FreeFileSync 10.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583209.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Freemake Video Converter 4.1.10.237 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583206.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Top 50 Club Tracks 3 (2019) [MP3|320 Kbps] <House, Club House, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893013.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Громкие новинки Марта Vol 2 (2020) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893012.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Лучшие песни о Любви в День Святого Вален
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892731.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Music News vol.129 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892170.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Beatport Bassline: Electro Sound Pack #41 (2020) [MP3|320 Kbps] <D&B, Bassl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892038.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Shazam Хит-парад World Top 200 Август (2021) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891991.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Карантин (Когда остался дома) (2020) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891843.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - EDM Forever Soundset (2016) [MP3|253-320 кб/с] <House, Funky, Tropical, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891653.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Милым дамам к празднику весны (2016) [MP3|256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891649.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891644.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891599.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891552.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891534.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891436.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - 100 Gold Classic Music Vol.2 (2017) [MP3|320 Kbps] <Classical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890337.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - 100 Gold Classic Music (2016) [MP3|320 Kbps] <Classical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890331.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - не Громкие новинки недели 61 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890099.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Тебе любимая! (2016) [MP3|320 кб/с] <Pop, Шансон>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889848.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Clubничка №100 (2016) [MP3|256 кб/с] <Club , Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889823.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Va - Подарок любимой женщине (2016) [MP3|320 кб/с] <По
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889780.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - 80-90th Discotheque In A New Way Vol.24 (2016) [MP3|320 кб/с] <Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889627.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - When Rock Goes Slow: Top Acoustic Rock Tracks (2016) [MP3|320 кб/с] <Dow
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888219.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Club Dance Ambience Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up, Dance, C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887690.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Лучшие Хиты 90-х! (DJ Sergio) (2014) от NNNB [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887227.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Новинки С Разных Популярных мп3 Сайтов ver.
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886374.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885966.jpg" />
 </div>
 
 

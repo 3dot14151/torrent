@@ -6,7 +6,7 @@ EaseUS Data Recovery Wizard Technician 16.3.0.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179853.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Auslogics Duplicate File Finder 10.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179850.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AAF DCH Optimus Sound 6.0.9066.2 Realtek Mod by AlanFinotty1995 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179846.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Auslogics Duplicate File Finder 10.0.0.1 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179839.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Xilinx Vitis Unified Software Platform 2020.2 [En] (unpacked)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179837.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SketchUp Pro 2023 23.1.329 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179826.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ TweakPower 2.030 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179821.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Comodo Dragon 106.0.5249.119 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179819.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ IObit Uninstaller Pro 10.2.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179815.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179807.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Auslogics Disk Defrag Pro 11.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179802.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FastFlix 5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179791.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Futuremark 3DMark 2.16.7094 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179787.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sandboxie plus 1.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179769.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Auslogics File Recovery 11.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179768.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ W10 Digital Activation v1.4.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179760.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Bigasoft Audio Converter 5.6.4.8366 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179751.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Windows Privacy Dashboard (WPD) 1.4.1722 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179749.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PowerISO 8.3 (DC 25.11.2022) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179745.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ FBackup 9.8.699 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179744.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Office 2013-2021 C2R Install 7.4.9 b02 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179735.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Office 2013-2021 C2R Install 7.4.9 b01 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179731.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179724.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ CPUID HWMonitor 1.43 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179723.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ ZW3D 2023X [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179722.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Icecream Screen Recorder PRO 7.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179713.jpg" />
 </div>
 
 

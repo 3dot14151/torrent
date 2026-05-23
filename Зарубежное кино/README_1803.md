@@ -1,55 +1,3 @@
-###  Публикация: 1590830   (187665) от 16.11.2022
-
-Затерянная гробница / Перезагрузка: Бездна ложной гробницы / Chong Qi Zhi Shen Yuan Yi Zhong / Restart: Mystery of the Abyss (2022) WEBRip [H.265/2160p] [4K, SDR] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в одном из поселений на китайско-бирманской границе. Черные Очки, чье заболевание глаз обострилось, собирается уйти от дел и жить в этом поселении беззаботной жизнью. Однако его хороший друг Се Юй Чэнь не готов смириться с тем, что тот останется слеп до конца своих дней и решает лично возглавить экспедицию в чащу леса в поисках лекарства. Но все (   Читать дальше...   )Производство: Китай / Tencent Video, YoukuЖанр: Ужасы, приключения, боевик, триллерРежиссер: Чэнь ЦзюйлиАктеры: Цзи Сяо Бин, Цзи ЧэньПеревод: Двуголосый любительский (RealFake)Язык озвучки: РусскийСубтитры: Китайские (hardsub)Продолжительность: 01:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6AB83DF57E6B58E92995473CFF04821105C16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590881   (187664) от 16.11.2022
-
-Тайны Белла Виста / The Secrets of Bella Vista (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Тесс неожиданно узнаёт, что дедушка со стороны отца, которого она никогда не знала, оставил ей в наследство часть яблоневого сада. Девушка нехотя приезжает туда и узнаёт, что у неё есть ещё и сводная сестра, о существовании которой она даже не подозревала. Белла Виста оказывается прекрасным местом, однако дела у сада идут так себе, поэтому Тесс и её новообретённой (   Читать дальше...   )Производство: США / Hallmark Movies & MysteriesЖанр: драма, мелодрамаРежиссер: Хизер Хоторн ДойлАктеры: Рашель Лефевр, Найолл Мэттер, Хелена Мари Патт, Сара Хейуорд, Adina Insley, Скотт Макграт, Калын Майлс, Дэйв Уолден, Camila Savia, Милагрос ВидальПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A5C9BA5371864E3D85FF7216C2A5FB0E26B717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662646   (187662) от 18.09.2023
 
 Недостатки / Shortcomings (2023) WEB-DL [H.265/2160p] [4K, HDR+, 10-bit] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187662.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187661.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187657.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187656.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187646.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187642.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187636.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187634.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187632.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187630.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187626.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187622.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187616.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187612.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187609.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187595.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187572.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187571.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187551.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187521.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187497.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187456.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187440.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187439.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D2200AFA1C3A71525B0A386AEE2EFFC84691103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591048   (187436) от 17.11.2022
+
+Риддик / Riddick (2013) BDRip [H.264] [Theatrical Cut] [RUS Transfer] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преданный своими и брошенный умирать на пустынной планете, Риддик сражается с хищниками за жизнь и становится сильнее и опаснее себя прежнего. Открывшие на него охоту галактические наемники оказываются пешками в грандиозном плане отмщения. С врагами, возникающими на его пути тогда, когда это нужно самому Риддику, он начинает поход во имя мести.Производство: Канада, США / One Race Productions, Radar Pictures Inc., White HareЖанр: фантастика, боевик, триллер, приключенияРежиссер: Дэвид ТуиАктеры: Вин Дизель, Хорди Молья, Мэтью Нэйбл, Кэти Сакхофф, Дэйв Батиста, Боким Вудбайн, Рауль Макс Трухильо, Конрад Пла, Дэнни Бланко, Карл УрбанПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875DBA307E023962CBD4EDD8DEB8D128068D64CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590962   (187434) от 17.11.2022
+
+Пункт назначения 5 / Final Destination 5 (2011) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187434.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Сэма Лоутона происходит жуткое видение: подвесной мост, на котором он находится со своими друзьями, рушится, и многие люди, включая его самого, погибают. Сэм начинает паниковать и уговаривает своих друзей и ещё нескольких «счастливчиков» уйти с моста. И как раз вовремя: как и предвидел Сэм, мост рушится на их глазах и множество людей погибает. Однако Сэм и его (   Читать дальше...   )Производство: США, Канада, Сингапур, Гонконг / New Line Cinema, Practical Pictures, Parallel ZideЖанр: ужасы, триллерРежиссер: Стивен КуэйлАктеры: Николас Д’Агосто, Эмма Белл, Майлз Фишер, Эллен Ро, Жаклин МакИннес Вуд, П.Дж. Бирн, Арлен Эскарпета, Дэвид Кокнер, Кортни Б. Вэнс, Тони ТоддПеревод: дублированныйЯзык озвучки: русский, украиснкий, английскийСубтитры: русские (forced, full), английские (full)Продолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E97DB74BB3F007CA6E19D91D54ED2BCAC5B3464
 ```
 
 https://mybot314.ru/tekegram_catalog/

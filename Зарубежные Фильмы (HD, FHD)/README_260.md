@@ -1,56 +1,3 @@
-###  Публикация: 1374486   (825831) от 07.05.2020
-
-Пещера / The Cave (2005) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В лесных дебрях Румынии группа ученых наталкивается на руины аббатства XIII века. Обследовав их, они совершают удивительное открытие — это сооружение было построено над входом в гигантский подземный грот. А по мнению местных биологов, в гроте существует уникальная и еще не познанная экосистема.
-В итоге они отправляются выведывать ее тайны вместе с американскими спелеологами (   Читать дальше...   )Производство: США / Screen Gems, Cinerenta Medienbeteiligungs KG, Lakeshore EntertainmentЖанр: ужасы, фантастика, боевик, триллер, приключенияРежиссер: Брюс ХантАктеры: Коул Хаузер, Эдди Сибриан, Моррис Честнат, Лина Хиди, Пайпер Перабо, Рик Раванелло, Дэниэл Дэ Ким, Киран Дарси-Смит, Марчел Юреш, Влад РадескуПеревод: Профессиональный многоголосый (СТС)Субтитры: русские, английскиеПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA8014C3F758EE836512931CFCA715DD9818832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447546   (825826) от 07.05.2020
-
-В тихом омуте / Beneath Still Waters (2005) BDRemux [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Жители города, хранившего страшную древнюю тайну, решают покинуть его и затопить в искусственном озере. Но 50 лет спустя проклятый город оживает вновь, и его призраки угрожают смертью и безумием. То, что казалось далекой легендой, становится реальностью…Производство: Испания, Великобритания / Fantastic Factory (Filmax), Canal+ España, Ministerio de Cultura - ICAAЖанр: Ужасы, Триллер, ДетективРежиссер: Брайан ЮзнаАктеры: Омар Муньос, Santiago Pasaglia, Ева Понт, Норберто Моран, Уго Меса, Эсперанса де ла Вега, Патрик Гордон, Шарлотта Солт, Антонио Портильо, Пилар СотоПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CF4F083CB25E51139BD4D7BA3676DCC1E967EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115769   (825806) от 18.03.2017
 
 Кредо убийцы / Assassin's Creed (2016) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825806.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825804.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825754.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825737.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825727.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825726.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825724.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825722.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825719.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825706.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825681.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825678.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825630.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825629.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825518.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825245.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825074.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825019.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825013.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824890.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824736.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824730.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824723.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824652.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAB6A5B5119364F2F1D536915E0404876AAD264A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502829   (824642) от 16.10.2021
+
+Отряд самоубийц: Миссия навылет / The Suicide Squad (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Отобрав наиболее перспективных заключенных из тюрьмы, в которой содержатся не только самые опасные преступники, но и люди со свехрспособностями, и даже не люди, правительственный агент отправляет их на самоубийственное задание в одну латиноамериканскую страну, где недавно произошел военный переворот. А чтобы те наверняка не сбежали, каждому в голову вживляется (   Читать дальше...   )Производство: США, Канада, Великобритания / The Warner Bros., DC Comics, Atlas EntertainmentЖанр: Боевик, фантастика, комедия, фэнтезиРежиссер: Джеймс ГаннАктеры: Марго Робби, Идрис Эльба, Джон Сина, Юэль Киннаман, Даниэла Мелшиор, Питер Капальди, Давид Дастмалчян, Сильвестр Сталлоне, Виола Дэвис, Алиси БрагаПеревод: Дублированный, многоголосый профессиональный, двухголосый любительский, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced х2, full х4), украинские (forced), английские, эстонские, литовские, французские, испанскиеПродолжительность: 02:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE87CC03383925F6A455BF5D30A38E6A5B70E63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502786   (824640) от 16.10.2021
+
+Отряд самоубийц: Миссия навылет / The Suicide Squad (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отобрав наиболее перспективных заключенных из тюрьмы, в которой содержатся не только самые опасные преступники, но и люди со свехрспособностями, и даже не люди, правительственный агент отправляет их на самоубийственное задание в одну латиноамериканскую страну, где недавно произошел военный переворот. А чтобы те наверняка не сбежали, каждому в голову вживляется взрывное (   Читать дальше...   )Производство: США, Канада, Великобритания /  Atlas Entertainment, DC Comics, DC Entertainment, Safran Company, The, Warner Bros.Жанр: Боевик, фантастика, комедия, фэнтезиРежиссер: Джеймс ГаннАктеры: Идрис Эльба, Марго Робби, Джон Сина, Юэль Киннаман, Даниэла Мелшиор, Питер Капальди, Давид Дастмалчян, Сильвестр Сталлоне, Виола Дэвис, Алиси БрагаПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, SDH)Продолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA939DE9B4F398C444A942246DDEE739CC9A2B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

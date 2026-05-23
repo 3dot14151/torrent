@@ -1,31 +1,3 @@
-###  Публикация: 979246   (960879) от 25.01.2016
-
-Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Проект Debian с радостью сообщает о третьем обновлении своего стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются при необходимости.
-
-Заметьте, что это (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE1FDC84A1E0D9D965738306F02A4EC30F90B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979249   (960763) от 25.01.2016
 
 KNOPPIX 7.6.1 [x32, x64] 1xDVD
@@ -34,7 +6,7 @@ KNOPPIX 7.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960763.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Debian GNU/Linux 8.3.0 Jessie [amd64] 3xDVD, 2x update DVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959529.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959496.jpg" />
 </div>
 
 
@@ -116,7 +88,7 @@ ROSA Desktop Fresh (KDE + Plasma) R7 [x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959416.jpg" />
 </div>
 
 
@@ -144,7 +116,7 @@ SolusOS 1.3 (Debian + Gnome) [x86, amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958520.jpg" />
 </div>
 
 
@@ -172,7 +144,7 @@ BackBox Linux 4.5 [Анализ безопасности, хакинг] [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958189.jpg" />
 </div>
 
 
@@ -201,7 +173,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957104.jpg" />
 </div>
 
 
@@ -229,7 +201,7 @@ Window Maker Live  0.95.7-2 (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957090.jpg" />
 </div>
 
 
@@ -255,7 +227,7 @@ Debian GNU/Linux 6.0.7 [amd64, x86-64] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956510.jpg" />
 </div>
 
 
@@ -283,7 +255,7 @@ Sabayon 16.02 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955779.jpg" />
 </div>
 
 
@@ -309,7 +281,7 @@ Debian GNU/Linux 8.3.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955689.jpg" />
 </div>
 
 
@@ -337,7 +309,7 @@ Debian GNU/kFreeBSD 6.0.7 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955286.jpg" />
 </div>
 
 
@@ -367,7 +339,7 @@ Manjaro Linux 0.8.4 (Arch с несколькими рабочими стола�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955098.jpg" />
 </div>
 
 
@@ -395,7 +367,7 @@ Debian GNU/Linux 6.0.7 [i386] (10xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954954.jpg" />
 </div>
 
 
@@ -423,7 +395,7 @@ Linux Mint 17.1 Rebecca KDE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952821.jpg" />
 </div>
 
 
@@ -451,7 +423,7 @@ Solus 2017.01.01.0-Budgie [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948529.jpg" />
 </div>
 
 
@@ -479,7 +451,7 @@ Red Hat Enterprise Linux 6.4 [i386] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946976.jpg" />
 </div>
 
 
@@ -507,7 +479,7 @@ Red Hat Enterprise Linux 6.4 [x86-64] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946883.jpg" />
 </div>
 
 
@@ -535,7 +507,7 @@ Manjaro Linux 16.10.3 Fringilla (KDE, Xfce, Cinnamon) [i686/x86_64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945435.jpg" />
 </div>
 
 
@@ -561,7 +533,7 @@ Q4OS 1.4.7 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941591.jpg" />
 </div>
 
 
@@ -589,7 +561,7 @@ CentOS 6.4 [i386] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937999.jpg" />
 </div>
 
 
@@ -617,7 +589,7 @@ CentOS 6.4 [x86-64] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937858.jpg" />
 </div>
 
 
@@ -637,34 +609,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 629126   (934458) от 11.03.2013
-
-Chakra (Arch + KDE) 2013.03 Benz [x86-64] (1xDVD)
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз Chakra GNU/Linux 2013.03 – второй выпуск новой ветки Benz (под таким кодовым наименованием будут выходить релизы Chakra GNU/Linux с рабочим окружением KDE 4.10.x) дистрибутива с непрерывным циклом обновления, выполненного на основе наработок Arch Linux и среды рабочего стола KDE.
-
-Основные особенности выпуска Chakra GNU/Linux 2013.03:  KDE 4.10.1; Glib2 2.34.3, Networkmanager 0.9.8.0, Iw 3.8, Libffi 3.0.12, Libnl 3.2.21, Db 5.3.21, Apr 1.4.6, с обновлением всех зависимостей. Calligra 2.6.1, LibreOffice to 4.0.1, Chromium 25.0.1364.160, Firefox 19.0.2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629309   (932767) от 12.03.2013
 
 openSUSE 12.3 (KDE, Gnome, NET, Rescue) [i586, i686, x86-64] (4xDVD + 4хCD)
@@ -673,7 +617,7 @@ openSUSE 12.3 (KDE, Gnome, NET, Rescue) [i586, i686, x86-64] (4xDVD + 4хCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932767.jpg" />
 </div>
 
 
@@ -701,7 +645,7 @@ Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932114.jpg" />
 </div>
 
 
@@ -712,6 +656,58 @@ Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A266A1298277124ED88EF3F03524BCAD0195F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094133   (930586) от 17.01.2017
+
+Debian GNU/Linux 8.7.0 Jessie Live (free + nonfree) [i386] 14xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Debian выпустили седьмое корректирующее обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.7 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. Выпуск включает 87 обновлений с устранением проблем со стабильностью и 86 обновлений с устранением уязвимостей. Из изменений в Debian 8.7 можно отметить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7DD4EAD3C5D43E3771353061856474A691E599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093979   (930463) от 17.01.2017
+
+Debian GNU/Linux 8.7.0 Jessie [i386] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Debian выпустили седьмое корректирующее обновление для стабильного дистрибутива Debian 8 (Jessie). Релиз 8.7 в основном исправляет проблемы с безопасностью, а также вносит некоторые коррективы в работу. Выпуск включает 87 обновлений с устранением проблем со стабильностью и 86 обновлений с устранением уязвимостей. Из изменений в Debian 8.7 можно отметить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CB23BB1ACE9208BEA1B31CF7B88DC613EE38D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

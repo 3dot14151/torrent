@@ -6,7 +6,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876778.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872965.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872858.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870818.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ D4DJ First Mix | Первый микс [2020, TV, 13 из 13] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869790.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ore, Tsushima | Я — Цусима [2021, TV, 12 эп.] WebRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869218.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868881.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868614.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868225.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [Т
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867883.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Medaka Box: Abnormal | Medaka Box 2 | Ящик предложений Мэдак
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863470.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Punch Line | Punchline | Вся суть в трусах | Изюминка [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860649.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859865.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Strike the Blood IV | Удар крови [OVA-4] [2020, OVA, 12 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859288.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Bokutachi no Remake | Remake Our Life! | Ремейк нашей жизни [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859235.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Vinland Saga | Сага о Винланде [2019, TV, 24 из 24] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858473.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Beck: Mongolian Chop Squad / Бек [2004, TV, 26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857860.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Gen'ei o Kakeru Taiyou | Day Break Illusion | Солнце, пронзающее
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856768.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854795.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери же�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854700.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kurozuka | Куродзука [2008, TV, 12 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854380.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Magimoji Rurumo | Ведьмочка Рурумо [2014, TV, 12 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854149.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Gekijouban Kara no Kyoukai / The Garden of Sinners / Сад грешников (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852122.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Girl Friend (Kari) / Girl Friend Beta / Подружка Бета [2014, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848510.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Gintama° / Гинтама [ТВ-4] [2015, TV, 51 из 51] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848393.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848177.jpg" />
 </div>
 
 

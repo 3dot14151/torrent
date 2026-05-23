@@ -1,55 +1,3 @@
-###  Публикация: 1650983   (223891) от 04.08.2023
-
-Скрижали судьбы / The Secret Scripture (2016) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому роману Себастьяна Барри «The Secret Scripture». Розанна Макналти, в молодости неотразимая жизнелюбивая красавица, большую часть жизни провела в психиатрической клинике. Она находилась за решёткой так долго, что уже никто не помнил, почему она там оказалась. Когда в клинику прибыл новый психиатр доктор Грин, судьба загадочной пациентки вызвала у него (   Читать дальше...   )Производство: Ирландия, Apollo Media, Ferndale Films, Irish Film BoardЖанр: драма, мелодрамаРежиссер: Джим ШериданАктеры: Руни Мара, Тео Джеймс, Эйдан Тёрнер, Эрик Бана, Ванесса Редгрейв, Джек Рейнор, Сьюзэн Линч, Энтони Ачеампонг, Омар Шариф мл., Полин Маклин, Эдриан Данбар, Том Вон-Лолор, Джон Коннорс, Чарли Келли, Брайан ФорчунПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (Кинопоиск), английскиеКачество: BDRipПродолжительность: 01:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6C6D7E0C26856BE6BF2CF579FD1F9430F9DD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651032   (223873) от 04.08.2023
-
-Малышка на драйве / Спецдоставка / Teuksong / Special Delivery (2022) BDRip [H264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Девушке-курьеру Ын-ха любое задание по плечу. Не особо заморачиваясь с моральными и юридическими аспектами работы, она честно доставляет что угодно куда угодно, лишь бы заказчики хорошо платили. Но на очередном вызове всё идёт не так. Клиент так и не появился, зато преследуемый двумя громилами прибежал его маленький сын. Теперь Ын-ха предстоит выяснить, что делать (   Читать дальше...   )Производство: Южная Корея / Library Pictures International, M PicturesЖанр: боевик, криминал, триллерРежиссер: Пак Тэ-минАктеры: Пак Со-дам, Чон Хён-джун, Сон Сэ-бёк, Ким И-сон, Ём Хе-ран, Хан Хён-мин, Ён У-джин, Хо Дон-вон, О Рюн, Пэк То-гёмПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские (18+)Продолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2402B229EF25ECE0DB9119329042EA435A192050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268882   (223845) от 12.12.2018
 
 Маугли / Mowgli (2018) WEBRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223845.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223820.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223812.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223794.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223793.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223763.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223759.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223747.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223732.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223724.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223708.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223704.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223695.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223693.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223687.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223676.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223671.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223667.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223655.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223641.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223632.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223625.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223602.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223587.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:853AB643A5068696F36EA5079A436DBBAFAFBAA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342509   (223574) от 02.12.2019
+
+Когда звонит незнакомец / When a Stranger Calls (2006) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223574.jpg" />
+</div>
+
+
+###  Подробнее
+
+На некоторые звонки лучше не отвечать — проблема лишь в том, что порой узнаешь об этом, когда уже поднял трубку… Старшеклассница Джилл остается посидеть с детьми четы Мандракис в их доме, пока хозяева ужинают в ресторане. Отправив малышей спать, девушка отчаянно скучает в огромном пустом особняке, и если бы не телефон, по которому можно поболтать с друзьями, ей стало (   Читать дальше...   )Производство: США / Screen Gems, Davis EntertainmentЖанр: Ужасы, Триллер, Криминал, ДетективРежиссер: Саймон УэстАктеры: Камилла Белль, Томми Флэнаган, Кэти Кэссиди, Тесса Томпсон, Брайан Джерати, Кларк Грегг, Дерек де Линт, Кейт Дженнингс Грант, Дэвид Денман, Артур ЯнгПеревод: Дублированный, Двухголосый профессиональныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), Английские (full, sdh)Продолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A966358051A076A9E0C3D83A0C5A7C72F138ADBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965650   (223528) от 15.12.2015
+
+Байки из склепа: Демон ночи / Tales from the Crypt: Demon Knight (1995) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223528.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Рыцаря-демона разворачивается вокруг артефакта. Артефакт - это ключ, один из семи ключей, которые могут открыть врата Ада и выпустить Тьму. В начале, когда ещё не существовало Земли как таковой, демоны пытались использовать эти семь ключей,чтобы сконцентрировать силу космоса в их руках, но после того, как Бог создал ее, он разбросал семь ключей по всей Вселенной. (   Читать дальше...   )Производство: США, Universal PicturesЖанр: Ужасы, ФантастикаРежиссер: Эрнест Р. ДикерсонАктеры: Джон Кассир , Билли Зейн, Уильям Сэдлер, Джада Пинкетт Смит, Бренда Бакки, Си Си Эйч Паундер, Дик Миллер, Томас Хейден Чёрч, Джон Шак, Гэри Фармер, Чарльз Флайшер, Тим Де Зарн, Шерри Роуз, Райан О`Донохью, Тони Салом, Кен Болдуин, Чейси Лэйн, Реда Биби, Трэйси БингхэмПеревод: Профессиональный (многоголосый, закадровый) х 3, профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русский, английскийПродолжительность: 01:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B8CF2FD580F4AECE44867EFA19DD24CE0BC71F
 ```
 
 https://mybot314.ru/tekegram_catalog/

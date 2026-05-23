@@ -6,7 +6,7 @@ Advanced Installer 14.7 Architect [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776749.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox ESR 52.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776737.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GOM Player 2.3.2 Build 5251 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776733.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Start Menu 8 4.2.0.2 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776714.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sigil 0.9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776712.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dicter 3.81 Portable by yn_nemiroff [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776707.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Audition CC 2018 (11.0.2.2) Portable by XpucT (DC) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776699.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ All AVS4YOU Software in 1 Installation Package 3.1.1.131 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776680.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SolidAngle C4DtoA 1.0.13.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776656.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ HitmanPro.Alert 3.7.6 Build 737 Repack by sashamitr94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776634.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WinPE 10 Sergei Strelec (x86/x64) 05.05.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776597.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Anvir Task Manager 8.0.2 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776536.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Anvir Task Manager 8.0.3 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776531.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Anvir Task Manager 8.0.3 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776519.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776493.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Easy Disc Burner 4.7.9.351 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776492.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ TagScanner 6.0.27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776474.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ WinSnap 4.6.1 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776462.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Alternate File Shredder 1.870 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776451.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Q-Dir 6.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776442.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Anvir Task Manager 8.0.2 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776441.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Calibre 3.19.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776422.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776406.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Anvir Task Manager 8.0.3 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776397.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Auslogics Registry Cleaner 7.0.5.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776393.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ PDF Shaper Professional 8.2 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776389.jpg" />
 </div>
 
 

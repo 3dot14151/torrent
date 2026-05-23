@@ -6,7 +6,7 @@ JottaCloud 3.1.60.546 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Telegram Desktop 1.0.2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926052.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IDrive 6.5.1.24 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926048.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Video Converter Pro 2.11.59 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925995.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ USDownloader 1.3.5.9 (16.02.2016) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925986.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Glarysoft Malware Hunter PRO 1.28.0.48 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925966.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Prelude CC 2017 6.0.2.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925958.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Panda Protection 18.00.00 DC 15.01.2017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925950.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tanida Demo Builder 11.0.18.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925946.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AdwCleaner 5.034 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925913.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ XETRANSLATOR 3.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925907.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Alternate Password DB 2.260 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925897.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Maxthon Browser MX5 5.0.2.1400 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925885.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft OneDrive 17.3.6720.1207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925883.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Wise Video Converter Pro 2.11.59 & Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925878.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Display Driver Uninstaller 15.7.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925847.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PowerISO 6.5 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925823.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Wise Registry Cleaner Pro 9.38.610 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925807.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Baidu Cloud 5.5.2 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925804.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ AMD Radeon Software Crimson ReLive Edition 17.1.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925800.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adobe Acrobat Pro DC 2015.023.20056 RePack by Pilot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925799.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Windows 7 Manager 5.1.9.2 RePack (& portable) by Pilot [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925796.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ TeamViewer Free 11.0.55321 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925757.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ DriverPack Solution Online 17.4.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925735.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Windows Firewall Control 4.6.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925727.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Adobe Media Encoder CC 2017.0.2 11.0.2.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925715.jpg" />
 </div>
 
 

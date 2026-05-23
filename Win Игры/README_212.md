@@ -1,29 +1,3 @@
-###  Публикация: 1066029   (566573) от 24.05.2019
-
-War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underlord Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Устали захватывать чужие подземелья? Вы до смерти устали вспарывать животы сотням плохих парней, лишь бы заработать чуток золота да найти ботинки получше? Вы начинаете думать, что жизнь героя - это не для вас? Добро пожаловать в War for the Overworld! War for the Overworld берет лучшее из двух жанров - стратегии в реальном времени и симулятора бога - и позволяет (   Читать дальше...   )Тип издания: RepackРазработчик: Subterranean GamesЖанр: Strategy (God Sim, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09371733EFA0049ABBEF378190DC488F8EFBDCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175068   (566557) от 24.05.2019
 
 Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
@@ -32,7 +6,7 @@ Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566557.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Death's Gambit: Afterlife (2021) [Ru/Multi] (2.23/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566456.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566411.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Wood Land Arcanoid [En] (L) 2012
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566234.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Feist (2015) [Ru/Multi] (1.0) RePack xGhost
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566072.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ ICY (2015) [En] (1.0) Rip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566011.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Turner (2016) [En/Es] (1.5) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565035.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Phantasmat 7: Reign of Shadows / Фантазмат 7: Власть теней (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565032.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Dollhouse (2019) [Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564976.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ You Deserve (2016) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564903.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564847.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Last Will (2016) [En] (Beta) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564748.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Shadow Bug (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564735.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ You Deserve (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564670.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ The Fall of the Dungeon Guardians (2015) [En/Multi] (1.0e) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564668.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.39.03) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564659.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Savage Resurrection (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564559.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Forge of Empires (2012) [Ru] (1.82) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564551.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Painkiller: Resurrection / Painkiller: Воскрешение (2010) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564161.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Reflecting Fate (2017) [En] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563028.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном м�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562857.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_562772.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Dreamfall Chapters (2017) [Multi] (5.7.2.1/dlc) License CODEX [The Final Cut Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562743.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.1.4/dlc) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562736.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562722.jpg" />
 </div>
 
 
@@ -671,6 +645,33 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A5F463EE76708AA21142CBEAFC5EE83BB793035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045025   (562719) от 21.08.2016
+
+Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона Земли (2015) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562719.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе – весна 1958 года. Неутомимые сыщики и искатели приключений, Братья-Пилоты узнают из газеты о том, что на далеком острове Тасмания стремительно уменьшается популяция голубых полосатых слонов.
+Учитывая, что Тасмания - единственное место на Земле, где водятся эти редкие животные, и что в прошлом братьям уже приходилось иметь дело с одним из них, Шеф и Коллега (   Читать дальше...   )Тип издания: RepackРазработчик: 1C WirelessЖанр: Adventure, CasualЯзык озвучки: Русский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9153754E810F9710653FFB1E106B81175B461CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

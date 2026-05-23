@@ -6,7 +6,7 @@ Aphexia - Breathe (2015) [MP3|320 кб/с]<IDM, Ambient, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438194.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Perfectly Clear WorkBench 4.1.2.2324 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438193.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ FinePrint 11.22 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438191.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Downie 4 v.4.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438189.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Wondershare Recoverit 10.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438188.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Ant Download Manager Pro 2.7.4 Build 82490 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438187.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Moby - Play (2000) [OGG|485 Kbps] <Breakbeat, Leftfield, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438184.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FanControl V122 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438182.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Ant Download Manager Pro 2.7.4 Build 82490 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438181.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Eassos DiskGenius Professional 5.4.5.1412 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438178.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Opera 90.0.4480.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438177.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438148.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ A Better Finder Rename 10.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438133.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ XLN Audio - XO 1.2.0.3 STANDALONE, VSTi, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438094.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438092.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Hurts - Surrender (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Synthpop, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438060.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ WSCC (Windows System Control Center) 7.0.2.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438051.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438048.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ EarthView 7.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438047.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ WiFiSpoof 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438046.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Wise Force Deleter 1.5.3.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438045.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ SpamSieve 2.9.33 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438044.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Maxthon Browser 6.2.0.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438043.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ SQLPro Studio 1.0.300 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438042.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ GraphicConverter 10 v10.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438040.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ R-Studio Network 9.1 Build 191029 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438038.jpg" />
 </div>
 
 

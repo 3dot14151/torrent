@@ -1,56 +1,3 @@
-###  Публикация: 1627123   (199718) от 17.04.2023
-
-Граф Монте-Кристо / The Count of Monte Cristo (2002) BDRemux [VC-1/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Так же, как и в знаменитой классической истории, главным героем фильма является Эдмон Дантес. Этого бесхитростного молодого человека, собирающегося жениться на красавице Мерседес, предает его лучший друг Фернан.
-Оказавшись заключенным в тюрьму, Эдмон Дантес в течение тринадцати лет вынужден терпеть лишения и лелеять мысли о мести своим обидчикам. С помощью человека, (   Читать дальше...   )Производство: Великобритания, США, Ирландия, Швейцария / Count of Monte Cristo Ltd., Epsilon Motion Pictures, Spyglass Entertainment, Touchstone PicturesЖанр: боевик, триллер, драма, приключенияРежиссер: Кевин РейнольдсАктеры: Кристофер Адамсон, Джейби Бланк, Гай Карлтон, Бэрри Кессин, Джеймс Кэвизел, Генри Кавилл, Бриана Корригэн, Брендан Костильо, Майрид Дэвлин, Дагмара ДоминчикПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: Русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB28765231322AFA97E432ABCA41F2AEDC1C5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618317   (199704) от 15.04.2023
-
-Невыносимая тяжесть огромного таланта / The Unbearable Weight of Massive Talent (2022) BDRip [H.265/1080p] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Некогда востребованный актёр Николас Кейдж переживает затянувшийся кризис среднего возраста: карьера требует камбэка; бывшая жена и 16-летняя дочь устали от его раздутого эго; отелю, в котором он живет, Кейдж уже должен 600 000 долларов. А всё, что может предложить агент — это полететь за миллион на Майорку на день рождения фаната, оливкового короля Хави Гутьерреса. (   Читать дальше...   )Производство: США / Burr! Productions, Embassy Films, LionsgateЖанр: боевик, комедия, криминалРежиссер: Том ГормикэнАктеры: Николас Кейдж, Педро Паскаль, Тиффани Хэддиш, Шэрон Хорган, Пако Леон, Нил Патрик Харрис, Лили Мо Шин, Алессандра Мастронарди, Джейкоб Скипио, Katrin VankovaПеревод: Многоголосый профессиональный (Jaskier, NewComers, TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952C7C5C39438620AED89976D76C471DD4286C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626558   (199703) от 15.04.2023
 
 Реинкарнация: Сбой системы / Колесница / Chariot (2022) BDRemux [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199703.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199700.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199689.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199685.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199682.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199674.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199673.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199667.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199662.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199660.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199654.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199645.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199641.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199636.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199633.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199631.jpg" />
 </div>
 
 
@@ -481,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199616.jpg" />
 </div>
 
 
@@ -507,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199611.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199609.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199606.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199599.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199591.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199588.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199577.jpg" />
 </div>
 
 
@@ -674,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58F11582B4AD9844529691757B9686C134B0AD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628091   (199550) от 21.04.2023
+
+Бассейн / Swimming pool (2003) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английская писательница, автор детективных романов Сара Мортон приезжает в дом своего издателя Джона Бослода на юге Франции, чтобы заняться созданием нового романа. Она настраивается на творчество, знакомится с местными достопримечательностями, привыкает к новой обстановке. По натуре Сара интроверт: она не любит общаться даже с поклонниками своего таланта. Едва она (   Читать дальше...   )Производство: Франция, Великобритания, Canal+, Fidelite Productions, France 2 CinemaЖанр: драма, криминал, детектив, триллерРежиссер: Франсуа ОзонАктеры: Шарлотта Рэмплинг, Людивин Санье, Чарльз Дэнс, Жан-Мари Ламур, Марк Файоль, Мирей Моссе, Мишель Фо, Жан-Клод Лека, Эмили Гавуа-Кан, Эрарде ФоресталиПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCD8A1EAD5FC2066FBFCD1D320EDD077EF24EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628119   (199542) от 21.04.2023
+
+Оскар / Oscar (1991) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199542.jpg" />
+</div>
+
+
+###  Подробнее
+
+У постели умирающего отца гангстер обещает прекратить преступную жизнь и стать легальным бизнесменом. Но невыносимая путаница и хаос в его доме приводят к тому, что «завязать» оказывается самой сложной работёнкой из всех, что ему удавалось провернуть…Производство: США / Silver Screen Partners IV, Touchstone Pictures, VecchiaЖанр: комедия, криминалРежиссер: Джон ЛэндисАктеры: Сильвестр Сталлоне, Винсент Спано, Орнелла Мути, Мариса Томей, Питер Ригерт, Чазз Пальминтери, Тим Карри, Дон Амичи, Элизабет Барондес, Линда ГрейПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00378510B903E978C0BD21FC8E8A50AEE86DE6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

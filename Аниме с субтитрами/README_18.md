@@ -6,7 +6,7 @@ Gleipnir | Глейпнир [2020, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006885.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kenka Banchou Otome: Girl Beats Boys | Боевой главарь банды: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006392.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Night Head Genesis | Сумеречный разум: Рождение [2006, TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005905.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005581.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005277.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TO-Y | Той [1987, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004752.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Akudama Drive | Акудама Драйв [2020, TV, 12 из 12] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004690.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Go-Toubun no Hanayome 2 | The Quintessential Quintuplets 2 | Пять невес
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004689.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004651.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004620.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Yatogame-chan Kansatsu Nikki | Заметки Ятогамэ [ТВ-1] [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004480.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004437.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mahou Shoujo Lyrical Nanoha: Detonation | Magical Girl Lyrical Nanoha Detonation
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004255.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki: Are You the Only One Who Loves Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004174.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Idoly Pride | Расцвет айдолов [2021, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004131.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Neon The Animation | Неон Анимация [2011, OVA, 6] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004061.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002722.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Slayers Try | Рубаки снова [1997, TV, 26 из 26] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002721.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Slayers Next | Снова Рубаки [1996, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002676.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Generator Gawl / Генератор Гаул [1998, TV, 12 эп.] DVDRip 480p Ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002637.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Africa no Salaryman / African Office Worker / Офисная фауна из А�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002636.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sirius no Densetsu / The Legend of Sirius / Легенда о Сириусе [19
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002630.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Urusei Yatsura Movie 3: Remember My Love | Those Obnoxious Aliens: Remember My L
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002305.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Urusei Yatsura Movie 5: Kanketsu Hen | Those Obnoxious Aliens: The Final Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002302.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Urusei Yatsura Movie 2: Beautiful Dreamer | Those Obnoxious Aliens: Beautiful Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002299.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Urusei Yatsura Movie 6: Itsudatte My Darling | Those Obnoxious Aliens: Always My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002294.jpg" />
 </div>
 
 

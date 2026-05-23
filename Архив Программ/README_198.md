@@ -6,7 +6,7 @@ Internet Download Manager 6.36 Build 5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soft Organizer Pro 7.52 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975370.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kaspersky Total Security 2016 16.0.1.445 MR1 (Technical Release) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975309.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Acrobat Pro DC 2015.010.20056 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975300.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WSCC (Windows System Control Center) 4.0.2.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975287.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ JetBrains PhpStorm 10.0.3 Build #PS-143.1770 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975208.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ uTorrent (3.5.5 build 45505) Portable by SanLex [Ad-Free] [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975182.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Driver Booster Pro 7.2.0.601 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975171.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Advanced SystemCare Pro 13.2.0.220 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975167.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MEmu 7.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975095.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Odin Frame Photo Creator 8.8.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975064.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Registry Winner 6.6.2.3 Portable by Valx [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974986.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ AVStoDVD 2.6.0 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974870.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Data Flow Accelerator 4.5.3.43 Beta [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974867.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Hard Drive Inspector Professional 4.12 build 155 + For Notebooks [MULTi / Рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974797.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Extreme Movie Manager 8.0.4.8 RePack [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974648.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ MegaRelizer 0.5.1.300 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974574.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Revo Uninstaller Pro 3.0.1 *Fix* [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974513.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Driver Genius 12.0.0.1211 DC 09.02.2013 Portable by Touchstone [Английск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974502.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Acronis 2k10 UltraPack 3.0.1 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974499.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mozilla Firefox 43.0.4 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974476.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Registry Life 3.24 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974472.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Mozilla Thunderbird 38.5.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974466.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ UVScreenCamera 4.9.0.115 Pro Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974441.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Glary Utilities Pro 5.42.0.62 Final Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974407.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ FlylinkDC++ r503 build 19388 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974404.jpg" />
 </div>
 
 

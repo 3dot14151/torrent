@@ -1,137 +1,3 @@
-###  Публикация: 1870150   (1068692) от 
-
-GiliSoft Copy Protect 8.6.0 [Multi]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-GiliSoft Copy Protect — программа для защиты документов, видео, аудио и изображений от копирования, распространения и несанкционированного доступа. Утилита использует AES-шифрование и позволяет ограничивать просмотр файлов только на определённых устройствах, USB-накопителях или CD/DVD.
-
-С помощью программы можно защитить PDF, DOC, XLS, PPT, MP4, JPG и многие другие (   Читать дальше...   )Язык интерфейса: Английский и другой
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0287E9DA45417F96C1345D78EFC59FE8CC66CAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870152   (1068691) от 
-
-UPDF 2.5.2.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-UPDF — это современный PDF-редактор с поддержкой искусственного интеллекта. Программа объединяет инструменты для чтения, редактирования, конвертации, аннотирования и защиты PDF-файлов в одном интерфейсе, делая работу с документами быстрее и удобнее.
-
-С помощью UPDF можно редактировать текст, изображения и ссылки прямо в PDF-документах, добавлять комментарии, подписи, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DB28E24F972004726A6B1DE98B57693C82081C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869834   (1068690) от 
-
-Eden Crafters (2024) [Ru/Multi] (1.0i) Repack Let'sРlay
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в приключение выживания, крафта и автоматизации в Eden Crafters, совместной игре с открытым миром, в которой вам предстоит превратить враждебную планету в убежище для человечества. Умерьте климат, создайте пригодную для дыхания атмосферу и океаны: сформируйте новый мир!Тип издания: RepackРазработчик: Osaris GamesЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2614F333FC05F1C3B65FA78F3DA8ABAFD85DA42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870153   (1068689) от 
-
-Военная приемка. Боевая подготовка призывников (10.05.2026) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Охотничье ружьё против FPV-дрона. Обычная лазерная указка вместо дорогого тренажёра ПТРК. Новейшие комплексы боевой подготовки: умные мишени «Блик», снайперский «Светлячок» и впервые на экране — система имитации боевой реальности «СИБР». «Военная приёмка» продолжает рассказ о Главном управлении боевой подготовки. В этом фильме главные герои — военнослужащие по призыву. (   Читать дальше...   )Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179308838FFFA735009DC2B49F3F2637DF2A05A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870154   (1068688) от 
-
-Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Wanterlude [Gold Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В 2016 году ctOS 2.0, современная операционная сетевая система, была задействована в нескольких городах США, чтобы создать наиболее безопасный для жизни мегаполис и вывести на новый уровень всю городскую инфраструктуру. Талантливый хакер Маркус объединяется с хакерской группой DedSec, чтобы противостоять системе глобального контроля ctOS 2.0, которую криминал использует, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontréalЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9101FC9386DBE5D761BD190A931487B3699536B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870157   (1068687) от 
 
 Смешанные единоборства. UFC 328: Chimaev vs. Strickland (09.05.2026) HDTVRip [H.264/720p]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068687.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Wanterlude [Ultimate Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068686.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ LibreOffice 26.2.3.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068685.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068684.jpg" />
 </div>
 
 
@@ -244,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068683.jpg" />
 </div>
 
 
@@ -270,7 +136,7 @@ Dishonored (2013) [Ru/Multi] (334700_2022/dlc) Repack Wanterlude [Definitive Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068682.jpg" />
 </div>
 
 
@@ -296,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068681.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068680.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068679.jpg" />
 </div>
 
 
@@ -376,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068677.jpg" />
 </div>
 
 
@@ -402,7 +268,7 @@ Adobe Illustrator 2026 30.4.0.226 + Plugins Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068676.jpg" />
 </div>
 
 
@@ -429,7 +295,7 @@ Wondershare PDFelement Pro 12.1.17.4188 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068675.jpg" />
 </div>
 
 
@@ -455,7 +321,7 @@ The Supermium Browser 144.0.7559.249 R3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068674.jpg" />
 </div>
 
 
@@ -483,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068673.jpg" />
 </div>
 
 
@@ -509,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068672.jpg" />
 </div>
 
 
@@ -535,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068671.jpg" />
 </div>
 
 
@@ -561,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068670.jpg" />
 </div>
 
 
@@ -587,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068669.jpg" />
 </div>
 
 
@@ -614,7 +480,7 @@ Vim 9.2.0461 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068668.jpg" />
 </div>
 
 
@@ -643,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068667.jpg" />
 </div>
 
 
@@ -670,7 +536,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068666.jpg" />
 </div>
 
 
@@ -681,6 +547,142 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:012C668045447DC27ECBABA6341A80CF4E74596A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870144   (1068665) от 
+
+MotoGP. Этап 05 из 22. Гран-при Франции. Квалификация (09.05.2026) WEBRip [H.264/1080p] [50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068665.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 мая 2026 суббота 11:50 МСК этап 6 Ле Ман. Гран-при Франции. Квалификация.Телекомпания: MotoGPЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DDE7F3649DC0AD8AAF6F6A24F2A3C759E424B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870205   (1068664) от 
+
+Интегра Агатис | Жусан (2026) [MP3, CHUGA]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семипалатинский полигон. Сотни ядерных взрывов. Мёртвая земля. В августе 2005-го земля ответила.
+
+Артём Чернов застревает в казахской степи, когда мёртвые начинают подниматься. Вместе с Асем — девушкой, чей отец-офицер пропал, — он добирается до военной базы в городе-призраке Курчатов. Но и там нет спасения: мёртвые тянутся к югу, степная полынь — жусан — почему-то (   Читать дальше...   )Жанр: Постапокалипсис, Триллер, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: CHUGA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B817A440E8FC5F3658F5D6B0CB4DDAC54ECFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870198   (1068663) от 
+
+Салини Голденберг | Последний охотник на демонов (2026) [MP3, Карина Муса]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мифическое мрачное фэнтези с динамичным сюжетом, тонким юмором и тайской магией! В королевстве назревают перемены, но охотник на духов-фи по имени Экс во что бы то ни стало хочет удержаться за свое ремесло. Его главная добыча - легендарная Шар-Ала, демон кошмаров и безумия, которого наставники Экса безуспешно выслеживали десятилетиями. В дороге Экс встречает обаятельную (   Читать дальше...   )Жанр: ФантастикаИздательство: ЭКСМОПродолжительность: 13:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4384FAD6D6FA783589B9C270B6CFEB916A877F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870195   (1068662) от 
+
+Журнал | BOUDOIR Inspiration (ARTISTIC NUDE) (апрель 2026) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068662.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: ARTISTIC NUDE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E171A02FE5EECB1D954886711360A7E908B7D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870185   (1068660) от 
+
+Журнал | BOUDOIR Inspiration (LINGERIE) (апрель 2026) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068660.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: LINGERIE InspirationЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92486799BC66D21929A1C2F405A812C199B2E042
 ```
 
 https://mybot314.ru/tekegram_catalog/

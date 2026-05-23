@@ -1,56 +1,3 @@
-###  Публикация: 1769000   (32925) от 26.12.2024
-
-Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 24.12.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739514   (32910) от 27.12.2024
-
-Радио онлайн - PCRadio v2.7.5.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мощный клиент для прослушивания интернет-радио. Присутствует возможность смены качества аудиопотока. Поддерживается вывод 32 битного звука. В наличии обширный каталог с категориями и возможностью поиска.
-Радио онлайн - PCRADIO Более 8 лет является лидером в области интернет вещания, благодаря технологии экономии трафика и сохранения отличного качества звука радиостанций. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.12.2024Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769257   (32844) от 27.12.2024
 
 Unforeseen Incidents v1.0.90 [En]
@@ -59,7 +6,7 @@ Unforeseen Incidents v1.0.90 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32844.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32808.jpg" />
 </div>
 
 
@@ -114,7 +61,7 @@ Young Detective: The Mutation v1.2.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32717.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ TikTok Private Plus (PayBack Edition) v37.9.16 Mod by TikTok Updates + Plugin Up
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32615.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32597.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32543.jpg" />
 </div>
 
 
@@ -220,7 +167,7 @@ ASR Voice Recorder v539 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32503.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ Panels - панель быстрого доступа v1.476 Mod by KirIif' [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32413.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32236.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32233.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32219.jpg" />
 </div>
 
 
@@ -354,7 +301,7 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32189.jpg" />
 </div>
 
 
@@ -381,7 +328,7 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32153.jpg" />
 </div>
 
 
@@ -407,7 +354,7 @@ Niffelheim v1.6.15 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32146.jpg" />
 </div>
 
 
@@ -433,7 +380,7 @@ Ugly v1.1.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32119.jpg" />
 </div>
 
 
@@ -461,7 +408,7 @@ PicsMaster AI Photo Editor Pro v2.0.4 Mod by TRUMods [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32112.jpg" />
 </div>
 
 
@@ -487,7 +434,7 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32108.jpg" />
 </div>
 
 
@@ -513,7 +460,7 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32074.jpg" />
 </div>
 
 
@@ -539,7 +486,7 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32047.jpg" />
 </div>
 
 
@@ -565,7 +512,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32044.jpg" />
 </div>
 
 
@@ -591,7 +538,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32039.jpg" />
 </div>
 
 
@@ -619,7 +566,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32033.jpg" />
 </div>
 
 
@@ -645,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32006.jpg" />
 </div>
 
 
@@ -672,7 +619,7 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32000.jpg" />
 </div>
 
 
@@ -683,6 +630,60 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770640   (31948) от 05.01.2025
+
+Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graph Messenger — это продвинутое приложение для обмена сообщениями, созданное с использованием API Telegram, которое предлагает все преимущества Telegram, а также инновационные функции, такие как:
+🚩 Управление несколькими учетными записями: Легко переключайтесь между неограниченным количеством учетных записей без выхода из системы.
+🚩 Менеджер загрузок: (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.01.2025Разработчик: DatabiteПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771203   (31911) от 05.01.2025
+
+Баланс Подорожника (СПб) и Тройки (Москва) v4.1 Mod by Dymonyxx [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет проверить баланс электронных проездных карт Подорожник (СПб) и Тройка (Москва). Достаточно включить в телефоне NFC и поднести к нему карту.Тип издания: Adfree (без рекламы)Релиз состоялся: 05.01.2025Разработчик: Alpaca dreamsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
 ```
 
 https://mybot314.ru/tekegram_catalog/

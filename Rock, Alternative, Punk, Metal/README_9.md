@@ -1,32 +1,3 @@
-###  Публикация: 1860118   (1061504) от 19.03.2026
-
-Tyketto - Closer To The Sun (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Higher Than High(4:22)
-02. Starts with a Feeling(4:51)
-03. Bad for Good(3:55)
-04. We Rise(4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00371A85AE4C076DB18D158C7C3DB0C325FA1879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860121   (1061503) от 19.03.2026
 
 Gaerea - Loss (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Black Metal>
@@ -35,7 +6,7 @@ Gaerea - Loss (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Black Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061503.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Raised by Humans - Soft Spoken Hand Grenade (2026) [FLAC 24/44.1|Lossless|WEB-DL
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061471.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Ratboys - Singin’ to an Empty Chair (2026) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061469.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Red Beans & Pepper Sauce - Supernova (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061468.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Silver Isle - Out Past The Breakers (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061465.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Four Baggers - Strange Alchemy (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061463.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061459.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Blind Revolution - Far From The Sun (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061440.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Messticator - Total Mastery (2026) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061385.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Gotthard - More Stereo Crush (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061372.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The Freak Accident - The Midnight Show (2026) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061366.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Ulrika Spacek - EXPO (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061348.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Van Alexandre - Horizon (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061344.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Marcel Singor - Anemoia (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061322.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Music City - Welcome To Music City (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061320.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Nine Orders - Ex Imperium (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061283.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061277.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Against I - Anti Life (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061273.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Born Of Osiris - Tomorrow We Die Alive (2013) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061232.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Angus McSix - Angus McSix and the All-Seeing Astral Eye (2026) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061220.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Gotthard - More Stereo Crush (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061217.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Rockin' 70s (2004) 3 x CD, Compilation [FLAC|Lossless|image + .cue] <Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061205.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061204.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Adept - Collection (2009 - 2025) 5CD [FLAC|Lossless|tracks + .cue] <Post-Hardcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061203.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Yonaka - Until You're Satisfied (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061044.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Yonaka - Until You're Satisfied (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEED1E719B2DB6936324FA9346093ECB1C6C7CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859321   (1061043) от 15.03.2026
+
+Lamb Of God - Into Oblivion (2026) Limited Edition [FLAC|Lossless|image + .cue] <Groove Metal, Metalcore, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into Oblivion [3:35]
+02 - Parasocial Christ [3:21]
+03 - Sepsis [3:39]
+04 - The Killing Floor [4:17](   Читать дальше...   )Жанр: Groove Metal, Metalcore, Thrash MetalПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC7169088F11DAADAF43C234FA44332D0437E5AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1266142   (270967) от 01.12.2018
-
-Избавь меня от сомнений / Уберите мои сомнения / Otez-moi d'un doute / Just to Be Sure (2017) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Эрван Гурмелон - слегка молчаливый и основательный по жизни сапёр-строитель, готовится стать молодым дедушкой при том, что его 23-летняя дочка собирается родить ребенка, не зная толком - от кого он? У девушки была "история на одну ночь", да к тому же на маскарадной вечеринке. Вроде как переспала с Зорро! Серьезный во всех отношениях Эрван (   Читать дальше...   )Производство: Франция, Бельгия / Kare Productions, SND Films, France 2 Cinema, UmediaЖанр: Драма, КомедияРежиссер: Карин ТардьёАктеры: Франсуа Дамиенс, Сесиль Де Франс, Ги Маршан, Андре Вильм, Элис де Ланкесэ, Майкл Клэр, Лье Салем, Сэм Карманн, Брижит Роюан, Жюли ДебазакПеревод: Одноголосый закадровый Антон КарповскийПродолжительность: 01:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91E58EA5ED7AB57F70B034A84D1283565EF653D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266098   (270955) от 01.12.2018
-
-Коммивояжер / Forushande / The Salesman (2016) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара Эмад и Рана живут в Тегеране. Отношения супругов практически идеальны. У них много планов на будущее. Cемейная драма разворачивается, когда новый дом, в который пара переезжает, превращается из тихой гавани в место жестокого преступления…Производство: Иран, Франция / Arte France Cinema, Doha Film Institute, Farhadi Film Production, Memento Films ProductionЖанр: Драма, ТриллерРежиссер: Асгар ФархадиАктеры: Шахаб Хоссейни, Таране Алидости, Бабак Карими, Мина Садати, Фарид Сейджжади Хоссейни, Ширин Ахакаши, Эхтерам Боруман, Марал Бани Адам, Моджтаба Пирзаде, Сам Валипур, Эмад ЭмамиПеревод: Многоголосый закадровый Эй Би Видео по заказу Первого каналаПродолжительность: 02:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83DBEDDC555B831447517B1B041324CB58B5E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189191   (270948) от 05.12.2017
 
 Джунгли / Jungle (2017) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270948.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270946.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270944.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270943.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270937.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270898.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270896.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270895.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270894.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270889.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270888.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270859.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270854.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270852.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270851.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270850.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270826.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270822.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270820.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270817.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270816.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270810.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270809.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270785.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2458A303E38DAAC63EE55B9FB3CA4596CCF7B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266124   (270782) от 01.12.2018
+
+Хищник / The Predator (2018) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, бывший морпех, обнаруживает злобную инопланетную расу на Земле, но никто не верит ему, что эти твари существуют. Его сын-аутист, которого все обижают в школе, становится ключевой фигурой в схватке с Хищниками, поскольку мальчик умеет невероятно быстро учить языки и, судя по всему, сможет понять пришельцев.Производство: США, Канада, 20th Century Fox Film CorporationЖанр: Ужасы, Фантастика, Боевик, Триллер, ПриключенияРежиссер: Шейн БлэкАктеры: Бойд Холбрук, Треванте Роудс, Джейкоб Тремблей, Кигэн-Майкл Ки, Оливия Манн, Стерлинг К. Браун, Томас Джейн, Алфи Аллен, Августо Агилера, Джейк БьюзиПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED24D0E5A61447068EAF25F89159496152A127E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265996   (270777) от 01.12.2018
+
+День патриота / Patriots Day (2016) BDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм описывает события, произошедшие 15 апреля 2013 года во время взрывов на Бостонском марафоне. Братья Джохар и Тамерлан Царнаевы взорвали две бомбы, вызвав массовую панику. В числе пострадавших — молодая пара, Патрик Даунс и Джессика Кенски, получившие тяжёлые ранения и доставленные в разные больницы. Спецагенты совместно с полицией Бостона начинают расследование (   Читать дальше...   )Производство: Гонконг, США / Bluegrass Films, CBS Films, Closest to the Hole Productions, Hutch Parker Entertainment, TIK FilmsЖанр: Триллер, Драма, КриминалРежиссер: Питер БергАктеры: Марк Уолберг, Кевин Бейкон, Джон Гудман, Дж.К. Симмонс, Мишель Монахэн, Алекс Вулф, Темо Меликидзе, Джимми О. Ян, Майкл Бич, Рэйчел Броснахэн, Дикки Эклунд мл., Майкл Маршан, Рет Кидд, Фрэнк Чарновски, Кристофер О’Ши, Джейк Пикинг, Лана Кондор, Джерри Двайер мл., Дэвид Ортиc, Ханди АлександерПеревод: Многоголосый закадровый СВ Студия (ненормативная лексика)Продолжительность: 02:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F060297EB4210B421FD1E7B44546978FDEF9B3D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

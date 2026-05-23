@@ -6,7 +6,7 @@ George Coleman & Tete Montoliu Duo - Meditation (1977) Remaster, 2015, Solid Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724661.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sari - The Sweetest Sounds (2017) [FLAC|Lossless|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724657.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Boo Boo Weavils - Who The Hell Are The Boo Boo Weavils (2016) [MP3|320 кб/с] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724639.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Yola - Walk Through Fire (2019) [FLAC|Lossless|tracks + .cue] <Soul, Blues, Folk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724603.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dexter Gordon - Complete Kenny Drew & Carl Perkins Sessions (1955) 2004, Lone Hi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724473.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dexter Gordon - The Squirrel (1967) 2001, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724472.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Louis Jordan And His Tympany Five - 1946 - 1947 (1998) Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724427.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724416.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Wax & Boogie - Lost In A Dream (Milano Club Blues Nights) (2012) [MP3|320 кб/�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724408.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724400.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Louise Hoffsten - Crossing the Border (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724277.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Bossa N' Rihanna (2017) [MP3|320 Kbps] <Jazz, Bossa Nova, Chillout>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724227.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Fantastic Negrito - The Last Days Of Oakland (2016) [MP3|320 кб/с] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724109.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Andy Summers - 14 альбомов (1982-2005) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_723558.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Joey DeFrancesco - Incredible! (2000) Concord Jazz [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723404.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Bir
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723401.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723166.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bebop & Beyond - Plays Thelonious Monk (1990) Bluemoon [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723163.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chet Baker - Peace (1982) 1989, Enja Records [FLAC|Lossless|tracks + .cue] <Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723153.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jack Sheldon - The Quartet & The Quintet (1954, 1955) 1998, Pacific Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722874.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Matt Schofield - 9 Albums (2004 - 2014) [FLAC|Lossless|tracks + .cue] <Modern El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722758.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Slide Hampton - Jazz With A Twist & Explosion! (1962) 2001, Atlantic [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722718.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pee Wee Russell - Ask Me Now! (1963) 2002,  Universal [APE|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722715.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Pee Wee Russell & Coleman Hawkins - Jazz Reunion (1961, 1963) 2002, Past Perfect
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722714.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kenny Burrell - God Bless the Child (1971) 1987 [WavPack|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722713.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Kenny Burrell - Midnight Blue (1967) 1999, RVG Edition [WavPack|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722712.jpg" />
 </div>
 
 

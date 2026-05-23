@@ -6,7 +6,7 @@ Acon Digital Acoustica Premium Edition 7.3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236348.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Smart Defrag Pro 8.4.0.266 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236347.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FinePrint Software (FinePrint 11.36 / pdfFactory Pro 8.36) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236344.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ QOwnNotes 23.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236340.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236337.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Allavsoft Video Downloader Converter 3.23.4.7754 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236334.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BetterZip 5 v5.1.1 b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236326.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PullTube 1.8.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236322.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Udemy, YouRa Allakhverdov | Современный React с Нуля (2022) WEB-
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236320.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Surge XT 1.2.3 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236311.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ iReal Pro 2020.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236309.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Plexim Plecs 4.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236304.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Vivaldi 6.0.2979.18 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236299.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ EditReady 23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236287.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Zoner Photo Studio X 19.2303.2.450 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236281.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SiteSucker Pro 5.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236280.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ FastScripts 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236272.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ nakst - Apricot Hybrid Synth 1.1.9 (FL Studio Native) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236268.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Wondershare UniConverter 14.1.16.174 (х64) Repack by PooShock [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236265.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Scrutiny 10 v10.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236264.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Viper FTP 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236263.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Visual Studio Code 1.78.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236260.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VueScan Pro 9.8.08 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236249.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Live Wallpaper & Themes 4K Pro 17.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236246.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Better Trash 1.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236238.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ NanoBrowser 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236237.jpg" />
 </div>
 
 

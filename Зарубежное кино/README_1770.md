@@ -1,55 +1,3 @@
-###  Публикация: 1652111   (194460) от 10.08.2023
-
-Трансформеры: Восхождение Звероботов / Transformers: Rise of the Beasts (2023) WEBRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-История происходит в далеком 1994 году. Два археолога, Ной и Елена, уже несколько лет ведут очень интересные и необычные археологические раскопки. Однако раньше они никогда не сталкивались ни с чем подобным. Однажды они оказываются в центре конфликта между макисмарами, плеконианцами и телоконианцами.Производство: США / Allspark Pictures, Aurum Producciones S.A., Bay Films, Di Bonaventura PicturesЖанр: фантастика, боевик, приключенияРежиссер: Стивен Кейпл мл.Актеры: Доминик Фишбэк, Энтони Рамос, Луна Лорен Велес, Дин Скотт Васкес, Тобе Нвигве, Сара Стайлс, Лени Паркер, Френсис Ламарр, Эйдан Дивайн, Кервин ДжексонПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (2 x Forced, 2 x Full),  украинские, английские (Full, SDH), французскиеПродолжительность: 02:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28246E82D22439DB9828E9778BB0759603E72FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652721   (194459) от 12.08.2023
-
-Сердце Стоун / Heart of Stone (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Оперативница секретного миротворческого агентства Рэйчел Стоун должна помешать хакеру украсть их самый ценный и опасный актив — оружие под кодовым названием «Сердце».Производство: США / Dune Films, Mockingbird Pictures, Netflix, Pilot Wave Motion Pictures, Skydance ProductionsЖанр: боевик, криминалРежиссер: Том ХарперАктеры: Галь Гадот, Лу Сыцзин, Джейми Дорнан, Пол Рэди, Энцо Чиленти, Joe Reisig, Лука Фьяменги, Алиа Бхатт, Маттиас Швайгхёфер, Томас АрнольдПеревод: Дублированный (Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA2BF7BC7A73C8228D02D4BB351775C0F4D1CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652221   (194456) от 10.08.2023
 
 (Не)идеальные роботы / Robots (2023) WEB-DLRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194456.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194455.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194454.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194453.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194452.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194444.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194435.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194434.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194431.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194428.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194427.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194422.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194412.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194410.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194407.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194405.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194402.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194386.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194376.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194373.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194372.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194370.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194368.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194359.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B41F0E2B091D09337F49FD7F751C6AEACA5AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652641   (194358) от 12.08.2023
+
+Кто убил BlackBerry / BlackBerry (2023) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литературной основой сценария стала книга Джеки Мак-Ниш и Шона Силкоффа "Теряя сигнал", рассказывающая о взлёте и падении канадского предприятия BlackBerry... Ватерлоо, Канада, 1996 год. Основатели маленькой компании Research in Motion пытаются найти финансирование революционной разработки (пейджер, телефон и компьютер в одном устройстве), но стабильно (   Читать дальше...   )Производство: Канада, Rhombus Media, Zapruder Films, Telefilm CanadaЖанр: драма, комедия, биографияРежиссер: Мэтт ДжонсонАктеры: Джей Барушель, Гленн Хауэртон, Мэтт Джонсон, Кэри Элвес, Сол Рубинек, Майкл Айронсайд, Рич Соммер, СонВон Чо, Мишель Жиру, Марк КритчПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английскиеКачество: BDRipПродолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E711910B3CF05C2A016AA6121414BBE824B246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652691   (194354) от 12.08.2023
+
+Машина / The Machine (2023) WEB-DLRip [H.265/1080p] [SDR, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1998 году Берт был любознательным студентом колледжа, который однажды поехал в Россию вместе с однокурсниками. Здесь паренек быстро стал частью криминального мира, покорил русских бандитов своим жестким образом жизни и стал местной легендой. Перед возвращением домой Берт благополучно украл необычные часы, о чем он впоследствии забыл. Сейчас Берт — мужчина средних (   Читать дальше...   )Производство: США, Balkanic Media, Legendary Pictures, Screen Gems, Shaken Not StirredЖанр: комедия, криминалРежиссер: Питер АтенсиоАктеры: Берт Крайшер, Марк Хэмилл, Ива Бабич, Джимми Татро, Роберт Мазер, Стефани Курцуба, Мартин Форд, Джесс Габор, Rita Bernard-Shaw, Никола ДжуричкоПеревод: Многоголосый профессиональный (Лицензия, Jaskier, HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6666C9B75558FE747E9D15F3D005E9737ACC1DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

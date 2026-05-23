@@ -6,7 +6,7 @@ Battle Chess (1994) [En] (1.0) License GOG [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542087.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540418.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540331.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Prehistorik 2 (1993) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540323.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Prehistorik (1991) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540318.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537883.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537771.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537023.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536816.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536088.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534688.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534677.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534069.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533842.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532310.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532303.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532191.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532188.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License PROPHET [Steam Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531956.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530475.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530220.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530150.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530043.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529464.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529462.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528954.jpg" />
 </div>
 
 

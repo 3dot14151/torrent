@@ -6,7 +6,7 @@ DockView 0.9 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008631.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Permute 3 v3.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008629.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ExpanDrive 2021.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008627.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ DMG Master 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008626.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Music Tag Editor 2 v5.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008624.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AutoCrypt 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008620.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Outline 3.2105.7 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008617.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Privacy Eraser Free 5.13.0 Build 3946 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008607.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ AirMail Pro 5 v5.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008600.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ PureSync 7.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008599.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Vivaldi 4.0.2312.36 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008593.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ RAM Saver Professional 21.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008588.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ OCCT 8.2.3 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008587.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ WinTools.net Premium 21.5.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008583.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Opera GX 76.0.4017.220 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008582.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ WinTools.net Professional / Premium / Classic 21.5 RePack (& Portable) by Dodaka
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008580.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Hi Locker Pro 2.0.9 + 1.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008574.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Windows 10 Manager 3.5.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008572.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ MAMP PRO 6 v6.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008570.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MAGIX Video Pro X13 19.0.1.103 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008560.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ ibis Paint X 9.0.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008550.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ O&O ShutUp10 1.8.1423.335 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008546.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008541.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Blackmagic Design DaVinci Resolve Studio 17.2.2 Build 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008529.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Malwarebytes AdwCleaner 8.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008516.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ SketchUp Pro 2021 21.1.299 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008512.jpg" />
 </div>
 
 

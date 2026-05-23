@@ -1,29 +1,3 @@
-###  Публикация: 1230287   (610255) от 15.06.2018
-
-Nine Parchments (2017) [Ru/Multi] (1.1.2) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Nine Parchments - это полная магического ералаша игра для совместного прохождения от Frozenbyte, создателей серии игр «Trine»! Сбежавшие волшебники-недоучки находят возможность пополнить свои книги заклинаний, отправившись в поход за девятью утраченными пергаментами. И вот уже наши горе-волшебники быстро набирают себе новых заклинаний, не особо заморачиваясь по поводу (   Читать дальше...   )Тип издания: LicenseРазработчик: FrozenbyteЖанр: Экшн, Аркада, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EB3EB4F70B23B25F522383904D95523F94B268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912610   (610184) от 26.06.2015
 
 Darkwood (2014) [En] (alpha 5.0) RePack YaKrevetko [Steam Early Access]
@@ -32,7 +6,7 @@ Darkwood (2014) [En] (alpha 5.0) RePack YaKrevetko [Steam Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610184.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Tales from the Borderlands (2014) [En] (1.0.0.1) License CODEX [Episode 1-3: Zer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610171.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610133.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ League Of Light 4: The Gatherer (2016) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610119.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Memoirs of Murder 2: Resorting to Revenge / Воспоминание об уби
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610059.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hidden Expedition 9: Dawn of Prosperity / Секретная экспедици�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609910.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ League Of Light 4: The Gatherer / Лига Света 4: Стяжатель (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609907.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (1.0) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609792.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609776.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Headlander (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609772.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Echoes Of The Past 4: The Revenge Of The Witch Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609589.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609157.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Bastion [Ru/En] (RePack/1.0r21) 2011 l Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608955.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sister's Secrecy: Arcanum Bloodlines Collector's Edition / Сестры. Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608951.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Cursed Cases: Murder At The Maybard Estate (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608608.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Haunted Legends 8: The Iron Mask (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608493.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Dark Parables 11: The Swan Princess And The Dire Tree (2016) [En] (1.0) Unoffici
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608480.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shantae Anthology (2014-2018) [En] (1.0.1.5/1.04g/1.0hf21245) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608310.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Lust for Darkness (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608309.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ POSTAL Redux (2016) [En/Ch] (4.3.0/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608307.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608302.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Lucius II: The Prophecy (2015) [Ru/En] (1.0.150601.b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608211.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Hidden Object Adventure: Captain Nemo / Hidden Object Adventure: Капитан 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608181.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dark Parables 10: Goldilocks and the Fallen Star / Темные Притчи 10:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608084.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608045.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DE85FA43B674A25A755D53B2C32417E46272886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284031   (608044) от 19.04.2019
+
+The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проложите путь по улицам Гонконга в динамичном боевике с видом сверху. The Hong Kong Massacre, вдохновленная классическими боевиками, позволит вам оказаться в центре лихой истории о мести, наполненной жестокими кинематографическими перестрелками и яркими образами преступного мира.Тип издания: RepackРазработчик: VRESKIЖанр: 3D, Action, ShooterЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F33A9051BAF79DCD4652A429DB3B5296B4A82D
 ```
 
 https://mybot314.ru/tekegram_catalog/

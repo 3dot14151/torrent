@@ -6,7 +6,7 @@ Adobe Media Encoder CC 2015 (v9.0) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612000.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CyberLink PowerDVD Ultra 15.0.1804.58 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611998.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe SpeedGrade CC 2015 (v9.0) RUS/ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611997.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe After Effects CC 2015 13.5.0.347 RePack by BuZzOFF v1.0 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611995.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611945.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Office Professional 2003 SP3 (2018.06) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611939.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Restorator 2018 3.90 Build 1792 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611926.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ USDownloader 1.3.5.9 Portable (24.07.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611875.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CoolUtils PDF Combine 6.1.0.146 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611833.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mozilla Thunderbird 15.0 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611820.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ reaConverter Pro 7.488 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611750.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skype 8.43.0.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611739.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Telegram Desktop 1.6.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611738.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ K-Lite Codec Pack Update 9.0.8 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611690.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ WinRAR 5.71 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611645.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611644.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ R-Studio 8.10 Build 173857 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611642.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ R-Studio 8.10 Build 173857 Network Edition RePack (& portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611640.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ K-Lite Codec Pack 14.9.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611636.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sticky Password Premium 8.2.2.11 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611634.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ashampoo Snap 5.1.4 RePack by KpoJIuK [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611583.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VirtualBox 6.0.6 Build 130049 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611518.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Revo Uninstaller Pro 4.1.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611511.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Skype 8.43.0.56 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611509.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ TeamViewer Free 14.2.8352 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611508.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Mail.Ru Агент 6.0.5831 Final [Multi/Rus] RePack by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611451.jpg" />
 </div>
 
 

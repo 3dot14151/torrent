@@ -1,56 +1,3 @@
-###  Публикация: 871097   (345293) от 08.10.2019
-
-Пришельцы / Les Visiteurs (1993) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Франция 1122 год. Граф Годфруа де Монмирай став жертвой проклятия злой колдуньи, убивает отца своей невесты. Годфруа обращается за помощью к великому волшебнику Эвсебиусу, который предлагает графу отправитться по коридорам времени в прошлое и исправить свою ошибку. Де Монмирай соглашается на это предложение, но из-за ошибки волшебника он и его слуга попадают в 90-е (   Читать дальше...   )Производство: Франция | Gaumont International, France 3 Cinema, Amigo Productions, Alpilles Productions, Canal+Жанр: Фантастика, Фэнтези, КомедияРежиссер: Жан-Мари ПуареАктеры: Жан Рено, Кристиан Клавье, Валери Лемерсье, Мари-Анн Шазель, Кристиан Бюжо, Изабель Нанти, Жерар Сети, Дидье Пэн, Жан-Поль Мюэль, Ариель Семенофф, Мишель Пейрелон, Пьер Виаль, Франсуа Лаланд, Дидье Бенюро, Фредерик Батист, Пьер Осседат, Тара Гано, Стефани МариПеревод: Профессиональный дублированный, профессиональный многоголосыйЯзык субтитров: Русский, французский, английскийПродолжительность: 01:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E019897E38166C5854064AF1F54BEDB7F7A5636E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725039   (345225) от 22.11.2013
-
-Ракетчик / The Rocketeer (1991) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Америка тридцатых годов, золотое время! Гангстеры, нацистские шпионы и допотопные аэропланы, заполнившие небо. Молодой пилот Клифф Сэкорд находит сверхсекретное устройство — ракетный ранец, позволяющий подниматься в воздух. Вскоре в газетах появляются сообщения о таинственном человеке, парящем в небе словно ракета.
- Журналисты дают ему громкое прозвище «Ракетчик». (   Читать дальше...   )Жанр: Фантастика, Боевик, Приключения, СемейныйРежиссер: Джо ДжонстонАктеры: Билл Кэмпбелл, Дженнифер Коннелли, Алан Аркин, Тимоти Далтон, Пол Сорвино, Терри О’Куинн, Эд Лотер, Джеймс Хэнди, Тайни Рон, Роберт Миранда, Джон Полито, Эдди Джонс, Уильям Сэндерсон, Дон Пагсли, Марго Мартиндейл, Клинт ХовардПеревод: Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)x2Язык субтитров: АнглийскийФормат: MKVПродолжительность: 01:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF069942DC69536CDFF6858F4BD9A337D90CF65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257541   (345194) от 26.10.2018
 
 Тёмные отражения / The Darkest Minds  (2018) BDRemux [H.264/1080p] [EN / EN and other Sub]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345194.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345162.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345142.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345127.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345114.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345111.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345042.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345035.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345031.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345030.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345026.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345024.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345016.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344952.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344949.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344946.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344929.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344927.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344925.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344890.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344885.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344873.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_344845.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344835.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43E71CBE60A828AC71B6F09298025EB749D0F7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 722775   (344816) от 22.11.2013
+
+Философы: Урок выживания / The Philosophers (2013) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344816.jpg" />
+</div>
+
+
+###  Подробнее
+
+В международной школе в Джакарте таинственный учитель философии в качестве выпускного экзамена предлагает 20 студентам провести эксперимент. Этот опыт будет самым экстремальным, с которым они когда-либо сталкивались. Используя только силу логики, студенты должны выбрать, кто из них будет достоин получить место в подземном бункере — единственном месте, где можно спастись (   Читать дальше...   )Производство: США, Индонезия / An Olive Branch Productions, SCTVЖанр: фантастика, триллерРежиссер: Джон ХаддлсАктеры: Софи Лоу, Джеймс Д’Арси, Риз Уэйкфилд, Дэрил Сабара, Бонни Райт, Кэти Финдлей, Фредди Строма, Хоуп Олэйд Уилсон, Абхи Синха, Джейкоб АртистПеревод: Профессиональный (полное дублирование)Субтитры: ОтсутствуютПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EE16F9C41E66400BBD4ED29B8AC5BFEED076C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073423   (344813) от 16.11.2016
+
+Разумное сомнение / Beyond a Reasonable Doubt (2010) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блестящий обвинитель Мартин Хантер, посадивший за решётку рекордное количество преступников, является бесспорным кандидатом на победу в выборах губернатора. Но когда молодой честолюбивый журналист, Си Джей Николас начинает исследовать дела Хантера, он обнаруживает фальсификации свидетельских показаний. Начиная опасную игру в кошки — мышки с Хантером, Си Джей становится (   Читать дальше...   )Производство: США, Саудовская АравияЖанр: Триллер, драма, криминал, детективРежиссер: Питер ХайамсАктеры: Майкл Дуглас, Джесси Меткалф, Эмбер Тэмблин, Орландо Джонс, Джоэл Мур, Майкл «Майк» Аллен, Тони Бентли, Лоурэнс П. Бирон, Дэвид Борн, Эрик БраунПеревод: ДублированныйЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0AA49F5CD42A409870AF6BCA3ACADFAEDF5752
 ```
 
 https://mybot314.ru/tekegram_catalog/

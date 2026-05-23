@@ -1,56 +1,3 @@
-###  Публикация: 710948   (413240) от 15.10.2013
-
-Ярость / Rampage (2009) BDRip [720p] [Uncut Version]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Билл Уильямсон - обычный парень из тихого американского городка. Но в «один прекрасный день» он «вооружается до зубов» и выходит на улицу. Билл с упорством настоящего маньяка истребляет жителей города, полагая, что все они виновны в мировых политико-экономических катаклизмах, о которых каждый день говорят в новостях по телевизору... Эффект реалистичности происходящего (   Читать дальше...   )Производство: Канада, Германия / Event Film Distribution, Pitchblack Pictures, Amok ProductionsЖанр: боевик, триллер, драма, криминалРежиссер: Уве БоллАктеры: Брендан Флетчер, Шон Сайпос, Майкл Паре, Мэтт Фрюэр, Линда Бойд, Роберт Кларк, Малкольм Стюарт, Стеффен Меннекс, Кэти Грэйс, Лори БрунеттиПеревод: Профессиональный (Многоголосый) / Любительский (Одноголосый) / Оригинал (Английский)Субтитры: Русские (Forced), Русские (Full), Английские (Full)Продолжительность: 01:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4751C06235031B33FDFF9C8C614502852E07749F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948132   (413163) от 19.10.2015
-
-Наркобарон / Narc (2002) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Полиция Детройта вызывает уволенного 18 месяцев назад спецагента для расследования перестрелки, в которой пострадала беременная женщина. Спецагент берет себе напарника, постоянно попадающего во внутренние полицейские передряги и оба идут по следу.
-Мафиози водят их за нос, завербованные информаторы погибают, начальники хотят закрыть дело. Докопаются ли агенты до правды (   Читать дальше...   )Производство: США, Канада, Paramount Pictures, Lions Gate Films, Splendid Pictures, Tiara Blue FilmsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Джо КарнаханАктеры: Рэй Лиотта, Джейсон Патрик, Ллойд Адамс, Миган Исса, Лина Фелис, Алан С. Петерсон, Карен Робинсон, Чи МакБрайд, Бут Сэвадж, Алан Ван СпрэнПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый) х2Язык субтитров: Русский, английскийПродолжительность: 01:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158DB7C0696A8A0A7F5708A6B61116D40E62E244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412839   (413138) от 01.10.2020
 
 Побег из Претории / Escape from Pretoria (2020) BDRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413138.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413066.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413065.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413025.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413011.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413007.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413001.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412991.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412947.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412936.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412935.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ Far Cry 5: У врат Эдема / Far Cry 5: Inside Eden's Gate (2018) WEBRip 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412934.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412931.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412919.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412879.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_412872.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412829.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412827.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412822.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412806.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_412794.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412665.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412655.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412561.jpg" />
 </div>
 
 
@@ -671,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70A7E240E261536D8A8918BE7B521BFF2756C07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325553   (412456) от 15.09.2019
+
+Мифика: Некромант / Mythica: The Necromancer (2015) BDRip [H.265/720p] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая волшебница Марек, рожденная с темной способностью к некромантии, учится использовать во благо ту силу, которая способна погубить её саму. Вместе с друзьями она пытается помешать злодейским планам Тёмного Властелина.Производство: США / Arrowstorm Entertainment, Bellpond Films, Camera 40 ProductionsЖанр: Фэнтези, Боевик, ПриключенияРежиссер: А. Тодд СмитАктеры: Мелани Стоун, Адам Джонсон, Джейк Стормоен, Никки Поснер, Филип Броди, Кевин Сорбо, Дэвей Моррисон, Роберт Джейн, Кристофер Робин Миллер, Джофф ХансенПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8ED86B8F8C8D1A44E27F595D5F98E07FA7ED5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325570   (412434) от 15.09.2019
+
+Лорел Каньон / Laurel Canyon (2002) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закончив учебу в Гарварде, Сэм и его подруга Алекс отправляются в Лос-Анджелес, чтобы заняться научной работой в доме матери Сэма — Джейн, которая должна быть в отъезде. Но их ждет не очень приятный сюрприз: Джейн дома, более того — она приютила рок-группу, от которой пытается получить новый хит для своей звукозаписывающей компании.
+Вольный нрав Джейн и ее отвязной (   Читать дальше...   )Производство: США, Sony Pictures Classics, Good Machine, Antidote Films (I)Жанр: драмаРежиссер: Лиза ХолоденкоАктеры: Фрэнсис МакДорманд, Кристиан Бэйл, Кейт Бекинсейл, Наташа МакЭлхоун, Алессандро Нивола, Лу Барлоу, Расселл Поллард, Имаад Васиф, Микки Петралия, Мелисса Де СузаПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: AнглийскиеПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F302E1E3D5474E7D9F76037D951022A1E1EC766D
 ```
 
 https://mybot314.ru/tekegram_catalog/

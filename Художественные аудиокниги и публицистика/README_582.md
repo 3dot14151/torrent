@@ -1,82 +1,3 @@
-###  Публикация: 571812   (387352) от 07.11.2012
-
-Андрэ Нортон | Паутина колдовского мира [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Воины Карстена похищают наследницу Верлейна. Женитьба на ней — единственная возможность для герцога Ивьяна получить законные права на власть в Карстене и примириться с знатью, ненавидящей наемника, узурпировавшего трон. Корис и Саймон разрабатывают план спасения Лойз, захвата замка Верлейн — его первый этап.Жанр: Фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10106BD1A1C567ECDD075E71592799E8C625E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326047   (387313) от 19.09.2019
-
-Джон Берендт | Полночь в саду добра и зла (2019) [MP3, Степан Старчиков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В старинном особняке Саванны туманным утром 2 мая 1981 года прогремели выстрелы – убит Дэнни Хэнсфорд, молодой человек с сомнительной репутацией. Под подозрением оказывается хозяин дома…
-Так начинается расследование, длившееся десять лет. Именно столько времени потребовалось, чтобы узнать, что же все-таки тогда произошло – убийство или акт самозащиты. Однако главное (   Читать дальше...   )Жанр: ДетективПродолжительность: 15:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8F01A7139C1B33B7FC1E723F222569D652C46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326048   (387309) от 19.09.2019
-
-Маргарет Йорк | Поместье Даунтон. Начало (2019) [MP3, Наталья Баданова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Этот роман – не пересказ самого популярного любовного телесериала, не подражание или новеллизация. Перед вами предыстория легендарного «Аббатства Даунтон», отправная точка грандиозной семейной саги, покорившей сотни миллионов зрителей по всему миру.Жанр: Исторический детективПродолжительность: 10:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5096685638F35262CE5D84BBCFB272FDA0B836F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326050   (387308) от 19.09.2019
 
 Дженнифер Макмахон | Остров потерянных детей (2019) [MP3, Степан Старчиков]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387308.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387301.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387300.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387299.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387242.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387233.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387185.jpg" />
 </div>
 
 
@@ -271,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387184.jpg" />
 </div>
 
 
@@ -299,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387117.jpg" />
 </div>
 
 
@@ -325,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387079.jpg" />
 </div>
 
 
@@ -351,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387026.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387008.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386860.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386848.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386846.jpg" />
 </div>
 
 
@@ -484,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386832.jpg" />
 </div>
 
 
@@ -510,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386818.jpg" />
 </div>
 
 
@@ -536,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386813.jpg" />
 </div>
 
 
@@ -562,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386733.jpg" />
 </div>
 
 
@@ -588,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386573.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386188.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386057.jpg" />
 </div>
 
 
@@ -668,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385702.jpg" />
 </div>
 
 
@@ -679,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA7689D9725779FE0E9D164563C7695441236519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574342   (385698) от 05.09.2022
+
+Иван Тургенев | У Бога нет препятствий для любви (2006) [MP3, Сергей Чонишвили, Елена Чернышова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль по мотивам поэзии и малоизвестной фантазии «Призраки» Ивана Сергеевича Тургенева, и русским романсам XIX века. Это история любви женской души, пришедшей из потустороннего мира, к мужчине из реальной жизни.Жанр: Классика, РадиоспектакльПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB600AA8E35F23CA1F0D9D290BFB1525007AA5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574599   (385492) от 05.09.2022
+
+Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 816-866 (2022) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385492.jpg" />
+</div>
+
+
+###  Подробнее
+
+У себя на родине сказки Шахразады в разных социальных слоях издревле встречали разное отношение. Если в широких народных массах сказки всегда пользовались огромной популярностью, то представители мусульманской схоластической науки и духовенства, блюстители «чистоты» классического арабского языка неизменно отзывались о них с нескрываемым презрением. Еще в X веке ан-Надим, (   Читать дальше...   )Жанр: Зарубежная классика, Сказки, НовеллыПродолжительность: 05:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCDE5C83B2C87333D9AF2918F1853E652B602CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253217   (385439) от 08.10.2018
+
+Тесс Герритсен | Джейн Риццоли и Маура Айлз (Книга 8). Гиблое место (2018) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385439.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гиблое место» — восьмая книга в серии романов Тесс Герритсен о полицейских и врачах, вступивших в борьбу с убийцами. В поселке Лучший Мир стряслось что-то ужасное. Снежный буран заставляет Мауру Айлз задержаться в этом жутком месте. Она приехала на конференцию в Вайоминг и, встретив однокурсника, согласилась отправиться с ним и его друзьями далеко за город, на лыжную (   Читать дальше...   )Жанр: ДетективПродолжительность: 9:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2843CB6843D93672DDBFDB3C66B1EFA1B9D5F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 448151   (129074) от 22.01.2022
-
-Человек, который изменил всё / Moneyball (2011) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм по книге Майкла M. Льюиса, изданной в 2003 году, об Оклендской бейсбольной команде и ее генеральном менеджере, Билли Бине. Его цель - создать конкурентоспособную бейсбольную команду, несмотря на финансовые трудности.Производство: США / Columbia Pictures, Scott Rudin Productions, Michael De Luca ProductionsЖанр: биография, спорт, драмаРежиссер: Беннетт МиллерАктеры: Брэд Питт, Джона Хилл, Филип Сеймур Хоффман, Крис Пратт, Стефен Бишоп, Кэррис Дорси, Робин Райт, Рид Даймонд, Брент Дженнингс, Кен МедлокПеревод: ДублированныйЯзык озвучки: Русский, английский, чешский, венгерский, польский, турецкий, украинскийСубтитры: Русские, Арабские, Китайские, Хорватские, Чешские, Английские, Греческие, Иврит, Хинди, Исландские, Корейские, Польские, Португальские, Румынские, Словацкие, Словенские, Турецкие, Болгарские, Эстонские, Венгерские, ЛитовскиеПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393D61224BDF9421C12AF39463AE6DFAF80B451B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525970   (129072) от 22.01.2022
-
-Вечные / Eternals (2021) UHD WEB-DLRip [H.265/1080p-LQ] [HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: Дублированный (iTunes), профессиональный многоголосый {HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские ( Full, SDH)Продолжительность: 02:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F920AB95F2642EA95F9D6731A6FE27D12591287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525832   (129046) от 22.01.2022
 
 Бесконечность / Infinite (2021) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129046.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129039.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129036.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129035.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129033.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129029.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129019.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129018.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129006.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128999.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128991.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128989.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128972.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128964.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128919.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128918.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128917.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128916.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128915.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128911.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128910.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128909.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128908.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128906.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0079753D5B1DC82D1CB554BEF43149C5CF3B408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824170   (128901) от 15.10.2025
+
+Дэнни Цепной пес / Unleashed (2005) BDRip [H.264/1080p] [Unrated] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэнни постоянно ходит в ошейнике, ест и спит в ошейнике, практически круглые сутки проводит в ошейнике. Именно так воспитал его Барт, гангстер из Глазго, который не брезгует никакими методами для достижения поставленных целей. Когда ему длительное время не отдают долг, у Барта лопается терпение и тогда он снимает с Дэнни ошейник. Именно в такие мгновения Дэнни превращается (   Читать дальше...   )Производство: Франция, Великобритания, США / Europa Corp. / Canal +Жанр: боевик, триллер, криминалРежиссер: Луи ЛетерьеАктеры: Джет Ли, Морган Фриман, Боб Хоскинс, Керри Кондон, Винсент Риган, Дилан Браун, Тамер Хассан, Майкл Дженн, Филлида Ло, Кэрол Энн УилсонПеревод: Многоголосый профессиональный (MVO Superbit)Язык озвучки: Русский, узбекскийСубтитры: Русские, английскиеПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA4BB72A7ED6069F887D2F46E757285AAFC95B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824476   (128890) от 15.10.2025
+
+Гадкая сестра / The Ugly Stepsister / Den stygge stesosteren (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина с двумя дочерьми выходит замуж за богатого, как она думала, вдовца, но после его внезапной смерти оказывается в ещё больших долгах. Её старшая дочь Эльвира, некрасивая сводная сестра прекрасной Агнес, мечтает выйти замуж за принца и готова на многое, чтобы стать красавицей и блистать на грядущем балу. Рассматривая это как выгодное вложение средств, мать отправляет (   Читать дальше...   )Производство: Норвегия, Дания, Румыния, Польша, Швеция / Lava Films, Mer Film, Motor, Scanbox Entertainment, Zentropa International SwedenЖанр: драма, фэнтези, комедияРежиссер: Эмили БлихфельдтАктеры: Леа Мюрен, Теа Софье Лок Несс, Ане Даль Торп, Фло, Исак Калмрот, Мальте Гордингер, Ральф Карлссон, Исак Аспберг, Альбен Вайденблад, Оксана ЧеркашинаПеревод: Дублированный (Велес), двуголосый  (UAFlix)Язык озвучки: Русский, Украинский, НорвежскийСубтитры: Русские, Украинские (Forced), Английские, Французские и др.Продолжительность: 01:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CFCCDFBB888F819ECB0A90843A3152E15729B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

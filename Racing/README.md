@@ -7,7 +7,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack FitGirl [Limite
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068899.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FlatOut (2004) [Multi] (1.01 Build 14940243) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067856.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ FlatOut 2 (2006) [Multi] (1.2) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067855.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) Scene TiNYiSO [Collector's Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067834.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0) Repack Wanterlude
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067719.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063357.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063356.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wreckreation (2025) [Ru/Multi] (1.4.4.149571) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061089.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060094.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060088.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.3.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059990.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Scene Tenoke [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059183.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ FlatOut: Ultimate Carnage (2008) [Ru] (1.0) Repack R.G. ReCoding
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058586.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) License RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058564.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Need for Speed: Underground (2003) [Multi] (1.4.0) Scene Spirity
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058563.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Juiced 2: Hot Import Nights (2007) [Multi] (1.0) License DETONATiON
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058557.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ FlatOut 2 (2006) [Ru] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058395.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ FlatOut (2004) [Ru] (1.1) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058181.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058126.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Need for Speed: Underground 2 (2004) [En] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057979.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ DiRT 3 (2012) [Ru] (1.2.0.0/dlc) Repack R.G. Freedom [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057870.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Juiced (2005) [En] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057672.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ TRAIL OUT (2022) [Ru/Multi] (1.1/dlc) License GOG [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054837.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.2.157.1/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052425.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10.4/dlc) Repack seleZen [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051625.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050537.jpg" />
 </div>
 
 

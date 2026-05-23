@@ -6,7 +6,7 @@ Shotcut 25.03.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23046.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 8.138.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23043.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rosetta Stone: Изучение языков 8.32.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23038.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 25.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23036.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FullReader - читалка книг v4.3.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23029.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6.2  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23025.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MultiTimer: МультиТаймер v1.6 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23023.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Accentize - dxRevive Pro 1.2.2 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23020.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Photo Editor v11.5 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23005.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TikTok Private Plus v39.3.5 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22993.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Balabolka 2.15.0.891 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22989.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VCap Downloader 0.1.28.6488 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22934.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Revo Uninstaller Free 2.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22929.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Advanced Renamer 4.11 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22915.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MakeMKV 1.17.9 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22906.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Duplicate File Detective 7.3.69.0 (x64) Professional / Enterprise / Site Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22901.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Magic Eraser / Магический ластик v2.21.7 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22899.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinSCP 6.5.0 Build 16288  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22892.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.1 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22887.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ TapScanner v3.0.62 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22886.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22885.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ HEU KMS Activator 61.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22861.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Topaz Video AI 6.1.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22854.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Bandicam 8.1.1.2518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22840.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Tor Browser Bundle 14.0.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22831.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ NirLauncher Package 1.30.18 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22830.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PhotoDiva Pro 3.25 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242112.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ StartAllBack 3.5.1 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242109.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AllDup 4.5.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242106.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Typora for Mac 1.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242094.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ iThoughtsX 5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242091.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ A Better Finder Rename 11 v11.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242081.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ MassTube Plus 16.5.4.659 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242072.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Artstudio Pro 4.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242071.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (20.02
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242070.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Affinity Designer 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242067.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Omni Recover 3 v3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242062.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Radiant Photo 1.1.1.263 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242059.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AIMP 5.11 Build 2428 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242048.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vivaldi 2.11.1811.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242044.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Cycling'74 Max 8.5.4 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242038.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ ExamDiff Pro 13.0.1.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242036.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ CPU-Z 2.01.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242033.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Wise Care 365 Pro 6.5.3.625 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242032.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Topaz Photo AI 1.2.10 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242027.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Aiseesoft Video Converter Ultimate 10.6.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242024.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Daniel.B. (DANIEL B.) - Six+Six (2020) [FLAC|Lossless|image + .cue] <Industrial,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242022.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Slimjet 26.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242019.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PTE AV Studio Pro 10.0.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242013.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ One Commander Pro 3.40.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242008.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Magic Battery 7.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242001.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ QR & Barcode Scanner Pro 2.5.33 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241995.jpg" />
 </div>
 
 

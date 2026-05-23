@@ -6,7 +6,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122714.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Serial Box & SerialSeeker 01-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122713.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ iShowU Studio 2 v.2.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122712.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ EasyGantt Classic  4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122711.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dropshare 5 v.5.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122710.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Soulver 3 v.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122709.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122708.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mimestream 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122702.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Adobe InDesign 2024 v.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122651.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ashampoo Burning Studio 25.0.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122649.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adobe Acrobat Pro 23.8.20470 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122646.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Adobe Acrobat Reader 2023.008.20470.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122641.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ DefenderUI 1.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122638.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.4 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122637.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122634.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ NVIDIA GeForce Desktop Game Ready 474.64 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122630.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Aiseesoft Video Converter Ultimate 10.8.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122618.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122617.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Waves Ultimate 2024.01.10 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122614.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Process Lasso Pro 12.4.7.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122608.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ IconTo Pro 7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122605.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.4 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122604.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ FabFilter - Total Bundle 2023.12.20 STANDALONE, VST, VST 3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122596.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ SMPlayer 23.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122585.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Plexim Plecs 4.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122573.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Vov Sticky Notes 8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122572.jpg" />
 </div>
 
 

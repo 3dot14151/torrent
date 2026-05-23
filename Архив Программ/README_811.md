@@ -6,7 +6,7 @@ Free Download Manager 5.1.29. 6471 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637186.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RusLiveFull by NIKZZZZ CD/DVD (2015 06 11) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637158.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CareUEyes 1.1.22.1 Portable by Joo Seng [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637143.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ StartIsBack++ 2.8.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637139.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Double Commander 0.9.2 Beta Build 8761 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637137.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ StartIsBack++ 2.8.3 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637129.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ant Download Manager Pro 2.6.2 Build 80967 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637109.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VMware Workstation 14 Pro 14.1.2 Build 8497320 Lite RePack by qazwsxe aka Lisbon
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637102.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Calibre + 3.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637071.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Aiseesoft Total Video Converter 9.2.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637062.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AIDA64 Extreme / Engineer Edition 5.20.3449 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637035.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Office 2013 SP1 Professional Plus 15.0.4727.1001 RePack by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637001.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ ArchiCAD 18 Build 6000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636999.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Movavi Video Suite 18.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636894.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NextLimit RealFlow 3.0.0.0020 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636889.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636875.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ DxO PhotoLab Elite 5.2.0 build 4730 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636869.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Duplicate Cleaner Pro 5.15.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636858.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ OnlineTV 6.2.0.8 [Eng/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636842.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636835.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Substance Painter 2.6.1 Build 1589 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636683.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Total Commander 9.0a Extended 17.6 Full RePack (&Portable) by BurSoft [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636682.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Abelssoft SSD Fresh Plus 2022 11.07.34045 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636660.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ MULTIBOOT USB/DVD DRIVE v.5.0 Reanimate/Soft by AlexGen v.5.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636561.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4549.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636538.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Zbrush 4R8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636530.jpg" />
 </div>
 
 

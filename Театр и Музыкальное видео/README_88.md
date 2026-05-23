@@ -1,115 +1,3 @@
-###  Публикация: 1249616   (430966) от 25.09.2018
-
-Axel Rudi Pell live - Rockpalast (2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся 19.05.2018 во время фестиваля Rock Hard в Гельзенкирхене.01. The Wild And The Young
-02. Wildest Dreams
-03. Only The Strong Will Survive
-04. Mystica(   Читать дальше...   )Телекомпания: WDRЖанр: Heavy MetalПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9582B38D953291AA5897367BF77557F04F971D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946086   (429167) от 12.10.2015
-
-Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Eminem представляет новый видеоклип под названием «Phenomenal», который является саундтреком к фильму «Левша».Жанр: Rap & Hip-HopПродолжительность: 00.07.21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901746427F55731F57413156BA7C50AEADAD081B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393680   (427866) от 30.09.2011
-
-Дюран Дюран / Duran Duran - Arena  (AN ABSURD NOTION) (1985) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Duran Duran — английская поп-рок-группа, образованная в Бирмингеме в 1978 году. Название коллектив получил по имени главного отрицательного персонажа фильма Барбарелла. Наряду с Depeche Mode ведущая команда коммерческого направления в музыке начала 1980-х, вышедшего из «новой волны» и близкого к электропопу.
-В первой половине 1980х у «Duran Duran» было несколько международных хитов по обе стороны Атлантики, включая «The Reflex» (1-е место в США и Великобритании, 1984) и «A View to Kill» (1-е место в США, 2-е место в Великобритании, тема к фильму про Джеймса Бонда, 1985 г.)
-Фильм-концерт DURAN DURAN (как известно группа названа именем главного злодея фильма БАРБАРЕЛЛА где в главной роли играла ДЖЕЙН ФОНДА ),сюжетная линия фильма плавно пересекается с концертом DURAN DURAN (между песнями маленькие вставки из фильма) . Концерт классный и наверняка понравится поклонникам группы .Жанр: Концертное шоу, New Wave, Pop rock, Synthpop, Alternative rock, New RomanticismРежиссер: Рассел МалкахиАктеры: Саймон Ле Бон , Ник Родес , Энди Тэйлор, Джон Тейлор, Роджер Тейлор, Мило О'Ши...Продолжительность: 02:04:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708642   (427804) от 09.10.2013
-
-Boney M - Live In Concert (1979) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Раритетная съёмка живого концерта легенды стиля disco - квартета Boney M., который состоялся в Вене 1 ноября 1979 года в главном зале австрийской столицы. Там под патронатом Die Erste Bank проходил фестиваль звёзд мировой эстрады, который было доверено завершить звёздному квартету Фрэнка Фариана. Один из двух дошедших до наших дней концертов Boney M. с абсолютно (   Читать дальше...   )01. Let It All Be Music
-02. Rasputin
-03. Never Change Lovers...
-04. Do You Wanna Bump(   Читать дальше...   )Жанр: Концерт, DiscoПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F7C2EEB5E0AD18FB90D261545E2C4309067C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324274   (427406) от 08.09.2019
 
 Квартирник НТВ у Маргулиса. Группа Пицца (07.09.2019) WEB-DL [H.264/1080p-LQ]
@@ -118,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427406.jpg" />
 </div>
 
 
@@ -144,7 +32,7 @@ VA - Осенний марафон № 197 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427054.jpg" />
 </div>
 
 
@@ -173,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_426337.jpg" />
 </div>
 
 
@@ -202,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426260.jpg" />
 </div>
 
 
@@ -228,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425771.jpg" />
 </div>
 
 
@@ -263,7 +151,7 @@ Bad Wolves - Zombie (Official Video) (2018) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425381.jpg" />
 </div>
 
 
@@ -290,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425095.jpg" />
 </div>
 
 
@@ -316,7 +204,7 @@ VA - Осенний марафон № 196 / Видеоклипы (Коктей�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424800.jpg" />
 </div>
 
 
@@ -345,7 +233,7 @@ Zaira - Mi vida (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424788.jpg" />
 </div>
 
 
@@ -371,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423987.jpg" />
 </div>
 
 
@@ -397,7 +285,7 @@ Beth Hart Band-Crossroads (Rockpalast) (2011) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423845.jpg" />
 </div>
 
 
@@ -426,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423815.jpg" />
 </div>
 
 
@@ -452,7 +340,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423499.jpg" />
 </div>
 
 
@@ -481,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422965.jpg" />
 </div>
 
 
@@ -507,7 +395,7 @@ The Strat Pack - Celebrating 50 Years Of The Fender Stratocaster Live In Concert
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421430.jpg" />
 </div>
 
 
@@ -536,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_420528.jpg" />
 </div>
 
 
@@ -562,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419964.jpg" />
 </div>
 
 
@@ -588,7 +476,7 @@ Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418823.jpg" />
 </div>
 
 
@@ -619,7 +507,7 @@ The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418459.jpg" />
 </div>
 
 
@@ -646,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416154.jpg" />
 </div>
 
 
@@ -672,7 +560,7 @@ Scorpions - Live in Munich (2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415858.jpg" />
 </div>
 
 
@@ -698,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415785.jpg" />
 </div>
 
 
@@ -711,6 +599,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DAD7F1935562A8D23673955A62B2B67FD7BEA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710213   (415660) от 14.10.2013
+
+Огонь Кристиана Лубутена 3D / Feu: Crazy Horse Paris (2012) Blu-Ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_415660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый создатель туфель с красной подошвой ставит шоу в известном парижском клубе «CRAZY HORSE PARIS». По словам самого Лубутена, танцевальные номера в парижском кабаре «это памятник, памятник танцу, фантастическая идея праздника для женщин от женщин».Производство: Франция (студия KaBo)Жанр: Документальный, Мюзикл, ШоуРежиссер: Бруно ХаллинАктеры: Люмина Классика, Нука Карамель, Бейби Лайт, Кристиан Лубутен, Лив Менот, Дива Новита, Фьямма Роза, Ясна Снигура, Псикко Тико, Лоа ВаинаПеревод: Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947818   (415489) от 18.10.2015
+
+Верный робот (1965) WEBRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415489.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе Станислава Лема
+Однажды писатель Том Клемпнер получает по почте посылку с роботом по имени Граумер, хотя он его совсем не заказывал. Но, так как робот ему достался даром, он решает оставить его у себя. Робот оказался очень услужливым, и даже начал давать писателю весьма дельные советы,
+но вскоре в доме начинают пропадать вещи, а Клемпнер получает (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Телеспектакль, фантастикаРежиссер: И. РассомахинАктеры: Робот - С. Юрский,  Клемпнер - В. Стржельчик,  Господин Гордон - В. Эренберг,  Госпожа Гордон - В. Кибардина,  Господин Доннель - Р. Лебедев,  Госпожа Доннель - Л. Штыкан,  Тип - И. Щепетнов,  посыльные - Е. Иванов Д. ЛиндесПродолжительность: 01:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFC6866B7B63A8EBCF20EA04634164641DC64E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070127   (415165) от 02.10.2018
+
+Шарль Азнавур в Карнеги-Холле / Charles Aznavour au Carnegie Hall (1995) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композитор и вокалист Шарль Азнавур является одним из самых известных музыкантов Франции, его часто сравнивают с такими с эстрадными певцами, как Морис Шевалье или Фрэнк Синатра.
+Вашему вниманию представлен концерт Шарля Азнавура, записанный в прямом эфире в июне 1995 года в Карнеги-Холле.
+В этом концерте Шарль Азнавур исполняет 27 песен на французском и английском (   Читать дальше...   )Производство: Seven Stars Systems S.A.Жанр: МузыкальныйАктеры: Charles AznavourПеревод: ОтсутствуетПродолжительность: 01:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6323E247407F9B64831A5B53E1387149CAE29275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 830528   (414277) от 17.10.2014
+
+Иисус Христос Cуперзвезда / Jesus Christ Superstar (2000) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414277.jpg" />
+</div>
+
+
+###  Подробнее
+
+"А не замахнуться ли нам на Тима, нашего, Райса?!" - подумали однажды Гейл Эдвардс с Ником Моррисом, и замахнулись... Да ещё как! Взяли да и поставили заново классическую рок-оперу 'Иисус Христос - Суперзвезда'. Мало того, что поставили, ещё видео-версию ремейка сняли. Получилоcь крайне занятно: Иуда в косухе ревнует безбородого Иисуса в рэперских штанах (   Читать дальше...   )Производство: СШАЖанр: Рок-опера, ДрамаРежиссер: Гейл Эдвардс /Gale Edwards, Ник Моррис /Nick MorrisАктеры: Иисус Христос: Glenn Carter(Гленн Картер ) Иуда Искариот: Jerome Pradon (Джером Прэдон) Мария Магдалина: Renee Castle (Рене Кастл) Царь Ирод: Rik Mayall (Рик Майалл) Понтий Пилат: Fred Johanson (Фред Йохансон) Кайафас: Frederick B. Owens(Фредерик Б. Оуэнс) Аннас: Michael Shaeffer(Майкл Шаффер) Саймон Зелота: Tony Vincent(Тони Винсент) Питер: Cavin Cornwall (Кевин (   Читать дальше...   )Перевод: ДублированныйЯзык озвучки: РусскийПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0C8A88EE4771345ECD709C43E9A9BACC09B03D
 ```
 
 https://mybot314.ru/tekegram_catalog/

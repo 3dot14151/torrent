@@ -6,7 +6,7 @@ PrivaZer 4.0.84 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112297.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Glary Disk Cleaner 6.0.1.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112290.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EarthView 7.9.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112287.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ungoogled Chromium 123.0.6312.86-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112283.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CudaText 1.211.4.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112272.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Text Edit Plus 14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112265.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ TikTok 34.1.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.31 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112244.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Kingston SSD Manager 1.5.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112242.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Topaz Photo AI 2.4.2 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112237.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Glarysoft Malware Hunter PRO 1.181.0.803 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112229.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Opera One 109.0.5097.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112226.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ simplewall 3.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112224.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ToneBoosters Plugin Bundle 1.8.0 VST / VSTi, VST3 / VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112222.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ CrystalMark Retro 1.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112221.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ FreeFileSync 13.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112214.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Telegram Desktop 4.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112213.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ NonVisual Desktop Access (NVDA) 2024.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112208.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ PageEdit 2.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112207.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Firefox Browser 124.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112201.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Sigil 2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112200.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PowerDirector – Video Editor v13.4.0 b2404021 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112191.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ GeoGebra 6.0.836.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112188.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Privacy Eraser Free 6.5.4 Build 4886 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112181.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112148.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ WSCC (Windows System Control Center) 7.0.7.9 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112136.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Google Chrome 123.0.6312.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112135.jpg" />
 </div>
 
 

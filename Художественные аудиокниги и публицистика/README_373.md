@@ -1,81 +1,3 @@
-###  Публикация: 1026043   (707731) от 13.06.2016
-
-Клиффорд Саймак | Мир, которого не может быть (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Любое произведение непревзойденного мастера фантастики Клиффорда Саймака независимо от его объема - истинный шедевр. Каждое из них уникально по сюжету и воплощению замысла. И в то же время все они обладают одной особенностью: заставляют читателя задуматься о непреходящих ценностях цивилизации и последствиях их утраты, о восхитительной красоте окружающего мира и роли (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD262589D94129F2184592B77F84150ACBF7D1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401571   (707692) от 11.08.2020
-
-Моника Кристенсен | Шпицберген. Угольная крошка (2019) [MP3, Лора Луганская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Маленькая девочка исчезает из детского сада в шахтерском поселке Лонгиер на Шпицбергене. Никогда еще дети не пропадали в этих местах, где все знают друг друга и где за границами поселка безмолвная арктическая пустыня. Это загадочное исчезновение как спусковой крючок порождает новые преступления, распутать которые пытается шпицбергенский инспектор полиции Кнут Фьель.Жанр: ДетективПродолжительность: 08:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2024E82A18311C2953D7D55D5FE80B36ECF2060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025774   (707614) от 13.06.2016
-
-Сергей Лукьяненко | Рассказы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Сборник рассказов — это не торжественное погружение в глубины чужой выдумки могучей подводной лодки, как в романе. Это скорее легкое скольжение по волнам фантастики на быстроходном катере."- Сергей ЛукьяненкоЖанр: ФантастикаПродолжительность: 05:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63AD25B0214B229DCF07F241C641269B07821D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401738   (707586) от 11.08.2020
 
 Юлия Шкутова | Наследие древних. История одной любви (2020) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707586.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707529.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707524.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707335.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707162.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707118.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707100.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707075.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706955.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706952.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706828.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706729.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706612.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706399.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706361.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706181.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705959.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705946.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705916.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705867.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705683.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705650.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705621.jpg" />
 </div>
 
 
@@ -676,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21AC97BFE6B1C53673837219384C3C8F01EF7123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210242   (705552) от 14.06.2010
+
+Михаил Афанасьевич Булгаков | Собачье сердце (2008) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Булгаков - великий писатель, родившийся на стыке веков и творивший на рубеже исторических эпох. В его произведениях самая глубокая мистика и самый смелый вымысел так тесно переплетаются с реальной жизнью, что никакая фантастика уже не кажется невозможной. Это верно и для «Собачьего сердца», где небывалый эксперимент по пересадке гипофиза от человека собаке приводит (   Читать дальше...   )Жанр: классика, повесть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40130FEE1EEB461AF7E34F953DF73D243130054B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401980   (705515) от 12.08.2020
+
+Андрей Кузнецов | Смерть на Параде Победы (2020) [MP3, Аркадьевич Романов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отгремели последние залпы Великой Отечественной, но война не закончилась даже после Победы. Расследование на первый взгляд заурядного убийства выводит НКГБ на след спецгруппы абвера, заброшенной в Москву для покушения на Сталина.
+
+Откажутся ли немецкие диверсанты от своего задания после падения Рейха – или выполнят последний приказ Гитлера, решившего сжечь вместе (   Читать дальше...   )Жанр: Боевик, шпионский детективПродолжительность: 08:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D513F87401973A54B7C168B9A00A5C0A06F6048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401892   (705498) от 12.08.2020
+
+Агата Кристи | Пуаро. Пуаро ведет следствие. [Сборник] (2020) [MP3, Егор Серов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами культовый сборник рассказов – одиннадцать дел из практики великого сыщика Эркюля Пуаро. Одиннадцать шедевров работы его уникального мозга, одиннадцать безупречных жемчужин из обширной коллекции удач маленького бельгийца. Среди этих дел представлены как серьезные и трагичные, так и забавные; некоторые тайны Пуаро раскрывал, не поднимаясь из своего любимого (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB1DA6455F67E8718CCF3A2B5D9016DC3AD7BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

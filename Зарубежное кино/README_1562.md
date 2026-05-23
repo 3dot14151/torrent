@@ -1,55 +1,3 @@
-###  Публикация: 1569489   (241658) от 13.08.2022
-
-Доктор Стрэндж: В мультивселенной безумия / Doctor Strange in the Multiverse of Madness (2022) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение магических приключений Доктора Стрэнджа в новых мистических мирах и в противостоянии с новыми врагами.Производство: США / Marvel Studios, Walt Disney PicturesЖанр: фэнтези, боевик, приключения, фантастика, ужасыРежиссер: Сэм РэймиАктеры: Бенедикт Камбербэтч, Элизабет Олсен, Сочил Гомес, Бенедикт Вонг, Рэйчел МакАдамс, Чиветель Эджиофор, Патрик Стюарт, Джон Красински, Хейли Этвелл, Энсон МаунтПеревод: дублированный (Невафильм), профессиональный многоголосый (HDRezka)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced), английские (forced, full, SDH)Продолжительность: 02:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92726ED0A1F597BA45B558F0BECF2591E311AB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569472   (241651) от 13.08.2022
-
-Голиаф / Goliath (2022) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Франс — учительница физкультуры и активистка, которая выступает против использования пестицидов; Патрик — малоизвестный адвокат, специализирующийся на экологическом праве; Матиас — лоббист, отстаивающий интересы агрохимического гиганта. Пути этих трех людей пересекутся из-за ужасного поступка отчаявшегося фермера.Производство: Франция, Бельгия, Single Man Productions, Studio Canal, France 3 CinémaЖанр: триллер, драмаРежиссер: Фредерик ТелльеАктеры: Жиль Леллуш, Пьер Нинэ, Эмманюэль Берко, Лоран Стокер, Янник Ренье, Хлоя Стефани, Мари Жиллен, Жак Перрен, Heidi-Eva Clavier, Malik AmraouiПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: отсутствуютПродолжительность: 02:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E971948CCBCD8954B45C45AEF35B1C19F7FD3C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625011   (241639) от 08.04.2023
 
 Девственницы-самоубийцы / The Virgin Suicides (1999) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241639.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241633.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241601.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241584.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241569.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241555.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241544.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241540.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241526.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241518.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241515.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241496.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241485.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241467.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241457.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241440.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241432.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241399.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241389.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241384.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241371.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241364.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241354.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241343.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4572E9A35D8FEF513E10C20CD0FB269393F7A9AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569650   (241331) от 15.08.2022
+
+С какой ты планеты? / What planet are you from? (2000) HDTVRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241331.jpg" />
+</div>
+
+
+###  Подробнее
+
+На далекой планете живут инопланетяне удивительно похожие на людей. Однако они опережают нас в развитии на тысячи лет, лишены всяких ненужных эмоций и, ко всему прочему, потеряли способность нормально размножаться. Вождь инопланетян решает отправить на Землю одного из своих заранее подготовленных соотечественников с тайной миссией: завоевать нашу планету через соединение (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Brillstein-Grey Entertainment, What Planet Are You From? ProductionsЖанр: фантастика, комедияРежиссер: Майк НиколсАктеры: Гарри Шендлинг, Аннетт Бенинг, Джон Гудман, Грег Кинниэр, Бен Кингсли, Джуди Грир, Дэнни Зорн, Хармони Смит, Ричард Дженкинс, Линда ФиорентиноПеревод: Многоголосый профессиональный, Авторский (Ю. Живов)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3933743F3BF6A22AC18941778FB23EE69A820C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544747   (241330) от 16.04.2022
+
+Лулу и Бриггс / Dog (2022) WEB-DL [H.264/1080p] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морской пехотинец Бриггс должен доставить в Калифорнию служебную собаку по кличке Лулу. Задание оказывается с подвохом. Лайтовая поездка вдоль Тихоокеанского побережья превращается в адское путешествие, где непонятно, кто кого везёт.Производство: США / CAA Media Finance, FilmNation Entertainment, Free Association, Metro-Goldwyn-Mayer (MGM)Жанр: комедия, драма, приключенияРежиссер: Рид Каролин, Ченнинг ТатумАктеры: Ченнинг Татум, Райдер Маклафлин, Aavi Haas, Люк Форбс, Донован Хантер, Peter Ostrander, Trey Panella, Patrick Perlaky, Девин Уайт, Джон ДиксонПеревод: Дублированный (Line), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD5162A2507E0464878E5295DC4EFC2D5B7A94E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Adobe Prelude 2020 v9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735251.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WebVideoHunter Pro 6.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735249.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735221.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Adobe XD 31.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735178.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wondershare PDFelement Pro 7.6.6.3136 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735168.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Media Encoder 2020 14.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735158.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Animate 2020 20.5. [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735147.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Premiere Pro 2020 14.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735059.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ DirEqual 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734992.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ GoodNotes 5 v5.7.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734989.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PCDJ DEX 3 v3.17.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734986.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ EdgeView 3 v3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734982.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ xScope 4 v4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734981.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Dato 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734980.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ GoodTask 6.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734976.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Vinegar 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734973.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Art Text 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734971.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ uDock 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734970.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Grids for Instagram 7.0.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734962.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Ableton Live Suite 11 v11.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734961.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Live Home 3D Pro Edition 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734959.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734948.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ RAR Extractor  - unzi‪p‬ 8.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734944.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Movavi Video Converter 22 Premium 22.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734942.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adobe Substance 3D Designer 11.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734938.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ App Cleaner & Uninstaller Pro 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734935.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813918.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sensual Meditation: Emotional Music, Deep Feeling Connection, Tantra Medita
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811474.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Cafe India Lounge (Retail 2006) (2006) [MP3|~190 Kbps (V2)] <New Age, Lo-Fi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807489.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802813.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802005.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801093.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801080.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alex Lucas & Olan Mill - Tramuntana (2016) [MP3|320 Kbps] <New Age, Instrumental
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800615.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800506.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_799510.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798844.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean W
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798824.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, R
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795516.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794919.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contempor
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793746.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclas
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793732.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Douglas Blue Feather - Cosmic Visions (2016) [MP3|320 кб/с] <New Age, Native 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793648.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793577.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Most Comfort Melodies for Spa: Deep Sleep Sounds for Meditation (2017) [MP3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793513.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Spirit & Soul, Vol. 1 (Spiritual Yoga & Meditation Moods) (2017) [MP3|320 K
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793507.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793427.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792989.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Greg Maroney - Winter (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792099.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ The First Nations - Heart and Soul of the Native Indians (2016) [MP3|320 Kbps] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790623.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789859.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787614.jpg" />
 </div>
 
 

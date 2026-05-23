@@ -1,55 +1,3 @@
-###  Публикация: 1493622   (891818) от 05.09.2021
-
-Дикий округ / Feral State (2020) WED-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Харизматичный аферист и самопровозглашенный «отец забытого» по имени Мак Монро живет в кишащих аллигаторами болотах и ​​полуразрушенных трейлерных парках. Он принимает сирот и беглецов как своих собственных и дает им единственное подобие дома, который у них когда-либо было - но какой ценой? Мак обучает свою разнообразную банду искусству воровства и преступности, (   Читать дальше...   )Производство: США / Sunchaser FilmsЖанр: ТриллерРежиссер: Джон КарлоАктеры: АннаЛинн МакКорд, Ронни Джин Блевинс, Октавио Писано, Вероника Бёрджесс, Джейден Пайнер, Sif Saga, Jasmine Tamposi, Шарлотта Катрин Барлоу, Anthony Tamposi, Рональд Джеймс Хофф мл.Перевод: Профессиональный многоголосый (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full)Продолжительность: 01:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F232A9A374B550796DF2053B1C7738F892309252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493859   (891816) от 05.09.2021
-
-Не дыши 2 / Don't Breathe 2 (2021) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Не дыши 2 - американский фильм в жанре триллера и ужасов режиссёра Родо Сайягеса, сиквел фильма Не дыши 2016 года. Главную роль в фильме исполнил Стивен Лэнг. Фильм вышел 13 августа 2021 года. После событий первого фильма слепой Норман Нордстром скрывался несколько лет в отдалённой хижине, где воспитывал девочку, осиротевшую после пожара. Их спокойная жизнь закончилась, (   Читать дальше...   )Производство: США, Сербия, Screen Gems, Stage 6 Films, Ghost House PicturesЖанр: Ужасы, триллерРежиссер: Родольфо СаягесАктеры: Стивен Лэнг, Брендан Секстон III, Мэдлин Грэйс, Стефани Арсила, Диана Бабницова, Стеффан Родри, Бобби Шофилд, Рокки Уильямс, Адам Янг, Кристиан СахиаПеревод: Любительский двухголосый (Pazl Voice) Tnx.KinoPubЯзык озвучки: Русский, АнглийскийСубтитры: Русские (full), Английские (full, SDH)Продолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041548409A15BEF0EED14AAF33F2B8069AA2140A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 338751   (891813) от 05.09.2021
 
 Печальная баллада для трубы / Balada triste de trompeta (2010) [720p] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891813.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891811.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891804.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891801.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891786.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Doom: Аннигиляция / Doom: Annihilation (2019) BDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891727.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891723.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891715.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891714.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891703.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891684.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891679.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891672.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891667.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891665.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891598.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891596.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891587.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891584.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891558.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891555.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891543.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891541.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891539.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F81D81003D61365CF81A57E0062D694F5B2C18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371354   (891532) от 30.03.2020
+
+Ной / Noah (2014) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственным праведным человеком на Земле был Ной — набожный отец семейства, которого начали посещать ужасные видения конца света. Поняв, что людей ждет неминуемая гибель, Ной принялся за строительство ковчега — гигантского корабля, который должен был защитить его семью и его самого от бушующих волн. Однако Ною пришлось бороться не только со стихией и собственными (   Читать дальше...   )Производство: США, Disruption Entertainment, New Regency Pictures, Protozoa PicturesЖанр: драма, приключения, фэнтезиРежиссер: Даррен АронофскиАктеры: Расселл Кроу, Дженнифер Коннелли, Рэй Уинстон, Энтони Хопкинс, Эмма Уотсон, Логан Лерман, Дуглас Бут, Ник Нолти, Марк МарголисПеревод: Дублированный (Blu-ray CEE)Субтитры: Русские (полные, форсированные), украинские, английскиеПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790A63CA2EF33B8112ECA30C000AF9AFBD3368A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371034   (891530) от 30.03.2020
+
+Стриптизёрши / Hustlers (2019) UHD BDRip [H.2265/2160p-LQ] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцовщицы элитного стриптиз-клуба, клиенты которого — известные финансисты с Уолл-Стрит — привыкли к большим заработкам и роскошной жизни. Но после финансового кризиса 2008 года посетителей в клубе заметно поубавилось, и деньги к девушкам уже не текут рекой. Тяжёлые времена требуют отчаянных мер, и бывшие танцовщицы решаются на авантюрный шаг.Производство: США / Annapurna Pictures, Gloria Sanchez Productions, Nuyorican Productions, STX FilmsЖанр: Комедия, Криминал, ДрамаРежиссер: Лорин СкафарияАктеры: Констанс Ву, Дженнифер Лопес, Джулия Стайлз, Кеке Палмер, Лили Рейнхарт, Карди Би, Лиззо, Мерседес Рул, Мадлен Брюэр, Метте Таули, Трейс ЛисеттПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7845E6599858CE5866F6EF6F8E94C4DC3788A43
 ```
 
 https://mybot314.ru/tekegram_catalog/

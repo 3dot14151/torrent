@@ -6,7 +6,7 @@ Akkun to Kanojo | Аккун и его девушка [2018, TV, 25] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407583.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nobunaga no Shinobi / Ниндзя Нобунаги [2016, TV, 78 + SP] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407581.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bang Dream! 2nd Season | Ура мечте! (ТВ-2) [2019, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407364.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407283.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407276.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kyoukai no Rinne-3 / Риннэ: Меж двух миров-3 [2017, TV, 25 из
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404783.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403868.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kyoukai Senjou no Horizon II / Horizon in the Middle of Nowhere II / Гориз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402739.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Baka to Test to Shoukanjuu Ni! / Дурни, Тесты, Аватары [ТВ-2]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402683.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Fate/Kaleid Liner Prisma Illya / Судьба: Девочка-волшебниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402261.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401315.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399213.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Jikan no Shihaisha | Chronos Ruler | Повелитель хроноса [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399166.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399148.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398354.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Nobunaga Concerto | Концерт Нобунаги [2014, TV, 10] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394783.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Centaur no Nayami / A Centaur's Life / Тревоги кентавра [2017, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393827.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Jigoku Shoujo: Yoi no Togi | Адская девочка (четвёртый с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393769.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Gekijouban Sword Art Online: Ordinal Scale | Мастера меча онлай�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391711.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391704.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Gamers! / Геймеры! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390285.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388803.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kami Kuzu Idol | Phantom of the Idol | Богиня идола-мерзавца 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387751.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Bang Dream! | Ура мечте! (ТВ-1) [2017, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387178.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385200.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Gaikotsu Shotenin Honda-san | Skull-face Bookseller Honda-san | Скелет-к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385132.jpg" />
 </div>
 
 

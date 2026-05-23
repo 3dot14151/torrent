@@ -6,7 +6,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576633.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573983.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573876.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568337.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566810.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564879.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564565.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559094.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_558330.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558051.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557956.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557878.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557269.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557172.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556313.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552682.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551827.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) 
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551628.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550862.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550730.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550723.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Strategic Command: European Theater / Вторая мировая: Страте�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546261.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546099.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545402.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543378.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542208.jpg" />
 </div>
 
 

@@ -1,107 +1,3 @@
-###  Публикация: 1404321   (623321) от 14.04.2022
-
-RAGE 2 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.09 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Упавший на Землю астероид уничтожил 80% населения. По дорогам скитаются кровожадные банды, а Правительство пытается утвердить своё господство. Вас ждёт настоящий хаос: неописуемые перестрелки с видом от первого лица, разнообразный транспорт и скатывающийся в безумие открытый мир пустошей. Признанные мастера по созданию открытых миров Avalanche Studios и гуру шутеров (   Читать дальше...   )Тип издания: LicenseРазработчик: id Software, Avalanche StudiosЖанр: Action, Shooter, 1st Person, Open WorldЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8405D5E0C7174E7D4ACF9C52D2763E13D235CADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909611   (623182) от 19.06.2015
-
-MotoGP 15 (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-MotoGP 15 — спортивный гоночный мото-симулятор, разрабатываемый студией Milestone. Это продолжение популярной серии игр с более расширенными возможностями. В MotoGP 15 был расширен режим карьеры с внедрением обширного опыта в персональные группы. Улучшена физика ремонта, обработка байков и общее взаимодействие. В этой части доступно около 20-ти байков, разделенных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Milestone S.r.l.sЖанр: RacingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C0F758D6C93338632BF2401BC576956BC273A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144501   (623175) от 24.06.2017
-
-Steredenn (2017) [PS3] [EUR] 3.41 [PSN] [Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Steredenn — это хаотический и динамичный космический шутер с безумными боями против боссов в стильной крупнопиксельной графике. Отправься в путь на своем корабле и сразись с ужасными космическими пиратами в нескончаемом бою на выживание.Тип издания: PSNРазработчик: Plug In DigitalЖанр: Action, Shooter, Shoot-'Em-Up, HorizontalЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6896867F1A345A17DFFAB58030D933DC44E8BEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684336   (621597) от 27.07.2013
-
-Zeno Clash 2 [XBOX360] [En/Ru] [XBLA] [Freeboot] (2013)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-История Гата далека от завершения: Zeno Clash 2 продолжает историю с того интригующего момента, на котором первая игра была прервана. После 4 лет ожидания - продолжение сюрреалистической игры от первого лица, куда ACE Team вносит больше разнообразия в боях и уровнях, потрясающие визуальные обновления и даже более причудливые повествования в привлекательном мире Стоун-панк (   Читать дальше...   )Тип издания: XBLAРазработчик: ACE TeamЖанр: Action / Adventure / Fighting / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909940   (621358) от 20.06.2015
 
 Caladrius Blaze (2014) [PS3] [JPN] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
@@ -110,7 +6,7 @@ Caladrius Blaze (2014) [PS3] [JPN] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621358.jpg" />
 </div>
 
 
@@ -138,7 +34,7 @@ NHL 15 (2014) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621344.jpg" />
 </div>
 
 
@@ -164,7 +60,7 @@ Ever Oasis (2017) [3DS] [EUR] [CIA] [Unofficial] [Multi]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621325.jpg" />
 </div>
 
 
@@ -191,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621237.jpg" />
 </div>
 
 
@@ -219,7 +115,7 @@ Deus Ex: Human Revolution - Director's Cut (2013) [PS3] [EUR] 4.46 [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620307.jpg" />
 </div>
 
 
@@ -245,7 +141,7 @@ Silent Hill: Shattered Memories (2010) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619197.jpg" />
 </div>
 
 
@@ -271,7 +167,7 @@ Binary Domain (2012) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617353.jpg" />
 </div>
 
 
@@ -299,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616452.jpg" />
 </div>
 
 
@@ -330,7 +226,7 @@ Crysis 3 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616007.jpg" />
 </div>
 
 
@@ -356,7 +252,7 @@ Retro City Rampage DX (2014) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [PSN]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615643.jpg" />
 </div>
 
 
@@ -384,7 +280,7 @@ Chasing Dead (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615083.jpg" />
 </div>
 
 
@@ -412,7 +308,7 @@ Grand Theft Auto: San Andreas HD (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614883.jpg" />
 </div>
 
 
@@ -438,7 +334,7 @@ Don't Starve: Giant Edition (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613738.jpg" />
 </div>
 
 
@@ -466,7 +362,7 @@ Warriors: Legends of Troy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613125.jpg" />
 </div>
 
 
@@ -492,7 +388,7 @@ The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3][EUR
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613017.jpg" />
 </div>
 
 
@@ -518,7 +414,7 @@ J-Stars Victory VS Plus (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Un
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612111.jpg" />
 </div>
 
 
@@ -544,7 +440,7 @@ Bionic Commando (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612097.jpg" />
 </div>
 
 
@@ -570,7 +466,7 @@ History Legends of War: Patton (2012) [PS3] [USA] 4.25 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610299.jpg" />
 </div>
 
 
@@ -596,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608870.jpg" />
 </div>
 
 
@@ -631,7 +527,7 @@ Ni no Kuni: Wrath Of The White Witch (2013) [PS3] [USA] 4.82 [OFW / HAN] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608301.jpg" />
 </div>
 
 
@@ -657,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606994.jpg" />
 </div>
 
 
@@ -691,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606985.jpg" />
 </div>
 
 
@@ -704,6 +600,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E72E6E52F79B2B5FB2E604B7AE4BD0569467B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147987   (605396) от 04.07.2017
+
+Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0301-0450)
+
+>>Консольные Игры
+>>Ромы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник расшифрованных игр для Nintendo 3DS. Может использоваться для эмуляторов или CFW.Тип издания: UnofficialРазработчик: Nintendo и другиеЖанр: разныеЯзык озвучки: Английский, Японский и др. (зависит от игры)Язык субтитров: Английский, Японский и др. (зависит от игры)Язык интерфейса: Английский, Японский и др. (зависит от игры)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BD5A84F87F60C8A1FF119FAB2D1A4D20EFD9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911550   (604706) от 29.06.2015
+
+Turbo: Super Stunt Squad (2013) [PS3] [USA] 4.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604706.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Турбо: Суперкоманда Каскадеров» - скоростной экшен по мотивам знаменитого мультфильма «Турбо». К вашим услугам «заряженная» команда звезд киноэкрана. Каждый из них обладает уникальным стилем и владеет фирменными финтами, которые пригодятся, когда придет время показать себя - прыгать, скользить, кувыркаться и выполнять невообразимые трюки. Освоив необходимые умения, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Monkey Bar GamesЖанр: Action / Arcade / Racing / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CBF1160AC78A9BBB7FE608CAD4CD774D8FA8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913318   (604621) от 29.06.2015
+
+Blood Drive (2010) [PS3] [PAL/NTSC] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blood Drive - гоночный экшен от компании Sidhe Interactive, в котором главным оружием будет Ваш собственный автомобиль. Садитесь за руль бронированного "железного коня" и приготовьтесь давить, таранить, сбивать толпы зомби, атакующих Вас. Также в игре имеется большой выбор оружия - от всевозможных пулеметов до ракетниц, что превращает игровой процесс в (   Читать дальше...   )Тип издания: UnofficialРазработчик: SidheI nteractiveЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ADCEEA1913AAB375DA679FEE068ED1E0524E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911492   (604598) от 29.06.2015
+
+Tekken Hybrid (2012) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En] [3D]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tekken Tag Tournament — четвёртая игра в серии файтинговых компьютерных игр Tekken. Tag Tournament представляет собой не самостоятельную игру, а дополнение к Tekken 3, и не имеет собственного сюжета. Изначально Tag Tournament вышла на аркадных автоматах, однако затем была портирована на PlayStation 2, став первой игрой в своей серии, выпущенной для этой консоли. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Namco BandaiЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534D259604665C63D3EE68E3F7E7801889E98811
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Allavsoft Video Downloader Converter 3.23.3.7702 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034194.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe InCopy 2021 16.1.0.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034189.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Desktop Calendar 2.3.87.5367 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034186.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Opera 74.0.3911.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034184.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ant Download Manager Pro 2.2.0 Build 76444 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034183.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ LDPlayer 4.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034161.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Topaz Sharpen AI 2.2.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034153.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Topaz DeNoise AI 2.4.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034145.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Text Editor Pro 26.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034139.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FastFlix 5.2.3 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034138.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Topaz Photo AI 1.2.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034131.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1003) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034129.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Opera GX 96.0.4693.59 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034126.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NetLimiter 5.2.3.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034123.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Master PDF Editor 5.9.40 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034080.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WhatsApp 2.2310.5 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034076.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Topaz Photo AI 1.2.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034075.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Open Server 5.3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034063.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034060.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Adobe InDesign 2021 16.1.0.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034048.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ WhatsApp 2.2310.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034041.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Google Chrome 88.0.4324.146 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034004.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Opera 74.0.3911.75 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033993.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Serif Affinity Publisher 1.9.0.932 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033968.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Task Manager DeLuxe 3.7.7 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033963.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Serif Affinity Designer 1.9.0.932 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033962.jpg" />
 </div>
 
 

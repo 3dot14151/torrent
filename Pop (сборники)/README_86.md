@@ -6,7 +6,7 @@ VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432141.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431920.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Avalanche - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431690.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lynsey De Paul - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431687.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Эксклюзив осенних хитов (2012) [MP3|128-320 кб/с]<P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431602.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Cocktail new music №9 (2015) [MP3|256-320 кб/с]<Pop, Dance, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431574.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Zivert - Crazy (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431185.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Самые Лучшие Хиты Осени 50/50 (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431151.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Супер Дискотека 90-х Vol. 1-3 (3CD) (2012) [MP3|111-320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430566.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - 100 Хитов Популярной Музыки Русский выпус�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430120.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - German Top 100 Single Charts 07.09.2019 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429717.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429614.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429284.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429203.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429176.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ C.C. Catch - Good Songs (2015) [MP3|320 кб/с]<Eurodisco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428954.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Попсовая соточка от Хит fm (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428206.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Billboard Top 40 Singles Chart (22-10-2016) [MP3|~245 Kbps (V0)] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427906.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Michael Jackson - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427889.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Осенняя Бомба Года 50x50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427758.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sabrina - Good Songs (2015) [MP3|128-320 кб/с]<Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427148.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Мега хитовая Осень 5 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426259.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Осенняя Позитивная Сотка 5 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426249.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Secret Passion: Europop Summer Hits (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425359.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - New Music Releases Week 36 of 2018 (2018) [MP3|320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424752.jpg" />
 </div>
 
 
@@ -759,7 +759,7 @@ VA - Дискотека забытых хитов (зарубежная) - 16 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424238.jpg" />
 </div>
 
 

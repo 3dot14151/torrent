@@ -1,29 +1,3 @@
-###  Публикация: 929038   (520200) от 18.08.2015
-
-The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война в Борговии закончилась, но будущее все еще мрачное. Город мистических наук лежит в руинах, остатки различных фракций грызут друг другу глотки за оставшиеся клочки власти. Волна жутких событий сотрясает землю, бывший союзник превратился в страшного злодея, древнее зло грозит миру темного восточно-европейского фэнтези.Тип издания: RepackРазработчик: NeocoreGamesЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD90F5F2AC34BD6195C2F8E663AAD2CE04B23810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241177   (519969) от 17.08.2018
 
 Jardinains 2! (2007) [Multi] (1.0) Unofficial
@@ -32,7 +6,7 @@ Jardinains 2! (2007) [Multi] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519969.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ State of Mind (2018) [Ru/Multi] (1.1.24167.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519958.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Spy Tactics (2019) [Ru/En] (1.01) License PLAZA
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519927.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Blazing Chrome (2019) [Ru/Multi] (0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519926.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0.0.2177831/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519880.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Super Cloudbuilt (2017) [Ru/Multi] (1.0/upd4) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519873.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mystery Stories: Mountains of Madness / Таинственные истории:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519852.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystery Heritage: Sign of the Spirit. Collector's Edition / Тайное Нас�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519799.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Grim Facade: The Artist and The Pretender / За гранью жестокост
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519424.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Eets Munchies (2014) [En] (1.0) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519352.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Crime Secrets: Crimson Lily / Преступные тайны: Алая лили
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519263.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dream (2013) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519251.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/upd8/dlc) License PROPHET [Complete Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519142.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Secret Investigations 3: Revelation / Загадочные расследова�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519002.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Forsaken Remastered (2018) [Multi] (1.4.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518915.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Spirits Chronicles 2: Flower of Hope (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518728.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Orcs Must Die Дилогия [Ru/En] (RePack) 2011-2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518626.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Hero Academy [Ru] (RePack/1.0.0.1039/5 DLC) 2012 l Fenixx
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518621.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Sniper Elite Collection [Ru/En] (Steam-Rip/1.0.0.0/2 DLC) 2005-2012 l R.G. GameW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518620.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Serious Sam HD: The Second Encounter - Complete Edition [Ru/En] (L/Steam-Rip/1.1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518586.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ The Unseen Fears 4: Stories Untold / Невидимые страхи 4: Нера
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517975.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ The Darkness II (2012) [Ru] (1.1/dlc) Repack Other s [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517766.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | SEYTER
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517574.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ Darksiders II (NoDVD/1.0) 2012 | SKIDROW
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517526.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | VANSIK
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517524.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ Symphony [Ru/En] (RePack/1.0) 2012 | VANSIK
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07D0AE034D74AF6F725B9F00A82FEBA66FC9241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930033   (517015) от 21.08.2015
+
+Monstrum (2015) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monstrum - жуткий хоррор-экшен, где вам предстоит выжить на заброшенном корабле, который наполнен смертельными ловушками! Действие игры происходит на заброшенном корабле, который вот уже не одно десятилетие покоится в одном из старых доков. Однажды его команда полностью испарилась в неизвестном направлении, и после этого о нём все благополучно забыли. Наш главный (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Team JunkfishЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DCF591EAB436E19C8568B7775B1B6308C466F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1501327   (836143) от 09.10.2021
-
-Legendary Tales 2: Cataclysm / Легендарные Предания 2: Катаклизм (2021) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической игры Legendary Tales. Legendary Tales. Оракулу было неутешительное видение: вот-вот по вине ведьм наступит конец света! Когда оборотень Ульф разрушил их саркофаги, они в поисках замены нашли нечто более ценное… и опасное! Теперь наша героиня, полагаясь на свои силы, должна спасти мир и, возможно, сделать открытие, которое сможет изменить его!Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB1EFE95AF9C2FDA538A1B8C54638136916EA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004830   (836047) от 07.04.2016
 
 Anna's Quest (2015) [Ru/Multi] (1.1.0214) Repack R.G. Механики
@@ -32,7 +6,7 @@ Anna's Quest (2015) [Ru/Multi] (1.1.0214) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836047.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd17) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836035.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Maid of Sker (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836005.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Starpoint Gemini 2 (2014) [Ru] (1.9200/dlc) Repack SEYTER
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835936.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sorcerer King - Rivals (2016) [En] (2.1.0.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835795.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Deponia: The Complete Journey (2014) [Ru/En] (3.3.0155) Repack R.G. Механи
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835783.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Family Mysteries 2: Echoes of Tomorrow / Семейные тайны 2: Эхо �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835710.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (1.1.2r10007/dlc) License PLAZA [Royal Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835605.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Follia Dear Father (2020) [Ru/Multi] (3.86) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835537.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_835525.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ FIFA Online 4 (2021) [Ru] (5.10.21) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834753.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) SteamRip R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834527.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Fear for Sale 4: Phantom Tide (2014) [En] Unofficial [Collector’s Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834412.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Train Valley (2015) [Ru/Multi] (1.1/dlc) License TiNYiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833853.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ MXGP2 - The Official Motocross Videogame (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833851.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833794.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Silver Bullet: Prometheus (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833697.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Gone Viral (2021) [Multi] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833449.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Magister (2021) [En] (1.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833208.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Serin Fate (2021) [En] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833206.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833094.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Out of Line (2021) [Ru/Multi] (1.0.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833090.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Hand of Merlin (2021) [En] (675212/dlc) License GOG [Deluxe Edition] [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833078.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832928.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Save Our Souls (2017) [En] (1.0) License CODEX [Episode 1]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832783.jpg" />
 </div>
 
 
@@ -667,6 +641,33 @@ Save Our Souls (2017) [En] (1.0) License CODEX [Episode 1]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEBE5CFCAA96AC43CD61BAC6C3B71B1BA6CC3A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713724   (832735) от 20.03.2015
+
+Dead Rising 2 (2010-2011) [Ru/En] (1.0/1.0) SteamRip Let'sРlay [Complete Pack]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия игр Dead Rising 2
+Одна из тех игр, при виде которых взрослые мужчины превращаются в маленьких детей. Глаза горят восторгом, руки дрожат, а на экране творится форменное безумие. Главный герой избивает зомби бильярдным кием, катается по торговому центру на трехколесном велосипеде и гоняется за психопатами в костюме супергероя. В игре хочется перепробовать абсолютно (   Читать дальше...   )Тип издания: SteamRipРазработчик: Capcom Games VancouverЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297CD04C305BE4BA2C1D945C353D43910D0CF319
 ```
 
 https://mybot314.ru/tekegram_catalog/

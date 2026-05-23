@@ -1,55 +1,3 @@
-###  Публикация: 1552484   (586599) от 21.05.2022
-
-GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Просматривайте gpx, kml, kmz, loc файлы, а так же используйте дополнительные функции. Узнайте, почему у нас одно из самых высоко оцененных приложений для векторных офлайн карт. GPX Viewer PRO это GPS позиционирование, GPS просмотр треков, редактор, анализ, запись, трекер, простой навигационный инструмент для ваших путешествий и активного отдыха.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 10 мая 2022 г.Разработчик: Vectura Games OÜПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2E4C1727BE40D55173A553BDF956A17799A1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552398   (585622) от 22.05.2022
-
-1Gallery: Фотогалерея и безопасность (ШИФРОВАНИЕ) 1.0.6-16.170522 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1Gallery - идеальное альтернативное приложение галереи, созданное для управления Вашими фотографиями. Кроме того, оно может защитить Ваши фото и видео с помощью функции скрытия и шифрования.Тип издания: Premium (Unlocked)Релиз состоялся: 20.05.2022Разработчик: todayweather.coПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED7AFA49B47E6F0FD8AF944B0EE6DA565F16B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040227   (585108) от 06.08.2016
 
 ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
@@ -58,7 +6,7 @@ ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585108.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584789.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584641.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584510.jpg" />
 </div>
 
 
@@ -168,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584004.jpg" />
 </div>
 
 
@@ -196,7 +144,7 @@ High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная ка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580701.jpg" />
 </div>
 
 
@@ -225,7 +173,7 @@ KinoTrend v2.2.4 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579779.jpg" />
 </div>
 
 
@@ -251,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577644.jpg" />
 </div>
 
 
@@ -277,7 +225,7 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575747.jpg" />
 </div>
 
 
@@ -303,7 +251,7 @@ All GPS Tools Pro v2.6.2 + Mod [En] (Compass, Weather, Map Location)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575628.jpg" />
 </div>
 
 
@@ -329,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575055.jpg" />
 </div>
 
 
@@ -355,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574995.jpg" />
 </div>
 
 
@@ -381,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573239.jpg" />
 </div>
 
 
@@ -407,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571960.jpg" />
 </div>
 
 
@@ -433,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568461.jpg" />
 </div>
 
 
@@ -461,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566447.jpg" />
 </div>
 
 
@@ -487,7 +435,7 @@ Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556995.jpg" />
 </div>
 
 
@@ -514,7 +462,7 @@ FaceLab: Face Editor, Voila! v2.6.1 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556862.jpg" />
 </div>
 
 
@@ -540,7 +488,7 @@ Adguard Premium 2.9.136 Final [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556642.jpg" />
 </div>
 
 
@@ -567,7 +515,7 @@ Text Scanner [OCR] v9.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556324.jpg" />
 </div>
 
 
@@ -593,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555530.jpg" />
 </div>
 
 
@@ -622,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555516.jpg" />
 </div>
 
 
@@ -648,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554989.jpg" />
 </div>
 
 
@@ -674,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553452.jpg" />
 </div>
 
 
@@ -688,6 +636,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83C326322BCAB79F32F7E3BBD04A1D0EA3E73E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847723   (553413) от 16.06.2019
+
+VidTrim Pro - Video Editor v2.6.1 [Ru/Multi] - видеоредактор
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553413.jpg" />
+</div>
+
+
+###  Подробнее
+
+VidTrim Pro является редактором видео. Она включает в себя несколько функций, таких как обрезка, захват кадра и транскодирование. Вы также можете поделиться своим видео с друзьями прямо через приложение.Тип издания: ПираткаРазработчик: GoseetПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84E76270F2829DF57B7E6432CBDA606B7A73DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309358   (551834) от 18.06.2019
+
+Спортивные программы Fitify от разработчика Martin Mazanec v16 Premium [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор спортивных программ от разработчика Martin Mazanec:Тип издания: Пиратка (Разблокирован Premium)Релиз состоялся: 05.2019Разработчик: Martin MazanecПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF1EAD6F58965ED0E81286BB4A42025C473E335
 ```
 
 https://mybot314.ru/tekegram_catalog/

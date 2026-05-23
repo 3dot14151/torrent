@@ -6,7 +6,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (Build 14218760) Repack FitGi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15384.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack FitGirl [Vanguard Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14153.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14149.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.0/dlc) Repack FitGirl [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14111.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14073.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.2/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13768.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13480.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12405.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11129.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Kingdom Ascension (2025) [Ru/Multi] (1.0.0.4) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10921.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3P2_85055/dlc) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10724.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sears: The Sky Frontier (2023) [Ru/Multi] (EA 0.3.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10408.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10306.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10035.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10030.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9918.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Day of the Shell (2025) [Ru/Multi] (build 19397550) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9690.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ No Plan B (2024) [Ru/Multi] (1.2/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9479.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Crossfire Legion (2022) [Ru/Multi] (2.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8565.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8155.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8132.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack seleZen [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8125.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8118.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8105.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7967.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.06.06/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7824.jpg" />
 </div>
 
 

@@ -1,82 +1,3 @@
-###  Публикация: 1839715   (1046753) от 01.12.2025
-
-В России открылось ещё одно производство материалов для печатных плат
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-На заводе будут выпускать фольгированные диэлектрики и препреги как для стандартных задач, так и для высокочастотных и высокоскоростных устройств.Мощности завода рассчитаны на выпуск до 1,25 млн м² продукции в год. Из них 300 000 м² подходят для производства плат 6 и 7 классов точности, то есть более сложных и плотных по компоновке. Такие платы используют (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 11914   (1046561) от 28.11.2025
-
-Карлос Кастанеда  |  Полное собрание сочинений.
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В своих книгах Карлос Кастанеда описывает обучение у Хуана Матуса — мага, представителя древнего шаманского знания. Дон Хуан Кастанеды представляет собой мудрого шамана, чей образ не совпадает со стереотипом индейского колдуна, а знания, которыми он делится, не совпадают с представлениями академической науки о шаманской культуре индейцев.
-Книги взяты на форуме Любителей (   Читать дальше...   )Издательство: РАО "Говорящая книга"
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CC3AD684F97EB8DC2FAA38608FE409D34CEECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839128   (1046550) от 29.11.2025
-
-Neiry представила управляемых «голубей-биодронов»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Группа компаний Neiry представила голубей-биодронов — обычных птиц со встроенными в головы электродами. Цена вопроса примерно как при покупке и эксплуатации дронов из пластика и электроники, но продолжительность полёта, скрытность и безопасность у живых особей несоизмеримо больше. Жизни птиц ничего не угрожает, утверждают разработчики, после операции они продолжают (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838793   (1046540) от 29.11.2025
 
 После запрета слова «ж*па» телеканал ТНТ объявил о закрытии
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046540.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ Visualcapitalist: Китай опередил Европу по потребле
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046462.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046379.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.4) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046365.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046364.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ Aven Colony (2017) [Ru/En] (1.0.25665/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046363.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (Build 10114057/d
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045961.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045960.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045959.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ Udemy, YouRa Allakhverdov | Современный React - с Нуля до Пр
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045699.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045696.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045612.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ BELOFF 2023 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045610.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ Aqua Mail Pro v1.42.0-239 [Ru/Ml]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045530.jpg" />
 </div>
 
 
@@ -447,32 +368,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603874   (1045528) от 11.01.2023
-
-Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20447 (2023.01) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805FD4F789FF80E16C13A726A53426CD7C95F6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438543   (1045527) от 11.01.2023
 
 Тест звука для акустики 5.1.avi / Sound Test.Ac3 Dolby Digital 5.1Ch.avi (2012) DVDRip
@@ -481,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045527.jpg" />
 </div>
 
 
@@ -500,32 +395,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603867   (1045526) от 11.01.2023
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.12527.22286 (2023.01) (W 7, 8.1, 10, 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD094A2A51B778D092A4316F3E1F2A85C9515D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305013   (1045235) от 14.01.2023
 
 PC Building Simulator (2019) [Ru/Multi] (1.15.3.0/dlc) License GOG [Overclocked Edition]
@@ -534,7 +403,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.15.3.0/dlc) License GOG [Overclocked 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045235.jpg" />
 </div>
 
 
@@ -560,7 +429,7 @@ AMD обнаружила 31 новую уязвимость в своих про
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044902.jpg" />
 </div>
 
 
@@ -586,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044890.jpg" />
 </div>
 
 
@@ -604,33 +473,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605380   (1044801) от 18.01.2023
-
-Очередное достижение: 1000 релизов от krochka1
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 1000 релизов от krochka1!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища krochka1 с 1000-м релизом! Спасибо за регулярное пополнение трекера отличной музыкой!
-От всей души поздравляем с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!  :pozdravlyayu:Надеюсь, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525728   (1044781) от 18.01.2023
 
 Терминатор 2: Судный день / Terminator 2: Judgment Day (1991) BDRip [H.264/1080p-LQ] [Extended Special Edition] [handmade remastered AI]
@@ -639,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044781.jpg" />
 </div>
 
 
@@ -665,7 +507,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2023) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044662.jpg" />
 </div>
 
 
@@ -676,6 +518,165 @@ Windows 7 SP1, включающая в себя 13 русских редакци
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F8E7C2D834287D0991F28BAC8709EFBD9BA7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536159   (1044659) от 19.01.2023
+
+Многоавторский сборник | Серия супер-крупных книг «Diximir» (старое название: «Абсолют») [62 книг] (2018-2023) [FB2, PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия супер-крупных книг «Diximir» (старое название: «Абсолют»), на сегодняшний день наиболее мощное собрание компиляций в сети. В каждом томе собраны все произведения одного из представленных авторов, а их в серии очень много и все они являются признанными литературными мэтрами.
+Книги изготовлены мастером Diximir на очень высоком уровне, как в чисто техническом (   Читать дальше...   )Жанр: МногожанровыйИздательство: Интернет издательство «Diximir»Формат: FB2, PDFКачество: Изначально электронное (ebook), обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A586EEABB72CDB39F71C97AF475ED045B9BAABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606237   (1044479) от 21.01.2023
+
+Очередное достижение: 5000 релизов от ishutinow
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044479.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Очередное достижение: 5000 релизов от ishutinow Уважаемые одноклубники, в разделе Музыка очередной юбилей, с чем мы и поздравляем нашего активного релизера - ishutinow. Благодаря его стараниям отметка в 5000 релизов покорена! Спасибо за релизы! :friend:
+От всей души поздравляем тебя с этим достижением и выражаем огромную благодарность от имени всех одноклубников (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845586   (1044456) от 21.01.2023
+
+VivaVideo Video Editor v9.7.5 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать, VivaVideo 9.0! Встречайте новый стиль редактирования！
+VivaVideo - это простой в использовании видеоредактор и профессиональный редактор видео , который помогает вам легко записывать и показывать свою жизнь.Скачайте Viva Видеоредактор для монтаж и обработка видео с фото, музыкой и эффектами, делитесь ими на ютуба, Инстаграм, Тик Ток！ (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 13.01.2023Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C686FD723A0055C3D162F8C760CC9408F55FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606425   (1044343) от 22.01.2023
+
+Windows 10 PE (x86/x64) by Ratiborus v.3.2023 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных. Сборка работает от Administrator. Через меню правой кнопки мыши можно любую программу запустить от System.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453241F52F9528EE5907903ED3AA0197485B0514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607232   (1044094) от 25.01.2023
+
+Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2023) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1, включающая в себя 10 русских и 10 английских редакций x86/x64, с обновлениями по 01.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT.  А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook и OneNote.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77979038D3089C8BF7910C2041F21947A71B379C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607542   (1043871) от 27.01.2023
+
+Windows 11 3in1 x64 22Н2 (build 22621.1105) by ivandubskoj 26.01.2023 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 11 3в1 (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Разработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111F9C50E71627DAE5B00A5E74141748231F41F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Ashampoo Photo Commander 14.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449119.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Steinberg - Cubase Pro 12.0.40 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449093.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ashampoo WinOptimizer 18.00.16 (DC 14.07.2020) RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449028.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reveal Sound - Spire 1.5.3 (build 5091) VSTi, AAX + 800 SoundBanks (x86/x64) ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449012.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BurnAware Professional 9.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448995.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Aiseesoft Total Video Converter 8.1.10 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448970.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GOM Player 2.2.71 Build 5231 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448968.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Start Menu X 5.65 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448963.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Emsisoft Anti-Malware 10.0.0.5735 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448956.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Internet Download Manager 6.12 Build 20 Final + Retail [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_448901.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AOMEI Partition Assistant Technician Edition 8.10.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448886.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Waves - Complete v08.09.2020 VST, VST3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448880.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Media Encoder 2020 14.4.0.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448879.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Auslogics Driver Updater 1.24.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448878.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Adobe Audition 2020 13.0.10.32 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448876.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ ACDSee Ultimate 9.0 Build 565 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448834.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ ACDSee Pro 9.0 Build 439 (x86) Lite RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448832.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448825.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448652.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ant Download Manager Pro 1.9.1 Build 52206 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448489.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Loaris Trojan Remover 3.0.63 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448485.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ RogueKiller Free 12.13.1.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448482.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Cowboy WPI DVD StartSoft 68-2015 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448437.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Genarts Bundle 2015 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448435.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Icecream Screen Recorder PRO 4.94 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448417.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Kaspersky Rescue Disk 10.0.31.4 (23.09.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_448408.jpg" />
 </div>
 
 

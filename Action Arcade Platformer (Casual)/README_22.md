@@ -6,7 +6,7 @@ Slavania (2024) [Ru/En] (1.0.1-6160) Repack Wagner
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53759.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Braid (2024) [Multi] (20240603) Scene Tenoke [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53699.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gargoyles Remastered (2023) [Multi] (1.01.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52444.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52427.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51208.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51194.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Monster Bash HD (2021) [En] (1.1.5.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51087.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51085.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Crystal Caves HD (2020) [En] (1.1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51045.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Star Leaping Story (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50864.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ultros (2024) [Multi] (20240403) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50435.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ With My Past (2024) [Ru/Multi] (20240601) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50394.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Braid (2024) [Ru/Multi] (20240603) Repack dixen18 [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49404.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SANABI (2023) [Ru/Multi] (1.3.35) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49267.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Artisan TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48674.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48636.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Gestalt: Steam & Cinder (2024) [Multi] (1.0.6) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48607.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48566.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ JustAxe (2024) [Ru/En] (1.00) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48551.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bo: Path of the Teal Lotus (2024) [Ru/Multi] (1.0.6) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48307.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dystobel (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48293.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48145.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BioGun (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48024.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ First Cut: Samurai Duel (2024) [En] (1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47974.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47879.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47773.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1725096   (55634) от 23.05.2024
-
-Transparent clock & weather / Прозрачные часы и погода 7.01.4 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Прозрачные часы и погода - Pro – это виджет для Android, позволяющий настраивать часы и погоду, которые всегда отображаются на вашем экране. Хотя виджет и выглядит хорошо, больше всего впечатляют его множественные настройки. Можно выбрать отображение температуры в градусах Цельсия или Фаренгейта, время рассвета и заката, влажность, продолжительность дня, фазу луны (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.05.2024Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43601D90218CE9957DF7DA1FBD09F55D83C64EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725097   (55626) от 23.05.2024
-
-MiX Camera 8.4 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-MiX Camera - это альтернативная камера для Android, разработчики которой вдохновлялись характеристиками и возможностями камеры и механики создания фотографий со смартфона Xiaomi Mi 12. Теперь любой желающий сможет обладать теми факторами и качествами, что и привлекли к ней всех неравнодушных к получению красивых изображений, а так же многое другое. Фильтры, бьюти-эффект (   Читать дальше...   )Тип издания: ProРелиз состоялся: 30.04.2024Разработчик: Beauty Apps StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988C877F69D84A2D1EE7EA0053A9045E9B8DA827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725516   (55535) от 24.05.2024
 
 Мульти Таймер Секундомер / Multi Timer StopWatch 2.12.1 (b427) Mod by Balatan [Ru/Multi]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55535.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Foreca Погода / Foreca Weather 4.55.6 (ARM64) Lite-Mod by alenka_persikova
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55430.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Foreca Погода / Foreca Weather 4.55.6 Mod by funnysith [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55403.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ n7player Music Player 3.2.10-3002010 Lite-Mod by CMAPTOC [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55394.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55362.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55337.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55324.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55318.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55299.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Windy.app: погода и ветер 50.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55118.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55117.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Windy.app: погода и ветер 50.1.0 Lite-Mod by GIP-79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55111.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Weather app - eWeather HDF v8.8.7 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55027.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ AndroPods v1.5.26 Mod by adidas [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54976.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ YouTube ReVanced Extended 19.16.39 (RVP v2.225.0) Mod by Number one' + microG Gm
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54752.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54661.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ OfficeSuite Pro + PDF v14.5.52368 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54658.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ TapScanner v3.0.24 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54549.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54458.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ Cat Scanner / Сканер породы кошек v17.2.5-G Mod by ModExPro [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54399.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54159.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53961.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ YouTube ReVanced Extended 17.34.36 (RVP v2.160.10) Mod by Number one' + microG G
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53881.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ Square Home Launcher 3.0.13 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53854.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ Square Home - красивый, стильный и функциональный
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B20E46D611BDE49E14A29A1BE9027871BCE8C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728732   (53848) от 09.06.2024
+
+Российские ТОПО карты (ex. Советские военные карты) PRO v7.2.3 Mod by Nik2001Nik3006 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение для навигации по бездорожью по мировым топографическим картам (главным образом – карты советского генштаба). Кроме русских, есть еще много других подробных и актуальных карт, ортофотопланов и слоев. Несмотря на то, что большинство российских карт в приложении датируются еще 80-ми годами, они отчасти все еще остаются наиболее точными картами для многих (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 01.02.2024Разработчик: ATLOGIS Geoinformatics GmbH & Co. KGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64609EA5A59E5891ADA97C80F6F65A7603485666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723123   (53837) от 09.06.2024
+
+SnapEdit - AI photo editor v6.4.4 Mod by Oflarm, 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53837.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / Mod + CloneРелиз состоялся: 07.06.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111435733E749D37E01FDC88EB799A0BB3F33FD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

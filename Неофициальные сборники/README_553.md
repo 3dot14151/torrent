@@ -1,38 +1,3 @@
-###  Публикация: 502675   (259144) от 28.05.2012
-
-VA - Классный Muzon Best Hits (2012) [MP3|192-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren Pres. Gaia - Status Excessu D (Radio Edit)
-02. Ian Carey, Snoop Dogg, Bobby Anthony - Last Night (Rhab Remix)
-03. Dj Niki & Mc Kako$ - Make Love (Special Radio Version)
-04. Taio Cruz feat. Flo Rida - Hangover
-05. ATB feat. Jansoon - Move on
-06. Gilles Luka Feat Niusha - Plus Pres
-07. Flo Rida feat. Christina Aguilera - Good Feeling (Official Remix)
-08. Pulsedriver vs. Djs Form Mars - Youth Of The Nation (DJ Gollum Edit)
-09. Dj Erohin & Marq Markuz - Dj, Kill Me By Yo Music
-10. David Guetta feat. Flo Rida & Nicki Minaj - Where Them Girls At(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502584   (259117) от 28.05.2012
 
 VA - Инструментальная музыка (2012) vol. № 52 [MP3|320 кб/с]<Instrumental>
@@ -41,7 +6,7 @@ VA - Инструментальная музыка (2012) vol. № 52 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259117.jpg" />
 </div>
 
 
@@ -67,7 +32,7 @@ VA - MAXI. Летний танцевальный Fresh (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259051.jpg" />
 </div>
 
 
@@ -102,7 +67,7 @@ VA - Летние Хиты Радиостанций (2012) [MP3|256 кб/с]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258534.jpg" />
 </div>
 
 
@@ -137,7 +102,7 @@ VA - Золотые Хиты Курортов Алания *2012* (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258526.jpg" />
 </div>
 
 
@@ -172,7 +137,7 @@ VA - Music my life (2011-2012) [MP3|320 кб/с]<Electro house, dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258490.jpg" />
 </div>
 
 
@@ -207,7 +172,7 @@ VA - Vocal Passion Vol.28 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258476.jpg" />
 </div>
 
 
@@ -240,7 +205,7 @@ VA - Рок в Авто (Русский) (2012) [MP3|320 кб/с]<Pop Rock, Rock
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258351.jpg" />
 </div>
 
 
@@ -275,7 +240,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #86 (24.05.2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258240.jpg" />
 </div>
 
 
@@ -310,7 +275,7 @@ VA - Сказочный том II (2013-2025) [MP3|320 Kbps] <Folk rock, Post pu
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257990.jpg" />
 </div>
 
 
@@ -339,7 +304,7 @@ VA - No name compilation part 10 Instrumental, Other (2025) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257959.jpg" />
 </div>
 
 
@@ -368,7 +333,7 @@ VA - No name compilation part 9 Electronic, Other (2025) [MP3|320 Kbps] <Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257958.jpg" />
 </div>
 
 
@@ -397,7 +362,7 @@ Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257957.jpg" />
 </div>
 
 
@@ -426,7 +391,7 @@ Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257956.jpg" />
 </div>
 
 
@@ -455,7 +420,7 @@ Anna Zueva - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257955.jpg" />
 </div>
 
 
@@ -484,7 +449,7 @@ VA - No name compilation Deep Chill Vocal House part 11 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257869.jpg" />
 </div>
 
 
@@ -513,7 +478,7 @@ VA - Music News For Forum vol.148 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257753.jpg" />
 </div>
 
 
@@ -542,7 +507,7 @@ LIYNA - Favorites Collection (2025) [MP3|320 Kbps] <Vocal Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257592.jpg" />
 </div>
 
 
@@ -571,7 +536,7 @@ Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257591.jpg" />
 </div>
 
 
@@ -600,7 +565,7 @@ VA - Сборник классных хитов (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257295.jpg" />
 </div>
 
 
@@ -635,7 +600,7 @@ VA - Чарочка та шкварочка (2011) [MP3|256 кб/с] <Folk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257262.jpg" />
 </div>
 
 
@@ -661,7 +626,7 @@ VA - Гуляй душа. Блатной шансон (2012) [MP3|256 кб/с]<�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257210.jpg" />
 </div>
 
 
@@ -696,7 +661,7 @@ VA - Radio DFM - Рашн Дэнс (21.05.2012) from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256942.jpg" />
 </div>
 
 
@@ -731,7 +696,7 @@ VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256873.jpg" />
 </div>
 
 
@@ -766,7 +731,7 @@ VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256851.jpg" />
 </div>
 
 
@@ -795,7 +760,7 @@ VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256850.jpg" />
 </div>
 
 
@@ -809,6 +774,35 @@ VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF753AA04ADDE19BAF34D09C5DAA3ACE1D319F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837088   (256848) от 15.11.2025
+
+VA - No name compilation part 6 Blues, Soul (2025) [MP3|320 Kbps] <Blues, Soul, Ballads>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ruby Sinclair - Last Shelter
+02 - Stevie Ray Vaug - Thunder in My Soul
+03 - Enlly Blue - Love That Burns
+04 - Loretta Mae Calloway - Falling Like Rain(   Читать дальше...   )Жанр: Blues, Soul, BalladsПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983F5CD665985C11ACDC4F4F354BF079FB8012F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

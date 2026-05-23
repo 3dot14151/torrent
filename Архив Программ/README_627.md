@@ -6,7 +6,7 @@ Google Chrome 84.0.4147.105 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734645.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StartIsBack 2.1.2 StartIsBack+ 1.7.6 StartIsBack++ 2.9.2 RePack by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734644.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Smart Game Booster Pro 4.5.0.4884 (promo GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734640.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nitro4D NitroBoxTool v1.07 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734634.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Navicat Premium 15.0.17 x86/x64 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734571.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ESET Smart Security 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734510.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Xfer Records OTT 1.31 VST, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734435.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ KLS Backup 2021 Professional 11.0.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734407.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 11 Manager 1.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734388.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Vivaldi 3.1.1929.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734278.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MassTube Plus 14.0.0.400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734271.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Viber 13.5.0.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734269.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ YTD Video Downloader PRO 5.9.18.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734265.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Firefox Browser 79.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734260.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wise Registry Cleaner Pro 10.3.1.690 (DC 22.07.2020) RePack (& portable) by elch
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734232.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Auslogics BoostSpeed Pro 11.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734228.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Microsoft Edge 84.0.522.48 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734224.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734191.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734186.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734151.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ AnyDesk 6.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734145.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ableton - Live Suite 10.1.17 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734144.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Hard Disk Sentinel PRO 5.61.11463 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734118.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Kodi 18.8 Leia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_734113.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734107.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Total Commander 9.51 Extended 20.7 Full / Lite RePack (& Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734099.jpg" />
 </div>
 
 

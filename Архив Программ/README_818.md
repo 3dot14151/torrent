@@ -6,7 +6,7 @@ EhLib 7.0 Full Source [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633333.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macaw 1.5.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633332.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ashampoo Burning Studio 15.0.4.4 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633330.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rhinoceros 5 SR11 5.11.50226.17195  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633323.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PROMT Expert 10 Build 9.0.526 Portable by bumburbia [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633320.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AllDup 3.4.6 + Portable [Eng/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_633311.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Macrorit Partition Expert 6.0.7 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633289.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Quick CPU 4.3.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633288.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Macrorit Partition Extender 1.6.9 Unlimited Edition  RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633280.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ CoolUtils Total PDF Converter 6.1.0.134 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633277.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Glary Utilities Pro 5.78.0.99 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633262.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ JetBrains WebStorm 10.0.4 Build #WS-141.1550 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633219.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Proxy Searcher 5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633213.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CrystalDiskInfo 6.5.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633197.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Loaris Trojan Remover 3.2.11.1724 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633173.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ OCCT 10.1.6 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633165.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633161.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.32.31326.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633159.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Foundry NUKE STUDIO + HIERO 11.3v3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633107.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ TeamViewer 14.2.2558 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633098.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ GMail Drive 1.0.19 Final [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_633053.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ummy Video Downloader 1.7.3.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633019.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Multi Commander 7.1.0 Build 2347 + Portable 7.1.0 Build 2347 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633017.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Cloud System Booster 1.1.1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_632953.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Tor Browser Bundle 11.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632945.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ F-Secure Freedome VPN 2.47.927 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632930.jpg" />
 </div>
 
 

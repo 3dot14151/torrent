@@ -6,7 +6,7 @@ AusLogics BoostSpeed 9.0.0.0 DC 27.08.2016 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351584.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream PDF Split and Merge PRO 2.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351544.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cyberfox 42.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351538.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slimjet 5.0.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351537.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Icecream PDF Converter PRO 1.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351534.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CoolUtils Total Audio Converter 5.2.0.127 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351530.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe After Effects CC 2017.0 14.0.0.207 RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351465.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Icecream Ebook Reader PRO 2.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351433.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SRWare Iron 46.0.2450.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351427.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SRWare Iron 46.0.2450.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351425.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cyberfox 42.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351422.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AdwCleaner 5.017 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351415.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Vivaldi 3.4.2066.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351356.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ABBYY FineReader 12.0.101.496 Professional RePack (& Portable) by D!akov [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351332.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DipTrace 3.0.0.2 + 3D Models [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351309.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Avast Clear 11.1.2241.1482 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351304.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Daum PotPlayer 1.6.56815 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351296.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Punto Switcher 4.1.7 Build 732 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351290.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ CoolUtils Total Image Converter 7.1.1.159 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351268.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ PearlMountain Image Resizer Pro 1.4.2 Build 3019 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351265.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Microsoft Edge 86.0.622.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351242.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Internet Download Manager 6.38 Build 7 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351239.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Substance Alchemist 2020.2.1 (2.2.1) Build 66 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351217.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Becky Internet Mail 2.72.01 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351185.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ LibreOffice 5.0.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351177.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bandicam 2.4.0.895 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351174.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1375852   (861456) от 16.04.2020
-
-Sunwards (2020) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Sunwards — это сложная приключенческая игра основанная на снах, которые всегда появляются во время борьбы с депрессией. Впечатления от некоторых снов фрагментируются в памяти, и объединяются, чтобы в седующий раз сформироваться в единый уникальный мир – сон волшебника. У каждого человека в сердце живет свой волшебник, это фантастическое и грустное путешествие в мире (   Читать дальше...   )Тип издания: RepackРазработчик: 黑鸦BlackCrowЖанр: Adventure, Action (Slasher), RPG, 3rd Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806874984655672AA72EF91C4935BE6A1CAA9C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498057   (859350) от 25.09.2021
 
 The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
@@ -32,7 +6,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859350.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Sable (2021) [En] (3.2.9) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859348.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Black Mirror 3: Final Fear / Черное зеркало 3 (2011) [Ru/Multi] (1.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859242.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858852.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857519.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Biped (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856182.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855233.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Count Lucanor (2016) [En/Multi] (1.0.16) Repack ARMENIAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855128.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En] (1.0.8767.0) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854834.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Ni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853618.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853520.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853348.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hero of the Kingdom: The Lost Tales 1 (2020) [Ru/Multi] (1.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852776.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852537.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ I Saw Black Clouds (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852321.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851715.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851256.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851006.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ NightCry (2016) [En/Jap] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849944.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Shattering (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849480.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Flower Collectors (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849462.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Impostor Factory (2021) [Ru/Multi] (7455447) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849267.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849044.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Amigdala (2016) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848227.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304/upd 2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846429.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Layers of Fear - жуткий психологический триллер, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF0016BB37C870596FFAC0B68727450BB104CED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002810   (846202) от 01.04.2016
+
+Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в рискованное путешествие в игре Adam’s Venture: Origins! Действие игры разворачивается в бурные 20-е годы. Вместе с помощницей Эвелин вам предстоит исследовать древние развалины, искать таинственные артефакты, а самое главное - обойти злодейскую компанию Clairvaux.Тип издания: LicenseРазработчик: Vertigo GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8BCEFBC96BAF1E6DFC3B589C99BBB655CBA0C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

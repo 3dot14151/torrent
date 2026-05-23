@@ -6,7 +6,7 @@ Viscosity 1.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885171.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Sound Studio 3.5.7 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_884950.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Astute Graphics Plugins Elite Bundle v2.0.2 + Pro Texture Packs for Adobe™ Ill
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884747.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ EtreCheck Pro 6.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884567.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Music Tag Editor 5.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884536.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Text Scanner Pro - PDF & Document 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884530.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Boxshot Ultimate 4.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884503.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Aspect Ratio X 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884466.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alfred 4 Powerpack 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884464.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AnyMP4 PDF Converter for Mac 3.1.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884408.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ iShowU Studio 2 v2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884002.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Integrity Pro 9.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884001.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ WebVideoHunter Pro 6.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884000.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ EverWeb (Standalone) 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883999.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dash 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883996.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ iShowU Instant (Advanced) 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883995.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ TwistedWave 1.23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883992.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Slidepad 1.0.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883862.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ MediaInfo 20.03 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883848.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ iA Writer 5.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883733.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ SyncMate Expert 8.1.475 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883707.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Folx Pro 5 v5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883703.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ TunesKit Apple Music Converter 1.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883636.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ TunesKit iBook Copy 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883635.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Newsflow 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883533.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ PlistEdit Pro 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883497.jpg" />
 </div>
 
 

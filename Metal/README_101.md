@@ -6,7 +6,7 @@ Warkings - 4 Albums (2018-2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190015.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Galderia - Endless Horizon (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190014.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Epica - The Alchemy Project (2022) EP [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189994.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ La Menade - Reversum (2023) [MP3|320 Kbps] <Alternative Metal, Female Vocals>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189819.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Chapter - 3 Albums (2006-2022) [MP3|320 Kbps] <Doom, Death, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189456.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ I Am Your God - The Resurrection (2020) [MP3|320 Kbps] <Melodic Death Metal, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189398.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ I Am Your God - SINister (2023) [MP3|320 Kbps] <Melodic Death Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189386.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Manntra - Venera (2015) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188266.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188264.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188262.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Manntra - Oyka! (2019) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188254.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Crypt Dweller - 4 Albums (2020-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187823.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Shedfromthebody - 3 Albums (2020-2022) [MP3|320 Kbps] <Doomgaze, Alternative Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187819.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shamanic Ritual - 4 Albums (2019-2022) [MP3|320 Kbps] <Doom, Stoner, Sludge Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187570.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mantric Momentum - Trial by Fire (2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187549.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cannibal Corpse - Chaos Horrific (2023) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187134.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Threshold - Dividing Lines (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186915.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Nir Nakav - The Nir-Death Experiment (2020) [MP3|320 Kbps] <Progressive Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185600.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Grymheart - Hellish Hunt (2023) [MP3|320 Kbps] <Melodic Death, Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184880.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Within Temptation - Live In Hell (2023) [MP3|320 Kbps] <Symphonic Rock, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184668.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Broken Lock - Postmodern Songs (2022) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184648.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Innerforce - 2 Albums (2017, 2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183946.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Whirlwind - 1714 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183141.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Coal and Steel - Miners for Real (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182498.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Spellmaster - Unearthed Arcana (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182379.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Within Temptation - Ritual (2023) [MP3|320 Kbps] <Symphonic Rock, Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182154.jpg" />
 </div>
 
 

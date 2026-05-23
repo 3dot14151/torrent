@@ -1,81 +1,3 @@
-###  Публикация: 1202456   (789882) от 29.01.2018
-
-Елена Кароль | Песец библиотечный, подвид кровожадный (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Убежать из дома от ненавистного жениха лишь с верным вороном-фамильяром на плече? Легко! Сменить пол, чтобы запутать следы? Уже не просто, но вполне возможно. Спрятаться от преследователей в надежных стенах Академии Крови? Безумно, но выполнимо. Очаровать загадочного ректора-инкуба с темным прошлым и обрести в его лице надежную защиту? Почему бы и… да!Жанр: Романтическое фэнтези, Детективное фэнтезиПродолжительность: 12:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF40ADDA8F369AA799AC71BD4CD239BADC1CF04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202434   (789828) от 29.01.2018
-
-Юрий Москаленко | Нас не догонишь… (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В мире очень неспокойно. Мир на пороге большой войны. Созданный тобой Орден, с трудом отбивается от многочисленных недоброжелателей, а ты.. Ты, наконец, нашел убежище, но оно не гарантирует тебе спокойную жизнь. Тебя по-прежнему ищут сильные мира сего, за тобой по-прежнему идет охота. И наступает время расставания с твоим последним защитником…Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 32:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BCAB94E000ED058FB294AAF703F57F4D3FF7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511061   (789802) от 19.11.2021
-
-Николай Брест | Враг или брат? (2018) [MP3, Павел Русский]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Повесть основана на реальных событиях. Главный герой повести «Враг или брат» - снайпер ополченцев ДНР с позывным «Угрюмый». Это отважный воин с солидным боевым опытом. Ему противостоит молодой, но умелый и амбициозный снайпер ВСУ. Кто победит в этой беспощадной схватке на Донбассе? Что несёт братоубийственная война? К чему ведёт жестокость и есть ли место милосердию (   Читать дальше...   )Жанр: Военная драмаПродолжительность: 02:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B55A92D74FD5B31B363696589E01542FE6749DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275232   (789794) от 12.01.2019
 
 Сергей Давиденко (Варго) | Оранжевый домик (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789794.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789745.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789720.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789698.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789514.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789509.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789502.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789425.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789352.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789343.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789317.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789316.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789306.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789292.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789252.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789251.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789247.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789195.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789194.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789190.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789186.jpg" />
 </div>
 
 
@@ -645,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789175.jpg" />
 </div>
 
 
@@ -671,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789165.jpg" />
 </div>
 
 
@@ -682,6 +604,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11C5B117C47CDF993933580E06E64B05776EF13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 69976   (789163) от 20.11.2021
+
+Роджер Желязны | Ружья Авалона (Книга 2-я Хроники Амбера) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789163.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ружья Авалона" - вторая книга грандиозного фантастического цикла "Хроники Амбера", созданного неисчерпаемой фантазией одного из известнейших мастеров жанра - Роджера Желязны...
+
+Престол таинственного Янтарного королевства - приз победителю в жестокой игре отражений. Предательство и коварство, жизни и судьбы людей - все это ничто перед грандиозностью (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8BBD063E2395FEA95F157DCF26B555BAC52452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237933   (789154) от 20.11.2021
+
+Роджер Желязны, Фред Саберхаген | Витки [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789154.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Витки» - произведение в высшей степени динамичное, с сюжетом, изобилующим достижениями компьютерной и иной техники, захватывающими дух событиями, которые поджидают нас не только на неизведанных космических трассах и затерянных в глубинах Галактики планетах! Ведь сама жизнь с ее бешенным темпом генерирует новые сюжеты, один круче другого, которые трансформируются (   Читать дальше...   )Жанр: фантастика, триллер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C510D495EC15C9E0FBA834900BF89B0882D2147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247334   (789143) от 20.11.2021
+
+Артур Кларк | Космическая одиссея 2001 года (2007) [MP3, Татьяна Телегина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое читателю произведение А. Кларка «Космическая одиссея 2001 года» — переработанный в роман литературный сценарий одноименного кинофильма. Фильм этот, поставленный знаменитым американским режиссером Стэнли Кубриком с небывалым для этого жанра размахом, вызвал большой резонанс во всем мире.
+Роман "Космическая одиссея 2001 года" - повествование (   Читать дальше...   )Жанр: фантастикаПродолжительность: 09:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AF243FEF655011C3B86D49D8CFD279844A1F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

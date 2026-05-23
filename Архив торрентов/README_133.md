@@ -6,7 +6,7 @@ R-Studio Network Edition 8.16 Build 180499 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Find Any File (FAF) 2.3 b11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024461.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Valentina Studio Pro 11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024460.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ myTracks 4.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024459.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ExpanDrive 7 v7.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024458.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ WonderPen 1.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024456.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Nevercenter CameraBag Photo 2021.00 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024455.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Integrity Plus 10.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024454.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ iNet Network Scanner 2.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024453.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Irvue 2.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024452.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Librarian Pro 6 v6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024450.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Cisdem ContactsMate 5 v5.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024449.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Librarian Pro 6 v6.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024448.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Stay 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024447.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Wondershare UniConverter 12.6.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024444.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Microsoft Edge 89.0.774.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024429.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Microsoft Edge 89.0.774.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024426.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Bartender 4 v4.0.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024425.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Mozilla Thunderbird 78.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024422.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Airy 3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024419.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Wondershare Recoverit 9.5.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024411.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Wise Care 365 Pro 5.6.5.563 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024400.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mp3tag 3.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024398.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Calibre 5.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024392.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Task Manager DeLuxe 3.7.10 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024391.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ PotPlayer 210318 (1.7.21469) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024384.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 768161   (861400) от 19.03.2014
-
-Внутри Льюина Дэвиса / Inside Llewyn Davis (2013) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-• Богемные кварталы Манхэттена и клубы табачного дыма, пыльные дороги Америки и гигантские тиражи винила… Нью-Йорк. Конец 50-х.
-• Льюин Дэвис, талантливый певец и гитарист из Квинса, с трудом перебивается между выступлениями в клубах Гринвич-Виллиджа, редкими записями на радио. Без дома и денег, запутавшись в любви, почти потеряв связь с семьей, он странствует по (   Читать дальше...   )Производство: США, Великобритания, ФранцияЖанр: Драма, МузыкальныйРежиссер: Итан Коэн, Джоэл КоэнАктеры: Оскар Айзек, Кэри Маллиган, Итэн Филлипс, Робин Бартлетт, Джон Гудман, Джастин Тимберлэйк, Макс Казелла, Гаррет Хедлунд, Джерри Грэйсон, Ф. Мюррэй Абрахам, Адам Драйвер, Джанин Серраллес, Старк Сэндс, Алекс Карповски ...Перевод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский (Full, SDH, SDH-Colored)Продолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA655BA01AC5363513522FC7D4453C09E492CFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766793   (861396) от 19.03.2014
-
-Жизнь Адель / La vie d'Adele - Chapitres 1 et 2 / Blue Is The Warmest Color (2013) [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Драма, МелодрамаРежиссер: Абделатиф КешишАктеры: Адель Экзаркопулос, Леа Сейду, Салим Кешьюш, Орельен Рекуан, Кэтрин Сали, Бенжамин Сиксу, Мона Валравенс, Альма, Жодоровски, Жереми Лаэрт, Энн ЛорьеПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 03:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12999CD326648D48FF8C9CDF29475BF3FF4FE8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 767892   (861390) от 19.03.2014
 
 Восточный ветер / Ostwind - Zusammen sind wir frei / Windstorm (2013) BDRip [H.264/720p-LQ] [VO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_861390.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861172.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861102.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861101.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861099.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861095.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861091.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861089.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861084.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861081.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860983.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860978.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860972.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860969.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860968.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860903.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860900.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860899.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860895.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860846.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860839.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860819.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860578.jpg" />
 </div>
 
 
@@ -658,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860537.jpg" />
 </div>
 
 
@@ -669,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB32AB4B40A133806FF654ACDE0953FEC92E7756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108952   (860455) от 26.02.2017
+
+Под покровом ночи / Nocturnal Animals (2016) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860455.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Сьюзен роскошная жизнь в Лос-Анджелесе, прекрасный муж и собственная галерея. Но однажды она получает неожиданную посылку от бывшего супруга — он хотел бы встретиться, но сначала просит прочитать его новый роман. Сьюзен не подозревает, что как только она откроет рукопись, она вернется в прошлое, которое считала надежно укрытым под покровом ночи.Производство: США / Artina Films, Fade to Black Productions, Focus FeaturesЖанр: Триллер, ДрамаРежиссер: Том ФордАктеры: Эми Адамс, Джейк Джилленхол, Майкл Шеннон, Аарон Тейлор-Джонсон, Айла Фишер, Элли Бамбер, Арми Хаммер, Карл Глусман, Роберт Арамайо, Лора ЛинниПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Английский, Болгарский, Китайский, Чешский, Эстонский, Греческий, Венгерский, Индонезийский, Корейский, Латышский, Литовский, Польский, Португальский, Румынский, Русский, Словенский, Испанский, Тайский, ТурецкийПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390BD4B23283973A0048439F9D330807CDB99961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000062   (860403) от 24.03.2016
+
+Мистер Холмс / Mr. Holmes (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие развернется в 1947 году, а речь в фильме пойдет об отошедшем от дел Шерлоке Холмсе, живущем в сонной деревушке в Сассексе вместе с горничной миссис Манро и сыном, который занимается сыском в качестве хобби. Несмотря на уединенный образ жизни, знаменитому сыщику с Бейкер-стрит по-прежнему не дает покоя тайна так и нераскрытого 50 лет назад дела.Производство: Великобритания, США | AI-Film, Archer Gray Productions, BBC Films, FilmNation Entertainment, See-Saw FilmsЖанр: Детектив, Драма, КриминалРежиссер: Билл КондонАктеры: Иэн МакКеллен, Лора Линни, Майло Паркер, Хироюки Санада, Хэтти Морахэн, Патрик Кеннеди, Роджер Аллам, Филип Дэвис, Фрэнсис де ла Тур, Чарльз МэддоксПеревод: Многоглосый закадровый, профессиональный (iTunes), авторский (Ю. Сербин)Язык субтитров: Русский, английскийПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4507E507E20B8FC601AC9C1F6AF0622D190A59D
 ```
 
 https://mybot314.ru/tekegram_catalog/

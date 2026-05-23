@@ -1,56 +1,3 @@
-###  Публикация: 1197696   (247310) от 28.06.2023
-
-Полководцы / The Warlords / Tau Ming Chong (2007) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Полководец, потерявший в одном из жестоких сражений все свое войско, и два вожака шайки грабителей дают клятву быть братьями, сражаться вместе и защищать друг друга. Три воина ставят перед собой масштабную задачу: остановить гражданскую войну и сделать свою страну мирной и процветающей.
-На пути к этой цели их ждут кровавые сражения, жестокий выбор — пожертвовать (   Читать дальше...   )Производство: Гонконг, Китай / Media Asia Films, Morgan & Chan Films, China Film GroupЖанр: Боевик, Драма, ВоенныйРежиссер: Питер Чан, Вэй Мэн ЙипАктеры: Джет Ли, Энди Лау, Такеши Канеширо, Сю Цзинлэй, Го Сяодун, Джеки Хеунг, Жонгван Вэй, Бао-мин Гу, Куиронг Ванг, Бо ЧжоуПеревод: Многоголосый закадровый (CP-Digital)Субтитры: русскиеПродолжительность: 02:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EB962DE04D7D10DAB82FB2802653F6FFE3102C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333626   (247305) от 28.06.2023
-
-Орел Девятого легиона / The Eagle (2011) [1080p] Blu-Ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В 140 году нашей эры, через двадцать лет после необъяснимого исчезновения в горах Шотландии всего девятого легиона. Молодой центурион Маркус Аквила прибывает из Рима, чтобы разгадать тайну и восстановить репутацию своего отца, командира девятого легиона. В сопровождении только своего британского раба Эски  Маркус отправляется через Адрианов вал в неизведанные высокогорья (   Читать дальше...   )Производство: США / Film4, Focus Features, Toledo ProductionsЖанр: драма, историяРежиссер: Кевин МакдональдАктеры: Ченнинг Татум, Джейми Белл, Дональд Сазерленд, Марк Стронг, Дэкин Мэтьюз, Иштван Гёз, Бенце Герё, Денис О’Хэр, Пол Риттер, Жольт ЛаслоПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 01:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E78FBA3069AF7AB2181E78D4562E8C7B984E1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 368109   (247302) от 28.06.2023
 
 Орел Девятого легиона / The Eagle (2011) BDRip [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247302.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247300.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) WEB-DL [H.264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247289.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247275.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247274.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247259.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247230.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247225.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247175.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247154.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247153.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247150.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247134.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247131.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247113.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247112.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247111.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247107.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247104.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247102.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247101.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247096.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247088.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247086.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0C3658E89BD5A60130B0CCC02FEB7637602081B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645689   (247073) от 10.07.2023
+
+Миссия «НЛО» / UFO Sweden (2022) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа шведских уфологов расследует загадочные явления, к которым, по их твердому убеждению, причастны космические пришельцы. Однажды к ним обращается юная правонарушительница, воспитанница приемной семьи. Девушка убеждена, что ее родной отец был похищен инопланетянами. Расследование, в которое мало кто верил, приводит к поразительным результатам.Производство: Швеция / Crazy Pictures, Film i Vast, SF Film Production, Sveriges TelevisionЖанр: фантастика, приключенияРежиссер: Виктор ДанеллАктеры: Инез Даль Торхауг, Йеспер Баркселиус, Ева Меландер, Сара Ширпи, Оскар Торинге, Хокан Эн, Изабель Кьед, Никлас Кварнбо Йонссон, Матиас Литнер, Йоаким СалльквистПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A829FE04E9DE55638EC3D85D7DF42AF6220D8875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645685   (247065) от 10.07.2023
+
+Все страхи Бо / Beau Is Afraid (2023) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бо уже немолод, он боится всего на свете и старается лишний раз не выходить из дома. Ведь мир состоит сплошь из опасностей, а улицы кишат сумасшедшими, которые только и ждут возможности вломиться к тебе в квартиру и посильнее напакостить. На годовщину смерти отца Бо собирается навестить маму, но кто-то крадёт его чемодан и ключи от квартиры прямо из двери. Это вопиющее (   Читать дальше...   )Производство: США, Великобритания, Финляндия, Канада / A24, Access Entertainment, IPR.VCЖанр: комедия, драмаРежиссер: Ари АстерАктеры: Хоакин Феникс, Патти ЛюПон, Эми Райан, Натан Лэйн, Кайли Роджерс, Дени Меноше, Паркер Поузи, Зои Листер Джонс, Армен Нахапетян, Джулия АнтонеллиПеревод: Дублированный (Mосфильм-Мастер)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C390E8BB620449AA1A10F1DCBE3949BB94F4121
 ```
 
 https://mybot314.ru/tekegram_catalog/

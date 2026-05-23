@@ -1,55 +1,3 @@
-###  Публикация: 1617400   (201617) от 06.03.2023
-
-Тропа смерти / The Long Dark Trail (2022) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Два брата-подростка убегают из дома после того, как наконец дают отпор своему жестокому отцу. Они надеются найти мать, оставившую их несколько лет назад. Братья верят, что их жизнь наладится после того, как они воссоединятся с родительницей. Но идти к ней им придётся через безлюдные зловещие леса.Производство: США / Four Eighteen FilmsЖанр: УжасыРежиссер: Кевин ИгнатиусАктеры: Картер О’Доннелл, Брэйди О’Доннелл, Трина Кэмпбелл, Ник Псинакис, Майкл ТайерПеревод: Дублированный (Lucky Production)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full)Продолжительность: 01:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4B135961446596D0B1DC69C7927F807CCA7249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617169   (201616) от 06.03.2023
-
-Воронья лощина / Raven's Hollow (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-1830 год. Молодой Эдгар — один из лучших кадетов престижной академии Вест-Пойнт. Путешествуя в компании друзей, он случайно оказывается в городке Воронья лощина, где проводит несколько зловещих дней, наполненных загадочными событиями и мистическими пророчествами, которые навсегда изменят его судьбу. Эдгар Аллан По станет писателем и по прошествии времени обретет (   Читать дальше...   )Производство: Великобритания, Латвия / 828 Media Capital, Cinevilla Studio, Creativity CapitaЖанр: Ужасы, триллерРежиссер: Кристофер ХаттонАктеры: Уильям Моусли, Мелани Занетти, Каллум Вудхаус, Кейт Дики, Дэвид Хейман, Кайл Роу, Оберон Ка Аджипонг, Каллум МакГоун, Матис Ландвер, Майкл Гест, Юрис СтренгаПеревод: Дублированный (Мосфильм-Мастер), Авторский (С. Визгунов)Субтитры: Русские (Forced), Английские (Full, SDH)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F35FD70BFC6565FAAFE1F5F99A089C76E89841B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451389   (201613) от 06.03.2023
 
 Остров головорезов / Cutthroat Island (1995) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201613.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201604.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201570.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201563.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201556.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201544.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201535.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201533.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201524.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201516.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201513.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201488.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201477.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201466.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201432.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201429.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201428.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201400.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201387.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201376.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201369.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201357.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201353.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201352.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:483042116AF28DFA4F005B4CC5CF77A9A50DE75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618647   (201343) от 12.03.2023
+
+Пальмы и линии электропередач / Palm Trees and Power Lines (2022) WEB-DLRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетняя Леа знакомится с Томом, мужчиной вдвое старше нее. Ей неинтересны сверстники и их развлечения, ее беспокоят плохие отношения с матерью, отсутствие друзей, непонимание мира. Том становится для девушки и лучшим другом, и заботливым родителем, и терпеливым возлюбленным. Однако вскоре Леа понимает, что стала настолько зависима от мужчины, что больше (   Читать дальше...   )Производство: США / Momentum Pictures, Fieta Island Films, Neon Heart ProductionsЖанр: драмаРежиссер: Джэми ДэкАктеры: Лили Макинерни, Гретхен Мол, Эмили Джексон, Куинн Франкель, Армани Джексон, Пин Ву, Тимоти Таратчила, Рид Де Кастро, Джонатан Такер, Иоланда КорралесПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские, французскиеПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071A994921E3C57F99F0EDC33C824090FE83CB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618735   (201336) от 12.03.2023
+
+Враждебная территория / The Orphan Train / Hostile Territory (2022) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201336.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Америке в конце Гражданской войны, солдат Джек Калгроув, воевавший за армию Союза, возвращается домой после плена и узнает, что его жена погибла, а дети были вывезены на поезде для сирот на Запад. Джек пускается в погоню, а вместе с ним - отряд коренных американцев и одна беглая рабыня.Производство: США / Buffalo 8 Productions, Rebel Road Entertainment, P12 FilmsЖанр: Драма, вестерн, историяРежиссер: Брайан ПрэслиАктеры: Мэтт МакКой, Брэд Лелэнд, Лью Темпл, Брайан Прэсли, Бреа Би, Крэйг Тейт, , Том Драгт, , , Тимоти Патрик КаваноПеревод: Профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Английские (Full)Продолжительность: 01:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE412573470BD63D83A0A02CF70B63400987F974
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NetLimiter Pro 4.0.58.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993220.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Expert 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993217.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Opera 66.0.3515.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993216.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ GPU-Z 2.29.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993215.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993177.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Soul Knight v2.5.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993163.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SoftPerfect NetWorx 6.2.7.20016 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993159.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Notepad++ 7.8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993157.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993156.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ R-Wipe & Clean 20.0.2263 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993154.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Viber 12.2.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993152.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Biology 001 (2011) [MP3|320 kbps]<Abstract, IDM, Dub Techno, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993142.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sumatra PDF 3.2.12014 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993123.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Smart Game Booster Pro 4.2.1.4218 (promo GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993087.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ AOMEI Backupper Technician Plus 5.6.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993079.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ RadioBOSS Advanced 5.9.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993073.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Adobe Bridge 2020 10.0.2.131 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993070.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kate Bush - 50 Words for Snow (2011) [FLAC|Lossless]<Alternative Rock, Acoustic,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_993059.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Ubuntu GamePack 16.04 (январь 2020) [amd64, i386] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993048.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993038.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993011.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Windows 8.1 (24in2) Sergei Strelec x86/x64 6.3 (build 9600) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993000.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Windows 10 (66in2) Sergei Strelec x86/x64 1909 (build 18363.592) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992996.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 19125) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992992.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Projected - Human (2012) [FLAC|Lossless]<Alt. Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992943.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Butterfly - Favorite Colors Episode 068 (26.01.2013) [MP3|320 кб/с]<Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992939.jpg" />
 </div>
 
 

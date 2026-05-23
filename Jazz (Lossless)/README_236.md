@@ -6,7 +6,7 @@ David Bubba Brooks - Smooth Sailing (1998) TCB Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262277.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ralph Moore - Who It Is You Are (1994) Nippon Columbia [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262276.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262129.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262001.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262000.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261999.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261998.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261997.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261993.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261992.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261987.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261984.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Antonio Ciacca Quintet - Rush Life (2008) Motema Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261835.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Horace Tapscott - Little Afrika (1983) 2010, Absord Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261834.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Steve Kuhn - Oceans In The Sky (1989) 2001, Universal [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261833.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ahmad Jamal - Macanudo (1959, 1962) 2014, Solar Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261829.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Oliver Nelson - Skull Session (1975) 2002, Flying Dutchman [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261827.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261818.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261813.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261812.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260758.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Big Time Operator - The Game (2001) [FLAC|Lossless]<Swing, Neo-Swing, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259306.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Gianluigi Trovesi Ottetto - Fugace (2003) /ECM/ [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259289.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Ella Fitzgerald - Ella Fitzgerald (1935 - 1940) 5-CD (1990, 1991) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259166.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Eddie Higgins Solo Piano - Standards By Request 1st Day & 2nd Day (2 CD) (2008) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259107.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Big Band-ul Radio - Jazz... Pe Romaneste (2010) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258718.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Darkness - Hot Cakes (Deluxe Edition) (2012) [FLAC|Lossless]<Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501314.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ The Brian Jonestown Massacre - Aufheben (2012) [FLAC|Lossless]<Indie Rock / Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501239.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Mark Knopfler - BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501212.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Gentle Giant - I Lost My Head: The Chrysalis Years 1975-1980 (4CD Box Set) (2012
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501139.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Two Door Cinema Club - Beacon (2012) [FLAC|Lossless]<Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501045.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Jeff Beck & Johnny Depp - 18 (2022) [FLAC|Lossless|image + .cue] <	Rock, Folk, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500580.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dire Straits - Sultans Of Swing the Very Best Of Dire Straits (1998) (2012, SHM-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500264.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Monsters Of Rock Live/Double Album (2005) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499449.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Mark Knopfler - Privateering 2CD (2012) [FLAC|Lossless]<Rock / Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498922.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Ultimate Rock Anthems Vol.1-2 (2005) [APE|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498417.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Rock'n'Roll Collection (2003) [APE|image + .cue]<Rock/Rock'n'Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498401.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Legends Of Rock (2005) [APE|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498354.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Легенды Мирового Рока - Time (2001) [FLAC|image + .cue]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498238.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Jean Leloup - 1985-2003: Je joue de la guitare (2005) [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497809.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Santana - Supernatural-Legacy Edition (2010) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497770.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ V.A. - The Many Faces Of Queen: A Journey Throught The Inner World Of Queen (201
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497669.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Lebowski - Cinematic (2010) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497523.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Lunatic Soul - Walking on a Flashlight Beam (2014) Special Edition CD+DVD [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497511.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Lessmann/Voss - Rock Is Our Religion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496699.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Fatal Vision - Once (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496698.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496391.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496385.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ The Rolling Stones - Foxes In The Boxes Vol. 1-3 (2015) 3CDs [FLAC|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496152.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Cliff Richard - Just... Fabulous Rock'n'Roll (2016) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496023.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Ultimate  Rock / 4CDs Of Great Rock Music (2015) Box Set, 4CD[FLAC|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495932.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Robin Beck - Underneath (2013) [FLAC|Lossless]<Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495773.jpg" />
 </div>
 
 

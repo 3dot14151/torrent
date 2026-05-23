@@ -6,7 +6,7 @@ Wondershare UniConverter Ultimate 14.1.15.171 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200131.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrystalDiskInfo 9.0.0 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200128.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 Manager 3.7.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200119.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OneLoupe 5.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200113.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IceCream Ebook Reader Pro 6.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200110.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ungoogled Chromium 112.0.5615.50-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200106.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CurrPorts 2.71 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200104.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200099.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ADB AppControl 1.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200097.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WinSCP 5.21.8 Build 13000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200094.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AIMP 5.11 Build 2429 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200093.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 4.7 RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200089.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Aiseesoft Video Converter Ultimate 10.6.28 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200088.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DP Animation Maker 3.5.16 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200078.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dashcam Viewer 3.9.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200068.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ IsMyHdOK 3.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200063.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GetWindowText 4.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200059.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7105 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200055.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aiseesoft Blu-ray Player 6.7.52 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200053.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.7 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200051.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Windows 11 Manager 1.2.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200050.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ OneCommander (ex. One Commander) Pro 3.40.4.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200047.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MSI Kombustor 4.1.21.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200043.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ TheAeroClock 8.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200040.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ jv16 PowerTools 8.0.0.1556 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200034.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ PotPlayer 230407 (1.7.21902) (x64) RePack (& portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200029.jpg" />
 </div>
 
 

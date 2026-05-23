@@ -1,29 +1,3 @@
-###  Публикация: 1212552   (775699) от 12.03.2018
-
-Witches Legacy: 11 Rise of the Ancient / Наследие Ведьм: 11 Возрождение Древних (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Красивое продолжение мистической серии игр Witches Legacy. Тысячи лет назад древние воины одержали победу над демоном, пожелавшим власти над всем миром. Однако в живых остался только один из победителей. Долгие века длился его вечный сон - до тех пор, пока не появился демон Эзар. Теперь древнему воину вместе с Джеком и Анабель предстоит остановить Эзара и спасти (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF128DD42A70B278E19879A8B4EB86D76FB1A884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212538   (775580) от 12.03.2018
 
 Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack =nemos= [Ultimate HD Edition]
@@ -32,7 +6,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack =nemos= [Ultimate
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775580.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775564.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (01.10.01/dlc) Repack Other s [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775558.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ A Golden Wake (2014) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775521.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Lucius III (2018) [Ru/Multi] (1.190118112744.a) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775501.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Night Blights (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775457.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775417.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775402.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Living Legends 7: Fallen Sky (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775098.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Seamulator 2009 / Большая Регата. Морской симулятор
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775064.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dark Romance 9: A Performance To Die For / Роман тьмы 9: Жизнь з�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775002.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ember (2016) [En] (1.046) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774969.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Grim Tales 12: Graywitch / Мрачные истории 12: Грейвитч (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774952.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Life is Strange: Before the Storm (2017) [Ru] (1.3.0.2/dlc) Repack xatab [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774893.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Beast Quest (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774889.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Mantis Burn Racing (2016) [Ru/Multi] (20180222/dlc) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_774881.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Hong Kong Massacre (2019) [En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774851.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774794.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Sundered (2017) [Ru/Multi] (911/upd2) License PLAZA [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774793.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ghost of a Tale (2018) [Ru/Multi] (7.91) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774789.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/Multi] (1.03) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774695.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Kathy Rain (2016) [En/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774692.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Immortal Love 5: Kiss of the Night (2018) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774239.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Bonfire Stories 2: Heartless (2018) [En] (1.0) Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774235.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ CHAOS;CHILD (2019) [En/Jp] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774079.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ CHAOS;CHILD (2019) [En/Jp] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB5FDA6C8C50DFC8F9155D8DB2F9A2B8292402F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212879   (774058) от 14.03.2018
+
+The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1964 год. Из Британского музея пропал древний рубин, на месте преступления обнаружено вороново перо. Неужели кто-то пытается подражать знаменитому вору по кличке Ворон?T he Raven Remastered — полностью перерисованная игра с детективной историей, рассказанной от лица нескольких героев.Тип издания: LicenseРазработчик: KING ArtЖанр: Adventure, Quest, IndieЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE09F03579BFCE98C20303D8510DA74CB0E704C
 ```
 
 https://mybot314.ru/tekegram_catalog/

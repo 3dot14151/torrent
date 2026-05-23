@@ -6,7 +6,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53843.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53804.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Coromon (2022) [Ru/Multi] (1.3.0/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53793.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53783.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53764.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Baladins (2024) [Multi] (1.0.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53684.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SKALD: Against the Black Priory (2024) [En] (1.0.3d/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53681.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53565.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53545.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53530.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53482.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53445.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53381.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53361.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53358.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53339.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53287.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53135.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53117.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52755.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52591.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52495.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52480.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52432.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52402.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52396.jpg" />
 </div>
 
 

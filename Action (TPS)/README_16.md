@@ -6,7 +6,7 @@ The Last Hope: Atomic Bomb - Crypto War (2018) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718985.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sunset Overdrive (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716269.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Resident Evil 3 (2000) [Ru] (1.1) Repack Kalash49
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715121.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714495.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714037.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713068.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/En] (1.0/upd2) Repack =nemos= [Хbох
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713056.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Driver: San Francisco (2012) [Ru/Multi] (1.04.1114) Reрack R.G. Механик�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713054.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Decepticon [Ultimate Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712231.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (130418) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711259.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Senran Kagura: Shinovi Versus (2016) [Jp/En] (1.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711196.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Onechanbara Z2: Chaos (2016) [Jp/En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711065.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Aragami (2016) [Ru/Multi] (01.08/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710278.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Silent Hill: Homecoming (2009) [Ru/En] (1.0) RePack Audioslave
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707691.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Swarm / Симбионт [Ru] (RePack) 2008 | Apple
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707227.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) License RELOADED [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705883.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704696.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704692.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SIFU (2022) [Ru/Multi] (1.5.3.369/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704643.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) Repack =nemos= [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703977.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702943.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702843.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Bayonetta (2017) [Ru/Multi] (1.0) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700231.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Deadly Tropics (2018) [En] (1.00) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694813.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693410.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/upd10/dlc) Repack Other s [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692773.jpg" />
 </div>
 
 

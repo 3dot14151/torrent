@@ -6,7 +6,7 @@ Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348212.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347839.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345434.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345255.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Осенний марафон № 202 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344068.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ ZAZ (2010-2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342779.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341230.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340940.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340462.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Suzi Quatro (vol.1) (2012) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340453.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Suzi Quatro (vol.2) (2012) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340347.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Leanna Decker - Killer (2011) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340212.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338054.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337927.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337699.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Осенний марафон № 203 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336896.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клип�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335342.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Осенний марафон № 204 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330833.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328500.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Осенний марафон № 205 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326391.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322590.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322306.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Осенний марафон № 206: Дискотека с размахо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321245.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321147.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321142.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320966.jpg" />
 </div>
 
 

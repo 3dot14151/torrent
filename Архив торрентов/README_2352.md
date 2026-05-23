@@ -6,7 +6,7 @@ Xodo PDF Reader & Editor Pro 8.0.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527052.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v8 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527051.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Hard Disk Sentinel Pro 6.01.3 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527048.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Office 2007 Standard SP3 12.0.6755.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527045.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SimplePlanes (2015) [En] (1.5.3.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527041.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Paragon NTFS for Mac 14.2.359 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527037.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Native Instruments - Kontakt 5.6.0 (R46) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527029.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Realtek Ethernet Driver 11.8.0515 / 10.59 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526986.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ CCleaner 6.01.9825 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526982.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ YouTube Video Downloader PRO 5.8.6 (20170731) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526976.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Cumulative Update KB4038220 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526964.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Acrobat Reader DC 2017.012.20093 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526962.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Soft Organizer 6.11 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526960.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Acrobat Reader DC 2017.012.20093 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526957.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adobe After Effects 2022 22.5.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526941.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Air Explorer Pro 1.16.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526911.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Acrobat Pro DC 2017.012.20093 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526908.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Beautiful Rock Ballads Vol.11 (Compiled by Виктор31Rus) (2017) [MP3|3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526901.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Core Temp 1.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526900.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Adobe Flash Player 26.0.0.151 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526898.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526894.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Mozilla Firefox ESR 52.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526866.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526862.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526854.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526767.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526766.jpg" />
 </div>
 
 

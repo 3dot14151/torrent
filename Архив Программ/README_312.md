@@ -6,7 +6,7 @@ High-Def/Blu-ray Disc Plug-In for Corel VideoStudio X9 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896955.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hotspot Shield Elite 5.20.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896938.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VirtualBox 5.0.16 r105871 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896934.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Extreme Picture Finder 3.48.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896911.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896910.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DriverPack Solution Online 17.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896868.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TeamViewer 11.0.56083 Free | Enterprise | Premium RePack (& Portable) by D!akov 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896858.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Loaris Trojan Remover 3.1.20.1440 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896828.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Insofta Cover Commander 6.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896821.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nero Burning ROM 2016 17.0.00700 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896819.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Blackmagic Design DaVinci Resolve Studio 17.3.1 Build 5 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896816.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Advanced Installer 16.9 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896810.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Q-Dir 8.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896800.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Trojan Killer 2.1.18 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896796.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Opera 67.0.3575.115 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896786.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Unity3D Pro 5.3.3f1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896778.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Nero 2016 Platinum 17.0.04100 Retail + ContentPack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896771.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ CoolUtils PDF Combine 7.1.0.16 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896710.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.8.0 (02.09.2021)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896687.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dr.Web CureIt! (02.09.2021) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896680.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Opera 67.0.3575.115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896675.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ O&O DiskImage Professional 15.3 Build 176 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896669.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Calibre 4.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896600.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Tixati 2.72 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896547.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ TagScanner 6.0.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896163.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ EZ CD Audio Converter 5.1.1.1 Ultimate Portable by PortableAppZ  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896153.jpg" />
 </div>
 
 

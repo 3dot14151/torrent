@@ -1,55 +1,3 @@
-###  Публикация: 1505934   (801332) от 29.10.2021
-
-Под гипнозом / Hypnotic (2021) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чувствуя себя в тупике как в личном, так и в профессиональном плане, Дженн обращается за помощью к гипнотерапевту, но вскоре оказывается в эпицентре смертельной игры.Производство: США / The Long GameЖанр: Триллер, драмаРежиссер: Мэтт Энджел, Suzanne CooteАктеры: Кейт Сигел, Джейсон О’Мара, Дьюли Хилл, Люси Гест, Джейм М. Каллика, Таня Диксон-Уоррен, Люк Родерик, Девин Далтон, Stephanie Cudmore, Джесси ФрайзерПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: РусскийСубтитры: Русские (Full), Английские (SDH)Продолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBB447D43269A73D58C1DA9BA197659F0030DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363906   (801330) от 21.05.2020
-
-Сквозь снег / Snowpiercer (2013) BDRip [H.264/720p] [KOR Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. 17 лет назад на планете произошла техногенная катастрофа. Там, где раньше росли леса и цвели сады, теперь лежат снег и лёд, и жизнь сохранилась лишь в гигантском поезде, без остановки мчащемся по трансевразийской магистрали. В первых вагонах состава живёт правящая элита, в последних — простые люди. Жизнь в хвосте поезда напоминает концлагерь — (   Читать дальше...   )Производство: Корея Южная, Чехия / SnowPiercer, Moho Film, Opus PicturesЖанр: Фантастика, боевик, драмаРежиссер: Пон Джун-хоАктеры: Крис Эванс, Сон Кан-хо, Тильда Суинтон, Джейми Белл, Октавия Спенсер, Юэн Бремнер, Элисон Пилл, Ко А-сон, Эд Харрис, Джон ХёртПеревод: Многоголосый, двухголосый, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDAD808D87186A0E3DFE6E188F215EAE59BA411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505775   (801329) от 29.10.2021
 
 Дюна / Dune: Part One (2021) WEB-DLRip [H.265]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801329.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801328.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801327.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801319.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801307.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801238.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801224.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801068.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801021.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801016.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801011.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801005.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801004.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800984.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800983.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800962.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800924.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800904.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800899.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800891.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800882.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800881.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800874.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800869.jpg" />
 </div>
 
 
@@ -668,6 +616,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9EF0A47E2509C52C12AEE7B213976CD852930E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199467   (800867) от 16.01.2018
+
+Эксперимент «Офис» 2 / Mayhem (2017) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800867.jpg" />
+</div>
+
+
+###  Подробнее
+
+На человечество обрушился вирус ID7. Заражённые не могут себя контролировать. На 8 часов они оказываются во власти инстинктов: ярости, похоти, страха.
+Дерек упорно работал, чтобы добиться высокого положения в крупной фирме. Босс его подставил и уволил с позором. Именно в этот момент в офис попадает вирус ID7. Прекрасный шанс оторваться и восстановить справедливость.Производство: США / Circle of Confusion, Royal Viking EntertainmentЖанр: Ужасы, Боевик, КомедияРежиссер: Джо ЛинчАктеры: Стивен Юн, Самара Уивинг, Стивен Брэнд, Кэролайн Чикези, Керри Фокс, Даллас Робертс, Марк Фрост, Клер Левин, Андре Эриксен, Никола КентПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: АнглийскиеПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE4FCE49BB098F68C12B88F27ABD0A5D51CECA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199471   (800860) от 16.01.2018
+
+Эксперимент «Офис» 2 / Mayhem (2017) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800860.jpg" />
+</div>
+
+
+###  Подробнее
+
+На человечество обрушился вирус ID7. Заражённые не могут себя контролировать. На 8 часов они оказываются во власти инстинктов: ярости, похоти, страха.
+Дерек упорно работал, чтобы добиться высокого положения в крупной фирме. Босс его подставил и уволил с позором. Именно в этот момент в офис попадает вирус ID7. Прекрасный шанс оторваться и восстановить справедливость.Производство: США / Circle of Confusion, Royal Viking EntertainmentЖанр: Ужасы, Боевик, КомедияРежиссер: Джо ЛинчАктеры: Стивен Юн, Самара Уивинг, Стивен Брэнд, Кэролайн Чикези, Керри Фокс, Даллас Робертс, Марк Фрост, Клер Левин, Андре Эриксен, Никола КентПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: АнглийскиеПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87F57FAE1162FB16CC292119D7FDF1144E44D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

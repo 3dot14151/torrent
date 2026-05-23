@@ -1,55 +1,3 @@
-###  Публикация: 967699   (158348) от 21.12.2015
-
-Прогулка / The Walk (2015) BDRemux [H.264/1080p] [3D/2D] [ISO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вы боитесь высоты? А можете представить себя идущим по натянутому канату на высоте более 400м без всякой страховки? Потоки ветра обдувают вас, а внизу — город и тысячи взволнованных взглядов, устремленных вверх. История о том, как французский канатоходец Филипп Пети отважился совершить легендарный трюк — пройти без страховки по канату, натянутому между небоскребами (   Читать дальше...   )Производство: США, Sony Pictures Entertainment, TriStar Productions, ImageMoversЖанр: Триллер, Драма, ПриключенияРежиссер: Роберт ЗемекисАктеры: Джозеф Гордон-Левитт, Бен Кингсли, Стив Валентайн, Шарлотта Ле Бон, Джеймс Бэдж Дэйл, Бен Шварц, Бенедикт Сэмюэл, Мизинга Мвинга, Дэниэл Аррош, Джейсон ДелайнПеревод: Дублированный (iTunes)Язык субтитров: Русские (Forced, iTunes), английские (Full, SDH)Продолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A1172C5337A1AB42BD5DA0824276DB3848B358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967725   (158332) от 21.12.2015
-
-Даосский маг Чон У Чхи / Woochi (2009) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Примерно 500 лет назад в государстве Чосон произошло из ряда вон выходящее событие. Волшебная флейта, одно из величайших сокровищ страны, была похищена и оказалась в руках у злого чудовища. Небожители не могли остаться в стороне: они помогли побороть монстра и, чтобы защитить чудесный музыкальный инструмент от подобных посягательств в будущем, разделили его на две (   Читать дальше...   )Производство: Корея Южная / BK Pictures, CJ EntertainmentЖанр: Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Чхве Дон ХунАктеры: Ким Юн Сок, Им Су Чон, Кан Дон Вон, Ём Чон А, Ким Хё Чжин, Пэк Юн Сик, Сон Ён ЧанПеревод: Двуголосый закадровый, любительский (Ворон и MezIdA)Язык субтитров: ОтсутствуютПродолжительность: 02:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8B43F5C5730A241361304496F098A58B840DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967746   (158329) от 21.12.2015
 
 Мистер и миссис Смит / Mr. & Mrs. Smith (2005) BDRip [H.264/1080p-LQ] [Director's Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158329.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158313.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158308.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158305.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158203.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158197.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158194.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158140.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158139.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158131.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158118.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158110.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158091.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158086.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158077.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158054.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158045.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158040.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158039.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158037.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158033.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158024.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158022.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157997.jpg" />
 </div>
 
 
@@ -672,6 +620,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49B370AD1D413001DB82CF508813152BC985C4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967839   (157983) от 22.12.2015
+
+Прогулка / The Walk (2015) Blu-ray [H.264/1080p] [3D/2D] [ISO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы боитесь высоты? А можете представить себя идущим по натянутому канату на высоте более 400м без всякой страховки? Потоки ветра обдувают вас, а внизу - город и тысячи взволнованных взглядов, устремленных вверх.
+
+История о том, как французский канатоходец Филипп Пети отважился совершить легендарный трюк - пройти без страховки по канату, натянутому между небоскребами (   Читать дальше...   )Производство: США / ImageMovers, Mel's Cite du Cinema, Sony Pictures Entertainment (SPE)Жанр: триллер, драма, приключения, биографияРежиссер: Роберт ЗемекисАктеры: Джозеф Гордон-Левитт, Бен Кингсли, Стив Валентайн, Шарлотта Ле Бон, Джеймс Бэдж Дэйл, Бен Шварц, Бенедикт Сэмюэл, Мизинга Мвинга, Дэниэл Аррош, Джейсон ДелайнПеревод: Профессиональный (полное дублирование) (iTunes)Язык субтитров: Английский, Китайский, Русский, Индонезийский, Корейский, Португальский, Испанский, ТайскийПродолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7C17930BCFB4C5A5EE4AD49A64D7DE184EE60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193936   (157978) от 23.12.2017
+
+Телохранитель киллера / The Hitman's Bodyguard (2017) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — телохранитель мирового уровня. Его новая работа — охранять киллера, которого все мечтают убить. Он и сам с удовольствием прикончил бы этого гада. Но работа есть работа: смертельные враги в прошлом, они вынуждены объединиться в настоящем, чтобы выжить. Однако их методы настолько различны, а принципы противоположны, что вопрос выживания — под большим вопросом.Производство: Нидерланды, Китай, Болгария, США / Millennium FilmsЖанр: боевик, комедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдc, Сэмюэл Л. Джексон, Элоди Юнг, Цуваюки Саотомэ, Рой Хилл, Ричард Э. Грант, Гари Олдман, Род Халлетт, Юрий Колокольников, Надя КоначкиеваПеревод: Дублированный (Лицензия BD RUS)Субтитры: Русские (Полные), Английские (Full)Продолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2E3863B6C1F54A3F6E462A0478DFF3654FCF9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

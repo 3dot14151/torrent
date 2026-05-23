@@ -6,7 +6,7 @@ Keka 1.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210354.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TechSmith Camtasia 2023 Studio 2023.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210352.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wondershare UniConverter for Mac 14.2.17 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210344.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210317.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PDF Reader Pro Edition 2.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210312.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wolfram Mathematica 13.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210283.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ iStat Menus 6 v.6.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210184.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe Substance 3D Painter 8.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209487.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Luminar Neo 1.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209300.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ DjVu Reader Pro 2.6.8 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209219.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Commander One PRO - FTP client 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208858.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Magnet 2.11.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208850.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Disk Drill Enterprise 5.1.1112 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208581.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Planner 5D Premium 4.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208569.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ MAMP PRO 6 v.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208481.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ZBrush 2023.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208411.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Final Cut Pro X 10.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208385.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ WiFi Explorer 3 Pro 3.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208366.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ProPresenter 7.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208346.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ ZBrush 2023.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208298.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Elmedia Video Player Pro 8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208148.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ macOS 12 Monterey 12.6.8 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207885.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ macOS 12 Monterey 12.6 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207862.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Navicat Premium 16.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207813.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Davinci Resolve Studio 18.0.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207745.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Wondershare Repairit 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207714.jpg" />
 </div>
 
 

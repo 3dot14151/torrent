@@ -1,55 +1,3 @@
-###  Публикация: 780459   (757765) от 27.04.2014
-
-47 ронинов / 47 Ronin (2013) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Таинственный странник, преданный всеми, проданный в рабство, избранный судьбой вершить месть, станет одним из 47 воинов, бросивших вызов смерти. Явившись из другого мира, он восстанет против темных сил, чтобы защитить свою запретную любовь.Производство: СШАЖанр: Фэнтези, боевик, приключенияРежиссер: Карл РиншАктеры: Киану Ривз, Хироюки Санада, Ко Сибасаки, Таданобу Асано, Ринко Кикути, Кэри-Хироюки Тагава, Того ИгаваПеревод: Дублированный (лицензия)Язык субтитров: Русский, Английский, Венгерский, Чешский, Польский, Болгарский, Хорватский, Греческий, Иврит, Румынский, Эстонский, Латышский, Литовский, Словенский, УкраинскийПродолжительность: 01:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099CB7AD067C3B82A883EBAD2C63828316CB945F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204437   (757720) от 28.05.2010
-
-Три королевы Сиама / Puen yai jon salad (2008) [720p] BDRip
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-1600 год до нашей эры. Правление Королевы Хиджо Лангказуки переживало серьёзный внутренний конфликт. Принц мятежник Роэй, сговорившись с предводителем пиратов Черным Вороном решил поднять восстание чтобы свергнуть Хиджо с престола. Для войны с Королевой, пираты пытаются захватить голландское судно с новым орудием. Но их попытка заканчивается неудачей, корабль тонет. (   Читать дальше...   )Жанр: Фэнтези, Приключения, Боевик, ИсторияРежиссер: Нонзи НимибутрАктеры: Сорапонг Чатри, Дэн Чупонг, Ананда Эверингем, Винай Краибутр, Chartchai Ngamsan, Джакрит Паничпатикам, Джесдапорн Фолди, Attaporn TeemakornПеревод: Профессиональный (многоголосый закадровый)Язык субтитров: Русские, АнглийскиеПродолжительность: 01:59:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 321154   (757703) от 09.04.2011
 
 Черный ангел / Senso '45 (2002) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757703.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_757700.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_757686.jpg" />
 </div>
 
 
@@ -141,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757685.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757682.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757677.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757676.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757672.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757669.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757663.jpg" />
 </div>
 
 
@@ -326,7 +274,7 @@ Starперцы / Last Vegas (2013) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757657.jpg" />
 </div>
 
 
@@ -352,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757656.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757653.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757652.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757648.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757595.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757578.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757577.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757568.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757480.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757467.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757401.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757397.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757383.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC8C3A438A5FB25D02BE14DA181458672AA7070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018063   (757370) от 19.05.2016
+
+Вторая мать / Во сколько она вернется? / Que Horas Ela Volta? (2015) WEBRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757370.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках стабильного заработка Вал устраивается домработницей в хорошую семью. Но для этого ей пришлось переехать в Сан-Паулу. Долгих 13 лет она заботилась о сыне своих работодателей, став ему практически второй матерью. Однако, при этом Вал слишком скучает по своей родной дочери Джессике. Но однажды дочь решила поступать в университет в Сан-Паулу. Вал с нетерпением (   Читать дальше...   )Производство: БразилияЖанр: Мелодрама, КомедияРежиссер: Анна МайлаертАктеры: Режина Казе, Мишель Жуэлсаш, Камила Мардила, Карин Телес, Лоуренко Мутарелли, Хелена Альбергария, Бете Доргам, Луис Миранда, Тео Вернек, Люси ПерейраПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23AC9AD45140AEF5DC33480F54BBB5CB2441845E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018225   (757360) от 19.05.2016
+
+Теперь добавьте мёд / Now Add Honey  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нормальная жизнь семьи, живущей в пригороде, меняется, когда к ним приезжает двоюродная сестра.Производство: Австралия, GristmillЖанр: комедияРежиссер: Уэйн ХоупАктеры: Люси Фрай, Порша де Росси, Энгус Сэмпсон, Эдди Бару, Бен Лосон, Робби Магасива, Дэвид Филд, Филиппа Култхард, Эрик Томсон, Хамиш Блейк, Робин Батлер, Люк МакГрегорПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF8749E334C623C39B360F9177F4FDEEF4DB052
 ```
 
 https://mybot314.ru/tekegram_catalog/

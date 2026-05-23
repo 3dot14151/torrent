@@ -6,7 +6,7 @@ Auslogics Disk Defrag Pro 9.2.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277343.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Calibre 4.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277335.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics Duplicate File Finder 8.2.0.2 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277334.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics File Recovery 9.2.0.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277331.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DxO PhotoLab Elite 3.0.1 build 4247 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277326.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AI RoboForm Pro Enterprise v 7.1.1.0 Final [ML/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277318.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SSClock.XP 1.1.0.9x.ru [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277314.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Client for Google Translate 5.0.517 [Eng] Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277312.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Syhunt Sandcat Browser 5.3.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277253.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Adobe AIR 24.0.0.180 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277241.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Auslogics BoostSpeed Pro 11.2.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277182.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Auslogics BoostSpeed 11.2.0.2 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277169.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Cyberfox 52.5.1 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277153.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Maxthon Browser 5.1.4.1700 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277143.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Box Sync 4.0.7724 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277137.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Syhunt Sandcat Browser 5.5.2.0 CE Pen-Tester [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277133.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dism++ 10.1.17.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277123.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Bat! Professional Edition 7.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277122.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ AIDA64 Extreme Engineer Edition 1.50.1200 Final [Rus/Ua/Eng] Репак от Dop
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277106.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Screen Gif 2018.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277077.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cyberfox 52.5.1 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277075.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ BurnAware Professional 10.8 RePack by tolyan76 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277073.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277069.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Zoom Player MAX 14.0.0 Build 1400 Final RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277065.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Auslogics Windows Slimmer 2.2.0.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277060.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ MetaProducts Offline Explorer Enterprise 7.7.4642 SR 1 RePack (& Portable) by Tr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277051.jpg" />
 </div>
 
 

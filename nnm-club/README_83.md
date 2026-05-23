@@ -1,275 +1,3 @@
-###  Публикация: 1868884   (1067882) от 03.05.2026
-
-VA - The Best Of Dream Dance (2006) 2 x CD, Compilation [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-2-01	Sylver–	Turn The Tide (Radio Edit)	4:03
-2-02	Lasgo–	Something (Radio Mix)	3:41
-2-03	DJ Sammy & Yanou–	Heaven (S'n'Y Mix Radio Edit) 3:55
-2-04	Fragma–	Toca Me (Radio Cut)	3:33(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4AD2515970046409AE3991B3BF5AB2DE378BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868879   (1067881) от 03.05.2026
-
-VA - Russian Hits 2020 [MP3|320 Kbps] <Pop, hip-hop, electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-[3:49]. 001-Tim Dian & Eva Harz - Закроем двери
-[2:40]. 0002-Vesna305 - Ватсап
-[2:42]. 003-Кравц & Tony Tonite - Чау чау
-[3:17]. 004-Дима Кэс - Она(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 05:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5564D2133799EAB3E65F3B5373CD29E01AFAF541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868862   (1067880) от 03.05.2026
-
-Ai - Russian poets covers 9 compilation (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01 - Александр Блок, Lus Aleksandrs - Ушла. Но Гиацинты Ждали...
-02 - С.Есенин, Leдокол - Дымом Половодье...
-03 - Анна Ахматова, Poetica Soul - Двадцать Первое. Ночь. Понедельник  (Rock Version)
-04 - Сергей Есенин, Poetica Soul - Вот Оно, Глупое Счастье  ( Soul Blues Saxophone)(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4AB2ED1CD4855C90D61F50FF962CACE36201A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869024   (1067879) от 03.05.2026
-
-HFS: HTTP File Server 3.1.2 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-HFS — это веб-сервер файлов для вашего компьютера. Благодаря виртуальной файловой системе вы можете обмениваться папками или даже отдельными файлами.
-
-Превратите свой компьютер в сервер для обмена файлами за считанные секунды.
-Неограниченное пространство и пропускная способность — без загрузки в облако, файлы загружаются напрямую с вашего диска.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BC12B89F309B5ED6B46A848D415D54BECDE3A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869026   (1067878) от 03.05.2026
-
-Magisteria, Анна Пожидаева | Обитатели Ада. Персонажи Данте в искусстве (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Анна Пожидаева в своей обзорной лекции «Обитатели Ада. Персонажи Данте в искусстве» рассказывает о том, как из столкновения античного и средневекового мировоззрения возникла новая иконография ада, где бесы переняли черты античных героев, а классическая ясность уступила место аллегории.Производство: MagisteriaЖанр: видеоурок, лекция, философия, теология, искусствоЯзык озвучки: русскийПродолжительность: 01:20:50Реклама: наложение на видео и в презентации (плашка спонсора и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87F2FBD9682AD5FB1FC8E8F66ADEEAA90BE8A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869029   (1067877) от 03.05.2026
-
-PrivaZer Pro 4.0.121 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer – полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8B30EB5B3A339AD18C26E45B23FE726778A89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869031   (1067876) от 03.05.2026
-
-Либестраум / Liebestraum (1991) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ник Камински посещает в больнице сумасшедшую мать, дни которой уже сочтены. Герой движим предчувствием, что скоро случится что-то ужасное, что невозможно предотвратить. Ник очень чувствителен и, занимаясь писательским делом, хорошо понимает, что разгадка его бесконечных предчувствий может скрываться в истории матери. Попав к другу на вечеринку, он знакомится с женой (   Читать дальше...   )Производство: США / Initial Entertainment Group (IEG), Pathé EntertainmentЖанр: детектив, триллерРежиссер: Майк ФиггисАктеры: Кевин Андерсон, Памела Гидли, Билл Пуллман, Ким Новак, Грэм Беккел, Зак Гренье, Томас Копаче, Энн Ланж, Джек Уоллес, Макс ПерлихПеревод: профессиональный двухголосый (НТВ+)Язык озвучки: русский, английскийСубтитры: русские (надписи и отдельные фразы), английскиеПродолжительность: 01:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A902CF8CC86807C6C366B1C25155BCDA10DAEB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869032   (1067875) от 03.05.2026
-
-YT Downloader 10.3.11 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC0430A4B9522C205DFC95A6A3B4C15D193C649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869027   (1067874) от 03.05.2026
-
-Следствие ведут овечки / The Sheep Detectives (2026) Telecine [H.264/1080p] [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер пастух Джордж Харди собирает своё стадо и читает им детективные и мистические истории, уверенный, что овцы не понимают ни слова. Но однажды утром Джорджа находят мёртвым, и тогда стадо, проникшееся детективными сюжетами, решает взять расследование на себя.Производство: Ирландия, Великобритания, Германия, США / Amazon MGM Studios, Lord Miller, Three Strange AngelsЖанр: детектив, комедия, фэнтезиРежиссер: Кайл БалдаАктеры: Хью Джекман, Хонг Чау, Эмма Томпсон, Брайан Крэнстон, Молли Гордон, Бретт Голдстин, Николас Галицин, Белла Рэмзи, Реджина Холл, Патрик СтюартПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:16Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3EC966A3708343A05E277ED107157143A13F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869028   (1067873) от 03.05.2026
-
-Следствие ведут овечки / The Sheep Detectives (2026) Telecine [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер пастух Джордж Харди собирает своё стадо и читает им детективные и мистические истории, уверенный, что овцы не понимают ни слова. Но однажды утром Джорджа находят мёртвым, и тогда стадо, проникшееся детективными сюжетами, решает взять расследование на себя.Производство: Ирландия, Великобритания, Германия, США / Amazon MGM Studios, Lord Miller, Three Strange AngelsЖанр: детектив, комедия, фэнтезиРежиссер: Кайл БалдаАктеры: Хью Джекман, Хонг Чау, Эмма Томпсон, Брайан Крэнстон, Молли Гордон, Бретт Голдстин, Николас Галицин, Белла Рэмзи, Реджина Холл, Патрик СтюартПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BF54F15AC75837702A679A1A4D523BCE6E640F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868926   (1067872) от 03.05.2026
 
 Формула 1. Сезон 2026. Этап 4. Гран-при Майами. Спринт (02.05.2026) WEBRip [H.264/720p] [50fps] F1TV
@@ -278,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067872.jpg" />
 </div>
 
 
@@ -304,7 +32,7 @@ VA - The Best Classical Instrumental Music (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067871.jpg" />
 </div>
 
 
@@ -332,7 +60,7 @@ Topaz Photo Pro 1.5.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067870.jpg" />
 </div>
 
 
@@ -358,7 +86,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v31 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067869.jpg" />
 </div>
 
 
@@ -387,7 +115,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v31 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067868.jpg" />
 </div>
 
 
@@ -416,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067867.jpg" />
 </div>
 
 
@@ -442,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067866.jpg" />
 </div>
 
 
@@ -460,35 +188,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869025   (1067865) от 03.05.2026
-
-Иван Шевцов | Промтинг от новичка до мастера. Практическое руководство с упражнениями (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-«Эта книга выросла из практики.
-Из сотен часов экспериментов с разными моделями, из успешных кейсов и громких провалов, из необходимости объяснять коллегам и клиентам,
-почему «просто спросить» недостаточно. Я написал её для тех, кто хочет перейти к осознанному управлению нейросетями.
-Внутри вы найдете:(   Читать дальше...   )Жанр: Нон-фикшн. Научно-популярная литература. IT-литература. Прикладное руководство.Издательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4714652D4A86896EEA351F5C7B2921676DE4B6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868727   (1067864) от 03.05.2026
 
 Большая прогулка / La Grande Vadrouille (1966) BDRip [H.264/1080p]
@@ -497,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067864.jpg" />
 </div>
 
 
@@ -523,7 +222,7 @@ Diamond Cut Forensics Audio Laboratory 11.09 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067863.jpg" />
 </div>
 
 
@@ -549,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067862.jpg" />
 </div>
 
 
@@ -575,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067861.jpg" />
 </div>
 
 
@@ -601,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Переходы, фоны и оверлеи (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067859.jpg" />
 </div>
 
 
@@ -627,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пресеты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067858.jpg" />
 </div>
 
 
@@ -653,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067857.jpg" />
 </div>
 
 
@@ -679,7 +378,7 @@ FlatOut (2004) [Multi] (1.01 Build 14940243) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067856.jpg" />
 </div>
 
 
@@ -690,6 +389,312 @@ FlatOut - динамичная гоночная аркада с видом от 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01BB6E6AB6D45A5CC9919202AC68FB7CD842F7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869065   (1067855) от 03.05.2026
+
+FlatOut 2 (2006) [Multi] (1.2) Scene TiNYiSO [Enhanced Edition]
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взяв все самые лучшие элементы из первой части игры и усовершенствовав их, разработчики превратили FlatOut 2 в самые разрушительные автогонки на свете. Гоночные трассы напичканы тысячами интерактивных зон, динамическими объектами, а также рискованными, но эффективными альтернативными маршрутами. Эта игра поощряет агрессивный стиль вождения! Проявлять агрессию придется (   Читать дальше...   )Тип издания: SceneРазработчик: Bugbear EntertainmentЖанр: ГонкиЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCCC8BBA672D4DAA508FC7CA937A5EC5A4883FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869055   (1067854) от 03.05.2026
+
+Пэм Гроут | Курс исполнения желаний. 365 практик для перезагрузки мышления и достижения своих целей (2024) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067854.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вы только подумали, а уже исполнилось!» – так работает курс исполнения желаний от эксперта по трансформации сознания Пэм Гроут. В своей книге она предлагает 365 вдохновляющих уроков для тех, кто хочет, чтобы мечты исполнялись, а цели достигались.
+Авторский курс стартовал почти 40 лет назад и уже разлетелся миллионом экземпляров по всему миру. И если вы готовы легко (   Читать дальше...   )Жанр: Саморазвитие / личностный ростПеревод: А. ПитизинИздательство: БомбораФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0321B25206D0915CCC706AE063FF5634179F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869074   (1067853) от 03.05.2026
+
+Хулиганы 3 / Green Street 3: Never Back Down (2013) BDRip [H.265/1080p] [10-bit] [hand made AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэнни Харви дрался всю свою жизнь: сначала на спортплощадке, потом на футбольном поле, а впоследствии — во главе фанатской группировки под названием «Элита Зелёной Улицы».
+Четырнадцать лет назад Дэнни отошёл от футбольного насилия и направил своё умение драться в другое русло — в мир смешанных единоборств. Он управляет тренировочным залом для бойцов, одним из самых (   Читать дальше...   )Производство: Великобритания / Creativity Media, Tea Shop & Film CompanyЖанр: боевик, драма, криминалРежиссер: Джеймс НаннАктеры: Скотт Эдкинс, Кейси Барнфилд, Джои Анса, Джек Дулан, Джош Майерс, Марк Уингетт, Роберта Тейлор, Спенсер Уайлдинг, Джордж Руссо, Билли КукПеревод: Многоголосый (online movies)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46EC1AA647445493BC3EBE95C35C6D49197161A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869080   (1067852) от 03.05.2026
+
+VA - Balearic Guitar Nights, Vol. 1 (2026) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol, Karmaloft - Let's Be Friends (Acoustic Version) (2:15)
+02. Stefano Sandrini - Beach Guitars (2:49)
+03. Hernand Rodriguez - Você Não Está Mais Comigo (2:58)
+04. Weber & Weber - Generations (5:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DA3A66FE9FB72655AE152FB573858955AF7677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869081   (1067851) от 03.05.2026
+
+Геракл: Начало легенды / The Legend of Hercules (2014) BDRip [H.265/1080p] [10-bit] [hand made AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067851.jpg" />
+</div>
+
+
+###  Подробнее
+
+1200 г. до н.э. Древняя Греция. Прекрасная царица Алкмена попала под чары грозного бога Олимпа - Зевса и родила ему сына Геракла. При рождении ему было предсказано стать величайшим воином, который будет властвовать над народами и принесет мир и процветание своей стране. Но пока Геракл ничего не знает о своем предназначении. Он вырос прекрасным и сильным юношей. Он (   Читать дальше...   )Производство: США, Болгария / Millennium FilmsЖанр: боевик, фэнтезиРежиссер: Ренни ХарлинАктеры: Келлан Латс, Скотт Эдкинс, Лиам Макинтайр, Гайя Уайсс, Лиам Гэрриган, Роксанна Макки, Раде Шербеджия, Джонатон Шек, Люк Ньюберри, Кеннет КрэнэмПеревод: Дублированный (СинеЛаб СаундМикс, HDfilmcehennemi), многоголосый (Kinoteatr TV)Язык озвучки: Русский, турецкий, узбекский, английскийСубтитры: АнглийскиеПродолжительность: 01:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CA5FC6D2BFE7D8640E9029A7A0307129F5F240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869082   (1067850) от 04.05.2026
+
+Любимая ученица Вивальди / Primavera (2025) WEB-DL [H.264/720p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало XVIII века, Оспедале-делла-Пьета. Талантливая скрипачка Чечилия воспитывается в приюте, куда приезжает новый преподаватель по скрипке Антонио Вивальди. Под его наставничеством девушка обретает смелость изменить судьбу и следовать своей мечте.Производство: Италия, Франция / Warner Bros. Pictures, Diaphana Films, Indigo FilmЖанр: драма, биография, музыкаРежиссер: Дамиано МикелеттоАктеры: Микеле Риондино, Текла Инзолия, Фабриция Сакки, Андреа Пеннакки, Валентина Белле, Стефано Аккорси, Hildegard De Stefano, Мико Джерри, Cosima Centurioni, Федерика ЖирарделлоПеревод: Дублированный (КиноПоиск HD)Язык озвучки: Русский, ИтальянскийСубтитры: английские, итальянские (full, SDH)Продолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C5AC85E8064ECFF288835FAC2D932BE9D0266A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869071   (1067849) от 03.05.2026
+
+VA - Ibiza House Spring 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diplodog - My Sunshine 02:26
+02. Leventino - Crazy Crazy 02:34
+03. Sonya Bexter - My Sunshine (Extended Mix) 03:33
+04. Pleasure Disco - I Wanna Run Away 02:55(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A87735651B282CF990E63CAB719B24CBB37147F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868531   (1067848) от 03.05.2026
+
+VA - Moonraker - Volume 2 (1995) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Industrial, Synth-pop, EBM>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067848.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-1	Spahn Ranch–	Heretics Fork 4:43
+1-2	Front Line Assembly–	Millenium 6:12
+1-3	Cubanate–	Hatesong 4:45
+1-4	Suicide Commando–	Revenge 4:54(   Читать дальше...   )Жанр: Industrial, Synth-pop, EBMПродолжительность: 02:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB0119C62A81AA9D906BC6A2ABC9DCE37B6E06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869038   (1067847) от 03.05.2026
+
+VA - Time Of Rock & Metal от ALEXnROCK Part 2 (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Europe - All Or Nothing
+02. Suicidal Tendencies - Send Me Your Money
+03. Skid Row - Get The Fuck Out
+04. Nickelback - Lullaby(   Читать дальше...   )Жанр: RockПродолжительность: 04:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C1D33204EE49736204C6397251E92CCFB0BF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869045   (1067846) от 03.05.2026
+
+VA - Dream Dance - Lost Trance Classics (2009) 2 x CD, Compilation [FLAC|Lossless|tracks] <Trance, Euro House, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067846.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-1	Chicane feat. Moya Brennan–	Saltwater 3:21
+2-2	Armin van Buuren feat. Justine Suissa–	Burned With Desire (Rising Star Edit) 2:59
+2-3	ATB–	Believe In Me	3:14
+2-4	Above & Beyond–	Can't Sleep	3:14(   Читать дальше...   )Жанр: Trance, Euro House, Progressive TranceПродолжительность: 02:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0DC527FE896DCBE0CCFA846C764268D7ABAB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869060   (1067845) от 03.05.2026
+
+VA - Dream Dance - Best Of 15 Years (2011) 2 x CD, Compilation [FLAC|Lossless|tracks] <Trance, Euro House, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067845.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-01	Safri Duo–	Played -A- Live (The Bongo Song) (Radio Cut)	3:17
+2-02	Sash! Feat. Rodriguez–	Ecuador (Single Mix) 3:31
+2-03	Brooklyn Bounce–	Bass, Beats & Melody (Album Version)	3:40
+2-04	Charly Lownoise & Mental Theo Present Starsplash–	Wonderful Days (2001 Radio Edit) 3:14(   Читать дальше...   )Жанр: Trance, Euro House, Progressive TranceПродолжительность: 02:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56280B5EBBFAEF8238F5AE562E0CDE4CCCB93A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

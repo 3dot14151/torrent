@@ -6,7 +6,7 @@ Walkure Romanze / Романс Валькирий [2013, TV, 12 ep] BDRip Hi10p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697467.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696643.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ryuuou no Oshigoto! / The Ryuo's Work is Never Done! / Работёнка для
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696621.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Dagashi Kashi 2 / Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696366.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Hataraku Onii-san! / Коты-Работяги! [2018, TV, 13 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696364.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696360.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Killing Bites / Смертельный укус [2018, TV, 12 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696358.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696354.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Koi wa Ameagari no You ni / After the Rain / Любовь - словно про�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696352.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзю
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696346.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696344.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694658.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694652.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sora Yori mo Tooi Basho / A Place Further Than the Universe / Место, что
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694650.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13 ep] WEB-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694648.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Overlord II / Повелитель 2 [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694644.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Sanrio Danshi / Sanrio Boys / Парни из «Санрио» [2018, TV, 12 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692893.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] BDRip 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691997.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 ep] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690243.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_688705.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Naruto: Shippuuden / Наруто: Ураганные хроники [2007, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687030.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Gakusen Toshi Asterisk / The Asterisk War / Боевая академия гор
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685766.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Evangelion: 2.22 You Can (Not) Advance / Евангелион 2.22: Ты (Не) 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674946.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671566.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Big Order / Приказ свыше [2016, TV, 10] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671564.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671556.jpg" />
 </div>
 
 

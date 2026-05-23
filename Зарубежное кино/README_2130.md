@@ -1,55 +1,3 @@
-###  Публикация: 1731284   (52677) от 20.06.2024
-
-Я не боюсь / Io non ho paura / I'm Not Scared (2003) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сценарий основан на одноимённом романе Никколо Амманити (2001)... Действие происходит в Италии в 1970-е годы, пронизанные терроризмом и похищениями людей, и рассказывает историю девятилетнего мальчика, который обнаруживает ужасное преступление, совершенное жителями его городка...Производство: Италия, Испания, Великобритания / Alquimia Cinema S.A., Cattleya, Colorado Film Production...Жанр: драма, криминал, детектив, триллерРежиссер: Габриэле СальваторесАктеры: Джузеппе Кристьяно, Маттиа Ди Пьерро, Адриана Консерва, Фабио Тетта, Джулия Маттуро, Стефано Биасе, Фабио Антоначчи, Айтана Санчес-Хихон, Дино Аббрешия, Джорджо КареччаПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английские хардсабыПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7537888B42A01AA2C8D92D2233F474BD74F30BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731306   (52675) от 20.06.2024
-
-Проклятая мелодия / Hwaiteu: Jeojooui Mellodi / White: The Melody of the Curse (2011) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Начинающая поп-группа Pink Dolls выпускает второй альбом с ремиксом на песню неизвестных авторов под названием «White». Эта композиция моментально покоряет публику и приносит коллективу долгожданную популярность. Казалось бы, мечта девушек стала реальностью, но успех нового альбома становится причиной обострения конкуренции между участницами. Каждая хочет стать ведущей (   Читать дальше...   )Производство: Южная Корея / Doo EntertainmentЖанр: ужасы, музыкаРежиссер: Ким Гок, Ким СонАктеры: Хам Ын-джон, Хвану Сыль-хе, Майдони, Чхве А-ра, Чин Сэ-ён, Пён Джон-су, Ким Ён-мин, Ким Ги-бан, Ли Джун-хо, Пак Чин-суПеревод: Одноголосый любительский (den904)Язык озвучки: русский, корейскийСубтитры: русские (ФСГ "Мания"), английскиеПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE12C83FED68DE348297D3F9C81EC4F95F684BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731363   (52667) от 20.06.2024
 
 Формула популярности / Popular Theory (2023) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52667.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52662.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52659.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52658.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52656.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52649.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52645.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52640.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52625.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52611.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52609.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52607.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52594.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52593.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52592.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52570.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52556.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52541.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52536.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52535.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52533.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52528.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52527.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52525.jpg" />
 </div>
 
 
@@ -668,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC666CB0B345A0FEEFA2223F8955578F5843652E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731695   (52524) от 22.06.2024
+
+Девушка Миллера / Miller's Girl (2024) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каиро - одаренная 18-летняя студентка литературного курса. Ее учитель, профессор Джонатан Миллер, видит в девушке большой потенциал и дает ей задание написать рассказ в стиле ее любимого автора. Постепенно их отношения становятся все более запутанными, а границы личного - размытыми. Мистер Миллер чувствует, что его карьера, а с ней и вся жизнь, вот-вот окажется под (   Читать дальше...   )Производство: США / Good Universe, Lions Gate Films, Point Grey PicturesЖанр: драма, комедияРежиссер: Джейд БартлеттАктеры: Мартин Фриман, Дженна Ортега, Башир Салахуддин, Гидеон Адлон, Дагмара Доминчик, Кристин Адамс, Августин Харгрейв, Элисса Самсел, Рэй Фоули, Трэйс ХэйнсПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: Русские (18+), английские - отдельноПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCFB619D3577EABC3E9CC36A55D7E45BC849CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512316   (52521) от 22.06.2024
+
+Черепашки-ниндзя 3: Черепашки во времени / Teenage Mutant Ninja Turtles III: Turtles in Time (1993) BDRemux [VC-1/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйприл где-то на распродаже купила Сплинтеру старинный японский скипетр, и ещё всяких других подарков для своих друзей черепашек. Как выяснилось, этот скипетр — не просто обычный антиквариат, а прообраз машины времени. Но он работает только в том случае, когда вес путешественников во времени одинаков с обоих сторон.
+Так случилось, что скипетр перенес Эйприл в феодальную (   Читать дальше...   )Производство: США, Гонконг, New Line CinemaЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Стюарт ГиллардАктеры: Элиас Котеас, Пейдж Турко, Стюарт Уилсон, Саб Симоно, Вивиан У, Марк Казо, Мэтт Хилл, Джим Рапоса, Дэвид Фрайзер, Джеймс МюррэйПеревод: Многоголосый профессиональный (20-й век Фокс),  Авторский (Юрий Живов)Язык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6CCA9D2C06270264CF1F7C529F205A7F057F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

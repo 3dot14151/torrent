@@ -6,7 +6,7 @@ Adventures of Robin Hood [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251167.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250951.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250642.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249235.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249201.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Angry Birds Space {1.1.0} (L) [En] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248937.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248640.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248357.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Nancy Drew: Tomb of the Lost Queen [En] (RePack) 2012 | R.G ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248347.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248274.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Bram Stoker's Dracula [En] (RePack) 1993 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248257.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Elf [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248176.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Resident Evil: Operation Raccoon [Multi8\+] 2012 | SHARINGAN [Lossless RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248075.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ MariaRo Ragnarok-Online Renewal (P) [En/Ru] 2002 (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248064.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Street Fighter x Tekken [Ru] (RePack) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248052.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Smashing Toys [Ru] (P) 2009
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248020.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.237.6/dlc) Repack R.G. Меха
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226736.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Sker Ritual (2022) [En] (0.1.3/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225959.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Baldur's Gate Enhanced Edition [En] (RePack/1.0) 2012 | R.G ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225441.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Castle Crashers [En] (RePack/1.0/2DLC) 2012 | Luminous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225319.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Fragoria (2007) [Ru] (3.3.1019) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224866.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Aion: Эра Льда (2009) [Ru/En] (4.9.0715.39) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223126.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Kane & Lynch 2: Dog Days [Ru/En] (L) 2010 2xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222730.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Angry Birds Seasons [En] (L/3.1.1) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222598.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Cartel Tycoon (2021) [Ru/Multi] (0.9.3.2368/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221641.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ art of rally (2020) [Ru/Multi] (1.3.3a) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221602.jpg" />
 </div>
 
 

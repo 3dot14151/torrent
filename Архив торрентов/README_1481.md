@@ -6,7 +6,7 @@ Loaris Trojan Remover 3.0.80.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716671.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Data Recovery 4.13.217 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716670.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual C++ 2017 Redistributable 14.20.27404.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716668.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ M.i.k.e. Push - From Beyond (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716663.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ TaskPaper 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716662.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Serial Box 05-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716657.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Multitouch 1.26.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716643.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Movavi Slideshow Maker 5.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716567.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ PopChar 8.4.0.2932 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716566.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Pano2VR Pro 6.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716564.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716563.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dungeon of the Endless (2014) [Ru/Multi] (1.0.63/4dlc) Repack R.G. Механи�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716548.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Total Commander 8.51a LitePack | PowerPack | ExtremePack 2015.4 Final + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716530.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Tipard All Music Converter 3.8.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716524.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Alison Krauss - I've Got That Old Feeling (1990) [FLAC|Lossless|tracks + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716519.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Drop - Color Picker 1.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716517.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Opera GX 83.0.4254.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716505.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ K-Lite Codec Pack Update 16.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716502.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Firefox Browser 97.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716496.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Omni Recover 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716495.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Avira Phantom VPN Pro 2.19.3.24127 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716441.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Screaming Frog SEO Spider Tool 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716433.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 28.02.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716429.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716415.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ oCam 391.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716411.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Process Lasso Pro 9.0.0.326 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716409.jpg" />
 </div>
 
 

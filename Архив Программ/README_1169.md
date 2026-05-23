@@ -6,7 +6,7 @@ Vidiot 0.3.27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450511.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio 8.11 Build 175337 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450502.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Thunderbird 45.4.0 Portable by Fossyara [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450498.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SQL Dynamite 2.1.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450494.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Soft4Boost Document Converter 5.0.3.623 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450465.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Air Live Drive Pro 1.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450450.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MusicBee  + Portable 3.2.6827 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450445.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ESET Online Scanner 2.0.22.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450442.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Universal Extractor by gora 1.6.1.64 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450428.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VueScan Pro 9.1.16 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450420.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Malwarebytes AdwCleaner 7.4.1.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450384.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AIMP 4.11 Build 1841 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450367.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ GPU-Z 2.3.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450352.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Maxthon Browser 5.1.2.100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450351.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Telegram Desktop 1.1.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450348.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ SlimBrowser 8.00 Build 004 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450343.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SQL Dynamite 2.1.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450342.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ PreSonus - Studio One 4 Professional 4.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450332.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ WinX HD Video Converter Deluxe v3.12.3 build 20120918 Final [Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450291.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Bigasoft Total Video Converter 3.7.16.4643 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450290.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ AIDA64 Extreme Edition / Business Edition 2.60.2135 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450282.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Internet Download Manager 6.35 Build 3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450256.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WM Capture 8.7.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450242.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wondershare Data Recovery 6.2.1.3 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450229.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ XnView 2.46 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450181.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Total Commander 8.01 Final [MAX-Pack 2012.9.5] AiO-Smart-SFX [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450172.jpg" />
 </div>
 
 

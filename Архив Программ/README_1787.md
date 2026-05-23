@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190273.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AIMP 5.10 Build 2411 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190262.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Glary Utilities Pro 5.197.0.226 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190256.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 10 Manager 3.7.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190254.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Telegram Desktop 4.3.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190248.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Skype 8.90.0.407 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190246.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Transcend SSD Scope 4.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190244.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190238.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ GPU Shark 0.27.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190237.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ WSCC (Windows System Control Center) 7.0.5.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190228.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft PowerToys 0.64.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190212.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wise Care 365 Pro 6.3.9.617 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190208.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Bootstrap Studio 6.2.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190206.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ NoMachine 8.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190189.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Icecream PDF Editor PRO 2.63 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190187.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Notepad++ 8.4.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190181.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Microsoft .NET 7.0.0 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190173.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Google Chrome 107.0.5304.107 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190171.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ RJ TextEd 15.94.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190161.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Windows 10 Manager 3.7.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190159.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Abelssoft SSD Fresh Plus 2022 11.11.42432 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190145.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Phase One Capture One 23 Enterprise 16.0.0.143 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190141.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Wondershare UniConverter 14.1.4.99 (х64) Repack by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190140.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AIDA64 Extreme Edition  6.80.6210 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190128.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2251]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190111.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 09.11.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190110.jpg" />
 </div>
 
 

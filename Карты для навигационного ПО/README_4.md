@@ -6,7 +6,7 @@ Garmin: City Navigator Taiwan 2015.40 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141367.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141336.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ City Navigator Thailand NT 2017.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137990.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ OZI: Карта Нижегородской области ТОПО 20xx год [
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123962.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Garmin: City Navigator Thailand NT 2023.40 Globetech [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119155.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Garmin: City Navigator Taiwan NT 2023.30 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119111.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Garmin: Topo Active South America 2023.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118982.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Garmin: TOPO Active Russia v.5.00 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116131.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78875.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Garmin: City Navigator Thailand NT 2024.40 Globetech (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69953.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Garmin: TopoActive Europe 2024.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55556.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54303.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Garmin: TOPO Great Britain v3 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30424.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Garmin: City Navigator Europe NTU 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19251.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Garmin: City Navigator North America NT 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17093.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Navitel / Навител: Официальные карты релиза Q3 2025
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9924.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Garmin: Дороги России Топо 6.49 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1339.jpg" />
 </div>
 
 

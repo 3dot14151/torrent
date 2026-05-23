@@ -6,7 +6,7 @@ Windows 11 Manager 1.1.5 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354647.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TweakPower 2.025 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354644.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Reg Organizer 6.0 Beta 2 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354638.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Advanced Tokens Manager 3.5 RC 2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354635.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Intel Chipset Software Installation Utility 9.3.0.1026 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354633.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ MSI Afterburner v2.3.0 Final [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354630.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Alternate File Shredder 2.040 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354547.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Soft4Boost Document Converter 4.6.5.439 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354542.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ TagScanner 6.0.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354534.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354506.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Run-Command 5.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354501.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Nox App Player 7.0.3.6001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354500.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Display Driver Uninstaller 18.0.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354497.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ NuSphere PhpED Professional 7.0 build-7019 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354490.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ JMG Sound - Hyperspace 1.4  VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354435.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Assassin's Creed 3 [Ru] (Rip/1.01) 2012 l Fromsoul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354334.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Opera 63.0.3368.107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354316.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Calibre 4.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354305.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Spotify 1.1.93.896 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354303.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ WifiInfoView 2.77 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354300.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ CyberLink PowerDirector Ultimate 21.0.2116.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354290.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ uTorrent Pro 3.5.5 Build 46514 Stable RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354288.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Kodi 19.4 (Matrix) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354284.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ KLS Backup 2015 Professional 8.4.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354258.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ DevID Agent 4.29 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354255.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ XeroWeight Flashback 2.0.0.703 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354244.jpg" />
 </div>
 
 

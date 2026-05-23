@@ -6,7 +6,7 @@ Win7codecs 3.9.4 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999694.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ GoodSync Enterprise 9.4.1.5 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999639.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Windows 8 Codecs 1.37 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999608.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Harry Frank's Weddings for Trapcode Suite [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999549.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ PrivaZer 1.6 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999548.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Skype 6.0.0.126 Final [Multi/Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999541.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ David Vinson's Super Rays for Shine 1.0.1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999539.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Realtek High Definition Audio Driver R3.60 (6.0.1.6802+6.0.1.6782 XP) [Multi/Р�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999519.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AntiWinLocker LiveCD 4.0.7 Lite [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999511.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Connectify Dispatch 4.0.0.25875 (Includes Connectify Hotspot PRO) [Англий�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999498.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999472.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ SUMo 3.4.17.192 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999383.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Wise Care 365 Pro 2.17 Build 168 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999332.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FEBE 7.1.0. russian locale by ©Kopejkin [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999308.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Tor Browser Bundle 2.3.25-2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999283.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Acoustica Mixcraft 6.1 Build 204 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999259.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Advego Plagiatus 1.2.0.93 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999220.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Multi Flash Kit v.3.1.6 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999210.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FreeFileSync 5.11 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999168.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ WinISO Standard 6.3.0.4754 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999164.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Mojosoft BusinessCards MX v.4.76 Update [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999161.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wise Care 365 Pro 2.17 Build 168 Portable by Valx [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999146.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PGWare PCBoost 4.1.7.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999133.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ streamWriter 4.3.02 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999115.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NXPowerLite Desktop Edition 5.0.8 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999104.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999099.jpg" />
 </div>
 
 

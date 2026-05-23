@@ -1,55 +1,3 @@
-###  Публикация: 988561   (918109) от 21.02.2016
-
-Кэрол / Carol (2015) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о сложных взаимоотношениях двух женщин, живущих в Нью-Йорке 50-х годов. Одна из них — совсем молоденькая продавщица, мечтающая о большем, а другая — замужняя дама, страдающая от отсутствия любви.Производство: Великобритания, США, ФранцияЖанр: МелодрамаРежиссер: Тодд ХейнсАктеры: Кейт Бланшетт, Руни Мара, Кайл Чандлер, Джейк Лэси, Сара Полсон, Джон Магаро, Кори Майкл Смит, Кевин Краули, Ник Паич, Кэрри БраунштейнПеревод: Двухголосый закадровый, любительскийОзвучка / Автор перевода: Parovoz ProductionЯзык субтитров: английскийПродолжительность: 01:57:57Реклама: удалил две вставки рекламы казино
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AD8E3F5E03DEA3DD8D242D851546482EEAD921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864156   (918053) от 30.01.2015
-
-Беспокойная Анна / Caótica Ana (2007) HDTVRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Анна — восемнадцатилетняя художница, живущая со своим отцом в пещере на острове Ибицы. Однажды её талант открывает англичанка Жюстина и предлагает ей переехать в Мадрид, где Анна обнаруживает у себя ещё один дар: она хранит воспоминания разных девушек, живших в разное время, но одинаково умерших в двадцать два года.Производство: ИспанияЖанр: драмаРежиссер: Хулио МедемАктеры: Мануэла Веллес, Шарлотта Рэмплинг, Бебе Реболледо, Асьер Ньюман, Николя Казаль, Рауль Пенья и др.Перевод: Многоголосый закадровый x2Язык субтитров: русские, английские, испанскиеПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898ED6A415218A8A5ED89C28978AA9810C9457FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 863819   (918038) от 30.01.2015
 
 Милые кости / The Lovely Bones (2009) BDRip [720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918038.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918013.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917948.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917945.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917925.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917907.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917825.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917715.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917503.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917468.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917404.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917401.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917392.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917370.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917367.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917361.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917346.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917339.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917299.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917266.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917226.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917205.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917185.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ Va-банк / Runner Runner (2013) BDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917081.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ Va-банк / Runner Runner (2013) BDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EDB7AAB05B21066F7F8269AF5FF319BCFEFC20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757507   (917080) от 16.02.2014
+
+Олдбой / Oldboy (2013) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о рекламщике, которого некто похитил и 20 лет продержал в одиночной камере, никак не объясняя своих мотивов. Столь же неожиданно получив однажды свободу, он решает разыскать того, кто организовал его похищение, и обнаруживает, что неизвестный злодей продолжает мучить его загадками. Погоня за местью приводит его к юной социальной работнице и некоему (   Читать дальше...   )Производство: США | Good Universe, Vertigo Entertainment, 40 Acres & A Mule FilmworksЖанр: Триллер, Драма, Детектив, БоевикРежиссер: Спайк ЛиАктеры: Джош Бролин, Элизабет Олсен, Шарлто Копли, Сэмюэл Л. Джексон, Майкл Империоли, Пом Клементьефф, Джеймс Рэнсон, Макс Казелла, Линда Эмонд, Элвис Ноласко, Рами Малек, Лэнс Реддик, Ханна Уэр ...Перевод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC9742E37373651994401DEAD1A05648A45CE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096820   (917062) от 25.01.2017
+
+Заложница / Taken (2008) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший секретный агент, а ныне одинокий неудачник, Брайан вынужден уступить напору экс-жены и дать согласие на поездку семнадцатилетней дочери в Европу на каникулы. Наивную девочку, а так же её подругу похищают албанские бандиты и собираются продать в рабство арабам. Взволнованный отец тут же едет во Францию, чтобы в одиночку спасти дочь...Производство: Франция, США, Великобритания / All Pictures Media, Canal+Жанр: Боевик, ТриллерРежиссер: Пьер МорельАктеры: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Оливье Рабурден, Лиленд Орсер, Ксандер Беркли, Холли Вэлэнс, Джон Грайз, Дэвид Уоршофски, Жерар Уоткинс, Кэти Кэссиди, Марк АмиоПеревод: Дублированный (Лицензия)Субтитры: отсутствуютПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DEE34F3244ED6496C95CF79EBA6D42ADCA4EAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

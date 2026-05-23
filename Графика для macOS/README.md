@@ -7,7 +7,7 @@ Adobe Lightroom Classic 15.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062918.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Comic Life 3 v.3.5.24 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045494.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ PhotoBulk: watermark in batch 2.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045492.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ DxO PureRAW 2 for Mac v.2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045484.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ DxO FilmPack 6 ELITE Edition v.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045480.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Memory Pictures 2.2.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045431.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ TurboMosaic Pro 3.6.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044985.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ FrameMagic - Collage Maker Pro 3.7.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044748.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ zGallery – Image Viewer 4.61 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043856.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Icon Maker Pro for Mac 2.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043565.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Luminar Neo 1.6.4 ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043445.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Luminar Neo 1.6.4 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043434.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Photomatix Pro 7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043373.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ TechSmith Snagit 2021.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042033.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ WidsMob Panorama 3.21 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042028.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Splash n Recolor 3.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041741.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ WidsMob Montage 1.18 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041502.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hydra 4.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040185.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Design Your Collage 1.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039953.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Liquivid Video Improve 2.8.3 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039645.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Nebulosity 4.4.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038319.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Drop - Color Picker 1.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038294.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ EXIF Cleaner PRO 3.0.0 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037790.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ CorelCAD 2021 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037472.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ WidsMob Viewer Pro 1.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037193.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Zerene Stacker Pro 1.04 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036569.jpg" />
 </div>
 
 

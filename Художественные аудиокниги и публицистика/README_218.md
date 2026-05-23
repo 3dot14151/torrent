@@ -1,60 +1,3 @@
-###  Публикация: 1491877   (907044) от 27.08.2021
-
-Макс Фрай | «Сказки старого Вильнюса» (Книга 2). Сказки старого Вильнюса II (2021) [MP3, Владимир Овуор]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Сборник фантастических рассказов, разворачивающихся на улицах Старого Города в Вильнюсе.
-
-В Старом Городе Вильнюса 108 улиц, и на каждой что-нибудь да происходит. Здесь бродят пингвины, единороги, нарисованные коты и тени наших мертвых друзей, полиция всегда готова защитить граждан от страшных снов, неведомые голоса дают ответы на самые важные вопросы, скучные с (   Читать дальше...   )Жанр: Городское фэнтезиПродолжительность: 10:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6642332C3A45F7613C0D598A7A261865158DF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098610   (906901) от 31.01.2017
-
-Аркадий Аверченко и др. | Игорный дом Радио России (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Инсценированные рассказы Игорного дома Радио России.
-Музыкальный редактор — Вера Александрова
-Автор сценария — Александр Кукес
-Режиссёр — Владимир Шведов(   Читать дальше...   )Жанр: РассказыПродолжительность: 06:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA85C4A39193F5CBA4A1B49956D876B7AC883563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098805   (906860) от 31.01.2017
 
 Пола Хокинс | Девушка в поезде (2017) [MP3]
@@ -63,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906860.jpg" />
 </div>
 
 
@@ -89,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906858.jpg" />
 </div>
 
 
@@ -115,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906600.jpg" />
 </div>
 
 
@@ -141,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906550.jpg" />
 </div>
 
 
@@ -167,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906458.jpg" />
 </div>
 
 
@@ -193,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906435.jpg" />
 </div>
 
 
@@ -222,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906420.jpg" />
 </div>
 
 
@@ -249,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906416.jpg" />
 </div>
 
 
@@ -275,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906307.jpg" />
 </div>
 
 
@@ -302,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906304.jpg" />
 </div>
 
 
@@ -328,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906253.jpg" />
 </div>
 
 
@@ -354,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906191.jpg" />
 </div>
 
 
@@ -380,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906188.jpg" />
 </div>
 
 
@@ -408,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906178.jpg" />
 </div>
 
 
@@ -434,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906064.jpg" />
 </div>
 
 
@@ -462,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905997.jpg" />
 </div>
 
 
@@ -488,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905992.jpg" />
 </div>
 
 
@@ -514,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905907.jpg" />
 </div>
 
 
@@ -540,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905906.jpg" />
 </div>
 
 
@@ -566,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905845.jpg" />
 </div>
 
 
@@ -592,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905683.jpg" />
 </div>
 
 
@@ -619,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905595.jpg" />
 </div>
 
 
@@ -646,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905594.jpg" />
 </div>
 
 
@@ -673,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905579.jpg" />
 </div>
 
 
@@ -684,6 +627,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7DB3ABF637D3A829BCAB22E2697C58815F2061F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369173   (905575) от 22.03.2020
+
+Юхан Теорин | Призрак кургана (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905575.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о призраке древнего кургана начинается в море. Мальчик Юнас, который приехал погостить к родственникам на остров, ночью отправляется кататься на лодке, и его глазам предстает ужасное зрелище. Непроглядная тьма внезапно сгустилась и приняла смутные очертания корабля. Дымный силуэт стремительно приближался и рос. Юнас не успел откинуть в сторону лодку. Корабль-призрак (   Читать дальше...   )Жанр: Зарубежные детективы, триллерыПродолжительность: 18:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4691537EA671D802C40DA2EDA307D17ABE0E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369108   (905551) от 22.03.2020
+
+Алексей Новиков-Прибой | Солёная купель (1969) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905551.jpg" />
+</div>
+
+
+###  Подробнее
+
+В порту Буэнос-Айреса матросы напоили пастора Себастьяна Лутатини, и он подписал контракт о работе. Придя в себя, Лутатини обнаружил, что находится на корабле в открытом море. Так католический священник стал простым матросом и узнал как выглядит жизнь за пределами ворот костёла...Жанр: Приключения. ДрамаВ ролях: Андрей Миронов, Нина Гуляева, Юрий Пузырёв, Рогволд СуховеркоПродолжительность: 01:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C1118731FA545036ECCE08AD12C220F911E500
 ```
 
 https://mybot314.ru/tekegram_catalog/

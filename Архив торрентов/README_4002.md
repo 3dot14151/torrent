@@ -6,7 +6,7 @@ Bootstrap Studio 6.2.0 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FinePrint Software (FinePrint 11.30 / pdfFactory Pro 8.30) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ YT Downloader 7.17.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192041.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ O&O Defrag Professional / Server 26.1 Build 7708 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192040.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Pale Moon 31.3.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192039.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ YouTube ReVanced Extended 18.34.38 (RVP v2.190.0) Mod by YT-Advanced + mMicro G 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192036.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192032.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ StartAllBack 3.6.12 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192029.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wolfram Mathematica 13.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192027.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cyberduck 8.5.0 Build 38556 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192018.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192014.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Disk Drill 5.3.826 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192013.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MEmu 8.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192012.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Total Commander 11.01 Extended 23.9 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192011.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Viber 18.8.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192010.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Google Earth Pro 7.3.6.9277 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192001.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191978.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AIDA64 Extreme Edition  6.80.6204 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191966.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ LDPlayer 9.0.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191964.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Stellarium 1.1.1 (0.22.4.0-1.22.4.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191962.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VueScan Pro 9.7.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191958.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Aiseesoft PDF Converter Ultimate 3.3.52 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191948.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Wondershare PDFelement 9.1.5.1975 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191945.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ WhatsApp 2.2241.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191922.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Ableton - Live Suite 11.2.6 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191917.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Speedtest от Ookla 5.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191914.jpg" />
 </div>
 
 

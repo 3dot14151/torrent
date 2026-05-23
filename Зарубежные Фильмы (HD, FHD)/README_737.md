@@ -1,55 +1,3 @@
-###  Публикация: 1336942   (275891) от 09.11.2019
-
-Иди домой / Go Home - A casa loro (2018) BDRip [H.264/1080p-LQ] [VO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На Ближнем Востоке разворачивается кровопролитная война. Местные жители, не способные защитить себя и обеспечить безопасность близким, решают покинуть родную обитель и отправиться в поисках лучшей жизни в чужие города. Полчища беженцев отправились в Европу, в частности Рим. Здесь для них были созданы специальные лагеря для временного проживания. Однако коренным жителям (   Читать дальше...   )Производство: Италия, Baburka Production, Cocoon srls, CSA IntifadaЖанр: ужасыРежиссер: Luna GualanoАктеры: Antonio Bannò, Сиди Диоп, Шик Дауда, Cyril Dorand Domche Nzeugang, Pape Momar Diop, Awa Koundoul, Wajeeh Jaber, Mounis Firwana, Карло Каприоли, Annabella CalabreseПеревод: Одноголосый любительский (datynet) - ненормативная лексикаСубтитры: ОтсутствуютПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D0574C4F8763F16C2D0319E3A3A9847D1A2B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850692   (275889) от 16.12.2014
-
-Великий уравнитель / The Equalizer (2014) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роберт МакКолл — бывший спецназовец. После увольнения со службы он собирается начать нормальную мирную жизнь, дав себе обещание, больше никогда не брать в руки оружия. Но в один прекрасный момент он встречает молодую девушку, зарабатывающую на жизнь проституцией, которую на его глазах избивают бандиты и увозят в неизвестном направлении. Тогда он решает отыскать ее, (   Читать дальше...   )Производство: США | Columbia Pictures, Escape Artists, Lionsgate, Lonetree EntertainmentЖанр: Боевик, Криминал, ТриллерРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Мартон Чокаш, Хлоя Грейс Морец, Дэвид Харбор, Хейли Беннетт, Билл Пуллман, Мелисса Лео, Дэвид Мюнье, Джонни Скуртис, Алекс ВидовПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4C42E2009B665430AF3A792325FABC4EF6BF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337068   (275841) от 09.11.2019
 
 Меня зовут Долемайт / Dolemite Is My Name (2019) WEB-DL [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275841.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275779.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275682.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275645.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275643.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275641.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275635.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275633.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275624.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275596.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275558.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275556.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275543.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275541.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275536.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275448.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275439.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275410.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275406.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275388.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275376.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275366.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275359.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275353.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31FE2F542C30F34BE3F4AE36BF7BAA0B87C8EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425476   (275242) от 21.12.2011
+
+Без истерики! / Hysteria (2011) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викторианская Англия, 1880 год. Выпускник медицинской школы Мортимер Грэнвиль устраивается на работу в кабинет доктора Далримпла, который славится на весь Лондон уникальным методом лечения «истерии» — женского перевозбуждения — с помощью интимного массажа. Популярность «ручного» метода Далримпла растет с астрономической скоростью, и справляться с наплывом страждущих (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Таня УэкслерАктеры: Мэгги Джилленхол, Хью Дэнси, Джонатан Прайс, Фелисити Джонс, Руперт Эверетт, Эшли Дженсен, Шеридан Смит, Доминик Боррелли, Анна Чэнселлор, Ким КрисвеллПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265008   (275181) от 27.11.2018
+
+Опасный человек / A Dangerous Man (2009) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шэйн Дэниэлс, несправедливо осужденный за преступление, которого не совершал, садится в тюрьму, дабы отбыть положенный законодательством срок. По выходе из тюремных стен он осознаёт, что жизнь на улицах… ничуть не изменилась — толкающие наркоту, торговцы оружием, гангстеры — подноготная и тёмная сторона этого мира встретили его во всей своей красе. Однако Шейн вовсе (   Читать дальше...   )Производство: США / Legacy Filmworks,Steamroller Productions,Voltage PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Киони ВаксманАктеры: Стивен Сигал, Марлэйна Мах, Виталий Кравченко (I), Джесси Хатч, Терри Чен, Байрон Манн, Байрон Лоусон, Джерри Вассерман, Шоун С. Орр, Майк ДопудПеревод: Многоголосый закадровый (R5)Субтитры: Английские (forced)Продолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875E8B874EEE3E7ECE64AD0CE0FA05AEF2405173
 ```
 
 https://mybot314.ru/tekegram_catalog/

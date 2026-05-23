@@ -1,55 +1,3 @@
-###  Публикация: 918902   (585646) от 16.07.2015
-
-ABC Bukvarik \ Букварик v2.0 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Программа-тренажер «Букварик» ориентирована на детей от 3 лет. При создании учитывались психологические и педагогические методики детского развития, такие как "Психолого-педагогическая диагностика умственного развития детей" Забрамной С.Д., основы систем М. Монтессори и блоки методик, направленных на развитие понятий о качествах и свойствах предметов, а (   Читать дальше...   )Тип издания: FullРелиз состоялся: 12.08.2013Разработчик: TreningSoftПоддерживаемая ОС: Android 2.2+Жанр: Настольная, Головоломка, СимуляторЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F878A50C65EF0ABF1694AD319DB67CC67F2727EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552398   (585622) от 22.05.2022
-
-1Gallery: Фотогалерея и безопасность (ШИФРОВАНИЕ) 1.0.6-16.170522 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1Gallery - идеальное альтернативное приложение галереи, созданное для управления Вашими фотографиями. Кроме того, оно может защитить Ваши фото и видео с помощью функции скрытия и шифрования.Тип издания: Premium (Unlocked)Релиз состоялся: 20.05.2022Разработчик: todayweather.coПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED7AFA49B47E6F0FD8AF944B0EE6DA565F16B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040227   (585108) от 06.08.2016
 
 ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
@@ -58,7 +6,7 @@ ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585108.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584789.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584717.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584641.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584510.jpg" />
 </div>
 
 
@@ -196,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584200.jpg" />
 </div>
 
 
@@ -222,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584004.jpg" />
 </div>
 
 
@@ -250,7 +198,7 @@ Defense Zone 2 HD  МОДх4  1.5.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583617.jpg" />
 </div>
 
 
@@ -278,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582733.jpg" />
 </div>
 
 
@@ -307,7 +255,7 @@ Sound Touch 2 V1.1 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582731.jpg" />
 </div>
 
 
@@ -335,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582730.jpg" />
 </div>
 
 
@@ -361,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582702.jpg" />
 </div>
 
 
@@ -390,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582554.jpg" />
 </div>
 
 
@@ -416,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581766.jpg" />
 </div>
 
 
@@ -445,7 +393,7 @@ Smart Kitty - развивающая игра 1.0.5 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581702.jpg" />
 </div>
 
 
@@ -471,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581640.jpg" />
 </div>
 
 
@@ -497,7 +445,7 @@ High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная ка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580701.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Aldiko Book Reader Premium v3.0.13 [Ru/Multi]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579750.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579746.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578776.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578745.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577644.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575747.jpg" />
 </div>
 
 
@@ -685,7 +633,7 @@ All GPS Tools Pro v2.6.2 + Mod [En] (Compass, Weather, Map Location)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575628.jpg" />
 </div>
 
 
@@ -696,6 +644,61 @@ All GPS Tools Pro - приложение предназначенное в пе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74C9413CA389A96B70DD621213FFE3C99E2B4A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901359   (575142) от 25.07.2015
+
+Atlantic Fleet версия: 1.08 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Atlantic Fleet - масштабная морская стратегия с пошаговыми боями, первая часть которой завоевала огромную популярность, в первую очередь благодаря своему реализму. Реализм игры на столько высок что жанр серии можно охарактеризовать как симулятор морских сражений времен Второй мировой войны.
+Вторая часть это сюжетное продолжение, в котором баталии перемещаются на (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 19 июня 2015 г.Разработчик: Killerfish GamesПоддерживаемая ОС: Android 4.0+Жанр: Strategy, SimulationЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A5335671D59873F34AE4501F832D9B2F8193D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919833   (575039) от 25.07.2015
+
+Головоломка: Шарики за ролики 1.3.1 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575039.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей игр «Холодное сердце. Звездопад» и «Крокодильчик Свомпи». Disney/Pixar представляет новую игру по мотивам одного из самых ожидаемых анимационных фильмов 2015 года «Головоломка»!
+Лопайте шарики, создавайте комбинации и помогите эмоциям одиннадцатилетней Райли навести порядок в воспоминаниях.
+Райли – обычная одиннадцатилетняя школьница, и, как у каждого (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 9 июля 2015 гРазработчик: DisneyПоддерживаемая ОС: Android 4.0.3+Жанр: ДетскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46797F3D0A11CE925875CD84ECF51A3F5198EC79
 ```
 
 https://mybot314.ru/tekegram_catalog/

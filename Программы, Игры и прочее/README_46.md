@@ -1,55 +1,3 @@
-###  Публикация: 1377848   (847788) от 24.04.2020
-
-QR Code Pro 1.15 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Приложение QR Code Pro очень удобно и за считанные секунды обнаруживает штрих-код или QR-код и сканирует его, предоставляя важную информацию.Тип издания: PremiumРелиз состоялся: 23.04.2020Разработчик: TOH Talent TeamПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE409CC2855C4B2CCA2FFAA922D036A7C46ED12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356129   (847780) от 24.04.2020
-
-AZ Screen Recorder Premium 5.7.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-AZ Screen Recorder позволяет Вам записывать FullHD и QHD видео и является единственным приложением на Play Store, которое позволяет сделать ПАУЗУ при записи. Вы также можете использовать много функцией, таких как запись звук с микрофоном, показывать нажатия, выбрать разрешение, frame-rate и битрейт, выбрать таймер обратного счета, добавлять собственные тексты и картины, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 24.04.2020Разработчик: AZ Screen RecorderПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86CC0CE65480219BFBF33E9E28D3510B9470560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499488   (847459) от 02.10.2021
 
 Fake GPS v5.3.1 [Ru/En] (обновляемая)
@@ -58,7 +6,7 @@ Fake GPS v5.3.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847459.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846839.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ ROEHSOFT PARTITION TOOL SD-USB 1.37 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846582.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ Garmin: City Navigator Southern Africa NT 2017.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846402.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Dino Puzzle v2.7.3 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846391.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846383.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846341.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ Ultimate Mortal Kombat 3 1.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846329.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845100.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844903.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ Guitar Tuna v3.5.4 [Ru/Multi] - универсальный тюнер для н�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844652.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ APK Permission Remover Pro v1.3.8 [Ru/Multi] - Удаление разрешен
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844355.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ QuickPic 4.7.2.2404 [Ru] - Просмотрщик изображений с му
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844349.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842992.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842944.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842924.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ Garmin: City Navigator South America NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842728.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ Garmin: City Navigator North Africa NT 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841505.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ Sonic 3D Blast, Sonic And Knuckles, Sonic The Hedgehog, Sonic The Hedgehog 2, So
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840409.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ Odin 3.10.6 - Прошивальщик устройств Samsung [En]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840249.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ ROEHSOFT DRIVE-EXPERT 1.21 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839632.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ Contra - Hard Corps 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837614.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837600.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ Ebook Converter v1.13.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837404.jpg" />
 </div>
 
 
@@ -679,6 +627,58 @@ Ebook Converter v1.13.1 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DC5C341B3FE07E1E56A46006EB4929CC6F9D3FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310292   (837296) от 18.03.2011
+
+Turbo Grannies  1.1.3 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Grannies: Вялотекущая и скучная жизнь в доме престарелых совсем не нравится Турбо Бабушке. Она пропускает весь драйв, довольствуясь лишь воспоминаниями о событиях, произошедших давным-давно. Действительно скучно, не так ли? Но главная героиня не собирается мириться и сваливает подальше из этого места! Сама по себе  Бабушка недостаточно быстра, чтобы убежать. (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 17 марта 2011 г.Разработчик: Imperial Game StudioПоддерживаемая ОС: Android 1.5+Жанр: Arcade (Аркада)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004569   (836329) от 07.04.2016
+
+Garmin: Azerbaijan Map 2015 V01 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорожная карта Азербайджана для навигаторов Гармин.Тип издания: карта заблокирована (таблетка есть в комплекте)Релиз состоялся: июнь 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: английскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C435CC5B510564FECDBA80D6900B9B4903B839
 ```
 
 https://mybot314.ru/tekegram_catalog/

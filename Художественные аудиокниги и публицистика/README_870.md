@@ -1,84 +1,3 @@
-###  Публикация: 970141   (141668) от 30.12.2015
-
-Рут Харрис | Любовь и деньги (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Рут Харрис – без сомнения, одна из самых читаемых в мире современных писательниц. Ее романы – это всегда откровенный и волнующий рассказ об отношениях мужчин и женщин в прекрасном и безжалостном мире, где правят только две силы – любовь и деньги.Жанр: ДетективПеревод: с англ. М. Павловой, Т. НиколаевойПродолжительность: 14:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477A8E8081F5BDEB92B4B89BE811D4274D15C3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520437   (141655) от 28.12.2021
-
-Александр Немченко | Контакт (2021) [MP3, Александр Сидоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-XXII век. Человечество пережило тяжелейшую войну с роботами, к которой привело бурное развитие искусственного интеллекта. Теперь люди избрали иную парадигму, совершенствуя свой организм с помощью генных модификаций. Человек как вид процветает и активно исследует космос.
-В один прекрасный день исследователи обнаруживают инопланетный корабль на спутнике Юпитера – ледяной (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастикаПродолжительность: 07:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F15B4B65F861399ECB748D6774A766C5C00930E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520461   (141630) от 28.12.2021
-
-Элиан Тарс | Б.О.Г. (Книга 4). Истинный мир (2021) [MP3, Сергей Кудинов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Никто не знает точно, есть ли параллельные миры. Вернее, почти никто. Иван, главный герой предлагаемого цикла, знает. В один из таких миров ему довелось попасть. Спасая девушку из-под колёс автомобиля, он угодил под «срез» и оказался в параллельном мире. Но понял это не сразу.
-
-Теперь герой – представитель расы людей, предводителем которой является Б.О.Г. Он способен (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтези, Попаданцы, LitRPGПродолжительность: 11:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEA41A976F4F0DDDBB7D1BDD0312189421065F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520420   (141590) от 28.12.2021
 
 Гарри Гаррисон | "Стальная Крыса" Книга 11. Новые приключения Стальной Крысы (2021) [MP3, Кирилл Петров]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141590.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141501.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141489.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141481.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141396.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141389.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141374.jpg" />
 </div>
 
 
@@ -270,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141338.jpg" />
 </div>
 
 
@@ -296,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141332.jpg" />
 </div>
 
 
@@ -322,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141331.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141308.jpg" />
 </div>
 
 
@@ -376,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141262.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141259.jpg" />
 </div>
 
 
@@ -428,7 +347,7 @@ Alexis Opsokopolos | В шоке (2019) [MP3]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141248.jpg" />
 </div>
 
 
@@ -454,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141240.jpg" />
 </div>
 
 
@@ -481,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141208.jpg" />
 </div>
 
 
@@ -507,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141186.jpg" />
 </div>
 
 
@@ -533,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141183.jpg" />
 </div>
 
 
@@ -559,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141174.jpg" />
 </div>
 
 
@@ -585,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141168.jpg" />
 </div>
 
 
@@ -612,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141110.jpg" />
 </div>
 
 
@@ -638,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141109.jpg" />
 </div>
 
 
@@ -664,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141089.jpg" />
 </div>
 
 
@@ -675,6 +594,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA9E5E757E744985DD78AD72C1EF333D9AD8A038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350348   (141078) от 23.11.2023
+
+Николай Некрасов | Поэмы и стихотворение (2008) [MP3, Александр Лукьянов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Алексеевич Некрасов (1821–1878) – русский поэт, писатель и публицист. Признанный классик мировой литературы.
+Вашему вниманию предлагается сборник, в который вошли произведения известного русского поэта Николая Алексеевича Некрасова: поэмы «Мороз, Красный нос», «Саша» и стихотворение «Размышление у парадного подъезда» в исполнении известных артистов театра (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Гостелерадиофонд, Бизнессофт, ИДДКПродолжительность: 01:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C703B1F6221D71859DEC179B33A51924DE3E7AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272786   (141075) от 29.12.2018
+
+Бернар Вербер | Отец наших отцов (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жестоко и беспощадно убит уважаемый профессор палеонтологии. Он открыл нечто такое, за что и поплатился жизнью. А именно – недостающее звено в эволюции человека. Неужели правда о нашем происхождении так страшна? Но это только слухи. Или нет? Два отважных журналиста не побоятся выяснить правду, даже если им придется спасаться от пуль, отправиться в колыбель человечества (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 10:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF3EB5FA387E4873386F4B17E87E657E39FA2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271643   (141073) от 29.12.2018
+
+Анжела Марсонс |  Инспектор полиции Ким Стоун (Книга 1). Немой крик (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот роман Анжелы Марсонс стал безусловным международным бестселлером № 2, уступившим по продажам только «Девушке в поезде» Полы Хокинс.
+Археологи убеждены: в окрестностях Бирмингема, на территории давно сгоревшего детского дома, зарыт богатейший древний клад. Но городские власти упорно не желают выдавать разрешение на раскопки. Это кажется странным инспектору полиции (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C61840FD520192EA3AF4BE3502EFD64A911024
 ```
 
 https://mybot314.ru/tekegram_catalog/

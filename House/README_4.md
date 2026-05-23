@@ -6,7 +6,7 @@ VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984599.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983628.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - La Nuit (Delicious Chill House Lounge Vol 1) (2016) [MP3|320 кб/с] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983346.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982294.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981753.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980200.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979118.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978179.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976894.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975682.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975613.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975611.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975543.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975538.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Uphill Workout (2020) [MP3|320 Kbps] <Melodic House, Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974389.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Valentine's Day Collection: King Street Sounds 20 Years Essentials (2013) [
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974055.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970144.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969884.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - House Chill Hop for Lovers (The Best Erotic Sound For Dance Floors) (2020) 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967423.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, T
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967309.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964354.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963282.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963281.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - Housemission II - Do You Remember (Mixed by DJ Ярик) (2004) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963280.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ VA - Body (Mixed by Dj Zezick) (2005) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963279.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963277.jpg" />
 </div>
 
 

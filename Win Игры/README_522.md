@@ -1,29 +1,3 @@
-###  Публикация: 1756874   (25457) от 07.03.2025
-
-Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В Hundred Days Вы будете иметь полный контроль над новым винодельческим заводом, придётся выбирать какие виноградники выращивать и как их выращивать, когда собирать урожай. Вы должны следить за всем процессом виноделия и делать выбор, который лучше всего подходит для типа вина, который Вы хотите произвести или что требует рынок.Тип издания: LicenseРазработчик: Broken Arms GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08689ABE288D7DB9D1600234E0D96E2AAD6FDFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783664   (25451) от 07.03.2025
 
 Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
@@ -32,7 +6,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25451.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ULTRAKILL (2020) [En] (Patch 16c) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25447.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25445.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25404.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ YIIK: A Postmodern RPG (2019) [Multi] (1.5.003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25398.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Isla de la Muerte (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25376.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25373.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2198/1.0.1.2242) Repack Dec
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25366.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25346.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Devilated (2021) [Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25340.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25338.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25332.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25323.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25315.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Shapik: The Moon Quest (2020) [Graphic] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25294.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Biohazard: Siberia (2025) [En] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25290.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25289.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25280.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Dark Return (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25263.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ UNCURSED (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25248.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25247.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Carnaval Simulator (2024) [Multi] (1.2.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25215.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25214.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25212.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25210.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76280F57BEC3BBEFFC99FB51ABD15C0D57CCB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784089   (25196) от 09.03.2025
+
+Tech Store Simulator (2024) [Ru/Multi] (1.5) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте собственным магазином электроники! Заполняйте полки новейшими техническими гаджетами, устанавливайте цены, чтобы привлечь покупателей, обрабатывайте платежи, нанимайте и управляйте персоналом, а также настраивайте планировку магазина. Tech Shop Simulator - это увлекательный симулятор от первого лица, где каждый аспект управления магазином электроники воплощается (   Читать дальше...   )Тип издания: RepackРазработчик: AstrasoftЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142B2F30726AD19587559A6FF53DDF8BCDCF858B
 ```
 
 https://mybot314.ru/tekegram_catalog/

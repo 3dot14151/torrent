@@ -1,55 +1,3 @@
-###  Публикация: 932673   (506905) от 31.08.2015
-
-Принесите мне голову пулемётчицы / Traiganme la cabeza de la mujer metrallet (2012) BDRip [H.264/720p] [SP / EN, Fr, Du, Da, Fi, No, Sw Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В туалете клуба DJ случайно подслушивает разговор хозяина клуба Че Лонганы со своими головорезами о некоей пулеметчице, которая хочет убить Че Лонгану, и за голову которой он объявил награду в 300 миллионов. Обнаружив DJ в кабинке они решают убить его, но он обещает Че Лонгане, что приведет к нему пулеметчицу. Че Лонгана дает ему на это 24 часа.Производство: Чили, LatinXploitation, Too Much Films, Moises Motion PicturesЖанр: Боевик, Мелодрама, Детектив, КриминалРежиссер: Эрнесто Диас ЭспиносаАктеры: Фернанда Урехола, Матиас Овьедо, София Гарсия, Фелипе Авельо, Пато Пимиэнта, Франсиска Кастильо, Мигель Энджел Де Люка, Дэниэл АнтивилоПеревод: ОтсутствуетЯзык озвучки: ИспанскийЯзык субтитров: Финский, Английский, Французский, Нидерландский, Датский, Шведский, НорвежскийПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9D5C2EFF9D15FE7303BA04912FC19554520444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931214   (506902) от 31.08.2015
-
-После прочтения cжечь / Burn After Reading (2008) [VC-1/1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Оззи, агента ЦРУ, уволили с поста начальника Балканского направления. Пытаясь преодолеть кризис, он берется за мемуары, содержащие в том числе и секретную информацию. И надо же было такому случиться, что диск с этими данными был потерян в раздевалке спортивного клуба.Производство: США, Великобритания, ФранцияЖанр: Комедия, КриминалРежиссер: Итэн Коэн, Джоэл КоэнАктеры: Джордж Клуни, Фрэнсис МакДорманд, Джон Малкович, Тильда Свинтон, Брэд Питт, Ричард Дженкинс, Дэвид Раш, Дж.К. Симмонс Олек Крупа, Майкл КантримэнПеревод: Дублированный, Многоголосый закадровый, АвторскийСубтитры: ОтсутствуютПродолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FDF4A206F246D69D6E691FC77BED7244F21E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933165   (506894) от 31.08.2015
 
 Безумный Макс: Дорога ярости / Mad Max: Fury Road (2015) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506894.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506891.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506889.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506887.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506851.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506848.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506844.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506843.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506835.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506791.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506778.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506777.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506776.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506775.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506723.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506715.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506676.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506674.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506645.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506641.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506586.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506571.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506525.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506519.jpg" />
 </div>
 
 
@@ -672,6 +620,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539218   (506518) от 26.08.2012
+
+Пришельцы в Америке / Just Visiting (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая уморительная комедия о приключениях средневекового рыцаря и его слуги, попавших из XII века в наше время. В голливудской версии знакомые герои из французской комедии «Коридоры времени» граф Тибо и его слуга Андре из-за ошибки мага попадают в современный Чикаго.
+
+Там они встречают прапраправнучку Тибо Джулию, и она помогает им вернуться из сумасшедшего XXI века в свое время. Чужие в мире машин и компьютеров, Тибо и Андре производят маленький переполох в большом городе.Жанр: Комедия, ФэнтезиРежиссер: Жан-Мари ПуареАктеры: Жан Рено, Малкольм МакДауэлл, Кристина Эпплгейт, Тара Рейд, Кристиан Клавье, Билл Бэйли, Мэтт Росс, Бриджит Уилсон, Роберт Гленистер, Ричард Бреммер, Джордж Плимптон, Сара Бэдел, Клер Уэлш, Kendra Torgan, Люси Блэр, William Bookston, Валери Гриффитс, Даг БарронПеревод: ДублированныйПродолжительность: 01:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04E1691FAD920363146C86B87BAE098936D872A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539456   (506458) от 26.08.2012
+
+Школа рока / The School of Rock (2003) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506458.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нескольких лет подъема блестящая карьера рок-звезды Дьюи Финна заканчивается полным провалом. Все, что его теперь ждет, это неоплаченные долги и тяжелая депрессия. Но, перехватив не предназначавшийся ему телефонный звонок и придя в изумление от зарплаты (650 долларов в неделю), Дьюи устраивается работать в частную школу.
+
+Его отношение к музыке и детям творит там чудеса, и вскоре появляется возможность начать звездную карьеру заново. Нужно только выиграть конкурс лучших рок-групп — и все проблемы легко разрешатся. Дьюи полон оптимизма, ведь вместе с ним его новый друг — девятилетний Зак, виртуозно играющий на гитаре!Жанр: Комедия, МузыкаРежиссер: Ричард ЛинклейтерАктеры: Джек Блэк, Адам Паскаль, Крис Стэк, Сара Силверман, Майк Уайт, Лукас Бабин, Джоан Кьюсак, Джордан-Клэр Грин, Вероника АффлербахПеревод: ДублированныйПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E3F13AD737DCA265A4E7C369A6398E4EE28715
 ```
 
 https://mybot314.ru/tekegram_catalog/

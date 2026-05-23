@@ -1,29 +1,3 @@
-###  Публикация: 1667175   (177136) от 07.10.2023
-
-Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Направляясь на далекий остров-тюрьму в поисках пропавшей дочери, Барри Бертон встречает совершенно нового персонажа - маленькую девочку по имени Наталья Корда. Она обладает необычными способностями, позволяющими ей чувствовать врагов и спрятанные предметы. Пользуясь этими умениями вместе с проверенными бойцовскими навыками Барри, игрокам нужно будет переключаться (   Читать дальше...   )Тип издания: RepackРазработчик: Frim Studio и CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477EC3FAA5CC1170A12233601AF121ADBDE1918D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300832   (177104) от 05.12.2020
 
 Staxel (2019) [Ru/Multi] (1.5.57) License GOG
@@ -32,7 +6,7 @@ Staxel (2019) [Ru/Multi] (1.5.57) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177104.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Resident Evil 2 (2019) [Ru/Multi] (1.05u13/dlc) Repack Decepticon [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177084.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dragon Quest XI: Echoes of an Elusive Age (2018) [Ru/Multi] (1.0/dlc) Repack xat
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177054.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177042.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177037.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Project Wingman (2020) [Ru/Multi] (1.0.3.20.1201.3199) Repack xatab
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177016.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ New Joe & Mac Caveman Ninja (2022) [Ru/Multi] (2022112301) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176938.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Bilkins Folly (2023) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176568.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Hidden Cats in Paris (2022) [En] (11956959) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176556.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Halloween Stories 6: Mark on the Bone / Хеллоуинские истории 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176538.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Bilkins Folly (2023) [En] (1.0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176443.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176418.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176408.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176392.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176371.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Iron Dungeon (2023) [Ru/En] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176346.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176320.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176312.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Christmas Stories 9: The Christmas Tree Forest / Рождественские и
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176299.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176233.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Tenants (2021) [Ru/Multi] (1.2.9/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176229.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.513/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176218.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176157.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176100.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Christmas Stories 11: Taxi of Miracles (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176053.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Christmas Stories 11: Taxi of Miracles (2022) [En] (1.0) Unofficial [Collector's
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976F005F9C2A2FD7E300BE976E08E2EDA3D01056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595319   (175918) от 04.12.2022
+
+Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя комната (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей сказочной серии игр Living Legends. Алекс отправляется навестить сестру в замок «Птичье гнездо», но узнаёт, что она пропала, а на её мужа напали существа, сошедшие с полотен, и это только начало! Помогите Алексу раскрыть все тайны из мрачного прошлого замка и спасти сестру! Вам потребуются все поисковые навыки и умение решать головоломки (   Читать дальше...   )Тип издания: UnofficialРазработчик: FriendlyFox StudioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41CB85B894D37926A7BD23B6F8B9D80A27AAB8C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

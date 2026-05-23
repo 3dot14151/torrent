@@ -6,7 +6,7 @@ HitPaw Photo Enhancer for Mac 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031648.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PlistEdit Pro 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031645.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ HitPaw Watermark Remover 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031641.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Privacy Eraser Free 5.35.3 Build 4471 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031638.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Opera Crypto Browser 97.0.4719.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031634.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ BurnAware Professional 14.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031626.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mozilla Firefox 85.0.2.7709 Portable by JolyAnderson [Multi/Ru] (авторск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031612.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Internet Download Manager 6.38 Build 17 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031605.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ SIV (System Information Viewer) 5.56 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031596.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ R-Drive Image 6.3 Build 6308 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031595.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ CrystalDiskInfo 8.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031594.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Redragon Usas Software 1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031583.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031580.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ DNS Changer | Fast IPv4 & IPv6, Wifi & Mobile Data v1.0.1 b1002 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031541.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ BELOFF [dp] 2021.02.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031540.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.4 Build 9 (R2R) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031530.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Psiphon 3 build 178 (19.03.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031526.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031489.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ ESET NOD32 Internet Security 14.0.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031462.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ GOM Player Plus 2.3.85.5353 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031446.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ MassTube Plus 16.5.3.652 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031445.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Opera GX 96.0.4693.117 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031443.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ NIUBI Partition Editor Professional 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031442.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Internet Download Manager 6.41 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031441.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ BurnAware Professional 16.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031438.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Wondershare Recoverit for Mac 11.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031437.jpg" />
 </div>
 
 

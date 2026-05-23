@@ -1,29 +1,3 @@
-###  Публикация: 1493238   (896956) от 02.09.2021
-
-The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Приключение о поиске пропавшего охотника и встрече с внеземным разумом! Исследуй дикую природу. Взберись на скалу, вымани кабана, встреться с волчицей и выживи в камнепаде. Помоги оленям и перехитри чудовище! Встреть Неизвестное и раскрой тайну!Тип издания: RepackРазработчик: Ivan SukhanovЖанр: Adventure (Top-Down)Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB14BC1F30F4AFD78B8CA88E834E644D35F86807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493277   (896953) от 02.09.2021
 
 El Shaddai: Ascension of the Metatron (2021) [Multi] (7272439) License CODEX
@@ -32,7 +6,7 @@ El Shaddai: Ascension of the Metatron (2021) [Multi] (7272439) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896953.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Kitaria Fables (2021) [Ru/Multi] (7286275) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896950.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ OPUS: Echo of Starsong (2021) [Multi] (7280057) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896849.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896826.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896781.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Chasing Dead (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896766.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ King Arthur / Король Артур (2011) [Ru/En] (1.07/1.0.0.6/dlc) License 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895441.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Comanche (2021) [Ru/Multi] (1.0.0.49195) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895094.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Silent Age (2015) [Ru/Multi] (28.02.2016) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895086.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dark Romance 12: Ashville (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895045.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Jotun (2015) [Ru/Multi] (1.0 u#2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895009.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894997.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Family Mysteries: Poisonous Promises / Семейные тайны: Медлен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894912.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Lost Sector (2014) [Ru/Multi] (103) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894889.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893871.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Grim Tales 10: The Heir (2016) [En] (1.0) Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893773.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Punished Talents 2: Stolen Awards (2016) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893766.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893400.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mecha Knights: Nightmare (2021) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893337.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Magicmaker (2014) [En] (1.0.17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893300.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Call of Duty: Infinite Warfare (2016) [En] (6.0.1211685) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893292.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ True Fear: Forsaken Souls / Реальный ужас: Души прокляты
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893206.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Entropy Rising (2015) [Ru/Multi] (1.04) License POSTMORTEM
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893175.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893077.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Timespinner (2018) [Ru/Multi] (1.033) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891985.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Timespinner (2018) [Ru/Multi] (1.033) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AFC37A80684532CE60568FEE0632C70BB6B3D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493943   (891978) от 05.09.2021
+
+Olija (2021) [Ru/Multi] (2-1-2021) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра про путешествие Фарадея, потерпевшего кораблекрушение, которого вынесло на таинственные берега Террафагоса. С легендарным гарпуном в руках, он вместе с остальными выжившими пытается вернуться домой из этих опасных земель. Следуя сюжету и сражаясь в напряжённых битвах, игроку предстоит бесстрашно исследовать чуждый ему мир и познакомиться с его обитателями, среди (   Читать дальше...   )Тип издания: LicenseРазработчик: Skeleton Crew Studio, Thomas OlssonЖанр: Platformer, Action, Adventure, SlasherЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC6DBC18E3E3EB4F5F9C0E433A9840E81F9979B
 ```
 
 https://mybot314.ru/tekegram_catalog/

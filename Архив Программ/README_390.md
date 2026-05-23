@@ -6,7 +6,7 @@ Topaz DeNoise AI 2.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846283.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HP Service Pack for ProLiant 2020.03.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846280.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XnView Classic 2.49.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846278.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 10 Enterprise 10.0.14295 Insider Preview - Оригиналь�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846210.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Windows 10 Multiple Editions 10.0.14295 Insider Preview - Оригин
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846205.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reg Organizer 7.35 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846203.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Visual Studio 2015 14.0.25123.00 Update 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846192.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ EASEUS Partition Master 14.0 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846146.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Topaz Video Enhance AI 1.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846136.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Freemake Video Converter 4.1.13.93 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846041.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ HiBit System Information 2.0.30 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846037.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ MEmu 2.9.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846033.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Panda Protection 18.01.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846032.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Bat! Professional 7.4.16 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846011.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SamDrivers 21.9 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845928.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VueScan Pro 9.7.66 (DC 02.09.2021) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845927.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ GOM Player Plus 2.3.69.5333 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845924.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wise Registry Cleaner Pro 10.5.1.696 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845921.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ ByClick Downloader Premium 2.3.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845920.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ HiBit Uninstaller 2.6.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845916.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Avidemux 2.7.9 Nightly(r211003) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845915.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ accusonus - ERA Bundle Pro 6.0.10 + Voice Changer 1.2.10 VST, VST3, AAX (x64) Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845913.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ ConsoleAct 2.7 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845904.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ StartIsBack++ 2.9.1 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845902.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ qBittorrent 4.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845898.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Kaspersky Free 2020 20.0.14.1085 (j) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845895.jpg" />
 </div>
 
 

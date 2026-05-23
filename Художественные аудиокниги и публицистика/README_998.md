@@ -1,83 +1,3 @@
-###  Публикация: 1709067   (62008) от 23.03.2024
-
-Сергей  Котов | Земля мертвых. Боги войны (2024) [MP3, Александр  Мозгунов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Военная фантастика о бесконечном круге перерождений бойцов. Они погибли, но не готовы расстаться с устрашающим ремеслом.
-
-Реальна ли смерть? Боец российского спецназа находит ответ – внезапно, как это всегда и бывает. Во время защиты аномальной зоны на Новой Земле, которая возникла после испытаний Царь-бомбы, он попадает в места, о которых мечтали древние воины.Жанр: Альтернативная история, Боевая фантастикаИздательство: ЭксмоПродолжительность: 09:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B60EB761B8C317AEC1E1230AD2227DC90A41A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709349   (61962) от 24.03.2024
-
-Анатолий Дроздов, Анатолий Матвиенко | Обезьяна с гранатой (Книга 2) (2024) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что будет, если продвинутые технологии попадут в руки человека эпохи раннего Средневековья? Скорее всего, случится то, что подразумевает известное выражение «обезьяна с гранатой». Но барон Рейнальдс де Бюи, помогающий юной герцогине спастись от мачехи, которая пустила по следу падчерицы убийц, весьма смышлён. Он обнаруживает космический корабль пришельцев и на удивление (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: 1С-ПаблишингПродолжительность: 11:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE618098C0BC5FBF397502C6121EBBE63A6E181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709373   (61943) от 24.03.2024
-
-Сергей Баранников | Повелитель жизни (Книга 2). Чумной лес (2024) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Руфис Манкор готовится захватить власть в Беловодье, костяная армия Повелителя Смерти набирает силу, и вот-вот начнётся полномасштабная битва за будущее не только маленькой необжитой провинции Трин, но и всего мира. В это время Денис активно улучшает Святилище, ищет новых союзников и готовится к решающей битве. Он еще не знает, что реальных сторон конфликта куда (   Читать дальше...   )Жанр: Боевое фэнтези Героическое фэнтезиИздательство: ЛитРесПродолжительность: 07:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6C07842B8FAEE7EF2222B54147B8D2FB8EC650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709343   (61930) от 24.03.2024
 
 Роман Афанасьев | Падение Прайма (Книга 3). Безымянные звезды (2024) [MP3, Дмитрий Поляков]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61930.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61919.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61918.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61917.jpg" />
 </div>
 
 
@@ -196,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61912.jpg" />
 </div>
 
 
@@ -224,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61905.jpg" />
 </div>
 
 
@@ -253,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61857.jpg" />
 </div>
 
 
@@ -279,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61837.jpg" />
 </div>
 
 
@@ -305,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61833.jpg" />
 </div>
 
 
@@ -331,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61828.jpg" />
 </div>
 
 
@@ -357,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61827.jpg" />
 </div>
 
 
@@ -383,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61805.jpg" />
 </div>
 
 
@@ -409,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61801.jpg" />
 </div>
 
 
@@ -435,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61800.jpg" />
 </div>
 
 
@@ -461,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61774.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61755.jpg" />
 </div>
 
 
@@ -513,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61751.jpg" />
 </div>
 
 
@@ -539,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61747.jpg" />
 </div>
 
 
@@ -566,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61740.jpg" />
 </div>
 
 
@@ -592,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61724.jpg" />
 </div>
 
 
@@ -620,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61716.jpg" />
 </div>
 
 
@@ -646,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61714.jpg" />
 </div>
 
 
@@ -672,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61704.jpg" />
 </div>
 
 
@@ -683,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69EEB85DE5A459F672601D93B9ED7305F1D8F9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310566   (61659) от 27.03.2024
+
+Лю Цысинь | Шаровая молния (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61659.jpg" />
+</div>
+
+
+###  Подробнее
+
+После трагедии, в детстве лишившей его родителей, доктор Чэнь посвятил свою жизнь разгадке тайны шаровой молнии. Странные феномены, связанные с ней, вынуждают доктора изыскивать все новые способы изучения этого явления. И не он один одержим этой идеей. Дочь генерала, Линь Юнь, тоже пережившая потерю, желает изобрести оружие на основе шаровой молнии. Но их поиски (   Читать дальше...   )Жанр: Космическая фантастикаИздательство: ЭксмоПродолжительность: 14:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE2BA2950A4A386D2F79BB2AF0EDA6C5AADDED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710557   (61653) от 27.03.2024
+
+Василий Маханенко | Закон джунглей (Книга 1) (2024) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61653.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Закон джунглей» – фантастический роман Василия Маханенко, первая книга одноименного цикла, жанр уся, боевое фэнтези, героическое фэнтези. Закон джунглей гласит: кто сильнее, тот и прав! Так живут звери, так начали жить люди. Они покорили энергию Ци. Они разделили мир на пояса. Они научились создавать великие артефакты. Они начали своё восхождение к бессмертию. Но (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 08:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28C34D6E0AF35E8EC27EA966FDB031752E73A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710565   (61647) от 27.03.2024
+
+Василий Маханенко | Закон джунглей (Книга 2) (2024) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61647.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Закон джунглей» – фантастический роман Василия Маханенко, вторая книга одноименного цикла, жанр боевое фэнтези, героическое фэнтези. Закон джунглей гласит: каждый сам за себя! Этот закон работает не только в мире людей, но и там, откуда приходит их главный враг – в мире демонов! Нулевой круг их мира мало чем отличается от нулевого пояса мира людей. Такие скудные (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 07:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73A7591BFE76D91C8B11E26A6CBA098A38D0A91
 ```
 
 https://mybot314.ru/tekegram_catalog/

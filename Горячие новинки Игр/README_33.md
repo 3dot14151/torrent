@@ -6,7 +6,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2077.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mortal Sin (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1919.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.0003.28253.87380/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1897.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bad Cheese (2025) [Ru/Multi] (1.00.035) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1724.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1709.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1704.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Greedland (2025) [Ru/Multi] (1.0.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1703.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1647.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1533.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1389.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1369.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1368.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1366.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1355.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1352.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Decepticon [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1334.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1316.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1263.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Lightkeeper (2025) [Ru/En] (Build 20068430) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1239.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hell is Us (2025) [Ru/Multi] (1.4.22.43941) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1225.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28750) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_942.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dying Light The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Let'sРlay [Deluxe Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_936.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_878.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_877.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_865.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_853.jpg" />
 </div>
 
 

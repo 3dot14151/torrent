@@ -6,7 +6,7 @@ PROTOCOL 11 - Episode 1 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44042.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spiritfall (2024) [Ru/Multi] (1.5.11) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43823.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.1/dlc) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43441.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43334.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43197.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Gimmick! 2 (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42735.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42731.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Grapple Dogs: Cosmic Canines (2024) [Multi] (1.0.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42557.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Iron Meat (2024) [Ru/Multi] (1.0.2) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42142.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tribal Hunter (2022) [Ru/Multi] (1.0.2.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41957.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41653.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Steredenn: Binary Stars (2015) [Ru/Multi] (2.7.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41639.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41091.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40934.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Cash Cow DX (2024) [En] (1.1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40564.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40506.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40417.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40412.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.10/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40314.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40111.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Slave Zero X (2024) [Ru/Multi] (1.05/dlc) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39444.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Great Rebellion (2024) [Multi] (1.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39219.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complet
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38309.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38295.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Speedollama (2024) [Ru/Multi] (1.4.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37781.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ CATO: Buttered Cat (2024) [Ru/Multi] (1.1.528) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37690.jpg" />
 </div>
 
 

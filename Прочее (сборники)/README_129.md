@@ -6,7 +6,7 @@ VA - Mix On Styles Dance Floor (2016) [MP3|320 Kbps] <Hip-Hop, Reggae, Trap>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357121.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Top Chart радио DFM: ноябрь (2016) [MP3|320 Kbps] <House, Club, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356969.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - В машине с музыкой Vol.304 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356880.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Зайцев нет. Лучшие Hовинки Ноября (2016) [MP3|16
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356818.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - В машине с музыкой Vol.302 (2022) MP3|320 Kbps |<Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356768.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Best Of Raggastep (Ragga Dubstep) (Compiled by Zebyte) (2015) [MP3|256-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356043.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - TOP October (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout, Pop, Dee
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355862.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - По волне моей памяти Том 19 (Compiled by Виктор31
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355777.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - По волне моей памяти: Том 18 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355776.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Hip Guide... (2012) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_355271.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Deep House Desire Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355124.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - The Best Dance Hits Of 90's-3 (2015) [MP3|320 кб/с]<Pop, Eurodance, Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354913.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Radio Top musicFM (2016) [MP3|320 Kbps] <Pop, dance, house, trance, club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354545.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - ЕвроХит Топ 40 Europa Plus 04.10.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354433.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Kiss FM Top 40 21.10.2018 [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354151.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - По волне моей памяти: Том 21 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353689.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Club Dance Ambience Vol.166 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353569.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - По волне моей памяти: Том 20 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353560.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - По волне моей памяти: Том 22 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353554.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Golden Night Party 80s (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353553.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - По волне моей памяти: Том 25 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353551.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - По волне моей памяти: Том 26 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353544.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - По волне моей памяти: Том 23 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353543.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ VA - По волне моей памяти: Том 24 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353456.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ VA - По волне моей памяти: Том 27 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353443.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ VA - Galactic Party (2015) [MP3|320 кб/с]<Space, SynthDisco, Spacesynth>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353439.jpg" />
 </div>
 
 

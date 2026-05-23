@@ -1,56 +1,3 @@
-###  Публикация: 471575   (84571) от 26.03.2012
-
-Домашняя работа / The Art of Getting By (2011) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Джордж — одинокий и замкнутый в себе подросток, которого в жизни мало что интересует. У него есть талант к рисованию, однако этот талант пропадает впустую, также как и школьное образование парня, уже давно переставшего слушать учителей и делать домашнюю работу. Но однажды Джордж знакомится с девушкой Салли, которая проявляет к нему дружеский интерес. Со временем (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Гэвин ВьесенАктеры: Фредди Хаймор, Эмма Робертс, Саша Спилберг, Маркус Карл, Франклин Энн Дауд, Майя Ри Санчез, Блэр Андервуд, Энн Харада, Рита Уилсон, Ярлат КонройПеревод: ДублированныйСубтитры: Русские (форсированные R5), Русские (полные R5), АнглийскиеПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473468   (84559) от 26.03.2012
-
-Таинственная река / Mystic River (2003) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Джимми Маркум, Дейвид Бойл и Шон Девин — неразлучные приятели с детства. Они вместе играют в хоккей, взрослея на знакомых неспокойных улицах Бостона. Уже будучи взрослыми мужчинами, судьба сталкивает их вместе перед лицом трагедии: зверского убийства дочери Джимми Маркума — Кэтти.
-Для Джимми, мошенника в прошлом и владельца бакалейной лавки в настоящем, главным в жизни становится месть. Полицейский, которому поручают расследовать дело, — не кто иной, как Шон Девин, который уверен в одном: главный подозреваемый в убийстве — Дейв Бойл.Жанр: Триллер, Драма, КриминалРежиссер: Клинт ИствудАктеры: Шон Пенн, Тим Роббинс, Кевин Бейкон, Лоренс Фишбёрн, Марша Гэй Харден, Лора Линни, Кевин Чэпмен, Том Гайри, Эмми Россам, Спенсер Трит Кларк ...Перевод: ДублированныйПродолжительность: 02:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD2F78454E3E3847CBB319F6062B8E1B76A76C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472948   (84556) от 26.03.2012
 
 Игра / The Game (1997) [H.264/1080p-LQ] HDTV
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84556.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84555.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84549.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84545.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84542.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84421.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84412.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84405.jpg" />
 </div>
 
 
@@ -273,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84402.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84394.jpg" />
 </div>
 
 
@@ -326,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84388.jpg" />
 </div>
 
 
@@ -352,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84375.jpg" />
 </div>
 
 
@@ -378,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84358.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84356.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84355.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84353.jpg" />
 </div>
 
 
@@ -484,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84331.jpg" />
 </div>
 
 
@@ -510,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84330.jpg" />
 </div>
 
 
@@ -538,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84329.jpg" />
 </div>
 
 
@@ -565,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84299.jpg" />
 </div>
 
 
@@ -591,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84284.jpg" />
 </div>
 
 
@@ -617,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84275.jpg" />
 </div>
 
 
@@ -647,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84256.jpg" />
 </div>
 
 
@@ -673,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84203.jpg" />
 </div>
 
 
@@ -684,6 +631,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7EE540B8CDD8968E49B5E00F2439AACE93072F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472966   (84197) от 24.03.2012
+
+Девятки / The Nines (2007) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизненные пути беспокойного актера, участника ТВ-шоу и широко приветствуемого проектировщика видеоигр сплелись загадочным и тревожным образом.Жанр: Фантастика, Фэнтези, ДрамаРежиссер: Джон ОгастАктеры: Райан Рейнольдс, Мелисса МакКарти, Хоуп Дэвис, Эль Фаннинг, Дэвид Денман, Октавия Спенсер, Бен Фальконе, Далия Салем, Джон Гэйтинс, Энди ФилдерПеревод: Профессиональный многоголосыйПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5A0831190F490B62CCD9A0FB56209E37CA5705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472568   (84195) от 24.03.2012
+
+Шрамы 3D / Paranormal Xperience 3D (2011)  [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестеро студентов медицинского института отправляются в заброшенную сеть пещер, где, по легенде, до сих пор блуждает призрак умершего доктора. Молодые люди уверены, что встречи с паранормальным в наш современный век — не более чем игра воображения. Да и экспедиция организована исключительно ради исследования мифов о человеческом подсознании. Но, оказавшись в пещерах, (   Читать дальше...   )Производство: ИспанияЖанр: Триллер, УжасыРежиссер: Серджо ВизканоАктеры: Амайя Саламанка, Макси Иглесиас, Эдуард Фарело, Луис Фернандез, Урсула Корберо, Мануэль Де Блас, Альба Рибас, Мигель Анхель Дженнер, Оскар Синела...Перевод: Дублированный |Субтитры: ОтсутствуютПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF247917539E9DDA910A2B7D0666D75498823CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

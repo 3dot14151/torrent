@@ -1,29 +1,3 @@
-###  Публикация: 1804543   (13008) от 30.06.2025
-
-Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в эпическое, полное экшена приключение в Trident’s Tale, где вы станете Океаном, смелым молодым капитаном, который отправится на поиски легендарного Storm Trident - мифического артефакта, который дарует власть над морями. Но будьте осторожны, океан огромен, коварен и кишит опасностями на каждом шагу! Так что приготовьте пушки, поднимите паруса и погрузитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: 3DCloudsЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB983BC1ABBAFA35B1CFF6531B59BE4FA54A2E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804517   (13000) от 30.06.2025
 
 Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack FitGirl
@@ -32,7 +6,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13000.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12985.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12958.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ All About Chopsticks / Все о палочках для еды (2025) [Ru/Multi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12954.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Until Then (2024) [Multi] (20241126 Build 16523932) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12905.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12902.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Blood West (2023) [Ru/Multi] (4.4.1/dlc) Repack FitGirl [Dead Man's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12884.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.5.1.23830) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12881.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tobacco Shop Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12871.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Dishonored (2012) [Ru/Multi] (334700) Repack EXROW [RHCP Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12863.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Operator (2024) [Ru/Multi] (5145_1842) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12836.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Sandwalkers (2024) [Ru/Multi] (2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12827.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12823.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12822.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12818.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Pocket Bravery (2023) [Multi] (2.05/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12807.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Post-Apo Builder (2025) [Ru/Multi] (1.0001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12806.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12805.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12794.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Let'sРlay [Dwar
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12724.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12723.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12721.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.10) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12697.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12692.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12633.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2779316F0180EBD7644F9CD03A67DFC8F094358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774741   (12621) от 04.07.2025
+
+Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко вдохните, сосчитайте до трёх и... вперёд! Катитесь кувырком, пока не покорите гору в снежном продолжении Lonely Mountains: Downhill. Lonely Mountains: Snow Riders - это игра, в которой есть и серьёзные испытания, и лёгкая атмосфера. Прокладывайте лыжню по глубокому снегу, скользите по ледяным озёрам и выполняйте невероятные прыжки вместе с друзьями. Snow (   Читать дальше...   )Тип издания: RepackРазработчик: Megagon IndustriesЖанр: Инди, Гонки, СпортЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 ```
 
 https://mybot314.ru/tekegram_catalog/

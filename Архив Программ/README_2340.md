@@ -6,7 +6,7 @@ Firefox Browser 141.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8886.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blackmagic Design DaVinci Resolve Studio 20.1.0 Build 20 RePack by KpoJIuK (08.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8873.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Archicad 28.2.2 Build 5200 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8851.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MediaHuman YouTube Downloader 3.9.16 (0708) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8838.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MiniMeters 1.0.7 STANDALONE, VST 3, CLAP (x64) RePack [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8800.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Calibre 8.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8778.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MInstAll v.10.08.2025 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8739.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Atlantis Word Processor 4.4.6.3 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8713.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ iTubeGo YouTube Downloader 10.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8708.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AIMP 5.40.2690 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8486.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FreeTube 0.23.6 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8473.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Native Instruments - Kontakt 8.6.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8466.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ StaxRip 2.48.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8462.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Allavsoft Video Downloader Converter 3.28.2.9340 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8453.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Bandicam 8.2.0.2523  RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8450.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Flyoobe 1.0.104 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8328.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (12.08.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8327.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ K-Lite Codec Pack 19.1.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8310.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ TechSmith Snagit 25.3.0 build 7627 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8304.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Bandicam 8.2.0.2523 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8301.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Notepad++ 8.8.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8300.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Freemake Video Converter 5.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8291.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4946 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8193.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8181.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6216 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8157.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ XnView MP 1.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8154.jpg" />
 </div>
 
 

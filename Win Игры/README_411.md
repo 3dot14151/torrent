@@ -1,29 +1,3 @@
-###  Публикация: 1711792   (61214) от 31.03.2024
-
-Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Outcast - A New Beginning – это продолжение знаменитого экшена, который фактически положил начало приключенческим играм с открытым миром. Прошло около 20 лет с момента выхода первой части, но изменения получили только графическая составляющая и сюжет. Разработчики постарались вложить максимум в развитие все той же вселенной и уникального мира, дополняя его и совершенствуя.Тип издания: RepackРазработчик: Appeal StudiosЖанр: Action, Adventure, RPG, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711609   (61203) от 31.03.2024
 
 Clash: Artifacts of Chaos (2023) [Ru/Multi] (28836/dlc) Scene Tenoke
@@ -32,7 +6,7 @@ Clash: Artifacts of Chaos (2023) [Ru/Multi] (28836/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61203.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Metal Unit (2021) [Ru/Multi] (010309) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61202.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ There's Something In The Ice (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61192.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Pepper Grinder (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61191.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Montezuma's Revenge (2020) [En] (1.32) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61166.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Repack FitGirl [Vanguard E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61152.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61142.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Svarog's Dream (2023) [En] (2.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61110.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61101.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61061.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Necrosmith 2 (2024) [Ru/Multi] (1.0.0.262) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61034.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61001.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Distant Bloom (2024) [Multi] (41064.3120) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60997.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60982.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Tactic Boxing (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60981.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Between Horizons (2024) [Multi] (1.0.4+s) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60957.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Gore Doctor (2024) [En] (1.05) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60952.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60932.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Tempus Rail (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60910.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Geneforge 2 - Infestation (2024) [En] (1.0/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60904.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Real Estate Simulator: From Bum to Millionaire (2024) [Ru/Multi] (3815219) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60902.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (0.2.0.5.202403281756/dlc) Repack F
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60880.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Legend of Heroes: Trails into Reverie (2023) [En] (1.1.4/dlc) License GOG [L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60837.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60774.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60772.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CCBB373AC40FAB5AD48ADE3BA28CAC5B78F1F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713370   (60722) от 05.04.2024
+
+No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60722.jpg" />
+</div>
+
+
+###  Подробнее
+
+No Plan B – это тактическая стратегия и по совместительству симулятор спецназа. В игре мультяшная графика и изометрический вид. Можно регулировать масштаб, и менять ракурс камеры. В инди-тайтле присутствует кровь. В No Plan B есть 2 фракции. Можно играть за спецназовцев или преступников. Первые занимаются спасанием заложников и обезвреживанием (или ликвидацией) бандитов, (   Читать дальше...   )Тип издания: SceneРазработчик: GFX47Жанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AD09E22D7E6171DFC3D98F5F80DF563F710D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

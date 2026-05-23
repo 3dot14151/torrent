@@ -6,7 +6,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721931.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dead Island: Riptide (2016) [Ru/Multi] (1.0) Repack YelloSOFT [Definitive Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721491.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720897.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719992.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719984.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hellbound (2020) [En] (1.0.1) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718522.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.3) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718469.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/upd4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717878.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hellpoint (2020) [Ru/Multi] (1.01) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716460.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Relicta (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716457.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fear of Clowns (2017) [En] (1.01) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715859.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SINISTRY SILINIUM (2018) [Ru/En] (1.04) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714964.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714621.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714359.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Clockwise (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713935.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Tick Tock Bang Bang (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713274.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ The Park (2015) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713074.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Star Rage VR (2017) [En/Ch] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712992.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Alien: Isolation (2014) [Ru/En] (1.0u9/dlc) Repack Decepticon [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712325.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ I Expect You To Die (2017) [En] (1.0.113008) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711274.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FireStarter (2004) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710214.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Hold Out (2020) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708820.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.1.26717up2) Repack xatab (обновля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706817.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Inevitability (2017) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706304.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704700.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703000.jpg" />
 </div>
 
 

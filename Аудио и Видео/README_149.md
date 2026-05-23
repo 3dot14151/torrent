@@ -1,380 +1,3 @@
-###  Публикация: 1545781   (609755) от 22.04.2022
-
-VA - Beluga Lounge, Vol. 4 (2013) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. S.W. - Angels Care for Us (1:51)
-02. Big World, Swen G, Inusa - Morning Light (Sinatic Chillout Remix) (4:26)
-03. KoolSax - Against the Odds (5:22)
-04. Lemongrass, Jane Maximova - Riddle (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5366D836552A5297E8DD15938E5B80C74AD90C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545777   (609753) от 22.04.2022
-
-VA - Beluga Lounge, Vol. 2 (2012) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. J'Unique - Eine sekunde (Faris al-hassoni timecode mix) (6:26)
-02. 351 Lake Shore Drive - Provençale (Hotel Del Mar Edit) (5:10)
-03. Johannes Huppertz, Twila.too - Sapristi (4:48)
-04. Euphonic Traveller - Loungin @ la rue boissy d anglais (6:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2FC9AB26E1BA63403E3E98E5B26CCDECB71A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545779   (609752) от 22.04.2022
-
-VA - Beluga Lounge, Vol. 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Cardinal Zen - Summer Solstice (4:48)
-02. Barclay & Cream - Natural Thing (Alexander Metzger Mix) (5:16)
-03. Northbound - Twice the Day (4:34)
-04. Guenter Haas - Cienfuegos (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93A89A6035DE27CB2DF2A584A306165ED284EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545999   (609741) от 22.04.2022
-
-VA - We Chill del Mar, Vol. 2 (2014) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Ms. Jones and the Fireflies - Inception of Life (Birdy Monster People Mix) (5:23)
-02. Restless Mind - Chill Fever (Chill Del House Edit) (5:05)
-03. Pink Cookies - Clouds but No Sky (Shake in Harlem Mix) (6:02)
-04. Untited Basement Chiller - After Work (Jo Low Edit) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433ABE8FB191339438998A76A7FFDC8FEA83F1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545786   (609739) от 22.04.2022
-
-VA - Chillout Room Session #2 (2012) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Antibe Coast - Stile moderno (4:41)
-02. Jazz Nature - Consumato (5:04)
-03. Free South Project - Riflesso (5:07)
-04. Purechill - Un attimo (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61636D37F17CCD2273671C0209B4456BC656EF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546009   (609634) от 22.04.2022
-
-VA - Cigar Lounge, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Rainer Schnelle - White Wine (Underscore Version) (1:40)
-02. Omaya - Silence (3:29)
-03. Van Young - 'Em Be Myo (4:53)
-04. Body Talkers - Let the Music Be Your Guide (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134BE0C4204072C672258691BED5C44E49D64B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545775   (609633) от 22.04.2022
-
-VA - Beluga Lounge, Vol. 1 (2011) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Aqualise, Jane Henley - Lost in the Sea (8:46)
-02. Albert St.Barth - Cafe au lait (Deluxe Lounge Mix) (5:52)
-03. Josephine Sinclar - Sommernachtstraum (Kiss and Blow Mix) (7:11)
-04. Smooth Deluxe - El Ritmo (Private Gossip Edit) (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0A985E0072C8CF3E920FE977070EAA1F9BDF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545789   (609631) от 22.04.2022
-
-VA - We Chill del Mar, Vol. 1 (2013) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Midday Dreams - The Island of Dreams (4:48)
-02. Dairy of Dreams - Infinity (Part 1) (5:31)
-03. Blank Division - Serenity Moves (4:40)
-04. Deep Sound Employees - Follow (Beach Cafe Mix) (5:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A061BE666E87EFF8EC421A299F9062E27E876ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545784   (609627) от 22.04.2022
-
-VA - Chillout Room Session #1 (2012) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Art Lounge - La tua galassia (5:12)
-02. Lemon From Sicily - Ti prendo (4:41)
-03. Backsoul System - Incontri notturni (4:35)
-04. Sardinia Lovers - Nel cuore (4:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD156366ED7B792E312D235D209B6771801CFA32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545824   (609617) от 22.04.2022
-
-VA - In the Forest: Urban Deep Chill Music (2022) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Celloni, Didascalis - Bonfire on the White Beach (5:20)
-02. Marga Sol, Darles Flow - Feel the Rain (Original Mix) (6:10)
-03. Chris le Blanc, Susanna Rosza - Offshore Serenade (4:15)
-04. Marco Celloni, Gold Lounge - Yammah (4:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Deep HouseПродолжительность: 01:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3D4A028684E82B9D4F67F0823B6D93C8D4A16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546004   (609506) от 22.04.2022
-
-VA - Sax for Sex, Christmas Edition (2014) [AAC|~329 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Soleil Fisher - After the Echoes (Instrumental Bar Mix) (5:54)
-02. Jizz Jazz - Lost in Your Eyes (Cool Cut Mix) (4:20)
-03. Saxlounger - Cloudburst (Sweeping Smooth Mix) (5:02)
-04. Deechiller - City Lights (Soul 2 Sax Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F51AC3E248AEA132523CD2F8C0C410124708C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545790   (609503) от 22.04.2022
-
-VA - Sax for Sex, Vol. 2 (2013) [AAC|~317 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzadelic - Bridge to the Devine (Golden Sunset Mix) (5:22)
-02. Royspop - I Call My Soul (Climax Saddle Mix) (4:31)
-03. Bent Over - Salamander (Groovy Obsession Mix) (4:25)
-04. Burning Lipps - Near or Far (Erotic Beach Love Mix) (4:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC41629892E4ABBB44B971D88EEF36EABEFFF1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545787   (609497) от 22.04.2022
-
-VA - Sax for Sex, Vol. 1 (2013) [AAC|~311 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Cooltrane - Capture the Sun (Ibiza Del Mar Mix) (4:55)
-02. Swinging Sunlight - Flying in Circles (Balearic Chill Guitar Mix) (4:57)
-03. Deechiller - City Lights (Soul 2 Sax Mix) (5:09)
-04. Jazz L'amour - Let Me Be Your Fantasy (La Nuit Voyage Mix) (5:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584A88C21D72DBB063AEA246B90A4D4D94396E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147370   (609190) от 02.07.2017
 
 Жмот / Radin ! (2016) BDRip [1080p] ATV
@@ -383,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609190.jpg" />
 </div>
 
 
@@ -409,7 +32,7 @@ Jason Graves - Tomb Raider (2013) [AAC|WEB-DL|256 кб/с]<Score>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608827.jpg" />
 </div>
 
 
@@ -438,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608777.jpg" />
 </div>
 
 
@@ -464,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608773.jpg" />
 </div>
 
 
@@ -491,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608596.jpg" />
 </div>
 
 
@@ -517,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608481.jpg" />
 </div>
 
 
@@ -543,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608363.jpg" />
 </div>
 
 
@@ -569,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608242.jpg" />
 </div>
 
 
@@ -595,7 +218,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [576p]
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608226.jpg" />
 </div>
 
 
@@ -621,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608185.jpg" />
 </div>
 
 
@@ -647,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608170.jpg" />
 </div>
 
 
@@ -673,7 +296,7 @@ VA - My Cat Loves to Chill: Chillout Your Mind (2022) [AAC|~322 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608130.jpg" />
 </div>
 
 
@@ -702,7 +325,7 @@ VA - The 100, Vol. 2 (2022) [AAC|~320 Kbps] <Progressive House, Deep House, Tech
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607993.jpg" />
 </div>
 
 
@@ -716,6 +339,360 @@ VA - The 100, Vol. 2 (2022) [AAC|~320 Kbps] <Progressive House, Deep House, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07DE127D168912F4760620B56D300985B0DF2622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805484   (607930) от 16.07.2014
+
+Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607930.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Тоби Маршалла, гениального автомеханика, чьей единственной отдушиной является участие в подпольных гонках. Чтобы сохранить семейную мастерскую, Тоби вынужден взять в партнеры богатого и заносчивого бывшего гонщика NASCAR Дино Брюстера. Когда дела Тоби наконец-то начинают идти в гору, Дино подставляет партнера, и Тоби обвиняют в преступлении, которого он не совершал. Спустя два года Тоби выходит из тюрьмы с мыслью о мести. Чтобы достичь своей цели, ему придется совершить невозможное и доказать, что даже (   Читать дальше...   )Жанр: боевик, триллер, драма, криминалПродюсер: Джон Гэйтинс, Патрик О’Брайэн, Марк СурианВ ролях: Аарон Пол, Доминик Купер, Имоджен Путс, Дакота Джонсон, Майкл Китон, Рамон Родригес, Ник Чинланд, Скотт Мескади, Рами Малек, Харрисон ДжилбертсонПеревод: Дублированный (LINE)Язык субтитров: АнглийскийПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD69444A4D8DB9329AAFEE5AA994BC3F053D833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231358   (606888) от 17.06.2018
+
+Код 211 / 211 (2018) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский код 211 — ограбление банка. Такой сигнал получает офицер Чандлер во время своей смены. Он бросается на место событий, чтобы не позволить преступникам сбежать с добычей.Производство: США / 211 Productions, Millennium Films, Nu Image BulgariaЖанр: Боевик, Драма, ИсторияРежиссер: Йорк ШеклтонАктеры: Николас Кейдж, Софи Скелтон, Майкл Рейни мл., Дуэйн Камерон, Уэстон Кейдж, Кори Хардрикт, Ори Феффер, Марк Баснайт, Аманда Серни, Майкл БеллисариоПеревод: Многоголосый (профессиональный, закадровый) (MUZOBOZ)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B383BCEAA69674B9F492B89E78CFB48B7BC88BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231333   (606878) от 17.06.2018
+
+Заводной апельсин / A Clockwork Orange (1971) BDRip [720p]  ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606878.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме был произведен исчерпывающий анализ причин преступности среди молодежи, нетерпимости нового поколения к привычным моральным ценностям и жизненным устоям современного общества.
+Безжалостный лидер банды подростков, совершающей убийства и изнасилования, попадает в тюрьму и подвергается специальной обработке по подавлению подсознательного стремления к насилию. (   Читать дальше...   )Производство: Великобритания, США / Warner Bros. PicturesЖанр: Фантастика, Драма, КриминалРежиссер: Стэнли КубрикАктеры: Малкольм МакДауэлл, Патрик Мэги, Майкл Бейтс, Уоррен Кларк, Эдриенн Корри, Карл Дюринг, Пол Фэррел, Клайв Фрэнсис, Майкл Говер, Мириам Карлин, Джеймс МаркусПеревод: Профессиональный, многоголосый (закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 02:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4247720853FB668B2B08F4EB22D3ED1B8C7C4D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231275   (606773) от 17.06.2018
+
+Тренер  (2018) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футболист национальной сборной Юрий Столешников в ответственный момент не забивает пенальти. После досадной ошибки Столешников покидает сборную, завершает карьеру и становится тренером маленькой провинциальной команды. Именно с этим клубом Столешникову предстоит совершить чудо и вновь поверить в себя.Производство: РоссияЖанр: Драма, спортРежиссер: Данила КозловскийАктеры: Данила Козловский, Владимир Ильин, Андрей Смоляков, Ольга Зуева, Ирина Горбачева, Виктор Вержбицкий, Мария Лобанова, Павел Ворожцов, Игорь Гордин, Александр Ильин мл.Перевод: (Не требуется)Субтитры: НетПродолжительность: 02:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505C8C4B2CC5F39ED6AE942D04EB6C20BEC1C4A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751835   (606743) от 28.06.2015
+
+Bear McCreary - Черные паруса / Black Sails (2014) [AAC|WEB-DL|256 кб/с]<Score>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Theme from Black Sails
+ 02 - Nassau Shores
+ 03 - L'urca de Lima
+ 04 - The Banner of Captain Flint(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0415B471FA7D91682D445DC888CE9FC0D975F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297164   (606563) от 20.04.2019
+
+Рождённый стать королём / The Kid Who Would Be King (2019) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повседневные проблемы 12-летнего Алекса отходят на второй план после того, как он находит легендарный Экскалибур. И теперь, когда меч короля Артура оказывается в руках самого неудачливого подростка в Британии, начинается грандиозное приключение, в ходе которого Алекс и его друзья должны остановить злую средневековую волшебницу Моргану и не дать ей уничтожить мир.Производство: Великобритания, США / Big Talk Productions, TSG Entertainment, Working Title FilmsЖанр: Фэнтези, боевик, приключения, семейныйРежиссер: Джо КорнишАктеры: Луис Эшборн Серкис, Денис Гоф, Дин Чауму, Том Тейлор, Рианна Доррис, Нэйтан Стюарт-Джарретт, Нома Думезвени, Ребекка Фергюсон, Марк Боннар, Энгус ИмриПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781E69A01FCF1FCE959BDBC0552CF948794B77B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297154   (606562) от 20.04.2019
+
+Рождённый стать королём / The Kid Who Would Be King (2019) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повседневные проблемы 12-летнего Алекса отходят на второй план после того, как он находит легендарный Экскалибур. И теперь, когда меч короля Артура оказывается в руках самого неудачливого подростка в Британии, начинается грандиозное приключение, в ходе которого Алекс и его друзья должны остановить злую средневековую волшебницу Моргану и не дать ей уничтожить мир.Производство: Великобритания, США / Big Talk Productions, TSG Entertainment, Working Title FilmsЖанр: Фэнтези, боевик, приключения, семейныйРежиссер: Джо КорнишАктеры: Луис Эшборн Серкис, Денис Гоф, Дин Чауму, Том Тейлор, Рианна Доррис, Нэйтан Стюарт-Джарретт, Нома Думезвени, Ребекка Фергюсон, Марк Боннар, Энгус ИмриПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BD092B9D708EFEB80D5FB6EC2D71EE0586BD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289379   (606454) от 20.04.2019
+
+Данияр Сугралинов | Угроза А-класса (2019) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой книги – обыкновенный подросток. Значительную часть времени он проводит в онлайн-игре с полным погружением в виртуальный мир. Это просто развлечение, которое к тому же начинает надоедать. Но жизнь – дама взбалмошная и всегда может перевернуть всё с ног на голову. Развод родителей ставит крест на перспективах обучения и карьерного роста их сына. Теперь «Дисгардиум» (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 10:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D562B510C5F998CB85C16DA7A7B56890B34A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797014   (606346) от 17.07.2014
+
+Hans Zimmer, Geoff Zanelli and Blake Neely - Тихий океан / The Pacific (2010) [AAC|WEB-DL|256 Kbps] <Score>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Honor (Main Title Theme from ''The Pacific'')
+ 02 - With the Old Breed (End Title Theme from ''The Pacific'')
+ 03 - You Have No Idea
+ 04 - Terrible Solomons(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BC260950BC6AB8706EE0071069E138AD4A68B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545549   (606268) от 24.04.2022
+
+VA - Coffee Break: Chillout Your Mind (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Special (5:26)
+02. M-Sol Project, Marga Sol - Silent Traveler (3:57)
+03. Beamy - Sierra De La Plata (4:51)
+04. James Butler - Dinner for Two (Original Mix) (3:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046F6C31C74C0A01725A4AC49033A38E2D58F561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545545   (606260) от 24.04.2022
+
+VA - Deep Skin Vibes (Perfect Time To Relax), Vol. 2 (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krystian Shek - MAL-FRA (3:05)
+02. Life Audience - Buddah Wears Headphones (5:20)
+03. Digital Rain - I Miss You (7:34)
+04. Roberto Vangeli - Prelude (Isla De Es Vedr) (1:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D0B2D79C81C95C6102E6A45C1A35996A730B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545529   (606126) от 24.04.2022
+
+VA - Vocal Trance Hits 2022, Vol. 1 (2022) [AAC|~330 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren, Sam Gray - Human Touch (Club Mix) (2:28)
+02. Roger Shah, Sian Evans - Hide U (Jerome Isma-Ae 2022 Remix) (4:14)
+03. Avira, Sam Martin - Change My World (4:00)
+04. Chicane - Sailing (Back Pedal Brakes Remix) (3:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A80B571DA56335F26F7307B47FA95930C729401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805693   (605868) от 17.07.2014
+
+Всё и сразу  (2013) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тима и Дэн — друзья-неудачники из провинциального городка. Учеба позади, работать не тянет, девушек нет. На пути к мечте (выбиться в люди) и в надежде получить всё и сразу (без особого напряга) парни берутся выполнить задание местного бандюка и отправляются на дело, прихватив с собой автослесаря Жору, такого же полного лузера.Жанр: комедия, криминалПродюсер: Александр Котелевский, Андрей Новиков, Дмитрий НелидовВ ролях: Никита Ост, Антон Шурцов, Александр Паль, Юлия Хлынина, Артем Костюнёв, Андрей Муравьёв, Александр Шаляпин, Андрей Галактионов, Игорь Тарасевич, Ольга ВозоваяПеревод: Не требуетсяПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FCD606882F68CAB2704BC7A9033B15EB30F909
 ```
 
 https://mybot314.ru/tekegram_catalog/

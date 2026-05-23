@@ -6,7 +6,7 @@ Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вда�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530727.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530719.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные д�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530711.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530708.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530694.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530614.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529929.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529754.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529491.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529249.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529208.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529132.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|im
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528814.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ William Ogmundson - Simple Gifts (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528679.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528641.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenc
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528636.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528075.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527912.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Hard Working Americans - We're All In This Together (2017) [MP3|320 Kbps] <Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527653.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527646.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Sirtaki Dance (2003) [MP3|192-320 kbps] <Instrumental, Dance>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527429.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527004.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526692.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526403.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526079.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526077.jpg" />
 </div>
 
 

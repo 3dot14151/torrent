@@ -1,57 +1,3 @@
-###  Публикация: 207527   (722882) от 05.06.2010
-
-Возвращение Супермена / Superman Returns (2006) [H.264] HDDVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Возвратившись на Землю после своего многолетнего и загадочного отсутствия, Супермен обнаруживает, что его заклятый враг Лекс Лютор опять строит ему козни, а его возлюбленная Лоис Лэйн вроде бы уже устроила свою личную жизнь. Кроме того, Супермен понимает, что за то время, когда его не было, люди научились прекрасно обходиться без него.
-
-Чтобы защитить мир, который (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Брайан Сингер.Актеры: Брэндон Рут, Кейт Босворт, Кевин Спейси, Джеймс Марсден, Паркер Поузи, Фрэнк Ланджелла, Сэм Хантингтон, Ева Мари Сэйнт, Марлон Брандо, Кэл Пенн и др.Язык субтитров: 1. Русские (только надписи) 2. Русские (полные) 3. Английские (полные)Продолжительность: 02:34:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218389   (722845) от 09.04.2018
-
-Страна призраков / Ghostland (2018) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бэт возвращается в родные места, где много лет назад с её семьёй произошла страшная трагедия. В старом особняке её ждут мать и сестра, помешанная на призраках, чья одержимость злыми духами - не что иное, как отголосок ужасного инцидента, превратившего жизнь в параноидальный кошмар. В доме начинают происходить странные события, объяснить которые Бэт не в силах...Производство: Франция, Канада | Inferno Pictures Inc., 5656 Films, Mars FilmsЖанр: УжасыРежиссер: Паскаль ЛожьеАктеры: Кристал Рид, Анастасия Филлипс, Эмилия Джонс, Тейлор Хиксон, Милен Фармер, Роб Арчер, Анджела Эшер, Эрик Атхавале, Тони Брэга, Паоло БрайантПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBB2BFE19AD1AB76409D324D55C20BBA54125E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218332   (722843) от 09.04.2018
 
 6 дней / 6 Days (2017) BDRip [H.264]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722843.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722842.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722830.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722828.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722742.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722733.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722603.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722594.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722591.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722578.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722572.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722561.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722480.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722434.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722431.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722360.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722311.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722309.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722307.jpg" />
 </div>
 
 
@@ -554,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722305.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722301.jpg" />
 </div>
 
 
@@ -607,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722290.jpg" />
 </div>
 
 
@@ -633,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722289.jpg" />
 </div>
 
 
@@ -659,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722236.jpg" />
 </div>
 
 
@@ -670,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D820369D14C69CEC7028A4723495B84EED351F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531235   (722232) от 15.02.2022
+
+Между небом и землёй / The In Between (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пережив автомобильную аварию, унесшую жизнь её парня, девушка верит, что он пытается воссоединиться с ней из загробного мира.Производство: США / Industry Entertainment, Paramount PlayersЖанр: Фантастика, драма, мелодрамаРежиссер: Арье ПозинАктеры: Кайл Аллен, Джои Кинг, Джон Ортис, Селеста О`Коннор, Ким Диккенс, Дайни Родригес, Эйприл Паркер, Анна Стэндлер, Донна Биско, Джефф ПарисПеревод: Любительский, двухголосый (Pazl Voice)Субтитры: русские, английскиеПродолжительность: 01:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60DC75880E18276AD30AE2E200F51F504810A3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531497   (722231) от 15.02.2022
+
+Чёрный ящик / Boite noire (Black Box) (2021) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крушение новейшего авиалайнера уносит жизни сотен людей. Пролить свет на причины катастрофы может только расшифровка чёрного ящика. Расследование возглавляет талантливый и эксцентричный аналитик Матьё с уникальным слухом. Чем дальше он продвигается на своем пути, тем больше обнаруживает подозрительных обстоятельств. Но никто не верит Матьё. Так может это всего лишь (   Читать дальше...   )Производство: Франция, Бельгия / 2425 Films, Wy Productions, France 2 CinémaЖанр: Триллер, драма, детективРежиссер: Ян ГозланАктеры: Пьер Нинэ, Лу де Лааж, Андре Дюссолье, Себастьен Пудеру, Оливье Рабурден, Гийом Марке, Мехди Джаади, Энн Азулай, Орельен Рекуан, Грегори ДеранжерПеревод: Дублированный (КиноПоиск HD)Субтитры: Русские (форсированные)Продолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C946450821BA69B1108F67DA8C591B1CB98F0D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

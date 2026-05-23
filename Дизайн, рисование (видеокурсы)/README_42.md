@@ -6,7 +6,7 @@ Profileschool | Пейзажная симфония (2013) [PCRec]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468458.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating the Dune Ornithopter from start to fin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465740.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Skillshare, 3D Tudor | Blender 3 to Unreal Engine 5 Dungeon Modular Kitbash (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465738.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457682.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ CG Cookie | Текстурирование оружия в Blender 2.79 и Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457489.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Udemy | Создание катаны для игр в Blender 2.83 и Substance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457355.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CG Cookie | Моделирование оружия для шутера от п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457235.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Denis Kozhar | UE4 by Denis Kozhar (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457222.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Profileschool | Графический планшет для ретушера (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457211.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456919.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CG Cookie | Создание карт нормалей для игр в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455577.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ CG Cookie | Текстурирование и шейдинг Sci-Fi шлема �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455433.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ CG Cookie | Моделирование пост апокалиптическог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455430.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ CG Cookie | Моделирование Sci-Fi шлема в Blender 2.71 / Model
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455429.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lynda.com | CSS: Styling Forms (2012) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454417.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Groove3, Эрик Кинл | Creating Game Audio with Pro Tools (2015) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453506.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Artstation, Aleksandr Kirilenko | Becoming An Expert In Marvelous Designer (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452920.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451296.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Udemy, ChamferZone, Tim Bergholz | Revolver Tutorial - Industry Ready Weapon & A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450837.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450836.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ CG Forge, Tyler Bay | Destruction I - RBD simulation (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449401.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Entagma, Moritz Schwind | Mograph Liquids: Controlling FLIP Fluids Via Curve For
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449285.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Entagma, Moritz Schwind | Axiom Solver: Dissolving Logo (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449252.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Udemy, Hardy Fowler | Line Art Master (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449101.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Masterclass, Will Wright | Will Wright Teaches Game Design and Theory (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449098.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ David Luong | Intro to Digital Matte Painting (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448885.jpg" />
 </div>
 
 

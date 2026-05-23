@@ -1,29 +1,3 @@
-###  Публикация: 1725604   (55410) от 25.05.2024
-
-RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-RKGK переносит игроков в мрачный нео-бруталистский мегаполис Кэп-Сити, находящийся под гнётом зловещей корпорации B Corp. Главная героиня Вал вместе со своей командой RKGK ставит перед собой цель освободить город, используя граффити как мощное средство сопротивления и самовыражения. Геймплей сочетает в себе элементы экшена, паркура и художественного творчества.Тип издания: RepackРазработчик: Wabisabi GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Испанский, ЯпонскийЯзык субтитров: Английский, Испанский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Испанский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBE8BD95E812EA1D6485CF8DB19E32B35CF3018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725944   (55381) от 26.05.2024
 
 Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGirl
@@ -32,7 +6,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55381.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Kubikon 3D (2024) [Multi] (1.0.12) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55365.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55354.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55334.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55325.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Hauntii (2024) [Multi] (1.0) Scene Razor 1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55323.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Regency Solitaire (2015) [En] (1.21) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55302.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Regency Solitaire II (2024) [En] (1.04) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55286.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Nocturnal (2023) [Multi] (1.2.1.748) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55274.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Car For Sale Simulator 2023 (2023) [Ru/Multi] (0.3.4) Repack Pioneer [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55255.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.544) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55248.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ THE KING OF FIGHTERS XV (15) (2022) [Ru/Multi] (2.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55229.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ City Legends 4: The Witness in the Rye / Городские легенды 4: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55220.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55210.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ TasteMaker: Restaurant Simulator (2021) [Multi] (1.0.3) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55177.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Galacticare (2024) [Ru/Multi] (1.0.3b/dlc) License GOG [Placebo Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55175.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55171.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55169.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack FitGirl [Platinum E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55157.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55149.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cuphead (2017) [Ru/Multi] (1.3.2/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55142.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55136.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Pre Dusk (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55135.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55121.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Magic City Detective 5: The Carnival Begins (2024) [Multi] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55092.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Magic City Detective 5: The Carnival Begins (2024) [Multi] (1.0) Unofficial [Col
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E83EAC426367C434A0FFBBC13E5232F653ED6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725448   (55072) от 29.05.2024
+
+CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55072.jpg" />
+</div>
+
+
+###  Подробнее
+
+CONSORTIUM Remastered ставит вас на место Консорциума Бишопа Шестого, высокопоставленного миротворца в 2042 году. Убийство на борту футуристического самолета создает основу для захватывающего расследования с уникальным поворотом: вы используете свой собственный голос, чтобы взаимодействовать с экипажем и влиять на ход повествования. В игре реализована разветвленная (   Читать дальше...   )Тип издания: LicenseРазработчик: Interdimensional Games IncЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BA8099D41DD1C67F4279A3B88AD280B69F6AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

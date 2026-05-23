@@ -1,85 +1,3 @@
-###  Публикация: 1693551   (121794) от 21.01.2024
-
-Александр Седых | Проект «Надежда» (Книга 3). Неожиданный итог (2023) [MP3, Артём Мрак]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Неожиданный итог» – фантастический роман Александра Седых, третья книга цикла «Проект „Надежда“», жанр космическая фантастика, попаданцы.
-
-Путь домой оказался не таким быстрым, как хотелось. То и дело приходится решать очередные проблемы, и не только свои. Случайности. Космические сражения. Политические интриги. Чужие тайны. Виктор сам не понял, как и когда оказался (   Читать дальше...   )Жанр: Космическая фантастика, попаданцыИздательство: ИДДКПродолжительность: 14:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935FF1F49CCAA9D00A320372BE58863322C43AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693566   (121775) от 21.01.2024
-
-Сергей Карелин, Евгений Лисицин | Покоритель Звездных врат (Книга 1) (2024) [MP3, Soarer]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Кому-то далекое будущее может показаться прекрасным, но это только с дивана. Я же ощутил все прелести попаданчества на собственной шкуре. Уснул на даче, проснулся в теле наследника японского аристократического рода. Казалось бы все классно – денег полно, девчонки на шею вешаются, но это всего-лишь ширма. Враг не дремлет, желающие меня убить выстраиваются в очередь. (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 09:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6307A5A8B50FA41505D27C1446CCDBAFD03621A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693550   (121773) от 21.01.2024
-
-Андрей Ткачёв, Георгий Сомхиев | Младший сын князя (Книга 1) (2024) [MP3, Михаил Алексеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Младший сын князя» – роман Андрея Ткачева и Георгия Сомхиева, первая книга одноименного цикла, жанр бояръ-аниме, боевое фэнтези, городское фэнтези.
-
-Обладать уникальной силой, направленной на то, чтобы помочь другим, и в итоге всё равно погибнуть, но унести жизни врагов с собой. Казалось бы, на этом конец, но новый мир даёт возможность прожить жизнь иначе, как будто (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-аниме, Городское фэнтезиИздательство: ИДДКПродолжительность: 07:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DFA7705BBFC1F4CE76E4F4C4A17E0A3235E235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693558   (121769) от 21.01.2024
 
 Василий Лазарев | S-T-I-K-S. Гром (Книга 1) (2023) [MP3, Александр Чайцын]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121769.jpg" />
 </div>
 
 
@@ -117,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121766.jpg" />
 </div>
 
 
@@ -143,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121765.jpg" />
 </div>
 
 
@@ -169,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121757.jpg" />
 </div>
 
 
@@ -197,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121746.jpg" />
 </div>
 
 
@@ -225,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121742.jpg" />
 </div>
 
 
@@ -252,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121731.jpg" />
 </div>
 
 
@@ -279,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121728.jpg" />
 </div>
 
 
@@ -307,7 +225,7 @@ Zampolit | Касик (Книга 1). Герильеро (2023) [MP3, Игорь
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121721.jpg" />
 </div>
 
 
@@ -335,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121629.jpg" />
 </div>
 
 
@@ -361,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121603.jpg" />
 </div>
 
 
@@ -387,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121595.jpg" />
 </div>
 
 
@@ -413,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121589.jpg" />
 </div>
 
 
@@ -442,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121584.jpg" />
 </div>
 
 
@@ -471,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121564.jpg" />
 </div>
 
 
@@ -497,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121560.jpg" />
 </div>
 
 
@@ -525,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121551.jpg" />
 </div>
 
 
@@ -551,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121522.jpg" />
 </div>
 
 
@@ -577,7 +495,7 @@ Zampolit | Касик (Книга 2). Команданте (2023) [MP3, Игор
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121512.jpg" />
 </div>
 
 
@@ -605,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121492.jpg" />
 </div>
 
 
@@ -631,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121465.jpg" />
 </div>
 
 
@@ -657,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121436.jpg" />
 </div>
 
 
@@ -683,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121390.jpg" />
 </div>
 
 
@@ -694,6 +612,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE080C80E8A76F0143D0054B49F16A40B598583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364765   (121384) от 23.01.2024
+
+Генрих Бёлль | Глазами клоуна (Радиоспектакль) (2006) [MP3, Геннадий Бортников и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Золотой фонд радиоспектаклей. Зарубежная классика. XX век.
+«Глазами клоуна» – один из самых известных романов лауреата Нобелевской премии Генриха Белля. Главный герой романа – клоун Ганс Шнир – талантливый, тонко чувствующий человек, который очень остро ощущает несовершенство окружающей действительности. Его оставила любимая, и отвергли близкие, но он (   Читать дальше...   )Жанр: Зарубежная литература, классика, романВ ролях: Геннадий Бортников, Маргарита Терехова и др.Издательство: ИДДК, Бизнессофт, ГостелерадиофондПродолжительность: 02:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A954B323363309858687F4B7B1735E997C907C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364783   (121373) от 23.01.2024
+
+Генрих Бёлль | Приглашение на чай к доктору Борзигу. Час ожидания (2005) [MP3, Александр Быков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Зарубежная классика. XX век.
+Литературное наследие немецкого писателя, лауреата Нобелевской премии Генриха Белля (1917-1985) велико и разнообразно: это романы, рассказы, пьесы, стихи, памфлеты, переводы и критические статьи. Мало кто из писателей был так тесно связан с ходом истории так горячо откликался на происходящее в нашем тревожном, противоречивом мире. (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаВ ролях: Александр Быков, Алексей Михайлов, Андрей Данилюк, Анна Яновская и Лада МошароваИздательство: Парадигма C&T, AURAVOX, Радио РоссииПродолжительность: 02:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06BC6F62D02CF89772B0E9784FCD9941194DBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694146   (121371) от 23.01.2024
+
+Михаил Николаев | Вторжение на Землю (2024) [MP3, Пожилой Ксеноморф]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что же сможет объединить трех крупнейших игроков на мировой арене? Вторжение внеземной цивилизации?
+Сможет ли человечество дать достойный отпор?
+
+2025 год. Наглый разбойничий набег, в ходе которого погибло около трёх миллионов землян и ещё четверть миллиона человек были увезены в неизвестном направлении. Война миров обязательно будет, но позже. Смогут ли Россия, (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 08:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9332CBFE57D82FC9E595564F18D209E64B0893
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Chris de Burgh - Best Of Romantic (1994) Unofficial Release [APE|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630413.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chris Norman - Golden Hits (1993) Series Golden Stars [APE|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630410.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kiss - Best Of (2002) Unofficial Release [APE|Lossless|image + .cue] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630309.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629991.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Neal Morse Band - The Great Adventure (2019) 2CD [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629988.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 3CD Super 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629876.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Boston - Greatest Hits (1997) Remastered [FLAC|Lossless|tracks + .cue] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629372.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629189.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629084.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Cartoon Theory - Planet Geisha (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628669.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Neko Case, k.d. lang, Laura Veirs aka case-lang-veirs - case-lang-veirs (2016) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628642.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Steven Tyler - We're All Somebody From Somewhere (2016) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628537.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Emergency - 2 Альбома (1971-1972) Reissue, Remastered /2005, Green Tree/ 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628058.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Big Paul Ferguson - Remote Viewing  Reboot (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627964.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Mike Campbell & The Dirty Knobs - External Combustion (2022) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627899.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Paul Simon - The Paul Simon Anthology (1993) Unofficial Release [APE|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626707.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Roxette - Joyride (1993) Unofficial Release [APE|Lossless|image + .cue] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626651.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Darryl Way - Vivaldi's Four Seasons In Rock (2018) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626459.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Steve Perry (Ex. Journey) - Street Talk / For The Love Of Strange Medicine (1984
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624834.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Graham Oliver - End Of An Era (2001) [FLAC|Lossless|image + .cue] <Blues Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624729.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The BossHoss - Internashville Urban Hymns (2005) [FLAC|Lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624713.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Blue Floyd - Live in Detroit (2014) 3xCD [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623683.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Sound Of Smoke - Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623587.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainb
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623505.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [FLAC|Lossless]<Pop rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623410.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Pink Floyd - Ummagumma (1969) 2 CD Box Set, Remaster /1994, EMI Records/ [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622684.jpg" />
 </div>
 
 

@@ -1,85 +1,3 @@
-###  Публикация: 1647411   (195574) от 18.07.2023
-
-Кирилл Шарапов | На той стороне (Книга 5). Между светом и тьмой (2023) [MP3, Альберт Фомин (Fan12)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Заключительная книга серии «На той стороне». Много целей у боярина Воронцова – надо и артефакт найти, и жениться, и призвать князя, чтобы империя снова получила правителя, и, наконец, дать бой тьме, которая наступает с запада. Вот только все это проще сказать, чем сделать. Мир застыл между светом и тьмой, и только от людей, готовых встать с оружием в руках на защиту (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: Клуб любителей аудиокнигПродолжительность: 11:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD42A6FC3F7767BB7E14908F97A25FB3383E167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647449   (195570) от 18.07.2023
-
-Анатолий Дроздов | Божья коровка (Книга 1) (2023) [MP3, Анатолий Константинов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Фёдорович Дроздов – известный писатель-фантаст, работающий в разных жанрах. Представляем в аудиоформате роман «Божья коровка», написанный в смешанном жанре «попаданчества» и альтернативной истории.
-Смерть ещё не конец. А для героя книги – это не просто начало новой жизни, но и возможность изменить жизнь другого человека, перевернув её полностью. Погибнув (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: 1С-ПаблишингПродолжительность: 08:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE24C8DC9538052A0A2B93868DD7A094947BBF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647439   (195568) от 18.07.2023
-
-Михаил Игнатов | Путь (Книга 7). Искатель. Второй пояс (2023) [MP3, Олег Кейнз]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Клятвы о смерти врагов, которые ты когда-то давал…
-Ложные. Ты уже дважды прощал своих врагов.
-И то, что один из них носит на себе твой Указ «Смерть» ничего толком не меняет. Но у тебя не было другого выхода.
-Твоей силы и удачи хватило, чтобы выжить, но впереди лишь новые испытания.(   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 13:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D67751694B2658FF985706FAE415836A72E2249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647371   (195566) от 18.07.2023
 
 Ерофей Трофимов | Шатун (Книга 2). Лесной гамбит (2023). [MP3, Пожилой Ксеноморф]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195566.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195491.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195438.jpg" />
 </div>
 
 
@@ -166,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195402.jpg" />
 </div>
 
 
@@ -192,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195369.jpg" />
 </div>
 
 
@@ -221,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195290.jpg" />
 </div>
 
 
@@ -247,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195275.jpg" />
 </div>
 
 
@@ -273,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195273.jpg" />
 </div>
 
 
@@ -301,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195261.jpg" />
 </div>
 
 
@@ -329,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195260.jpg" />
 </div>
 
 
@@ -358,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195248.jpg" />
 </div>
 
 
@@ -386,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195234.jpg" />
 </div>
 
 
@@ -412,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195203.jpg" />
 </div>
 
 
@@ -439,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195170.jpg" />
 </div>
 
 
@@ -465,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195110.jpg" />
 </div>
 
 
@@ -491,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195012.jpg" />
 </div>
 
 
@@ -520,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194968.jpg" />
 </div>
 
 
@@ -546,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194964.jpg" />
 </div>
 
 
@@ -572,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194953.jpg" />
 </div>
 
 
@@ -598,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194950.jpg" />
 </div>
 
 
@@ -624,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194948.jpg" />
 </div>
 
 
@@ -650,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194932.jpg" />
 </div>
 
 
@@ -676,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194913.jpg" />
 </div>
 
 
@@ -689,6 +607,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96F3BD1C70E7526E5E169CA8C52778FDD697A6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650578   (194911) от 02.08.2023
+
+Юрий Винокуров, Олег Сапфир | Кодекс Охотника (Книга 2) (2023) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я Истребитель Монстров 5-го класса, барон Александр Галактионов. Я всё еще барон без баронства, без земли и без родового кольца.
+Раз уж мне и в этой жизни не подали всё на "блюдечке с голубой каёмочкой", придётся своими силами создать тот мир, что мне нужен. Снова…Жанр: Бояръ-Аниме, Попаданцы, Боевое фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 07:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4262C354F34F2AFD961E3C54DAC7DD0F55AD2591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650581   (194899) от 02.08.2023
+
+Юрий Винокуров, Олег Сапфир | Кодекс Охотника (Книга 4) (2023) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родовое Имение - 🏡
+Родовой меч - 🗡
+Питомцы - 👻🐜🐱
+Враги - ☠️ (еще далеко не все)(   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы, Боевое фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 07:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0AC54DD5B5077F2A03663FBA321A4D64154CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650339   (194884) от 01.08.2023
+
+Антон Буткевич | Моя Космическая Станция (Книга 1). (2023) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав то, что не следовало, капитану корабля пришлось спасаться бегством от Империи. Возвращаться обратно нельзя ни в коем случае – это может подставить под удар весь его род и семью. Герою пришлось провести почти полторы сотни лет в криогенной камере, пока, наконец-то, не была найдена пригодная для жизни планета, не подконтрольная ВИСу. Но всё ли так просто, или (   Читать дальше...   )Жанр: ФантастикаИздательство: ИДДКПродолжительность: 10:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F6F1ED7CF1226F94B913BA2DEB73B1A723299C
 ```
 
 https://mybot314.ru/tekegram_catalog/

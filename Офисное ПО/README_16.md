@@ -6,7 +6,7 @@ Aiseesoft PDF to Excel Converter 3.3.22 RePack by вовава [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495273.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft PDF to Word Converter 3.3.26 RePack by вовава [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495260.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CleverPrint 8.6.39690 [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494560.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PDF-XChange Editor 5.5.315.0 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491577.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PDF-XChange Editor 5.5.315.0 [Multi/Rus]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481306.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nuance PaperPort Professional 14.5.15168.1450 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476963.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ABBYY FineReader 12.0.101.382 Professional [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470535.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ExcelVBA - Универсальные надстройки для Excel 09.2016 
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467752.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ExcelVBA - Универсальные надстройки для Excel 08.2017 
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466881.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AVS Document Converter 3.0.1.237 Portable by poni-koni [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463886.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ FileSearchEX 1.0.9.7 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462230.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mgosoft PDF To Image Converter 11.4.0 Portable by PortableAppC [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457018.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ScanPapyrus 16.11.2 RePack by kaktusTV [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450111.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tipard PDF to Word Converter 3.3.18 RePack by вовава [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447783.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Office 2016 16.0.4266.1001 VL Select Edition by SPecialiST x86+x64 [Ru
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441799.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Client for Google Translate Pro 6.2.620 + Portable [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437302.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Print To Word 2.0.0.15 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429777.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Readiris Pro 15.2.1 Build 9378 RePack by MKN [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423060.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ SunsetsI ePixEditions - Wallpaper Calendar 6.6.9.701 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420217.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ CoolUtils Total HTML Converter 5.1.0.133 RePack by вовава [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414529.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NXPowerLite Desktop 6.2.12 Portable by poni-koni [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413049.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Microsoft Project 2007 12.4.6423.1000 SP2 Pro Portable [RU]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405351.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MgoSoft PDF To Image Converter 11.8.5 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393884.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MgoSoft PDF To Image Converter 12.2.7 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387140.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ AkelPad 4.9.6 + Plugins (x86 & x64) RePack + Portable by San_dr (21.10.15) [Ru/E
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378868.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Movavi PDF Editor 3.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373658.jpg" />
 </div>
 
 

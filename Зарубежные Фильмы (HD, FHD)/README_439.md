@@ -1,56 +1,3 @@
-###  Публикация: 515820   (654288) от 27.06.2012
-
-Форсаж / The Fast and the Furious (2001) [H.264/720p-LQ] BDRip (Rus, Ukr, Eng)
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брайан - полицейский агент, внедряющийся в банду грабителей грузовиков. Несмотря на кажущуюся простоту дела, постепенно выявляются новые и новые факты, указывающие, что местный гонщик-сорвиголова Доминик, поначалу являющийся основным подозреваемым, может быть, и не имеет отношения к преступлениям. Ограбления продолжаются, положение запутывается с каждым днем, а главный (   Читать дальше...   )Производство: Universal Pictures / Original Film / Mediastream Film GmbH & Co. Productions KGЖанр: Боевик, триллер, криминалРежиссер: Роб КоэнАктеры: Пол Уокер, Вин Дизель, Мишель Родригес, Джордана Брюстер, Рик Юн, Чэд Линдберг, Джонни Стронг, Мэтт Шульце, Тед Левайн, Джа РулПеревод: Дублированный (Русский) / Многоголосый (Русский; Украинский) / Авторский (Гланц и Королева; Джокер; Визгунов; Живов)Субтитры: Вшитые, отключаемыеЯзык субтитров: Русский (полные, Джокер, на надписи, комментарии), английский (полные)Продолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5902F5211332C927D36CA480AA6AE28F414148B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437232   (654158) от 27.06.2012
-
-Малхолланд Драйв / Mulholland Drive (2001) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После чудовищной катастрофы на извилистой дороге Малхолланд-драйв в живых остается только прекрасная темноволосая незнакомка. Пережив глубокий шок и потеряв память, она прячется в пустой квартире, где ее находит Дайан Сэлвин, приехавшая посмотреть на роскошный и манящий Лос-Анджелес.
-Искренне сочувствуя своей новой подруге, которая назвалась Ритой, Дайан готова помочь ей вспомнить, кто она и что с ней произошло. Твердо намереваясь найти ответы на все свои вопросы, девушки выходятиз дома, устремляясь навстречу мрачным, пугающим тайнам ослепительного Города Ангелов...Жанр: Детективный Мистический ТриллерРежиссер: Дэвид ЛинчАктеры: Наоми Уоттс, Лаура Хэрринг, Энн Миллер, Дэн Хедайя, Джастин Теруа, Брент Бриско, Роберт Форстер, Кэтрин Таун, Ли ГрантПеревод: ДублированныйПродолжительность: 02:26:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903377   (654141) от 03.06.2015
 
 Любовь, измена и воровство / Love, Cheat & Steal (1993) HDTV [H.264/1080i]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654141.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654087.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654067.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654061.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654057.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654050.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653913.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653907.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653678.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653632.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ CODA: Ребенок глухих родителей / CODA (2021) BDRip [H.264/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653629.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653561.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653553.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653491.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653489.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653471.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653466.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653251.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653238.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653160.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653159.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653155.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653153.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653149.jpg" />
 </div>
 
 
@@ -674,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F080AE37DA9FA6BCF1A2FBFC094753C7BCA3F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030874   (653049) от 03.07.2016
+
+Судья / The Judge (2014) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653049.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории — успешный адвокат, который приезжает в родной город на похороны матери и узнаёт, что его отца, городского судью, подозревают в убийстве. Герой решает задержаться, чтобы выяснить правду, и постепенно лучше узнаёт родственников, с которыми давно вообще никак не общался.Производство: СШАЖанр: ДрамаРежиссер: Дэвид ДобкинАктеры: Роберт Дауни мл., Роберт Дювалл, Вера Фармига, Билли Боб Торнтон, Винсент Д’Онофрио, Джереми Стронг, Дэкс Шепард, Лейтон Мистер, Кен Ховард, Эмма ТрамблеПеревод: Профессиональный (полное дублирование) ЛицензияЯзык субтитров: Русский, украинский, английскийПродолжительность: 02:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42C834C9F7E394C29134963E87FF2713DD05A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516250   (653039) от 28.06.2012
+
+Женщина в черном / The Woman in Black (2012) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653039.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе — конец девятнадцатого века, но, хотя люди пользуются автомобилями, железными дорогами и телеграфом, человек по-прежнему бессилен перед проявлениями сверхъестественного. Молодой лондонский юрист Артур Киппс вынужден оставить своего 4-летнего сына и отправиться в командировку в уединенную северную деревушку, чтобы составить реестр документов, оставшихся от скончавшегося хозяина поместья Ил Марш. Добравшись до места и пообщавшись с негостеприимными местными жителями, он начинает понимать, что над деревушкой нависла тень мрачной тайны. Когда же рядом со старым кладбищем ему на глаза попадается загадочная женщина, одетая в черное, это малозначительное происшествие знаменует начало череды леденящих кровь смертей в семьях обитателей деревни.Жанр: Ужасы, Триллер, ДрамаРежиссер: Джеймс УоткинсПродюсер: Саймон Оукс, Брайан Оливер, Ричард ДжексонАктеры: Дэниэл Рэдклифф, Кьяран Хайндс, Джанет МакТир, Дэвид Бурк, Шон Дули, Эмма Шори, Хэрмон Молли, Софи Стаки, Миша Хэндли, Джессика РэйнеПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:35:19
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

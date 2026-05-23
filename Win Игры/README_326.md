@@ -1,29 +1,3 @@
-###  Публикация: 1831499   (212143) от 28.10.2025
-
-Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Relicta - основанная на законах физики головоломка с видом от первого лица. Раскройте тайны базы «Чандра», меняя магнетизм и гравитацию. Вы одни на Луне. Чтобы спасти дочь, вам придется полагаться на свой ум...Тип издания: RepackРазработчик: Mighty PolygonЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252141291A28A21BB9964F8679F09E50B77DF31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584485   (211966) от 19.10.2022
 
 The Intersection of Worlds: 100 Doors / Перекрёсток миров: 100 дверей (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ The Intersection of Worlds: 100 Doors / Перекрёсток миров: 100 �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211966.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211864.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211728.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Gloomy Tales: Horrific Show / Мрачные Истории: Кошмарное 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211724.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Big Earth (2022) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211616.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211588.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211583.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211561.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Tarnishing of Juxtia (2022) [Multi] (1.01) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211545.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Swallow (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211525.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211450.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211329.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Automachef (2019) [Multi] (33) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211267.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Death Trash (2021) [Multi] (0.8.7.3) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211198.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Unsolved Case 2: Murderous Script / Нераскрытое дело 2: Сцен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211192.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Golden Rails 4: Worlds Fair / Золотые рельсы 4: Всемирная 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211173.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Unsolved Case 3: The Scarlet Hyacinth (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211162.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Drunken Fist 2: Zombie Hangover (2022) [Ru/Multi] (1.0) License TiNYiSO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211161.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Hotel (2022) [Ru/Multi] (1.1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211142.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Cat Cafe Manager (2022) [Multi] (1.2.468) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211137.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211135.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211125.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ How to Say Goodbye (2022) [Multi] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211085.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Nightmare Reaper (2019) [En] (2.30) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211081.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211054.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A99A350E849F1D4ADEAD7D1DB47484B66B11882B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640789   (211031) от 19.06.2023
+
+NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте свою смекалку, чтобы решить головоломки и сбежать из абстрактного мира в этой нарисованной от руки атмосферной игре ужасов. Смотри, кто наконец решил проснуться. В NeverHome молодая девушка по имени Грейнджер внезапно просыпается в чужом мире. Храбрый через враждебный мир, используя только свой ум и помощь новых друзей, которых вы найдете на пути, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: Shadow GengisЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCAE19CB3C9748F7C52E3A569586F261A5C65AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

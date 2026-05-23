@@ -1,55 +1,3 @@
-###  Публикация: 1425220   (221881) от 20.11.2020
-
-Новые мутанты / The New Mutants (2020) UHD BDRip [H.265/2160p-LQ] [SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После нашествия на её резервацию загадочного торнадо и гибели отца Дэниель Мунстар приходит в себя связанной на больничной койке. Доктор Рейес сообщает девушке, что она - единственная выжившая, и теперь вместе с четырьмя подростками находится в специализированном учреждении, где их изучают и учат контролировать свои сверхспособности. Вскоре Дэни выясняет, что покинуть (   Читать дальше...   )Производство: США / 20th Century Fox, Marvel Entertainment, TSG EntertainmentЖанр: ужасы, фантастика, боевикРежиссер: Джош БунАктеры: Блю Хант, Алиси Брага. Мэйси Уильямс, Аня Тейлор-Джой, Чарли Хитон, Генри Зага, Адам Бич, Томас Ки, Колби Ганнетт, Хэппи АндерсонПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7855C5BCAD74900C7CB17F5B399B5C6474BA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651342   (221874) от 06.08.2023
-
-Когда мне исполнилось девять / Ahopsal insaeng / When I Turned Nine (2004) DVD9 [VO]
-
->>Зарубежное кино
->>Азиатское кино (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Простая деревенская школа. Ё-мин - мальчик из бедной семьи. Тем не менее, пользуется авторитетом среди сверстников. Вдруг в их класс приходит новенькая из Сеула, которая с первого взгляда запала в душу мальчишке. Их посадили за одну парту.Производство: Корея Южная / CJ Entertainment, Hwang Ki-seong ProductionsЖанр: драмаРежиссер: Юн Ин-хоАктеры: Сок Ким, Ли Сэ-ён, Myeong-jae Kim, Ah-hyeon Na, Baek-ri Park, Чон Сон-гён, Чи Дэ-хан, Чон Э-ён, Но Хён-джон, Ли Ён-сукПеревод: одноголосый любительский (D.I.M.)Язык озвучки: русский, корейскийСубтитры: русские (Narцissa)Продолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B615B82F86A054F1C240BA07ABFBB3BD535E341A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513812   (221872) от 30.11.2021
 
 Гайя: Месть богов / Gaia (2021) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221872.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221865.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221851.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221843.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221842.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221839.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221837.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221835.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221834.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221830.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221819.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221810.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221808.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221806.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221798.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221789.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221784.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221777.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221756.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221754.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221734.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221730.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221719.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221705.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63BDFA0429385763FE3BC9214FDA40D698593E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342650   (221699) от 03.12.2019
+
+Рэмбо: Последняя кровь / Rambo: Last Blood (2019) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он хранил секреты всю жизнь, но пришло время взглянуть в глаза прошлому. В последний раз собраться и стать безжалостной машиной для убийства. Рэмбо снова встанет на смертельно опасный путь — путь мести, который ему придется пройти до конца.Производство: США / Balboa Productions, Campbell Grobman Films, Dadi Film GroupЖанр: Боевик, триллер, приключения, вестернРежиссер: Адриан ГрюнбергАктеры: Сильвестр Сталлоне, Пас Вега, Ивет Монреаль, Луис Мэндилор, Оскар Хаенада, Шила Шах, Серхио Перис-Менчета, Джессика Мэдсен, Хоакин Косио, Адриана БаррасаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5B05FF0EC233D7D53F5BC187474C6B0C2624B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425349   (221697) от 20.11.2020
+
+Телохранитель бабушки / Lucky Grandma (2019) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в Нью-Йорке гадалка предсказала бабушке большую удачу. Никогда не поздно начать жить в свое удовольствие. Бабушка сняла все деньги со счета и отправилась в казино. Сорвать огромный куш в казино? Да легко! Нанять телохранителя? Не проблема! Черпая вдохновение из остросюжетных телесериалов, бабушка оказывается в эпицентре настоящих бандитских разборок. Теперь (   Читать дальше...   )Производство: США / Parris Pictures, Treehead FilmsЖанр: Драма, комедия, криминалРежиссер: Сеси СилиАктеры: Цай Чинь, Ха Сяоюань, Майкл Тоу, Вуди Фу, Янь Си, Вай Чин Хо, Клем Чун, Эдди Юй, Мэйсон Ям, Лиман ЧенПеревод: Многоголосый профессиональный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF17615A7385BFCC5EFBA40DD2E149E866DBD3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Cumulative Update KB4034660 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526379.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cyberfox 52.3.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526372.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 47.0.2631.39 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526341.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YTD Video Downloader PRO 5.8.6 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526337.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cumulative Update KB4034658 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526302.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SamDrivers 17.7 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526299.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat XI (v11.0.21) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526266.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Acrobat Professional DC (v17.12) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526257.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TSR Watermark Image Software Pro 3.5.6.6 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526039.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ PDF-XChange Viewer Pro 2.5.318.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525993.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Arcsoft TotalMedia Theatre 5.0.1.113 Final (SimHD-Sim3D) [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525940.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Output - Substance v1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525899.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Wise Registry Cleaner Pro 9.4.6.618 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525841.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AnyMP4 Android Data Recovery 1.2.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525828.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525821.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Cumulative Update KB4034668 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525818.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PDF-XChange Viewer Pro 2.5.322.6 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525813.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Mozilla Firefox 55.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525807.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525804.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525786.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Total Commander 9.0a Extended 17.8 Full | Lite RePack (&Portable) by BurSoft [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525781.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Slimjet 15.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525525.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Driver Easy Pro 5.5.2.18358 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525476.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Adobe Acrobat Reader DC 2017.012.20095 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525467.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ FastStone Capture 8.5 Final RePack (& portable) by KpoJIuK (08.08.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525464.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Unchecky 1.0.3  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525463.jpg" />
 </div>
 
 

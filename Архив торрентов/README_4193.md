@@ -6,7 +6,7 @@ Busuu - изучение языков 31.6.0(843845) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160854.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BetterTouchTool 4.317 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160849.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RegCool 1.346 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160848.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HDCleaner 2.060 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160832.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TapinRadio 2.15.96.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160829.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Little Snitch 5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160821.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Busuu - изучение языков 31.6.0(843845) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160818.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Opera Crypto Browser 104.0.4944.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160814.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ RarmaRadio Pro 2.75.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160812.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ NetLimiter 5.3.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160809.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ColorControl 9.7.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160805.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AOMEI Partition Assistant Standard Edition 10.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160796.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ nthLink 6.2.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160793.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ StartAllBack 3.6.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160792.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PotPlayer 231102 (1.7.22032) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160787.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Planet VPN 2.1.26.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160773.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ StartAllBack 3.6.16 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160768.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160761.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Format Factory 5.16.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160757.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160741.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160713.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160698.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ FSNotes 6.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160696.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Cookie 7.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160695.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Boxy SVG 4.15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160686.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160681.jpg" />
 </div>
 
 

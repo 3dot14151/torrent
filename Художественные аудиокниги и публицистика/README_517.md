@@ -1,81 +1,3 @@
-###  Публикация: 934453   (501263) от 06.09.2015
-
-Илья  Деревянко | Кащеева могила (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кто мы есть на самом деле? Кто-то в душе волк , кто-то свинья , а кто и вурдалак. Понять кто есть кто , пришлось героям этой трагикомической фантасмагории…Жанр: Триллер , мистикаПродолжительность: 02:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C1AD4F20063FC65311A91721EA9232BB1DC2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934513   (501245) от 06.09.2015
-
-Джон Бойн | Мальчик в полосатой пижаме (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Не так-то просто рассказать в двух словах об этой удивительной книге. Обычно аннотация дает слушателю понять, о чем пойдет речь, но в данном случае мы опасаемся, что любые предварительные выводы или подсказки только помешают ему. Нам представляется очень важным, чтобы вы начали слушать, не ведая, что вас ждет. Скажем лишь, что вас ждет необычное и завораживающее (   Читать дальше...   )Жанр: Современная проза, драмаПродолжительность: 5:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DE351DECA6FF8DCBF9B459CAEAF29495148AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541365   (501231) от 31.08.2012
-
-Дороти Хэйнс, Ричард Матесон, Стивен Кинг | Ведьма, Маленький Дракула и Тварь на дне колодца (сборник рассказов) [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Маленький сборничек с маленькими ужасненькими рассказиками, объединяющей особенностью которых является то, что главные герои в них дети.Жанр: Фантастика, ужасы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5EF8AF6F0E043B4E5E72C3C4CD70EE6EB61A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541385   (501127) от 31.08.2012
 
 Роберт Хайнлайн| Реквием [2006] [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501127.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501120.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501060.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500912.jpg" />
 </div>
 
 
@@ -196,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500828.jpg" />
 </div>
 
 
@@ -224,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500594.jpg" />
 </div>
 
 
@@ -250,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500541.jpg" />
 </div>
 
 
@@ -276,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500519.jpg" />
 </div>
 
 
@@ -302,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500518.jpg" />
 </div>
 
 
@@ -328,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500451.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500446.jpg" />
 </div>
 
 
@@ -380,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500438.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500407.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500387.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500341.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500292.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500289.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500144.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500133.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500096.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499954.jpg" />
 </div>
 
 
@@ -642,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499678.jpg" />
 </div>
 
 
@@ -668,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499670.jpg" />
 </div>
 
 
@@ -679,6 +601,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FFB9043ECC35F2F3D5D349F143F617C059C88A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564625   (499598) от 19.07.2022
+
+Джеральд Даррелл | Переход (2020) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды к известному букинисту Питеру Леттингу обращается молодой человек с просьбой провести каталогизацию своей домашней библиотеки. Вскоре Питер и Гидеон (так зовут молодого человека) становятся довольно близкими друзьями. Но у Гидеона есть семейная тайна, в которой фигурируют его старый дядюшка и... зеркала. Зеркала, развешанные в большом доме дядюшки, скрывают (   Читать дальше...   )Жанр: МистикаПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43640A133C95335E9E6D2646091E7FC5EC370B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564553   (499596) от 19.07.2022
+
+Джеймс Блиш | Закон Чарли (2021) [MP3, Максим Тарлавин (Scaners)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499596.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планете Фэзас разбился исследовательский корабль, и пережил катастрофу только Чарли Эванс. Четырнадцать лет он провёл на этой планете, единственный человек среди фэзиан. Когда за ним прилетели земляне и забрали с собой, они не сразу поняли, что в Чарли не осталось ничего человеческого…Жанр: ФантастикаПродолжительность: 00:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC7F3A8B73D8A223702B20A0453DCC446BCE35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564588   (499590) от 19.07.2022
+
+Андрей Константинов | Свой-чужой (Книга 2). Внедрение (2022) [MP3, Алексей Данков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудника уголовного розыска Валерия Штукина внедряют в структуру бывшего криминального авторитета, а ныне крупного бизнесмена Юнгерова. Тот, в свою очередь, направляет на работу в милицию Егора Якушева, парня, которого воспитал, как сына. С этого момента судьбы двух молодых людей начинают стягиваться в тугой узел, развязать который практически невозможно…
+Для Штукина (   Читать дальше...   )Жанр: ДетективПродолжительность: : 08:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BD4FD3A3C36D2C4E2E966E1DE763A7569FBD67
 ```
 
 https://mybot314.ru/tekegram_catalog/

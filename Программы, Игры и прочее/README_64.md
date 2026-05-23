@@ -1,55 +1,3 @@
-###  Публикация: 915722   (591291) от 07.07.2015
-
-Шахматы - Играй и Учись v3.1.18 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Шахматы - Играй и Учись - известная на весь мир логическая игра теперь будет и на ваших мобильных гаджетах. Игра позволяет не только играть с компьютером на различных уровнях сложности, но ещё и обучаться её основам. Интуитивно понятная система обучения позволит вам быстро понять основы игры и эффективно обучится играть в шахматы. Помимо игры с компьютером вы можете (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 17 мая 2015 г.Разработчик: Chess.comПоддерживаемая ОС: Android: 2.3+Жанр: Board gameЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664D970C02A8D97223D11CA07F9F841E80A61C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916116   (591277) от 07.07.2015
-
-GPS АнтиРадар (радар-детектор) 1.2.2 [Ru]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-GPS АнтиРадар работает как радар-детектор и предупредит Вас о стационарных камерах (камеры контроля скорости) и радарах ДПС на Вашем пути. Если при приближении к камере Ваша скорость будет выше разрешенной более чем на 19 км/ч, то приложение будет подавать предупреждающие звуки. А это важно, т.к. теперь штраф за превышение на >20 км/ч уже начинается с 500 рублей.Тип издания: ПираткаРелиз состоялся: 24 марта 2015 г.Разработчик: Oleg KorchaginПоддерживаемая ОС: Android: 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD2F731B8A040493BB9EC2A1F00B7925D370B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450392   (591151) от 13.05.2022
 
 ЕГЭ Обществознание v1.0-108 [Ru] (обновляемая)
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591151.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590912.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590871.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ tinyCam Monitor PRO v15.3.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590536.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Memory для детей 1.0.0 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590375.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ Aqua Map Marine - Boating GPS v20.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590198.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ Voice Reader - читает вслух 7.2.15 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589794.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ Cool Reader 3.1.2-69 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589788.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ anipet Aquarium Lve Wallpaper v2.5 [En] - Морской аквариум на �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589486.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ Quick PDF Scanner + OCR Pro 9.0.1433 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589384.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By AlexaLiza) v1.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589315.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ Puffin Browser Pro 9.7.1.51314 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589306.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ Pepi Tree 1.06 [En] - 6 развивающих игр для детей 3-7 ле
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589025.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ NeuroNation - тренировка мозга v2.1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589006.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By Anik555) v1.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588918.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ GoArt – Art NFT Creator v3.0.17.37 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588846.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ XSCANPET / Инвентарь и штрих-коды и Excel v4.70 <Ru/Multi>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588533.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588453.jpg" />
 </div>
 
 
@@ -535,7 +483,7 @@ Zoner Mobile Security v1.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588423.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588410.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ BitTorrent Pro 6.8.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588404.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ Photo Recovery v1.63 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587624.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ WiFi Premium 4.120.02 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586665.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586599.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF2E4C1727BE40D55173A553BDF956A17799A1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918902   (585646) от 16.07.2015
+
+ABC Bukvarik \ Букварик v2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа-тренажер «Букварик» ориентирована на детей от 3 лет. При создании учитывались психологические и педагогические методики детского развития, такие как "Психолого-педагогическая диагностика умственного развития детей" Забрамной С.Д., основы систем М. Монтессори и блоки методик, направленных на развитие понятий о качествах и свойствах предметов, а (   Читать дальше...   )Тип издания: FullРелиз состоялся: 12.08.2013Разработчик: TreningSoftПоддерживаемая ОС: Android 2.2+Жанр: Настольная, Головоломка, СимуляторЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F878A50C65EF0ABF1694AD319DB67CC67F2727EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552398   (585622) от 22.05.2022
+
+1Gallery: Фотогалерея и безопасность (ШИФРОВАНИЕ) 1.0.6-16.170522 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585622.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Gallery - идеальное альтернативное приложение галереи, созданное для управления Вашими фотографиями. Кроме того, оно может защитить Ваши фото и видео с помощью функции скрытия и шифрования.Тип издания: Premium (Unlocked)Релиз состоялся: 20.05.2022Разработчик: todayweather.coПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED7AFA49B47E6F0FD8AF944B0EE6DA565F16B66
 ```
 
 https://mybot314.ru/tekegram_catalog/

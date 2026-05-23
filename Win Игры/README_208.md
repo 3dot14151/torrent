@@ -1,29 +1,3 @@
-###  Публикация: 1554180   (578793) от 29.05.2022
-
-Magic City Detective: Wings Of Revenge / Волшебный Город: На крыльях мести (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Много лет назад обычные люди жили в мире и согласии с волшебными существами. Но однажды люди прознали о силе волшебства Иных и захотели обладать ею. Теперь Иные вынуждены прятаться от людей. Но не все из них согласны скрываться. На карнавале в Венеции незнакомец в маске неожиданно оживил статую льва, тем самым выразив свой протест, и исчез. Проведите расследование, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C365371F4644A3F7421D24622A51C83FADC9C75A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360951   (578494) от 09.07.2011
 
 [Repack] Bit.Trip Runner [En] 2011 | John2s
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578494.jpg" />
 </div>
 
 
@@ -65,7 +39,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578293.jpg" />
 </div>
 
 
@@ -91,7 +65,7 @@ Mystery Tales 10: The Reel Horror / Загадочные истории 10: На
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577993.jpg" />
 </div>
 
 
@@ -117,7 +91,7 @@ Farm Expert 2016 (2015) [Ru/Multi] (2.26/dlc) License POSTMORTEM [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577703.jpg" />
 </div>
 
 
@@ -143,7 +117,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577697.jpg" />
 </div>
 
 
@@ -169,7 +143,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.7/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577682.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ Lock's Quest (2017) [Multi] (20170716) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577520.jpg" />
 </div>
 
 
@@ -221,7 +195,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577512.jpg" />
 </div>
 
 
@@ -247,7 +221,7 @@ Ashley Clark 2: The Secrets of the Ancient Temple (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577467.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577392.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ Mortal Kombat Anthology (1997-2015) [Ru/En] Repack R.G. Catalyst [Fatality Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577389.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ Serial Cleaner (2017) [Ru/Multi] (1.0.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577309.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ Squishy the Suicidal Pig (2014) [En] (1.0.0.6) Repack Elektra
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576988.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ Paranormal Files 3: Enjoy the Shopping. CE / Паранормальные явл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575986.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575853.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575843.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ The Long Dark (2017) [Ru/Multi] (1.50) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575733.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ Iron Marines (2019) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575547.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ Assassin's Creed Liberation Remastered (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575545.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.4.2/dlc) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575544.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ FIFA 17 (2016) [Multi] (1.0) License STEAMPUNKS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575524.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Dracula's Legacy / Наследие Дракулы (2015) [Ru] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575285.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Love Chronicles 6. Deaths Embrace / История любви 6. Объятие 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574343.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574290.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ Runic One (2005) [En] (1.04) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574278.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ Runic One (2005) [En] (1.04) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58BA3464B3F8796BA9EAC43E65B8EB8A487A9EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043241   (574255) от 15.08.2016
+
+Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Under Night In-Birth Exe: Late представляет собой нечто среднее между безбашенными, скоростными файтингами вроде Guilty Gear и вдумчивым Street Fighter. И надо сказать, что находясь в этом промежутке, она оказалась удачным и самобытным проектом. Кроме очень «своего» темпа в ней достаточно свежих механик, которые неплохо разнообразят и без того хороший игровой процесс.Тип издания: RepackРазработчик: Ecole Software и French BreadЖанр: Arcade (Fighting)Язык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860FB064E327887C1ED22F59ABF3D7C37D663525
 ```
 
 https://mybot314.ru/tekegram_catalog/

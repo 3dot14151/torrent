@@ -6,7 +6,7 @@ FinePrint 11.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207833.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Explorer 17.05 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207832.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Clipboard Fusion Pro + Portable + MSI 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207829.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Visual Studio 2022 Enterprise 17.6.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207827.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NVCleanstall 1.15.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207826.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Firefox Browser 115.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207824.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ HomeBank 5.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207822.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Pineapple Pictures 0.7.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207818.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ FolderSizes 9.5.425 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207815.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Topaz Video AI 3.3.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207808.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows 10 Manager 3.7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207802.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ simplewall 3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207798.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 10 Manager 3.7.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207788.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ KeePassXC 2.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207782.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PC HelpSoft Driver Updater 7.0.990 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207781.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ KeePass Password Safe 2.53.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207773.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ uTorrent 3.5.5 Build 46514 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207768.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Topaz Video AI 3.1.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207760.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ QOwnNotes 23.7.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207756.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ DNS Changer 2.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207753.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Topaz Photo AI 1.4.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207735.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Viber 20.6.0.2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207733.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ IObit Driver Booster Pro 10.6.0.141 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207725.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ WinMerge 2.16.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207721.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ SophiApp 1.0.94 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207715.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Hex Editor Neo Ultimate 7.35.00.8564 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207693.jpg" />
 </div>
 
 

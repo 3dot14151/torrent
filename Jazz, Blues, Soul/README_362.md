@@ -6,7 +6,7 @@ David Liebman Quintet - Doin' It Again (1979) 2015, Timeless Records[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295355.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Simona Molinari - Casa Mia (2015) [MP3|320 кб/с]<Smooth Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295212.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ruby Braff - For The Last Time (2002) 2CD, 2009, Arbors Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295208.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tal Farlow - Tal (1956) 2016, Universal [FLAC|Lossless|tracks + .cue] <Cool, Gui
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295174.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dick Hyman & Ray Kennedy - What Is There To Say? (2003) Victoria Company [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295029.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Billy Eckstine - Cocktail Hour 1940-e (2001) 2CD, Allegro [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294976.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Rat Pack: 100 Hits Legends (2009) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294939.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Music for Quiet Moments - Rainy Autumn Night Jazz (2019) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294872.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294541.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Milt Jackson and the Monty Alexander Trio - Soul Fusion (1978) 1992, OJC[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294370.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SaraLee - Queen Of Your Heart (2016) Scene [FLAC|Lossless|tracks] <Rockabilly, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294360.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Main Street Blues - Fading To Blue (2015) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294281.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Perry Como - Perry Como's Christmas Concert (1994) [MP3|320 Kbps] <Vocal Jazz, E
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294200.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Swing Republic - Midnight Calling (2012) [FLAC|Lossless|image + .cue] <Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294187.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Electronic Swing (2016) [MP3|320 Kbps] <Swing, Electro Swing, Electronic>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294153.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Stanley Cowell - New World (1978) 2014, Universal[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293676.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Reuben Wilson - On Broadway (1968) 2014, Universal[FLAC|tracks+.cue]<Jazz-Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293669.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Arsenal (Арсенал) - Live At The "Forte" Club (2000) Muzprom[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293664.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stanley Cowell Trio - Games (1991) SteepleChase [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293611.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gene Ammons - The Gene Ammons Story: The 78 Era (1950 - 1955) 1992, Prestige [AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293610.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Paquito D'Rivera - Brazilian Dreams (2002) MCG Jazz[APE|tracks+.cue]<Afro-Cuban 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293534.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chaise Lounge - Gin Fizz Fandango (2015) [FLAC|Image+cue]<Retro Swing, Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293528.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Connie Lush Band - Renaissance (2015) [MP3|320 кб/с]<Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293527.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Eddie Daniels - Memos From Paradise (1988) GRP Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293374.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Silent Way - Standby - (B&P Production) (1996) [FLAC|Lossless|tracks + .cue] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293373.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ ZAZ - Effet Miroir (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chanson, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292985.jpg" />
 </div>
 
 

@@ -1,58 +1,3 @@
-###  Публикация: 1470191   (1010604) от 17.06.2021
-
-Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Персонализируйте пользовательский интерфейс вашего устройства, используя панель управления громкостью. Быстрая настройка и удобный контроль. Создайте персональный слайдер громкости или используйте классное оформление, чтобы преобразить панель управления громкостью, разнообразные скины для оформления доступны в самом приложении!Тип издания: Mod (Premium)Релиз состоялся: 25.05.2021Разработчик: ZipoAppsПоддерживаемая ОС: Android 5.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031B5EB54CCB1C9A529CC189ACC53B0319EA29C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478655   (1010136) от 20.06.2021
-
-Dictionary - Merriam-Webster v5.1.1 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Английский толковый словарь Merriam-Webster's Dictionary с голосовым поиском.
-Первый словарь был опубликован В 1828 году!
-Получите самый полезный и уважаемый словарь Америки, оптимизированный для вашего Android устройства. Это лучшее Android-приложение для справки английского языка, образования и лексики.
-В дополнение ко всем определениям из Merriam-Webster's Collegiate (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 28 мая 2021 г.Разработчик: Merriam-Webster Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Англиский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3F2E2E645E06BBF486B16E4C94112CD7C5AB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478545   (1010098) от 20.06.2021
 
 POIbase speed camera warner V7.2.3 [Ru]
@@ -61,7 +6,7 @@ POIbase speed camera warner V7.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010098.jpg" />
 </div>
 
 
@@ -90,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010093.jpg" />
 </div>
 
 
@@ -119,7 +64,7 @@ Text Scanner v4.1.7 [Ru/En] - извлечение текста из изобр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010063.jpg" />
 </div>
 
 
@@ -148,7 +93,7 @@ magicplan v9.7.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009945.jpg" />
 </div>
 
 
@@ -174,7 +119,7 @@ Dictionary.com Premium v9.7.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009666.jpg" />
 </div>
 
 
@@ -200,7 +145,7 @@ Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009560.jpg" />
 </div>
 
 
@@ -228,7 +173,7 @@ AVG AntiVirus 2021 v6.39.5 [Ru] - Free Mobile Security
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009256.jpg" />
 </div>
 
 
@@ -254,7 +199,7 @@ Avira Security 2021 v7.8.1 [Ru] - антивирус и VPN
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009213.jpg" />
 </div>
 
 
@@ -280,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009201.jpg" />
 </div>
 
 
@@ -306,7 +251,7 @@ Zemana Antivirus 2021: Anti-Malware & Web Security v2.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009114.jpg" />
 </div>
 
 
@@ -332,7 +277,7 @@ Umbrella - Adblock & Firewall v1.6.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009100.jpg" />
 </div>
 
 
@@ -358,7 +303,7 @@ n7player Music Player 3.1.2-287 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008684.jpg" />
 </div>
 
 
@@ -384,7 +329,7 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008011.jpg" />
 </div>
 
 
@@ -411,7 +356,7 @@ Wannalisn v3.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008006.jpg" />
 </div>
 
 
@@ -438,7 +383,7 @@ GPS Camera with latitude and longitude v1.9.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007991.jpg" />
 </div>
 
 
@@ -464,7 +409,7 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007984.jpg" />
 </div>
 
 
@@ -490,7 +435,7 @@ KISS Launcher 3.16.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007846.jpg" />
 </div>
 
 
@@ -516,7 +461,7 @@ F-Stop Gallery Pro 5.3.24 Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007588.jpg" />
 </div>
 
 
@@ -542,7 +487,7 @@ Kuji Cam 2.21.29 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007576.jpg" />
 </div>
 
 
@@ -568,7 +513,7 @@ Power Shade: Notification Panel & Quick Settings 18.1.0 Mod by Mixroot, mak7im01
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007572.jpg" />
 </div>
 
 
@@ -594,7 +539,7 @@ TickTick: Менеджер задач, Органайзер и Календар�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007363.jpg" />
 </div>
 
 
@@ -620,7 +565,7 @@ WeNote - Заметки, задачи, напоминания и календа�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007255.jpg" />
 </div>
 
 
@@ -646,7 +591,7 @@ Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляем
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007248.jpg" />
 </div>
 
 
@@ -672,7 +617,7 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007138.jpg" />
 </div>
 
 
@@ -686,6 +631,58 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B64DD436EC07239E4415792989A0244B736CF465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482936   (1007125) от 11.07.2021
+
+Eon Music Player Pro 5.5.5 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eon Music Player Pro - это мощный и удобный аудиоплеер, который на все сто процентов справляется со всеми поставленными задачами. Этот аудиоплеер для операционной системы Android можно охарактеризовать, как простой в управлении и легко настраиваемый под любого пользователя. Эта программа полностью бесплатна. Разработчики уже позаботились о кастомизации и подготовили (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 04.07.2021Разработчик: qmsapplacationsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D6D7163B1094AEBADB89EF064DDDDD139E3962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465106   (1007078) от 11.07.2021
+
+Расчёт трубопровода v31 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расчет трубных вставок разных диаметров и радиусов. Вставка по известному градусу угла, одинакового и разного диаметра, Вставка по известному градусу угла, двух разных диаметров, Параметры отвода, Параметры отрезанного отвода-узнать угол отреза. Параметры отвода из сегментов, расчеты. Срезать прямой угол трубопровода вставкой под любым углом. Вставка по известному (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 28 июня 2021 г.Разработчик: Khokhlov AndreyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A255B818FD8273548CE8778D1F073FEFE97F1745
 ```
 
 https://mybot314.ru/tekegram_catalog/

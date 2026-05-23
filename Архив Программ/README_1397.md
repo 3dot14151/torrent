@@ -6,7 +6,7 @@ Display Driver Uninstaller 15.6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328482.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 11.6.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328400.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Skype 7.14.0.105 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328353.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ oCam Screen Recorder 163.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328343.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WinScan2PDF 3.03 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328292.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ USDownloader 1.3.5.9 (16.11.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328289.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Display Driver Uninstaller 15.6.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328286.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Skype 7.14.32.105 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328277.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Far Manager 3.0 Build 4455 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328238.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ StartIsBack++ 1.1.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328237.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ LAV Filters 0.67.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328213.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ StartIsBack++ 1.1.7 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328207.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Alcohol 52% 2.0.3 Build 8314 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328206.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mkey 1.3.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328205.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Alcohol 120% 2.0.3 Build 8314 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328201.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Re-Loader Activator 2.0 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328196.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PDF Eraser Pro 1.4.0 DC 19.08.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328195.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Remote Desktop Manager Enterprise 11.0.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328152.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Opera 33.0.1990.115 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328151.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Auto Power-on & Shut-down 2.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328147.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Windows Repair (All In One) 3.6.4 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328138.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dr.Web Security Space 10.0.1.10270 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328089.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Atomix Virtual DJ Pro Infinity 8.0.0 build 2523.1079
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328085.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Macrorit Data Wiper 6.3.2 Unlimited Edition RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328054.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Q-Dir 11.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328046.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ ImgDrive 1.9.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328003.jpg" />
 </div>
 
 

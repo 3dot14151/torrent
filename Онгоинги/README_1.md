@@ -6,7 +6,7 @@ Tadaima, Ojama Saremasu! | Pardon the Intrusion, I'm Home! | Я вернулас
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063018.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de / Бо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063016.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Isekai Nonbiri Nouka 2 | Farming Life in Another World 2 | Фермерская 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063013.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062998.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nippon Sangoku | Троецарствие Японии [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062988.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hidarikiki no Eren | Eren the Southpaw | Левша Эрен [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062985.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Kanojo, Okarishimasu 5 | Девушка на час [ТВ-5] [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062936.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Niwatori Fighter | Rooster Fighter | Боевой петух [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062563.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Steel Ball Run JoJo's Bizarre Adventure | Steel Ball Run: JoJo no Kimyou na Bouk
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062059.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059504.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Onee-chan Gokko | Playing Sister | Играя роль старшей сестр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055473.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054391.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054011.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Hell Mode: Yarikomi Suki no Gamer wa Hai Settei no Isekai de Musou Suru | Hell M
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052910.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sousou no Frieren (2026) | Frieren: Beyond Journey's End (2026) | Фрирен [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052812.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Prism Rondo | Love Through a Prism | Любовь сквозь призму [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052549.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052497.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Odayaka Kizoku no Kyuuka no Susume. | A Gentle Noble's Vacation Recommendation |
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052495.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Hime-sama Goumon no Jikan Desu (2026) | Tis Time for Torture, Princess (2026) | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052161.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052160.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adore
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052106.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная ве
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052091.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052088.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052067.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ You and I Are Polar Opposites | Seihantai na Kimi to Boku | Ты и я полн�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052066.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052061.jpg" />
 </div>
 
 

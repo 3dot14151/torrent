@@ -6,7 +6,7 @@ Edubuntu 14.04.1 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591031.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Whisper Ferocity - This Rising [EP] (2015) [MP3|320 кб/с]<Melodic Death/Death
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591023.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591022.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591015.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Revolution Rising - Unknown (EP) (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591001.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590999.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Micron - Do Not Panic (EP) (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590998.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Hypoxia - Anova (EP) (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590994.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590993.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Seneptika - Eveseneptika (2015) [FLAC|Lossless|WEB-DL]<IDM, Industrial, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590990.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ TapinRadio Pro 1.70.5 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590988.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Ocean Star Empire - The Purest Form (2015) [FLAC|Lossless|WEB-DL]<GOA Trance,Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590987.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Inboard 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590986.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Marconi Union - Departures (2015) [FLAC|Lossless|WEB-DL]<Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590954.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Adobe AIR 18.0.0.180 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590953.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ USDownloader 1.3.5.9 (07.07.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590947.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Display Driver Uninstaller 15.3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590946.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Drum & Bass Summer Slammers (2015) [MP3|320 кб/с]<Drum & Bass, Liquid fu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590943.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FileZilla 3.12.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590941.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FKA twigs - EP2 (2013) [MP3|320 кб/с]<Electronic, Downtempo, Leftfield, Ether
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590933.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590931.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Laszlo - Cartoon Hero (2015) [MP3|320 кб/с]<Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590927.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Sadhana (2015) [FLAC|Lossless|WEB-DL]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590926.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Aiseesoft Video Converter Ultimate 8.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590925.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Delic Project - Cosmic Era (2015) [FLAC|Lossless|WEB-DL]<Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590924.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ WonderFox DVD Video Converter 8.5 RePack by FoXtrot [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590918.jpg" />
 </div>
 
 

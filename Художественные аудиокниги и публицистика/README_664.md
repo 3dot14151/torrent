@@ -1,82 +1,3 @@
-###  Публикация: 1339236   (267070) от 18.11.2019
-
-Вениамин Каверин | Наука расставания (1986) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по мотивам повести Вениамина Каверина "Наука расставания" События происходят в годы Великой Отечественной войны. В центре повествования - судьба военного корреспондента Вадима Незлобина. Война не может отменить личную жизнь человека, как бы нелегко на ней не приходилось.
-Дружбу,любовь и просто симпатию со взаимным притяжением никто и ничто (   Читать дальше...   )Жанр: Радиоспектакль. ДрамаПродолжительность: 01:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59438DFED97EAA51CFDF6348364FC10A9CB299A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324787   (267068) от 18.11.2019
-
-Грэм Мастертон | Подкроватье (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Плох тот мальчишка, который засыпает, не воображая себя астронавтом, капитаном подводной лодки, а то и отважным спелеологом, выручающим товарища из беды. Мартин так и делал. К чему он не был готов, так это к тому, до чего легко попасть куда-то еще. Заройся в одеяла, повернись на другой бок — и ты уже в странном, мрачном мире Подкроватья...Жанр: ФантастикаПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6170ED76E40A6ADE52F1D015B4A58DBF934AB8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339129   (267065) от 18.11.2019
-
-Сергей Дмитриев | Последний год Грибоедова. Триумф. Любовь. Гибель (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ни один русский поэт не добивался такого триумфа в служении своему Отечеству, как А.С. Грибоедов, сыгравший решающую роль в событиях Русско-персидской войны 1826-1828 гг. и заключении Туркманчайского договора. А смерть поэта, выполнявшего в Тегеране опасную роль полномочного министра-посланника, можно вообще назвать воинским подвигом. Между тем биография Грибоедова (   Читать дальше...   )Жанр: Историческое расследованиеПродолжительность: 16:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83700ADBCB42532927A1AFE2619ACCC63D2855B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339139   (267058) от 18.11.2019
 
 Сергей Зверев | Огонь прекратить в 0 часов (2019) [MP3, Сергей Пухов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267058.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267049.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267012.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266977.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266976.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266922.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266919.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266912.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266832.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266691.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266676.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266521.jpg" />
 </div>
 
 
@@ -397,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266515.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266501.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266459.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266435.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266160.jpg" />
 </div>
 
 
@@ -529,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266122.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266118.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266116.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266028.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266027.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265995.jpg" />
 </div>
 
 
@@ -676,6 +597,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8608F1551193A01FEE5A8744A475F699C6B702B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190812   (265988) от 11.12.2017
+
+Антон Леонтьев | Дворец, где разбиваются сердца (2017) [MP3, Татьяна Ненарокомова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265988.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монастыре Непорочного Зачатия творилось что-то жуткое и непонятное. Убийства монахинь, исчезновения святынь… Комиссары полиции Эльке и Николетта никак не могли понять, что происходит в этом заштатном городишке. Пока не обнаружили разрытую могилу ювелира Альваро Мендозы и не нашли его письмо потомкам. Следы уводили в XIX век, в блистательные и грозные времена правления (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 18:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8262BBEE4BAB572E7E7EA86D31B20AAA62EF8E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190828   (265929) от 11.12.2017
+
+Алан Брэдли | Тайны Букшоу (Книга 4). О, я от призраков больна (2017) [MP3, Мария Абалкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть такие места, с виду тихие и сонные, но постоянно словно по волшебству притягивающие всяческие неприятности и происшествия. Старинное английское поместье Букшоу, где обитает нелюдимый полковник де Люс с тремя дочерьми, — как раз такое. И главный магнит для неприятностей — это младшая дочь, одиннадцатилетняя умница Флавия де Люс, любительница чужих дел, химии (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 07:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D580EDE989EAC530475B6A63CB3BEBA9F0B01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190960   (265921) от 11.12.2017
+
+Ева Никольская | Магическая академия. Достать василиска! (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты юная ведьма, но дар твой с изъяном, родня со странностями, неприятности следуют по пятам, да еще и характер мстительный,— все твои дороги ведут в магическую Академию Разрушения и Созидания. Если ты талантливая стихийница, но жизнь твоя перевернулась с ног на голову, разбив все надежды и мечты,— тебе тоже будут рады в АРиС!
+В этом учебном заведении вас обеспечат (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 17:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A630483B93993B2801B41A23C9AF68E279283054
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ WinToUSB Technician 7.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152111.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AM Privacy Protector for Windows 10 1.0.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152108.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lacey Free Music & Video Downloader 2.34 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152100.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ReviverSoft Driver Reviver 5.32.0.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152088.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Brave Browser 1.1.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152077.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reg Organizer 9.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152073.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ uTorrent Pro 3.6.0 Build 46922 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152060.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152040.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ DevID Agent 4.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152024.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TheAeroClock 4.04 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152015.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VideoSolo DVD Creator 1.1.10 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152013.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FastStone Image Viewer 6.1 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152010.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ eM Client Pro 7.2.34208.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151951.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Roland VirtualSonics (Legendary & AIRA Series) AAX, VST3, VST, Plug-Out 2018.12 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151943.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Office 2016 Standard 16.0.4312.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151928.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NVIDIA GeForce Desktop 417.42 BETA + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151916.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ IObit Smart Defrag Pro 6.4.0.257 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151915.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BotRadio 1.7.0.0 + Skins + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151908.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Wise Disk Cleaner 9.6.2.685 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151888.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ IceCream Ebook Reader Pro 6.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151856.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Reg Organizer 9.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151839.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ CherryTree 0.37.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151836.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.60.5900 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151828.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Icecream Screen Recorder PRO 5.10.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151802.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Opera Crypto Browser 94.0.4606.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151785.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151768.jpg" />
 </div>
 
 

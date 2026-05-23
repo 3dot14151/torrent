@@ -6,7 +6,7 @@ ApowerREC 1.5.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PreSonus Studio One 5 Professional 5.5.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735355.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WinTools.net Premium 22.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735351.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sandboxie 5.55.9 / Sandboxie Plus 1.0.9 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735341.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.1 Build 6845 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735338.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ USB Image Tool 1.82 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735337.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735321.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Bartender 4 v4.1.31
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735316.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VideoDuke 1.11 (build 283) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735300.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Receipts 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735299.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Wallpaper Engine 2.0.98 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735291.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ FL Studio Producer Edition 20.8.3.2304 + FLEX Extensions RePack by Zom [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735290.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ V-Ray 5.20.02 for 3ds Max 2016-2022 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735283.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ EverWeb (Standalone) 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735270.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Music Tag Editor 2 v5.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735269.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Watsky - Placement (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735266.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Slimjet 27.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735262.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ XYplorer 20.90.0800 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735260.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Glary Utilities Pro 5.147.0.173 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735257.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adobe Prelude 2020 v9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735251.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ WebVideoHunter Pro 6.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735249.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735221.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Freemake Video Converter 4.1.11.53 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735219.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Wonderfox HD Video Converter Factory Pro 19.0 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735218.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ R-Drive Image 6.3.Build.6306 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735215.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735212.jpg" />
 </div>
 
 

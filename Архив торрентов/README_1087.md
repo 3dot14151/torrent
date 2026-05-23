@@ -6,7 +6,7 @@ Things 3 v3.15.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799131.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Markus Schulz - Global DJ Broadcast Afterdark (2021-10-28) [MP3|320 Kbps] <Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799124.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ FontViewOK 4.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799117.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Rufus 2.13 Build 1078 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799115.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Aiseesoft HD Video Converter 8.2.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799112.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Audiobook Builder 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799111.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Yellow Claw - Los Amsterdam (2017) [MP3|320 Kbps] <Electronic, Dance, Trap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799110.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799100.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Firefox Browser 94.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799098.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ iStatistica 5.0.1 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799097.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ TurboMosaic Pro 3.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799096.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Privacy Eraser Free 5.17.0 Build 4067 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799095.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Dropzone 4 Pro v4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799094.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ TechSmith Camtasia 2021 Studio 2021.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799089.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ MacBooster 8 Pro 8.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799083.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ MacX Video Converter Pro 6.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799080.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Movavi Video Suite for Mac 2022 v22.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799079.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ WonderFox HD Video Converter Factory Pro 24.2 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799077.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ uBar 4 v4.2.0 fix  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799066.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Airy 3.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799062.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Win+X Menu Editor 2.7.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799057.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Text Editor Pro 18.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799056.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Java SE Development Kit 17.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799052.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.04.03 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799043.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Windows 10 Manager 2.0.8 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799042.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Skype 8.78.0.159 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799041.jpg" />
 </div>
 
 

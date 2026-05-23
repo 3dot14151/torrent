@@ -1,29 +1,3 @@
-###  Публикация: 1194908   (152923) от 26.12.2017
-
-Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Создатели игры Homeworld приглашают вас возглавить экспедицию, с которой всё началось. Стратегия 'Deserts of Kharak: A Homeworld Story' сделана студией Blackbird Interactive, состоящей из разработчиков игр Homeworld и Company of Heroes. В игре вам предстоит посетить пустыню Кхарак, где за каждой дюной кроется опасность. В ходе кампании Deserts of Kharak далеко в (   Читать дальше...   )Тип издания: LicenseРазработчик: Blackbird InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16A72B0617859DE1919867789774AA25EE9900C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677123   (152687) от 16.11.2023
 
 Halloween Stories 7: Written in Blood / Хеллоуинские истории 7: Написано кровью (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Halloween Stories 7: Written in Blood / Хеллоуинские истории 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152687.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152348.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Witches' Legacy 7: Awakening / Наследие ведьм 7: Пробужден
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152115.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Shaun White Skateboarding / Shaun White Скейтборд (2010) [Ru/En] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152056.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Danse Macabre 5: Lethal Letters / Танец смерти 5. Роковые пи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152045.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152041.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152019.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Alien: Isolation (2014) [Ru] (1.0/upd9/dlc) Repack =nemos= [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151962.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Enigmatis 3: The Shadow Of Karkhala / Энигматис 3: Тень Карха�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151948.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151947.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sailing Era (2023) [Multi] (1.3.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151906.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves (2023) [Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151893.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151887.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack Other s [Colle
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151874.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151870.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Coral Island (2023) [Multi] (1.0/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151770.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151737.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Harrowed Halls 2: Hells Thistle / Обитель страданий 2: Адск�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151620.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Keeper (2025) [Ru/Multi] (1.0.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151616.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Immortals: Fenyx Rising (2020) [Ru/Multi] (1.3.4/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151483.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.29.2.6s/dlc) Repack R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151366.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151256.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151240.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dungetris (2017) [Ru/Multi] (1.0) Unofficial SiMPLEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151148.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151113.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54D691F9AD1CC8C6B639B6CDEDA259F2DCE59656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081967   (151091) от 24.12.2016
+
+Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disney Infinity — приключенческий боевик и песочница «toys to life», разработанная Avalanche Software и изданная Disney Interactive Studios. Была анонсирована 15 января 2013 года. Аналогична франшизе Skylanders от Activision, игра использует коллекционные фигурки, которые затем синхронизируются с игрой и открывают новых персонажей вселенных Disney и Pixar.Тип издания: LicenseРазработчик: Avalanche Software, Heavy Iron StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CE63753E04AD3090F68EEF8195209E2CD8B30D
 ```
 
 https://mybot314.ru/tekegram_catalog/

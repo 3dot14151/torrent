@@ -1,56 +1,3 @@
-###  Публикация: 1162032   (461060) от 31.08.2017
-
-Сардар Габбар Сингх / Sardaar Gabbar Singh (2016) HDRip [MVO]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В отличие от экранного злодея, чье имя он взял, Сардар Габбар Сингх сам борется с преступниками, такова его миссия. Лихой, отважный, без царя в голове - его обедом не корми, дай бандюгана пристрелить. Вместе с верным другом детства Самбой они отправлены опекуном в селение Ратанпур, где свирепствуют банды местного раджи Бхайрава Сингха. Чтобы победить врага, Сардару (   Читать дальше...   )Производство: ИндияЖанр: БоевикРежиссер: Бобби КоллиАктеры: Каджал, Паван Кальян, Мукеш Риши, Брахманандам, Шарад Келкар, Таникелла Бхарани, Али, Кришна Мурали Посани, Рао Рамеш, БрахмаджиПеревод: Любительский (двухголосый)Субтитры: Русские (на песни, неотключаемые)Продолжительность: 02:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AE1365FC5E96AA05B629AF9BB889077557329B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162135   (461056) от 31.08.2017
-
-Марс / Mars (1996) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2056 год. На Марсе, где добывается уникальное топливо — сайлекс, царит беззаконие. Везде заправляют бандиты, нанятые добывающей компанией. Процветает проституция и наркомания, свирепствует чума. Хранитель порядка Кошен Темплер прибывает на Марс, чтобы выяснить за что убили его брата и отомстить убийцам.
-Едва Темплер появляется в городе, его пытаются убить, — человеческая (   Читать дальше...   )Производство: США / Kushner-Locke Company, Mahagonny PicturesЖанр: Фантастика, БоевикРежиссер: Джон ХессАктеры: Оливье Грюнер, Шари Белафонте, Гэбриел Делл мл., Алекс Хайд-Вайт, Скотт Валентайн, Линдси Гинтер, Ли де Бру, Эмбер Смит, Нилс Аллен Стюарт, Джефф ВульфПеревод: Профессиональный (двуголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F90AFFAF3AFC8E83E393458F8BC09262C619DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246706   (461043) от 11.09.2018
 
 Мир Юрского периода 2 / Jurassic World: Fallen Kingdom  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461043.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461035.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460944.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460939.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460931.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460920.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460897.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460892.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460890.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460761.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460750.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460666.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460657.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460650.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460629.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460624.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460622.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460577.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460513.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460504.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460422.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460414.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460392.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460388.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE3C3D38B9FB677E0B92C6B2EE3394DA33DE958F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704048   (460263) от 25.09.2013
+
+Глаза змеи / Snake Eyes (1998) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рик Санторо — эксцентричный детектив полиции Атлантик-Сити — приходит посмотреть на своего спортивного кумира и заодно поправить свои финансовые дела на тотализаторе. Внезапная стрельба во время поединка превращает 14 тысяч болельщиков в свидетелей политического убийства. Показания свидетелей, видеозаписи электронной системы наблюдения за казино и информация, полученная (   Читать дальше...   )Жанр: Триллер, Детектив, КриминалРежиссер: Брайан Де ПальмаАктеры: Николас Кейдж, Гэри Синиз, Джон Хёрд, Карла Гуджино, Стэн Шоу, Кевин Данн, Майкл Рисполи, Джоэл Фабиани, Луис Гузман, Дэвид Энтони Хиггинс и др.Перевод: Дублированный, многоголосый закадровый, одноголосый закадровыйСубтитры: Русский, EnglishПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB64853315F96E47439ACA0BE1E1EE39C8EDD28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825456   (460178) от 27.09.2014
+
+Жестокие люди / Fierce People (2005) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий физиотерапевт Лиз узнала об этом только когда приняла приглашение одного из своих клиентов, мультимиллионера Огдена Осборна, стать его личным лечащим врачом. Вместе с сыном она переселяется на ранчо Осборна. Попав в избранное общество, окруженная заботой и купаясь во всеобщем внимании светских львов и львиц, Лиз не догадывается, что скоро время счастливой (   Читать дальше...   )Производство: США, Канада, Industry Entertainment, Lions Gate EntertainmentЖанр: Триллер, драмаРежиссер: Гриффин Данн/Griffin DunneАктеры: Дайан Лэйн, Антон Ельчин, Дональд Сазерленд, Крис Эванс, Кристен Стюарт, Пас де ла Уэрта, Блу Манкума, Элизабет Перкинс, Кристофер Шайер, Гари Чок, Райан МакДональд, Декстер Белл, Кейли Дей, Аарон Брукс, Джефф УэстмолендПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B8D91F9F01035357CD063D3E328FBC29521A43
 ```
 
 https://mybot314.ru/tekegram_catalog/

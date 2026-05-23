@@ -1,55 +1,3 @@
-###  Публикация: 1810213   (9420) от 03.08.2025
-
-Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Проверяйте свою частоту пульса в любое время и в любом месте с помощью Heart Rate Plus - дома или в офисе - когда вы просыпаетесь, расслабляетесь, до и после тренировки.Тип издания: ProРелиз состоялся: 02.08.2025Разработчик: PVDAppsПоддерживаемая ОС: Зависит от устройстваЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810643   (9264) от 05.08.2025
-
-Proton VPN 5.12.48.0 Mod [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Proton VPN — это единственное в мире бесплатное приложение VPN, которое безопасно в использовании и уважает вашу конфиденциальность. Наш быстрый VPN предлагает безопасный, конфиденциальный, зашифрованный и неограниченный доступ в интернет с дополнительными функциями конфиденциальности и безопасности. Proton VPN также разблокирует доступ к популярным веб-сайтам и (   Читать дальше...   )Тип издания: ModПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D74BAEB00336FDB7EFB1FFC9A909AA4DD8C8F3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811339   (8847) от 09.08.2025
 
 Кино HD v3.5.6 Mod by Timozhai [Ru/Multi]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8847.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ NewPipe v0.28.0 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8837.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8833.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ PPlayer v1.32 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8815.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8814.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Blur Text - скрыть данные v3.0.2 Mod by FeralFox [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8790.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8785.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ SnapEdit - AI photo editor v7.6.5 Mod by Alex.alex1928 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8783.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Ozi Explorer for Android OS v1.38m [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8674.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Purvpn 9.7 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8585.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ Ventusky: Прогноз погоды v47.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7521.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7504.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ VRadio - Online Radio App v2.8.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7500.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ Squid - рукописные заметки v4.4.1 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7499.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ Taskito v1.1.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7479.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ Parrot Timer / Кухонный таймер v2.10.0 Mod by Alex.Strannik [Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7478.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ STEEZY Studio - Learn To Dance v5.15.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7477.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ Magic Eraser / Магический ластик v2.23.17 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7471.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.0 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7348.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ Polarr v6.11.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7310.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ Strava: бег, велоезда, хайкинг v424.13 Mod by PieMods [Ru/Mult
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7255.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ eWeather HD - weather app v9.1.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6825.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.9 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6824.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6818.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:509BD31305D0055A37163057298F3CD6A655485F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813687   (6688) от 21.08.2025
+
+Алко Калькулятор самогонщика v3.4.1  Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Калькулятор для винокуров, самогонщиков, пивоваров и всех кто занимается домашними напитками. Имеются также рецепты различных напитков.Тип издания: ModРелиз состоялся: 19.08.2025Разработчик: ProWattaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7427DC92B40B8B1E37B4E9E1BD850541BB1948BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813689   (6651) от 21.08.2025
+
+Все заболевания (Offline) v5.2 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом словаре все болезни расположены в алфавитном порядке и содержат заболевания с краткой информацией и симптомами,  чтобы было легче понять понять о том, что это за болезни. Это очень полезный и удобный справочник. К Вашим услугам самая подробная информация о любой интересующей болезни - от банальной простуды до сложнейших генетических патологий.Тип издания: PremiumРелиз состоялся: 17.08.2025Разработчик: ufostudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C103D18B090C165450E31FD37FFDC8033B693B32
 ```
 
 https://mybot314.ru/tekegram_catalog/

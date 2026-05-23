@@ -6,7 +6,7 @@ Kerbal Space Program (1.7.3.02594/all dlc) (2019) [Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486579.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ The Reggae Philharmonic Orchestra - The Reggae Philharmonic Orchestra (1988) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486578.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486569.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486563.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486560.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chakra (Arch + KDE) 2012.9 [x86-64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486556.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Scrutiny 12 v12.3.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486530.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Yate 6.10.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486528.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Contacts Journal CRM 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486527.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dropzone 4 Pro v4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486526.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Default Folder X 5.7b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486524.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ CheckBook Pro 2.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486523.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ RAR Extractor - ZIP Unarchiver 6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486519.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ PullTube 1.8.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486518.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ PDF Reader Pro Edition 2.8.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486513.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486491.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ foobar2000 1.4.5 DarkOne + DUIFoon Portable by MC Web (07.08.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486456.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Air Live Drive Pro 1.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486446.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Acronis True Image Home 2013 16 Build 5551 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486425.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ NAS4Free 9.1.0.1 [x86, x64] (2xCD + img)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486417.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Adobe Press | Adobe Illustrator CS6 Classroom in a Book [2012] [PDF] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486413.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ DxO PhotoLab 5 ELITE Edition 5.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486405.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Aiseesoft Data Recovery 1.3.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486397.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ IObit Smart Defrag Pro  8.0.0.149 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486396.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Path Finder 2136 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486395.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (RePack/1.1) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486360.jpg" />
 </div>
 
 

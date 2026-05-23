@@ -1,82 +1,3 @@
-###  Публикация: 1599335   (159791) от 23.12.2022
-
-Евгений Водолазкин | Чагин (2022) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Евгений Водолазкин — автор романов «Лавр», «Авиатор», «Соловьёв и Ларионов», «Брисбен», «Оправдание Острова», сборников короткой прозы «Идти бестрепетно» и «Инструмент языка», лауреат премий «Большая книга», «Ясная Поляна» и «Книга года». Его книги переведены на многие языки.
-Исидор Чагин может запомнить текст любой сложности и хранить его в памяти как угодно долго. (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 10:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF49BAB3D9E6259ABEA44EE45281ED78C1C2717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599291   (159787) от 23.12.2022
-
-Топор Ролан | Жилец (2022) [MP3, Олег Булдаков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мы на самом деле совсем не одиноки. Что бы мы себе ни говорили, но нас окружают соседи. Умеренно дружелюбные, или равнодушные, или требующие к себе внимания… Месье Трелковский искал себе квартиру поудобнее и подешевле и таки нашел. С соседями, с очень интересующимися им cоседями…Жанр: Мистика, ужасыПродолжительность: 05:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F756E78B8EBEF8554119346F40E28C4C44E23AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675760   (159786) от 10.11.2023
-
-Алекс Белл | 2084: Счастливый новый мир (2023) [MP3, Амир Шакиров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Красочный, полный удивительных технологий мир будущего. Счастливый мир, в котором решено множество проблем человечества, люди отправляются покорять Марс, создан сверхразумный компьютер, а виртуальный мир все больше заменяет собой реальность. Но так ли все хорошо в этой новой жизни?Жанр: ФантастикаИздательство: ЭксмоПродолжительность: 12:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3FFB45877421F05AA150E2EC791406B378776E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675700   (159778) от 10.11.2023
 
 Сергей Орлов | Ледяной Лебедь (Книга 1). Повелитель Льда (2023) [MP3, Андрей Андриевский]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159778.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159741.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159649.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159647.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159644.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159642.jpg" />
 </div>
 
 
@@ -245,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159638.jpg" />
 </div>
 
 
@@ -271,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159636.jpg" />
 </div>
 
 
@@ -299,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159634.jpg" />
 </div>
 
 
@@ -327,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159631.jpg" />
 </div>
 
 
@@ -353,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159628.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159623.jpg" />
 </div>
 
 
@@ -408,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159620.jpg" />
 </div>
 
 
@@ -434,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159615.jpg" />
 </div>
 
 
@@ -463,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159611.jpg" />
 </div>
 
 
@@ -489,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159609.jpg" />
 </div>
 
 
@@ -516,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159592.jpg" />
 </div>
 
 
@@ -545,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159591.jpg" />
 </div>
 
 
@@ -571,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159579.jpg" />
 </div>
 
 
@@ -597,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159573.jpg" />
 </div>
 
 
@@ -623,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159552.jpg" />
 </div>
 
 
@@ -649,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159510.jpg" />
 </div>
 
 
@@ -676,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159491.jpg" />
 </div>
 
 
@@ -687,6 +608,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CB73931EB470193EB1960FDDE7340D77CECFAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289069   (159489) от 10.11.2023
+
+Альфонс Доде | Тартарен из Тараскона (2010) [MP3, Максим Доронин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфонс Доде (фр. Alphonse Daudet; 1840–1897) – французский романист и драматург, автор ярких рассказов из жизни Прованса, создатель знакового образа романтика и хвастуна Тартарена из Тараскона. Имя Тартарена – героя трилогии давно стало нарицательным. Добродушный и неунывающий, недалекий и самовлюбленный, очень хвастливый и не слишком храбрый, Тартарен любит в красках (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Клуб любителей аудиокниг, ДВД КлассикаПродолжительность: 14:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7755063EF776B5C4C0B6FF44DE88276AAA24731A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675701   (159430) от 10.11.2023
+
+Андрей Васильев | Агентство "Ключ" (Книга 1). Легкий заказ (2023) [MP3, Олег Троицкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди так устроены, что всегда хотят знать больше, чем им положено, и владеть тем, что, возможно, не для них и предназначено. А, значит, всегда найдутся те, кто им в этом поможет, но, разумеется, не за просто так, а за соответствующее вознаграждение. Чем-то подобным и занимается Максим Чарушин, владелец агентства «Ключ». Ну, разве что с одной поправкой – среди его (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8BC3D9F30BE03FA8F77A8485F9B2C4DBCB01E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380314   (159424) от 10.11.2023
+
+Александр Пушкин | Руслан и Людмила (Радиоспектакль) (2009) [MP3, Михаил Козаков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Театр у микрофона.
+Свою первую поэму «Руслан и Людмила» А.С. Пушкин начал писать, еще учась в Лицее. Трудно отнести это произведение к какому-то определенному жанру. Это и волшебная сказка, и историческое повествование, и романтическая поэма, и героический былинный эпос, и гротескная фантастика, поэма о самоотверженной любви, о торжестве добра над силами зла, (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Студия «АРДИС»Продолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CF1C01CE7E616BFBFB05BFD613BC377B85ED0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

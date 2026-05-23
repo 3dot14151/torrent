@@ -1,83 +1,3 @@
-###  Публикация: 1248922   (430770) от 25.09.2018
-
-Каникулы строгого режима (2009) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История о том, как двое не самых молодых людей, Кольцов и Сумароков, волею судьбы оказались вожатыми в пионерском лагере в компании в меру энергичного руководства и не в меру энергичных детей. Все бы ничего, да только попали они туда прямо с арестантской шконки. Сначала Кольцов, будучи весьма уважаемым профессиональным сотрудником МВД, имеющий за плечами две поездки (   Читать дальше...   )Производство: Россия \ Buzz Production, Дирекция КиноЖанр: Комедия, Приключения, ДетективРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Дмитрий Дюжев, Алена Бабенко, Сабина Ахмедова, Владимир Меньшов, Алексей Кравченко, Станислав Лесной, Александр Лыков, Кирилл Плетнев, Роман МадяновПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CE89AE40B34E735F63402EC3F487DCAB0D1343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554839   (430435) от 03.10.2012
-
-Ночной дозор (2004) BDRip [H.264/1080p] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что на ночных улицах опасно. Но в данном случае речь идет не о преступниках и маньяках. Когда наступает ночь, и силы Зла властвуют безраздельно, можно столкнуться с теми, с кем не встретишься днем — темными магами, вампирами и прочей нечистью. Их сила столь велика, что справиться с ними обычным оружием невозможно.
-Но по следу «ночных охотников» идут те, (   Читать дальше...   )Производство: Россия / Первый канал, Кинокомпания Таббак, Базелевс-ПродакшнЖанр: Фэнтези, Фантастика, Боевик, ТриллерРежиссер: Тимур БекмамбетовАктеры: Константин Хабенский, Владимир Меньшов, Валерий Золотухин, Мария Порошина, Галина Тюнина, Гоша Куценко, Алексей Чадов, Жанна Фриске, Илья Лагутенко, Виктор ВержбицкийСубтитры: ОтсутствуютПродолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0DE70E5DDFB42FA79568657ECFA0E6521DFB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708110   (430020) от 08.10.2013
-
-Рейдер (2011) BDRip [720p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рейдеры - охотники за большим бизнесом. Чтобы завладеть успешным предприятием, они идут на подделку документов, применение силы и даже убийства. Противостоять им невозможно...
-Очередной заказ могущественного рейдера Спирского - захватить научно-исследовательский институт. Смещенный с должности директор захваченного НИИ обращается за помощью к известному адвокату (   Читать дальше...   )Производство: Россия / Наше КиноЖанр: драма, криминалРежиссер: Всеволод АравинАктеры: Егор Бероев, Виталий Хаев, Екатерина Вилкова, Виктор Раков, Кирилл Плетнёв, Владимир Стеклов, Вячеслав Разбегаев, Валентина Талызина, Сергей Угрюмов, Роман ПолянскийПеревод: Не требуется (Русский Язык)Продолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0198653C81ECC5D78DB627BC83FFC6DF89F650C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946261   (428641) от 12.10.2015
 
 Самое главное (2015) HDTVRip [H.264/720p-LQ]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428641.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428243.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427809.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426877.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426672.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426132.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425407.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425382.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425295.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ Last Quest (2019) WEBRip [H.264/1080p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425287.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425169.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424793.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424775.jpg" />
 </div>
 
 
@@ -427,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424632.jpg" />
 </div>
 
 
@@ -453,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424482.jpg" />
 </div>
 
 
@@ -479,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424415.jpg" />
 </div>
 
 
@@ -505,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424319.jpg" />
 </div>
 
 
@@ -532,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423888.jpg" />
 </div>
 
 
@@ -558,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423452.jpg" />
 </div>
 
 
@@ -584,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423383.jpg" />
 </div>
 
 
@@ -610,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_423113.jpg" />
 </div>
 
 
@@ -636,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422708.jpg" />
 </div>
 
 
@@ -662,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422521.jpg" />
 </div>
 
 
@@ -673,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C32C31210E6A3C836CC7C66AD57695C4CBFA3C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250703   (422376) от 29.09.2018
+
+Пиццевоз (2011) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о тринадцатилетнем мальчишке по имени Костик, подрабатывающем развозом пиццы на своем велосипеде. Правда, работа у героя картины, как выясняется по ходу сюжета, далеко не самая безобидная. И очень скоро он переходит дорогу опасным людям, которые не остановятся ни перед чем, чтобы убрать конкурента.Производство: Россия | B.B.CINEMAЖанр: Драма, криминал, короткометражныйРежиссер: Антон СушкевичАктеры: Геннадий Сушкевич, Настя Резцова, Татьяна Кречетова, Александр Макаров, Наталья Цыплакова, Моника Госсманн, Данил Лавренов, Дмитрий Блохин, Максим Шишков, Алексей Андрианов, Елена Леликова, Ксения КрохинаПродолжительность: 00:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D582C87843FEFECE316951BB8A1782BDE488B9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250901   (422145) от 29.09.2018
+
+Ласточка (2016) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Период оккупации Ростова-на-Дону. Санитарка Настя Панова осознает ценность утраченной жизни, вернуть которую невозможно.Производство: РоссияЖанр: Короткометражный, военныйРежиссер: Иван КасимовАктеры: Анастасия Панова, Анна ПестоваПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FF6CEEF627E7BA456037D12B458B0B5A618BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946923   (422119) от 15.10.2015
+
+Пиковая дама: Черный обряд (2015) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422119.jpg" />
+</div>
+
+
+###  Подробнее
+
+С древних времен считается, что любое зеркало может стать порталом в мир мертвых. Одним из старейших мистических ритуалов с зеркалом является обряд вызова Пиковой Дамы. Четверо подростков в шутку решают призвать ее, но даже не подозревают, на какие ужасы они обрекли себя и своих близких. Теперь мстительный призрак не остановится, пока не получит их души.Производство: РоссияЖанр: ужасыРежиссер: Святослав ПодгаевскийАктеры: Алина Бабак, Игорь Хрипунов, Владимир Селезнев, Валерия Дмитриева, Сергей Походаев, Евгения Лоза, Валентин Садики, Мария Фомина, Максим Стоянов, Наталья ДомерецкаяПеревод: Не требуется (Русский, iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC78D22E009EA8BCC387BF47CC2FE3CA845C332C
 ```
 
 https://mybot314.ru/tekegram_catalog/

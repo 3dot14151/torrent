@@ -6,7 +6,7 @@ Paul Bley, Franz Koglmann, Gary Peacock - Annette (1992) 2001, HAT HUT Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538427.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ James Williams - Alter Ego (1984) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538306.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dinah Washington - Jazz Profile (1962 - 1963) 1997, Blue Note [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538305.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Count Basie - Jazz Profile (1959 - 1961) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538304.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ashford & Simpson - Ashford & Simpson  ‎– The Warner Bros. Years: Hits, Remi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538087.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Keiko Matsui - Journey To The Heart (2016) [FLAC|Lossless|image + .cue] <Smooth-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538082.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tedeschi Trucks Band - I Am The Moon: I. Crescent (2022) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537468.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Helen Merrill & Gil Evans - Collaboration (1988) Nippon [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537467.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Blackcoffee - Monona Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537465.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ All Night Boogie Band - Taste These Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537464.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Big Man James - Step into the Real Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537463.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bennett Matteo Band - Shake the Roots (2022) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537462.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Big Gilson - Peace in Our Time - Peace in Our Time (2022) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537461.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ben Hemming - Marked Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537453.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ralph Towner - ANA (1997) [MP3|320kBit/s]<Guitar-Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537413.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Black Banjo - The Beauty And The Burst (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537385.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537281.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537276.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537275.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Wendy Rich - Driver (2015) [MP3|320 кб/с]<Country, Blues Soul, Americana>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537272.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537270.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Scott Bradlee’s Postmodern Jukebox - Swipe Right For Vintage (2015) [MP3|320 �
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537104.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Lori Williams - Out of the Box (2018) [MP3|320 Kbps] <Jazz, Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536858.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Revolution Void - Increase the Dosage (2005) [MP3|192 кб/с]<Breakbeat,Acid Ja
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536837.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536748.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fres
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536746.jpg" />
 </div>
 
 

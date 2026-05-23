@@ -1,84 +1,3 @@
-###  Публикация: 1748786   (43910) от 11.09.2024
-
-Саша Токсик, Яростный Микки | Лорд Системы (Книга 3) (2024) [MP3, Никита Петров (Петроник)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Планета Земля сгорела в ядерном огне.
-Но мудрая и добрая Система перенесла всех людишек в новый мир.
-Каждого наградили новым именем, стартовым бонусом и бодрящим пинком под зад.
-Кто-то получил меч, кто-то корону, а я…(   Читать дальше...   )Жанр: РеалРПГ, Боевое фэнтезиИздательство: ЛитРесПродолжительность: 08:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCACD0EE61CB0767A2996C429F5701120DFCE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748745   (43906) от 11.09.2024
-
-Максим Зарецкий | Лабиринт (Книга 7). Край (2024) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Лабиринт. Место, где каждому даётся второй шанс. Нужно лишь только делать то, что требует от тебя Лабиринт. Выживай. Убивай. Становись сильнее. Собирай жизни во славу Лабиринта, и его благодарность возвысит тебя!Жанр: Боевая фантастика, Боевое фэнтезиИздательство: ЛитРесПродолжительность: 08:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C563AAA9A9E98A73A97F2D4AB7EB281BCDA8CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748720   (43896) от 11.09.2024
-
-Дмитрий Ромов | Цеховик (Книга 13). Тени грядущего (2024) [MP3, Григорий Андрианов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Теперь Егору придётся встретиться с самым опасным противником и сделать его своим союзником, но что у него в голове, неизвестно даже в будущем. Это как гусарская рулетка. Но если ты не готов умереть за свою идею, ты её не достоин…Жанр: Фантастика. ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 09:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F3F8432DBB00EAD6FAEA62F9CC0B7B8906BC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748694   (43895) от 11.09.2024
 
 Алекс Рудин | Аристократ на отдыхе (Книга 1) (2024) [MP3, Андрей Федоренко]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43895.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43889.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43831.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43800.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43767.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43764.jpg" />
 </div>
 
 
@@ -250,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43753.jpg" />
 </div>
 
 
@@ -276,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43692.jpg" />
 </div>
 
 
@@ -302,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43689.jpg" />
 </div>
 
 
@@ -328,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43620.jpg" />
 </div>
 
 
@@ -355,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43596.jpg" />
 </div>
 
 
@@ -381,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43570.jpg" />
 </div>
 
 
@@ -407,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43511.jpg" />
 </div>
 
 
@@ -433,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43377.jpg" />
 </div>
 
 
@@ -461,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43365.jpg" />
 </div>
 
 
@@ -490,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43342.jpg" />
 </div>
 
 
@@ -518,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43340.jpg" />
 </div>
 
 
@@ -546,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43240.jpg" />
 </div>
 
 
@@ -572,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43229.jpg" />
 </div>
 
 
@@ -599,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43194.jpg" />
 </div>
 
 
@@ -627,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43193.jpg" />
 </div>
 
 
@@ -655,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43192.jpg" />
 </div>
 
 
@@ -683,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43176.jpg" />
 </div>
 
 
@@ -694,6 +613,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15667AD79EF4A0D4D75FE744021DCDBA1ED863E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750206   (43128) от 18.09.2024
+
+Фредерик Пол | Заговор губернатора (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43128.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Короткая зарисовка из какого-то космического приключенческого романа. Главный герой, вовлеченный в подготовку военного переворота, теряет память и вынужден доделывать свои дела, пользуясь собственной логикой, принципами и сохранившимися навыками." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67554E10DCDAEDF0F481A335BEED4B46137FD184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300435   (43096) от 19.09.2024
+
+Сергей Шубинский | Пётр I и его время (2005) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Исторические очерки и рассказы.
+Сергей Николаевич Шубинский (1834–1913) русский историк, журналист, основатель и многолетний редактор журналов «Древняя и Новая Россия», «Исторический вестник», популяризатор истории и библиофил.
+Вашему вниманию предлагается сборник увлекательных исторических рассказов о Петре I, как, например, поездка его в Англию, строительство (   Читать дальше...   )Жанр: Русская историческая литература, рассказИздательство: Вира-М (аудио)Продолжительность: 04:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76C969000860276CBB4F38D9C205BB615FFBD77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300423   (43078) от 19.09.2024
+
+Сергей Шубинский | Картины прошлого (2007) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская историческая библиотека.
+Сергей Николаевич Шубинский (1834–1913) русский историк, журналист, основатель и многолетний редактор журналов «Древняя и Новая Россия», «Исторический вестник», популяризатор истории и библиофил.
+Книга о генерал-прокуроре Обольянинове Петре Хрисанфовиче, о жене Суворова – Варваре Ивановне, о братьях Архаровых – Николае (   Читать дальше...   )Жанр: Русская историческая литература, рассказИздательство: Вира-М (аудио)Продолжительность: 04:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4EBED07C750D845C54A35180B01AE88662AF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

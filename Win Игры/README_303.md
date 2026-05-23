@@ -1,29 +1,3 @@
-###  Публикация: 1837259   (256820) от 15.11.2025
-
-Zoochosis (2024) [Ru/Multi] (2.2.3) Repack Necros
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Zoochosis - это бодикам хоррор-симулятор. Ты - ночной смотритель зоопарка. Определи зараженных животных-мутантов, изготовь вакцину и вылечи их. Успеешь ли ты спасти их всех и выжить?Тип издания: RepackРазработчик: ClapperheadsЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3514D5A5402733C62182F01E9FFB18A80B00135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837242   (256819) от 15.11.2025
 
 Lady Mabel Mysteries: Death on Board / Тайны леди Мейбл: Смерть на борту (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Lady Mabel Mysteries: Death on Board / Тайны леди Мейбл: Смер�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256819.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Edge of Reality 10: Island of Shadows / Край реальности 10: Ост
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256817.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Creator (2025) [Ru/Multi] (0.1.05.1028.88888888/dlc) Repack FitGirl [Support
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256806.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256796.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16651r) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256794.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Last Starship (2023) [Ru/Multi] (18a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256789.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ DE-EXIT - Eternal Matters (2023) [Ru/Multi] (1.0.23.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256787.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dark Moon (2025) [Ru/Multi] (Build 2025-10-29) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256777.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Police Stories (2019) [Ru/Multi] (1.4.7/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256776.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256773.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dragon Song Tavern: Cozy and Adventurous (2025) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256768.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Deconstruction Simulator (2025) [Ru/Multi] (8028) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256767.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256766.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ LAN Party Adventures (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256760.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256759.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Songs of Conquest (2024) [Ru/Multi] (1.7.3/dlc) Repack Necros [Complete]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256757.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256755.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Monster Care Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256752.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Campus Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256751.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256748.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Knock On The Window (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256745.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Trails in the Sky 1st Chapter (2025) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256743.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Little Witch in the Woods (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256742.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ An Arcade Full of Cats, A Park Full of Cats, A Building Full of Cats 2 (2023-202
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256738.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ ZEPHON (2024) [Ru/Multi] (1.2.11/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256719.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ ZEPHON - постапокалиптическая 4X-стратегия от а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24570854118F167160BD2AD9E391A15237C124F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837444   (256690) от 16.11.2025
+
+Земский Собор (2025) [Ru] (1.0.2) Repack Other s
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русь после Смуты на пороге нового испытания. Казак Кирша, прошедший не одну битву, оказался втянут в водоворот событий, разворачивающихся вокруг борьбы за трон. Земский собор обещает порядок, но путь к нему - через интриги и предательство. Вас ждёт приключенческий экшен в сеттинге Руси XVII века, сражения и атмосфера тревожного времени.Тип издания: RepackРазработчик: Cyberia NovaЖанр: Экшен, Ролевая играЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC215D9214952B0F6F6B80A06B244EC115066BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

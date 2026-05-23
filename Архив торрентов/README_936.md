@@ -6,7 +6,7 @@ BMinor - Refurbished Echomachine (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_833733.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - Embedded Audio EA presents: Best Of 2016 (Mixed by Steve Dekay) (2017) [FLA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833732.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Infinite Progression Vol. 3 (Compeled By Psyflame) (2017) [MP3|320 Kbps] <P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833731.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Vandera - Red Ink / Heart's Rhythm (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833724.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - True Trance Vol. 2 (Mixed by Luke Terry) (2017) [FLAC|Lossless|WEB|tracks|i
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833722.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Together 3.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833719.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833698.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833668.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ GeoGebra 6.0.670.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833653.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ FileZilla 3.56.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833651.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ RogueKiller Anti-Malware 15.1.1 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833648.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ WonderFox HD Video Converter Factory Pro 24.0 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_833646.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Wise Disk Cleaner 10.7.1.799 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833643.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ WinSCP 5.19.3 Build 11749 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833641.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Glary Utilities Pro 5.174.0.202 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833640.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ File & Image Uploader 8.1.6 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833638.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mark Ward - Universal (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833607.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Beborn Beton - A Worthy Compensation (Bonus CD) (2015) [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833601.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Backgrounds 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833599.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Klubbheads - Live_Mix @ Dance Planet Volume 9 (1) Friends Only Edition (200
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833597.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Elmedia Player PRO 6.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833596.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Psytrance 2017 Volume 1 (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833595.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ OCCT 9.1.3 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833538.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ CrystalDiskInfo 8.12.10a Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833526.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ FinePrint 11.01 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833521.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833506.jpg" />
 </div>
 
 

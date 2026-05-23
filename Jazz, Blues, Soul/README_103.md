@@ -6,7 +6,7 @@ Harry Allen & Alan Barnes - Barnestorming (2007) Woodville [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853716.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Maynard Ferguson - Memories Of Maynard: The Best Of The Columbia Years (2018) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853667.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Puppini Sisters - Dance Dance Dance (2020) [FLAC|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853560.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Billy's Band - Блошиный Рынок (2010) [MP3|320 kbps] <Jazz-Rock, Dix
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853122.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nat King Cole - Milestones Of A Legend (1950 - 1962) 10CD, 2015, The Intense Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852876.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kenny Burrell - At The Village Vanguard (1978, 1983) 2CD, 1999, Muse [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852641.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Beth Hart & Joe Bonamassa - Live In Amsterdam (2014)  2CD [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852454.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Don Rendell / Ian Carr Quintet - Phase III & Live (1967/1968) 2CD, 2004, BGO
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852292.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Skidrola - House Of Hope (2016) [MP3|320 кб/с] <Blues, Rockin' Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852285.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Robin Trower - Where You Are Going To (2016) [MP3|320 кб/с] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852187.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Akiko Muto Trio - The Windmills Of Your Mind (2007) Jasnac [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852180.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Don Ralke And His Orchestra - But You've Never Heard Gershwin With Bongos & The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852179.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dave Brubeck - The Real... Dave Brubeck (2012) 3CD [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852085.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851950.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851941.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851898.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Steely Dan - Northeast Corridor: Steely Dan Live (2021) [FLAC 2.0|96/24|tracks|W
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851248.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Courtney Pine - Within the Realms of Our Dreams (1990) Antilles[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850568.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lee Konitz meets Don Friedman (1992) 1994, Camerata Tokyo [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850529.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jeff Healey - Heal My Soul (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850463.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850442.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gerry Mulligan - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [APE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850441.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Art Tatum - Performance: Solo Piano Recordings from 1933 to 1952 (2010) 2CD, Fue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850440.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jon Hendricks - A Good Git-Together (1959) 2006, Pacific Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850439.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Al Cohn & Zoot Sims - Easy as Pie: "Live" at the Left Bank (1968) 2000, Label M 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850437.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Tal Farlow - Chromatic Palette (1981) 1994, Concord Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850433.jpg" />
 </div>
 
 

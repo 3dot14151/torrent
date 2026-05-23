@@ -1,55 +1,3 @@
-###  Публикация: 974473   (973198) от 14.01.2016
-
-Дем Михайлов | Судьба клана [ГКН - Книга 2] (2015) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Захватывающие приключения Роса в волшебном мире Вальдиры продолжаются! Тернист и опасен путь к вершине, но настоящий герой никогда не пасует перед трудностями и добивается цели. Оказавшись втянутым в разборки кланов, Рос старается любым способом выполнить миссию, несмотря на нескончаемые препятствия на своем пути. Предательство и настоящая дружба, любовь и ненависть (   Читать дальше...   )Жанр: ЛитРПГ, фэнтези, приключенияФормат: m4bПродолжительность: 10:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD2804564CEDFFD3C4819D384F1A872756D39E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974472   (973133) от 14.01.2016
-
-Дем Михайлов | Ярость богов [ГКН - Книга 3] (2015) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Прекрасный и необъятный сказочный мир наполнен приключениями и героическими битвами. Отважные герои бросаются на штурм неприступных цитаделей, опускаются к далекому океанскому дну, карабкаются на заснеженные горные пики и, не раздумывая прыгают в раскаленное жерло вулкана. Не ради себя – ради процветания и возвышения родного клана. Плетутся интриги, накаляются страсти, (   Читать дальше...   )Жанр: ЛитРПГ, фэнтези, приключенияФормат: m4bПродолжительность: 09:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9352D57240F6D26696DE0BB9A4DC1829FD257CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975216   (973115) от 14.01.2016
 
 Зеленая карета  (2015) WEB-DLRip [576p] iPad
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973115.jpg" />
 </div>
 
 
@@ -76,32 +24,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 974474   (973041) от 14.01.2016
-
-Дем Михайлов | Господство кланов [ГКН - Книга 1] (2015) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Огромный мир, наполненный приключениями и древними тайнами, чудовищами, жаждущими твоей смерти. И ты в нем. Мир, в котором каждый может добиться исполнения своих самых заветных желаний и стать кем угодно — удачливым в делах торговцем, мудрым отшельником, отважным воином или же боевым магом, которому подвластны разрушительные стихии. Но не следует ожидать, что твой (   Читать дальше...   )Жанр: ЛитРПГ, фэнтези, приключенияФормат: m4bПродолжительность: 10:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0569E6DB788EEB62FDD668B10C40C4515C4614DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966060   (972894) от 14.01.2016
 
 Далласский клуб покупателей / Dallas Buyers Club (2013) BDRip [720p] ATV
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972894.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971883.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971812.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970762.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970451.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970373.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969551.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969521.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969517.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969510.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969483.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ Henry Jackman - Город героев / Big Hero 6 (2014) [AAC|WEB-DL|256 кб
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969432.jpg" />
 </div>
 
 
@@ -418,32 +340,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 975640   (969352) от 17.01.2016
-
-Дэн Симмонс | Гиперион [Песни Гипериона - Книга 1] (2008) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Созданный Дэном Симмонсом мир поражает воображение своей сложностью, новизной и эпической масштабностью. Мир великой реки Тетис - и межзвездной Гегемонии, связывающей сотни планет нуль-порталами. Мир космических кочевников и всемогущих ИскИнов, таинственных Гробниц Времени и безжалостного "ангела смерти" Шрайка. Мир, в котором причудливо переплелись судьбы (   Читать дальше...   )Жанр: ФантастикаФормат: m4bПродолжительность: 22:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B353BAADD723022E2E71CB5689DD001A177DB0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975648   (969240) от 17.01.2016
 
 Rowling J.K. / Роулинг Джоан | Harry Potter: The Complete Story / Гарри Поттер: Полная история (2010) [m4b, Стивен Фрай] [EN]
@@ -452,7 +348,7 @@ Rowling J.K. / Роулинг Джоан | Harry Potter: The Complete Story / Г
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969240.jpg" />
 </div>
 
 
@@ -480,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968418.jpg" />
 </div>
 
 
@@ -506,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967841.jpg" />
 </div>
 
 
@@ -534,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967738.jpg" />
 </div>
 
 
@@ -560,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967708.jpg" />
 </div>
 
 
@@ -587,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967624.jpg" />
 </div>
 
 
@@ -613,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967339.jpg" />
 </div>
 
 
@@ -639,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967335.jpg" />
 </div>
 
 
@@ -665,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967180.jpg" />
 </div>
 
 
@@ -676,6 +572,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745766   (967095) от 15.01.2014
+
+Да здравствует Франция! / Vive la France (2013) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два пастуха из несуществующей арабской страны Табулистан отправляются в Париж, чтобы взорвать Эйфелеву башню.Жанр: комедияПродюсер: Ален Голдман, Франц РичардВ ролях: Хосе Гарсия, Микаэль Юн, Изабель Фунаро, Эри Абиттан, Жером Коммандёр, Венсан Москато, Жан Франсуа Кэйри, Франк Гастамбид, Мусса Мааскри, Хамид НаджахПеревод: Профессиональный (дублированный)Язык субтитров: АнглийскийПродолжительность: 01:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1A6097F704D491498FE12F8D2386404C9ACD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358882   (967065) от 09.02.2020
+
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексика. Милая девушка Даниэла Рамос, а для друзей просто Дани, вместе с братом приходит с утра работать на завод, но там выясняется, что их вскоре заменят автоматикой. И это не единственная угроза, которую представляют для девушки машины: тут же на неё нападает присланная из будущего и практически неубиваемая модель терминатора REV-9. Но на защиту Дани встает Грэйс (   Читать дальше...   )Производство: США, Китай, Paramount Pictures, Twentieth Century Fox, Skydance MediaЖанр: Фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Линда Хэмилтон, Арнольд Шварценеггер, Маккензи Дэвис, Наталия Рейес, Гэбриел Луна, Диего Бонета, Алисия Боррачеро, Энрике Арсе, Стивен Кри, Ферран ФернандесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (Full, SDH, SDH Colored)Продолжительность: 02:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38ECF39FC34468F057CC21981CCA19C09FEE641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358895   (967006) от 09.02.2020
+
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексика. Милая девушка Даниэла Рамос, а для друзей просто Дани, вместе с братом приходит с утра работать на завод, но там выясняется, что их вскоре заменят автоматикой. И это не единственная угроза, которую представляют для девушки машины: тут же на неё нападает присланная из будущего и практически неубиваемая модель терминатора REV-9. Но на защиту Дани встает Грэйс (   Читать дальше...   )Производство: США, Китай, Paramount Pictures, Twentieth Century Fox, Skydance MediaЖанр: Фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Линда Хэмилтон, Арнольд Шварценеггер, Маккензи Дэвис, Наталия Рейес, Гэбриел Луна, Диего Бонета, Алисия Боррачеро, Энрике Арсе, Стивен Кри, Ферран ФернандесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (Full, SDH, SDH Colored)Продолжительность: 02:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C41E33CFA64141575FBB9B19F48E5A7DB41D2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977342   (966657) от 20.01.2016
+
+Иррациональный человек / Irrational Man (2015) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор философии Эйб Лукас опустошен: он не видит в своей жизни ни радости, ни смысла.
+На лето Эйб приезжает преподавать в небольшой колледж, где у него завязываются отношения с двумя очень разными женщинами. Рита, его новая коллега, воображает, что именно он вызволит ее из несчастливого брака. А Джилл, его лучшая студентка, становится ему ближайшим другом. Но (   Читать дальше...   )Производство: СШАЖанр: Драма, детективРежиссер: Вуди АлленАктеры: Хоакин Феникс, Эмма Стоун, Джейми Блэкли, Паркер Поузи, Джо Степлтон, Нэнси Кэрролл, Эллисон Галлерани, Бригитт Ланди-Пейн, Кэтлин Семер, Бетси АйдемПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF42CC67EB1349314B0161B426F5001D745F3EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

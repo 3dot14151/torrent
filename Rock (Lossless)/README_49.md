@@ -6,7 +6,7 @@ Straight Lines - Straight Lines (1980) Reissue, 2017, Epic [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780295.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 100 Hits: The Best Rock and Power Ballads Album (2017) 5CD, Box Set [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779564.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Memories Of Machines - Warm Winter (2011) [FLAC|Lossless|tracks + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779005.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ CCS (Collective Consciousness Society) - Discography: 4 albums, 5 CD (1970-2013)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778515.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Mattias Ia Eklundh - Freak Guitar (1999) [APE|Lossless|image + .cue] <Rock, Guit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778368.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Dizzy Mizz Lizzy - Forward In Reverse (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777955.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Blackfield (Steven Wilson project) - 4 Studio+1 Live Albums (2004 - 2013) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777103.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Detlev Schmidtchen (ex.Eloy) - Last Planet I-III (2013) 3CD Box Set [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776480.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Jethro Tull - Heavy Horses (New Shoes Edition) (2018) 3CD/2DVD Box-Set, 40th Ann
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776417.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ King Crimson - Rehearsals & Blows (2016) (May-November 1983)[FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776413.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Wet Willie - Wet Willie (1971) Remaster, 2015, Capricorn Records [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776174.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Aunt Mary - NewDawn (2016) [FLAC|Lossless|tracks] <Rock, Classical Rock, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776169.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Riverside - Reality Dream Trilogy (2011) 6CD Box-Set [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775813.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Kansas - The Classic Albums Collection 1974-1983 (11CD Box Set) (2011) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775642.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Iron Butterfly - 10 альбомов (1968-1993) Различные издани
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775329.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Jоhn Illslеу - Теsting Тhе Wаtеr (2014) [FLAC|Lossless|tracks] <Rock, B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775069.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Yo5 и Андрей Макаревич - Yo5 (2018) [WavPack|Lossless|wv.iso] <J
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775000.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Joe Cocker - No Ordinary World (1999) [APE|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774932.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774304.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Creedence Clearwater Revival - 6 альбомов (1968 - 1986) 6CD, 24 Karat Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773937.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773353.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773169.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772823.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771992.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769686.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769634.jpg" />
 </div>
 
 

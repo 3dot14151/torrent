@@ -6,7 +6,7 @@ Kuro Neko to Majo no Kyoushitsu / The Classroom of a Black Cat and a Witch / Ч�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064949.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana / Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mikadono San Shimai wa Angai, Choroi. | Три сестры Микадоно о�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064733.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Awajima Hyakkei | Scenes from Awajima | Сто видов Авадзимы [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064683.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mamonogurai no Boukensha: Ore dake Mamono o Kuratte Tsuyoku Naru | Monster Eater
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064635.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken | Always a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063828.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 4th / Classroom of the Elite IV 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063824.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? 2 / The Beginning After the 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063823.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 3rd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063704.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dorohedoro Season 2 | Дорохедоро 2 [2026, Web, 3 из 11 эп.] WebRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063703.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Mata Korosarete Shimatta no Desu ne, Tantei-sama / Killed Again, Mr. Detective? 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063601.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken 2 | The Ange
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063598.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Tensei Shitara Slime Datta Ken (2026) | That Time I Got Reincarnated as a Slime 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063597.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Haibara-kun no Tsuyokute Seishun New Game / Haibara's Teenage New Game+ / Вто
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063594.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mairimashita! Iruma-kun (2026) | Welcome to Demon School! Iruma-kun (2026) | Д�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063475.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Honzuki no Gekokujou: S4 | Ascendance of a Bookworm S4 | Власть книжн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063457.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii Desu
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063432.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spri
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063419.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Kami no Niwatsuki Kusunoki-tei | Kusunoki's Garden of Gods | «Сад богов
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063416.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Kanan-sama wa Akumade Choroi / Mistress Kanan Is Devilishly Easy / Канан д
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063394.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Needy Girl Overdose / Needy Streamer Overload / Зависимая девушк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063391.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Yomi no Tsugai | Daemons of the Shadow Realm | Цугаи загробного �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063390.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Koori no Jouheki | The Ramparts of Ice | Ледяная стена [2026, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063345.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Dia no Ace: Act II Second Season | Ace of the Diamond: Act II Second Season | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063335.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Jishou Akuyaku Reijou na Konyakusha no Kansatsu Kiroku. | Дневник наб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063294.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Yomi no Tsugai | Daemons of the Shadow Realm | Цугаи загробного �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063293.jpg" />
 </div>
 
 

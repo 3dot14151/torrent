@@ -6,7 +6,7 @@ Maxthon Browser 7.1.7.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167771.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ XnView 2.49.2 Complete RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167762.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Telegram Desktop 4.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167758.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Waterfox Current G4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167744.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Text Editor Pro 12.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167724.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Calibre 5.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167717.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Spotify 1.2.23.1125 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167699.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167697.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167687.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167648.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CyberLink AudioDirector Ultra 12.1.2326.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167645.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7237.5000 (2019.12) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167640.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mastering The Mix Collection 2021.12 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167628.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ BELOFF [dp] 2021.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167612.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ ESET NOD32 Antivirus 11.1.54.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167611.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ OCCT 10.0.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167608.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Chromium 96.0.4664.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167540.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ GoodSync Enterprise 10.10.15.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167536.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Interbase 2020 14.0.0.469 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167522.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ WinUtilities Pro 15.78 (акция Сomss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167517.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ True Burner 8.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167513.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ HWiNFO 7.35 Build 4935 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167512.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ FinePrint Software (FinePrint 11.06 / pdfFactory Pro 8.06) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167508.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wise Care 365 Pro 6.1.4.601 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167501.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Slimjet 37.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167500.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Light Image Resizer 6.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167496.jpg" />
 </div>
 
 

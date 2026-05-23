@@ -6,7 +6,7 @@ Strawberry 1.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161850.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Vivaldi 5.6.2867.50 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161837.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Bat! Professional 10.5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161835.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ JRiver Media Center 30.0.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161822.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bootstrap Studio 5.5.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161813.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows 10 21H2 (19044.1415) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161812.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Reason Studios Reason 12.5.0 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161810.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Adobe InCopy 2023 18.1.0.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161808.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 17.12 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161807.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ OpenVPN 2.5.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161806.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.376]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161793.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ BELOFF [dp] 2020.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161778.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Opera 94.0.4606.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161764.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Qalculate! 4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161759.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ DxO PhotoLab Elite 6.1.1 build 86 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161748.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Psiphon 3 build 176 (DC 19.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161745.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ IObit Smart Defrag Pro 8.3.0.252 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161743.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC2020-12-19) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161710.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Rhinoceros 3D 8.0.23304.09001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161708.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ IObit Uninstaller Pro 12.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161694.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Magic Recovery Software 2022.12 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161672.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ uTorrent Pack 1.2.3.77 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161662.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161644.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Blender 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161639.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Adobe Bridge 2023 13.0.1.583 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161635.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Ableton - Live Suite 11.2.7 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161603.jpg" />
 </div>
 
 

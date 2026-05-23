@@ -1,58 +1,3 @@
-###  Публикация: 1411983   (1042944) от 01.01.2021
-
-Договор молчания (Бесшумный) / The Silencing (2020) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мужчина средних лет с тяжелым прошлым по имени Рейбёрн работает смотрителем заповедника и много пьёт. Внезапно на местности находят тело девушки-подростка. Шериф выясняет, что на покойную охотились, причём с помощью первобытного метательного приспособления - атлатля. Пять лет назад у Рейбёрна пропала несовершеннолетняя дочь, поэтому, когда на лесных камерах наблюдения (   Читать дальше...   )Производство: Канада, США / Anova Pictures, Madrona Drive, Silencing Canada ProductionsЖанр: Триллер, детектив, криминалРежиссер: Робин ПронтАктеры: Николай Костер-Вальдау, Калеб Эллсворт-Кларк, Джош Круддас, Аннабелль Уоллис, Зан Маккларнон, Хиро Файнс-Тиффин, Лиза Кромарти, Лелэнд Ассиневай, Кайла Дюмон, Шон СмитПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские forced, full х2 (Focs ненормативная лексика, Khotya-303), украинские, английскиеПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E5BCCC737EEF6C75DFE5B245326772AC9ED77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610074   (1042940) от 05.02.2023
-
-Гений пустого места (2008) (серии 1-2 из 2) DVDRip
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного романа Татьяны Устиновой.
-В одну ночь Митя Хохлов лишился старого друга Кузи и.. ста тысяч долларов. Вот такое совпадение. Или нет ?.. Жили были четыре друга, учились в одном вузе, поначалу работали в одном научно-исследовательском институте. Но потом двое из них стали бизнесменами. А Кузмин и Пилюгин остались в науке.
-
-Кузя был нелепый, (   Читать дальше...   )Производство: Украина / компания "Украинская медийная группа" (UMG)Жанр: детектив, экранизацияРежиссер: Анатолий МатешкоАктеры: Виталий Борисюк, Алексей Зубков, Сергей Калантай, Кирилл Кашликов, Ксения Лаврова-Глинка, Виталий Линецкий, Анастасия Сердюк, Юлия Такшина, Анна Тамбова, Ольга МатешкоПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB07095BA915003156367677520F8C15B97F819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609970   (1042900) от 05.02.2023
 
 Рыба в ванне / A Fish in the Bathtub (1998) BDRip [H.264]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042900.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042881.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042877.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042872.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042862.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042855.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042853.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042847.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042843.jpg" />
 </div>
 
 
@@ -295,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042842.jpg" />
 </div>
 
 
@@ -321,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042841.jpg" />
 </div>
 
 
@@ -347,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042838.jpg" />
 </div>
 
 
@@ -373,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042837.jpg" />
 </div>
 
 
@@ -399,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042831.jpg" />
 </div>
 
 
@@ -425,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042760.jpg" />
 </div>
 
 
@@ -451,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042750.jpg" />
 </div>
 
 
@@ -477,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042731.jpg" />
 </div>
 
 
@@ -503,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042729.jpg" />
 </div>
 
 
@@ -529,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042714.jpg" />
 </div>
 
 
@@ -555,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042713.jpg" />
 </div>
 
 
@@ -583,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042708.jpg" />
 </div>
 
 
@@ -609,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042707.jpg" />
 </div>
 
 
@@ -635,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042706.jpg" />
 </div>
 
 
@@ -661,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042691.jpg" />
 </div>
 
 
@@ -672,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D3BEC8C5C494DD8002FFB9DCE895121A8CD4198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610203   (1042660) от 06.02.2023
+
+Один день / One Day / Eoneunal (2017) WEBRip ViruseProject [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042660.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти жены следователь из страхового агентства Кан-су медленно и мучительно возвращается к трудовым будням. Начальник даёт ему задание побыстрее разобраться с делом слепой женщины Ми-со, попавшей в аварию. Кан-су приходит в больницу, чтобы проверить лежащую в коме клиентку, и встречает её же живой и невредимой. Точнее, её дух, который способен видеть и слышать (   Читать дальше...   )Производство: Корея Южная / Invent StoneЖанр: драма, фэнтезиРежиссер: Ли Юн-гиАктеры: Ким Нам-гиль, Чхон У-хи, Чон Сон-гён, Лим Хва-ён, Пак Хи-бон, Чон Сун-вон, Ким Джон-хён, Ли Су-ин, Ли Сын-ён, Чон Ю-рим и др.Перевод: Профессиональный (многоголосый, закадровый) (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17E926431110C68D389C5A65BF11BF0150AB80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610202   (1042652) от 06.02.2023
+
+Один день / One Day / Eoneunal (2017) WEBRip [H.264/1080p] ViruseProject [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042652.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти жены следователь из страхового агентства Кан-су медленно и мучительно возвращается к трудовым будням. Начальник даёт ему задание побыстрее разобраться с делом слепой женщины Ми-со, попавшей в аварию. Кан-су приходит в больницу, чтобы проверить лежащую в коме клиентку, и встречает её же живой и невредимой. Точнее, её дух, который способен видеть и слышать (   Читать дальше...   )Производство: Корея Южная / Invent StoneЖанр: драма, фэнтезиРежиссер: Ли Юн-гиАктеры: Ким Нам-гиль, Чхон У-хи, Чон Сон-гён, Лим Хва-ён, Пак Хи-бон, Чон Сун-вон, Ким Джон-хён, Ли Су-ин, Ли Сын-ён, Чон Ю-рим и др.Перевод: Профессиональный (многоголосый, закадровый) (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, японскиеПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE6160B08BA7CC46503D85B71A9C0F56788E98B
 ```
 
 https://mybot314.ru/tekegram_catalog/

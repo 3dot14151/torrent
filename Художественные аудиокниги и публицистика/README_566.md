@@ -1,81 +1,3 @@
-###  Публикация: 1250705   (421845) от 29.09.2018
-
-Роман Злотников | Швейцарец (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алекс не горевал о развале СССР и никогда не мечтал помочь Сталину разбить Гитлера малой кровью. У него были простые желания: жить в Европе и стать действительным членом международного байкерского клуба «Ангелы Ада». Казалось бы, мечты начали сбываться. Алекс работал в австрийской компании. Да и с байкерами все нормально складывалось. Вот только об одном не подозревал (   Читать дальше...   )Жанр: Фантастика, поподанцы, альтернативная историяПродолжительность: 11:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C01DF7E7A88E8CB867CEE161BE97ED4221DA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250677   (421834) от 29.09.2018
-
-Виктор Пелевин | Тайные виды на гору Фудзи (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Готовы ли вы ощутить реальность так, как переживали ее аскеты и маги древней Индии две с половиной тысячи лет назад? И если да, хватит ли у вас на это денег? Это своего рода современная Илиада, повествующая о долгом и мучительно трудном возвращении российских олигархов домой. А еще это берущая за сердце история подлинного женского успеха. Впервые в мировой литературе (   Читать дальше...   )Жанр: Cовременная русская литератураПродолжительность: 11:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B9C8CEF2E77D85BFB5E0CD83E8A0BDCD48E9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064830   (421767) от 22.10.2016
-
-Франсуаза Саган | Синяки на душе (2012) [MP3, Татьяна Телегина]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Любовь - это лабиринт, за каждым поворотом которого открываются манящие дали. И в этом лабиринте хорошо двум влюбленным сердцам. Но когда в закоулки любви проникает третий, он или разрушает иллюзии, или навсегда соединяет двух людей, созданных друг для друга.Жанр: РоманИздательство: Нигде не купишьПродолжительность: 11:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172185A4FFA088233E255D71B4EEF1260EAD657C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324250   (421491) от 11.09.2019
 
 Сухбат Афлатуни | Рай земной (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421491.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421471.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421428.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421380.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421334.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421333.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421330.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421327.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421325.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421320.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421319.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421220.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421218.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421216.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421206.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421202.jpg" />
 </div>
 
 
@@ -512,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421198.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421197.jpg" />
 </div>
 
 
@@ -564,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421190.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421146.jpg" />
 </div>
 
 
@@ -616,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421142.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421136.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421092.jpg" />
 </div>
 
 
@@ -681,6 +603,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20340ABE965B4162D9CB3B06A720827C7BAF453B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572543   (421050) от 27.08.2022
+
+Антон Чехов и др. | Классика русского юмористического рассказа. Сатирикон (2012) [MP3, Александр Бордуков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 20-е годы прошлого столетия в СССР, огромным по тем временам тиражом 60 тысяч экземпляров, издавался сатирический еженедельник журнал "Бегемот". В объявлении о подписке на журнал было сказано: "Журнал выходит в большом формате, по образцу лучших многокрасочных изданий, с участием первоклассных литературных и художественных сил. Всем годовым подписчикам (   Читать дальше...   )Жанр: ЮморПродолжительность: 02:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2507B0A930D1E11EB702B029895425782B6AD868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572610   (421048) от 27.08.2022
+
+Артуро Перес-Реверте | Осада, или Шахматы со смертью (2022) [MP3, Владимир Голицын]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1811-1812 год. Кадис, последний оплот испанцев, сражающихся за свою независимость, осажден французами. Войска Жозефа Бонапарта планомерно обстреливают город, и, странное дело, именно в тех местах, куда попадают снаряды, происходит серия жестоких убийств молодых девушек. Рохелио Тисон, комиссар местной полиции, не отличающийся мягкостью нрава, вместе с Ипполитом Баррулем, (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 25:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1B5EF71ED6F8067DC9C461890EDA54553E4B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572605   (421045) от 27.08.2022
+
+Аркадий и Георгий Вайнеры | Евангелие от палача (Книга 2). Евангелие от палача (2022) [MP3, Владимир Голицын]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421045.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре романа «Евангелие от палача» – Николай Хваткин, харизматичный антигерой, который ловко плетет убийственные заговоры, но сам находится в плену страха и страстной тяга к женщине, чью жизнь и семью он безжалостно разрушил…
+В 1970-е годы отставной, но еще совсем не старый полковник МГБ Хваткин по-прежнему на коне: престиж, богатство, красивая жена… Времена, (   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 21:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D953FE1E1441C54FB3CB538942ECB85AD41C09AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

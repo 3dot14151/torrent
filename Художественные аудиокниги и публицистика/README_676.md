@@ -1,83 +1,3 @@
-###  Публикация: 1836281   (252431) от 09.11.2025
-
-Сергей Недоруб | S.T.A.L.K.E.R. Борланд 4, Золотая коллекция. Призраки истины (2025) [MP3, Андрей Паньшин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Постапокалиптический роман о сталкере по кличке Шептун, расследующем предательство в самом первом клане Зоны отчуждения – «Набате».
-Ему предстоит не только найти виновного, но и понять его мотивы, которые оказываются сложнее, чем кажется.
-В те времена, когда Зона отчуждения только-только принимала привычные очертания и свойства, единственным кланом на аномальной (   Читать дальше...   )Жанр: Аномальные зоны, Боевая фантастика, Борьба за выживаниеИздательство: АСТПродолжительность: 10:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D632225F0367BAA11FA1CF7FC19FB991B4378D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836301   (252419) от 09.11.2025
-
-Наталья Александрова | Наследники Остапа Бендера. Приманка для Цербера (2025) [MP3, Нина Медникова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Анне Облонской необходима помощь необычного специалиста - взломщика-домушника, ведь ее саму уже трижды пытались ограбить. Правда, ни одна из попыток не стала успешной, но это лишь значит, что за ними последует и четвертая. Поэтому авантюристу-аферисту Лене Маркизу и его боевой подруге Лоле, которых просит о помощи Облонская, предстоит не только остановить грабителей, (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 08:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BCA5CAF8BD703A770786DEE316182A20692D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835909   (252337) от 08.11.2025
-
-Валерий Шарапов | Короли городских окраин. Не время умирать (2025) [MP3, Андрей Троммельман]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В послевоенном Подмосковье объявился маньяк. Своих жертв, девочек-подростков, нелюдь убивает с особой жестокостью: выкалывает глаза, разрезает рот, после чего душит. В лапы убийцы едва не попала и пионервожатая Оля, случайно оказавшаяся в лесу. Только чудом девушка осталась жива. Ее друг Колька Пожарский горит желанием лично поймать преступника, который мерещится (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 07:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF42E19BD2E30E6C0A422BBA8EFAADFE888DE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836074   (252320) от 08.11.2025
 
 Джеймс Пелт | Далеко от Изумрудного острова (2025) [MP3, Puffin Сafe]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252320.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252319.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252318.jpg" />
 </div>
 
 
@@ -167,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252309.jpg" />
 </div>
 
 
@@ -193,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252265.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252165.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252154.jpg" />
 </div>
 
 
@@ -275,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252152.jpg" />
 </div>
 
 
@@ -301,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251736.jpg" />
 </div>
 
 
@@ -327,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251671.jpg" />
 </div>
 
 
@@ -354,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251661.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251566.jpg" />
 </div>
 
 
@@ -408,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251487.jpg" />
 </div>
 
 
@@ -434,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251284.jpg" />
 </div>
 
 
@@ -462,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251244.jpg" />
 </div>
 
 
@@ -489,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251237.jpg" />
 </div>
 
 
@@ -515,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251235.jpg" />
 </div>
 
 
@@ -541,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251210.jpg" />
 </div>
 
 
@@ -567,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251120.jpg" />
 </div>
 
 
@@ -593,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250995.jpg" />
 </div>
 
 
@@ -619,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250964.jpg" />
 </div>
 
 
@@ -645,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250929.jpg" />
 </div>
 
 
@@ -672,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250737.jpg" />
 </div>
 
 
@@ -686,6 +606,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FB2156C5898C8B981A409A3B9AFA4135F39D81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835506   (250735) от 06.11.2025
+
+Фёдор Достоевский | Кроткая. Сборник рассказов (2022) [MP3, Роман Стабуров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Эксклюзив: Русская классика.
+Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
+Сборник «фантастических» рассказов великого классика!
+Абсолютно во всех своих произведениях, даже малой формы, (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Аудиокнига (АСТ)Продолжительность: 10:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E407CA27FBB3E5BACBADC97F06BD161615FBC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835428   (250720) от 06.11.2025
+
+Питер Свонсон | Три твои клятвы (2025) [MP3, Александр Аравушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250720.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В богатстве и бедности…»
+После бурного любовного романа Эбигейл выходит замуж за молодого миллионера из Кремниевой долины. Их медовый месяц на роскошном курорте уединенного острова обещает пройти как в сказке…
+«В любви и верности…»
+Но среди гостей Эбигейл замечает обаятельного незнакомца, который не сводит с нее глаз. Да, она узнала его. Это он соблазнил ее на собственном (   Читать дальше...   )Жанр: ТриллерИздательство: INSPIRIAПродолжительность: 09:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA14208D0DEB15B69B40E563B976FAA8BA253FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835277   (250638) от 05.11.2025
+
+Урсула Ле Гуин | Безбрежней и медлительней империй.. (2025) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250638.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Покорение самых далеких миров - удел людей не вписавшихся в общество по причине психических заболеваний. Кто еще согласился бы вернуться домой, когда там прошли сотни, если не тысячи лет. Именно из таких отщепенцев, вынужденных находить общий язык друг с другом, состоял экипаж "Гампа". И планета, которую они обнаружили, оказалась лишена любой жизни (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA13166650BE0527F4E48F2BB367BDC879AC9301
 ```
 
 https://mybot314.ru/tekegram_catalog/

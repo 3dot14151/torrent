@@ -1,83 +1,3 @@
-###  Публикация: 1594841   (177405) от 02.12.2022
-
-Наталья Александрова | Артефакт & Детектив. Волшебные стрелы Робин Гуда (2022) [MP3, Анастасия Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Все не то, чем кажется, даже в книгах, любимых с детства, – таких, например, как баллады о Робин Гуде. Лариса и думать не могла, что сама окажется героиней истории о благородном разбойнике, – и это в наши времена, когда разбойников стало видимо-невидимо, но о благородстве все забыли! Но вот ее через столетия и границы снова спасают стрелы Робин Гуда – защитника всех, (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785BDCB69D98416676E298A8D9CD95FD6D73C461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594816   (177396) от 02.12.2022
-
-Наталья Александрова | Артефакт & Детектив. Кубок королевы Розамунды (2022) [MP3, Алина Арчибасова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Королева варварских племен Розамунда обладала не только красотой, но и хитрым изворотливым умом. Она жестоко отомстила своему мужу, вождю лангобардов, а потом отправилась в Византийские земли, прихватив с собой золото и кубок, сделанный из черепа отца…
-
-В наши дни древний артефакт с красными рубинами в глазницах, обладающий мистическими свойствами, попадает к Марианне. (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FDC31FF87DC01732CAE675BAC435EA35BD552F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594866   (177393) от 02.12.2022
-
-Наталья Александрова | Артефакт & Детектив. Камея римской куртизанки (2022) [MP3, Анастасия Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Эта древняя камея с изображением Медузы Горгоны, обладающая волшебными свойствами, когда-то принадлежала римской красавице-куртизанке Клодии, но ее история получила неожиданное продолжение в наши дни… Анна Воробьева несколько лет назад стала свидетельницей жуткого преступления: убили ее счастливую соперницу, которая увела мужа Анны, и Воробьеву тогда подозревали (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FFBEF4A8400CE805004DF597DE655635AAAACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594697   (177360) от 02.12.2022
 
 Ульяна Черкасова | Золотые земли (Книга 3). Птицы Великого леса (2022) [MP3, Марина Тропина]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177360.jpg" />
 </div>
 
 
@@ -115,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177348.jpg" />
 </div>
 
 
@@ -144,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177316.jpg" />
 </div>
 
 
@@ -170,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177279.jpg" />
 </div>
 
 
@@ -196,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177276.jpg" />
 </div>
 
 
@@ -222,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177271.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177264.jpg" />
 </div>
 
 
@@ -276,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177262.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177244.jpg" />
 </div>
 
 
@@ -329,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_177235.jpg" />
 </div>
 
 
@@ -355,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177194.jpg" />
 </div>
 
 
@@ -381,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177162.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177002.jpg" />
 </div>
 
 
@@ -433,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176986.jpg" />
 </div>
 
 
@@ -459,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176904.jpg" />
 </div>
 
 
@@ -485,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176894.jpg" />
 </div>
 
 
@@ -514,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176891.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176880.jpg" />
 </div>
 
 
@@ -570,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176866.jpg" />
 </div>
 
 
@@ -596,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176835.jpg" />
 </div>
 
 
@@ -622,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176808.jpg" />
 </div>
 
 
@@ -648,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176795.jpg" />
 </div>
 
 
@@ -675,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176780.jpg" />
 </div>
 
 
@@ -688,6 +608,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:354CF1D3721B441DC97F078F6026ED05B5A61EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429549   (176775) от 06.12.2020
+
+Оксана Головина | Золушка 101 (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу популярной писательницы Оксаны Головиной – «Золушка 101». Получая от журналистов нелепую кличку после ликвидации очередного пожара, Алексей не догадывался, что вскоре придётся разделить участь этой сказочной героини… Теперь, лишившись любимой работы, дома и не имея за душой ни гроша, остаётся только согласиться на роль (   Читать дальше...   )Жанр: Любовный романПродолжительность: 08:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7EA7CF295E6663BE3979FD590E9F55DA5BD96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667579   (176735) от 08.10.2023
+
+Евгений Шалашов | Десятый самозванец (2023) [MP3, Евгений Бабинцев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Тимофея Акундинова, выдававшего себя за сына царя Василия Шуйского, в перечне русских самозванцев стоит наособицу. Акундинов, пав жертвой кабацких жуликов, принялся искать деньги, чтобы отыграться. Случайный разговор с приятелем подтолкнул Акундинова к идее стать самозванцем. Ну а дальше, заявив о себе как о сыне Василия Шуйского, хотя и родился через шесть лет (   Читать дальше...   )Жанр: Исторические приключенияИздательство: ЛитРес: чтецПродолжительность: 15:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7BC04582779EF7371DCC4ECCD9DB58E1116A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667339   (176732) от 08.10.2023
+
+Пелам Гренвилл Вудхаус | Замок Бландинг (сборник) (2023) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увитые плющом стены замка Бландинг редко сияли так ярко, как в этих замечательных историях, но в холмистой парковой зоне водятся змеи, готовые укусить Кларенса, рассеянного девятого графа Эмсворта, когда он меньше всего этого ожидает.
+
+Начнем с того, что императрица Бландингская, претендующая на первое место в классе жирных свиней на сельскохозяйственной выставке (   Читать дальше...   )Жанр: классическая проза, юморИздательство: СОЮЗПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58929629206DD63FD7AB2873E2006D39D1D4EC29
 ```
 
 https://mybot314.ru/tekegram_catalog/

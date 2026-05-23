@@ -6,7 +6,7 @@ Wise Care 365 Pro 6.6.2.632 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163068.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hex Editor Neo Ultimate 7.21.00.8382 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163065.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ LibreCAD 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163053.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Edge 87.0.664.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163048.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CUETools 2.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163045.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Balabolka 2.15.0.765 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163044.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163041.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AMD Radeon Software Adrenalin Edition 23.11.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163033.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Opera 73.0.3856.284 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163026.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Aiseesoft FoneLab for Android 5.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163023.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Topaz Photo AI 2.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163020.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AnyDesk 8.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162942.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Pale Moon 28.17.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162912.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Ventoy 1.0.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162906.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Mozilla Thunderbird 91.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162905.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Transcend SSD Scope 4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162873.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ NoMachine 7.0.208_4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162867.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Opera 82.0.4227.33 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162865.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft Edge 96.0.1054.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162857.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Plexim Plecs 4.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162836.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ HashTools 4.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162811.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ RogueKiller Anti-Malware 15.1.5 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162806.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Wallpaper Engine 1.4.123 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162790.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ XnViewMP 0.99.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162789.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Topaz Video Enhance AI 1.8.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162774.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Mozilla FireFox 95.0.0.8003 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162769.jpg" />
 </div>
 
 

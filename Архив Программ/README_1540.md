@@ -6,7 +6,7 @@ Adobe XD 49.0.12.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249346.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Universal Media Creation Tool 20.03.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249345.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Transmute Pro 2.50 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249314.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tema Windows 7 Undisputed VS2 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249304.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Tweaker 4.0 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249267.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kaido Player 7 v.7.1.37.12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249242.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Photo Slideshow Creator 3.0 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249213.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adrosoft Steady Recorder 2.7.2 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249188.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ cFosSpeed v8.00 Build 1946 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248961.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WebBrowserPassView 1.26 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248928.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248891.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Windows Repair 1.7.3 [Английский] x32/x64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248886.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ WnSoft PicturesToExe Deluxe 7.0.5 Portable x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248879.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ WinZip Pro 16.0.9715 x86-x64 16.0.9715 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248878.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Foxit PhantomPDF Business v5.2.0.0502 Final / Portable / Lite Portable [2012,x86
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248850.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ MusicDevelopments - RapidComposer v.1.91 x86 by MESMERiZE[exe][английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248830.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Oiynsoft Alarm Clock 3.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248814.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Hekasoft Backup & Restore 0.8 [Мульти, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248789.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ SMPlayer 0.8.0.4311 Portable by Noby [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248779.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ ISO Workshop 2.6 [Eng/Rus] + Portable by Valx
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248764.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248680.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Aone Ultra Video Joiner/Splitter 6.3.0506 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248666.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VMware Workstation 8.0.3 Build 703057 Lite by qazwsxe [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248652.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Microsoft Process Monitor 3.01 [Eng & Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248644.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Pixarra TwistedBrush Pro Studio v18.16 Final [Английский + Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248593.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Wondershare PDF Converter Pro 3.1.1 + Portable (2012) PC (Multi/Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248564.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Magic DVD Copier 9.0.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708685.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Icecream Image Resizer 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708684.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ oCam 395.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708683.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Tipard Video Downloader 5.0.28 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708680.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Insofta Cover Commander 5.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708678.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708638.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GlassWire Elite 2.1.152 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708618.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708611.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Insofta 3D Text Commander 4.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708584.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Calibre 2.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708583.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sorcim Technologies Clone Files Checker 5.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708577.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6718.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708559.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ZBrush 3.1 [ENG](2008)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708491.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Movavi Video Converter 22.3.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708488.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Icecream PDF Converter PRO 2.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708429.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Alcohol 52% 2.0.3.9902 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708352.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Alcohol 120% 2.0.3.9902 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708348.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NVIDIA GeForce Desktop 382.05 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708347.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Windows 10 PE (x86/x64) v.5.0.1 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708268.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Alcohol 120% 2.0.3.9902 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708255.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Maxthon Browser 5.2.1.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708174.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ QuiteRSS 0.18.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708158.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Slimjet 18.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708112.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Pale Moon 27.9.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708108.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Aiseesoft Screen Recorder 1.1.36 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708107.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Easy CD-DA Extractor 2011.3 [RU/EN/SU] | REPACK от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708066.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Telegram Desktop 5.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46689.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Wondershare Filmora 13.6.6.8453 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46682.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.0.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46679.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ OpenVPN 2.6.12 (11.08.2024) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46670.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Acrobat Pro 24.002.21005 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46655.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe Acrobat Pro 2024.002.21005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46648.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ StartAllBack 3.8.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46615.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ StartAllBack 3.8.4 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46612.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46607.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FinePrint 12.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46596.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ StartAllBack 3.8.4 build 5136 (DC-15-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46594.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sigil 2.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46593.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PageEdit 2.3.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46591.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Foxit PDF Editor Pro Subscription 2024.2.3.25184 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46577.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Abelssoft SSD Fresh Plus 2024 13.02.56042 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46574.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Corona Renderer 12.1 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46570.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46559.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [17.08.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46543.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Foxit PDF Editor Pro 13.1.3.22478 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46541.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46531.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Wondershare PDFelement 11.0.5.3099 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46515.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Radiant Photo 1.4.1.502 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46480.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Atlantis Word Processor 4.4.0.7 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46477.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ System software for Windows v.3.6.4 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46461.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Internet Download Manager 6.42 Build 20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46425.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ RollBack Rx Professional 12.7 Build 2710041413 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46417.jpg" />
 </div>
 
 

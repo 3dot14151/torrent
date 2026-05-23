@@ -1,56 +1,3 @@
-###  Публикация: 937079   (491350) от 13.09.2015
-
-Матрица: Революция / The Matrix Revolutions (2003) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Матрица: Революция» (англ. The Matrix Revolutions) — третий и последний фильм в трилогии «Матрица», снятый Ланой и Эндрю Вачовски. «Революция» вышла 5 ноября 2003 года.
-Фильм является прямым продолжением «Матрицы: Перезагрузки» и повествует о последних часах войны людей и машин, судьбу которой должен решить Избранный — Нео.Производство: Австралия, США / NPV Entertainment, Silver Pictures, Village Roadshow Pictures, Warner Bros. Pictures Co., МОСФИЛЬМ-мастер (дубляж)Жанр: Фантастика, БоевикРежиссер: Энди Вачовски, Лана ВачовскиАктеры: Киану Ривз, Хьюго Уивинг, Кэрри-Энн Мосс, Лоренс Фишбёрн, Хэролд Перрино, Джина Торрес, Джада Пинкетт Смит, Моника Беллуччи, Гарри Дж. Ленникс, Мэри ЭлисПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 02:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6930DDEDC178D80033CEE18BE10F948C5E9317F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243325   (491347) от 27.08.2018
-
-Эскобар / Loving Pablo (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История восхождения Пабло Эскобара — его стремительного пути к миллиардам, могуществу и непростительным преступлениям. Во всесильного наркобарона влюбляется журналистка, чьи мемуары положены в основу фильма.Производство: Испания, Болгария, США, Escobar Films, B2Y EOODЖанр: Биография, драма, криминалРежиссер: Фернандо Леон Де АраноаАктеры: Хавьер Бардем, Пенелопа Крус, Питер Сарсгаард, Жульет Рестрепо, Оскар Хаенада, Фреди Йэт, Рикардо Ниньо, Педро Кальво, Джованни Альварез, Дэвид ВаленсиаПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BE04529E687495A6F5693EFA7DE9A41D5B989D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936878   (491346) от 13.09.2015
 
 Матрица: Перезагрузка / The Matrix Reloaded (2003) BDRip [H.264/1080p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491346.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491337.jpg" />
 </div>
 
 
@@ -114,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491322.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491266.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491225.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491224.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491095.jpg" />
 </div>
 
 
@@ -246,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491016.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491010.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490940.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490925.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490861.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490831.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490820.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490801.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490797.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490718.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490596.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490566.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490496.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490413.jpg" />
 </div>
 
 
@@ -610,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490328.jpg" />
 </div>
 
 
@@ -636,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490326.jpg" />
 </div>
 
 
@@ -662,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490143.jpg" />
 </div>
 
 
@@ -673,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71DB274E8E30FE91A48191E454693434FD1F8DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158743   (490064) от 17.08.2017
+
+Прерванный путь / Broken Trail (2006) BDRip [H.265/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка, 1898 год. Ковбои Принт Риттер и его племянник Том Харт - партнёры. Они перегоняют табун лошадей через страну, и неожиданно для себя, становятся защитой и опорой для 5 китайских девушек, которых собирались продать в бордель. Ковбои стараются заботиться о девушках, чтобы те смогли начать достойную новую жизнь, но по их следам уже гонятся шайка бандитов, имеющих (   Читать дальше...   )Производство: Канада, США / Butcher's Run Films, Once Upon a Time FilmsЖанр: Приключения, ВестернРежиссер: Уолтер ХиллАктеры: Роберт Дювалл, Томас Хейден Чёрч, Грета Скакки, Гвендолин Ео, Крис Малки, Расти Швиммер, Скотт Купер, Валери Тиан, Кэролайн Чан, Оливия Ченг, Джейдин Вонг, Дональд Фонг, Джеймс Руссо, Тодд Аллен, Билл БаксаПеревод: Многоголосый закадровыйСубтитры: английскиеПродолжительность: 03:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7E4C327C0EF12B10451B340F7D1EDFC7DD247A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158746   (490048) от 17.08.2017
+
+Хороший человек / A Good Man (2014) BDRip [H.265/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр — идеальный солдат, но во время миссии в Ираке, на его руках умирает маленькая девочка, после чего он решил отойти от дел. Сэм Хуан — силовик, то ли связанный с Триадами, то ли воюющий против них, отправил, хорошо заплатив, безопасным путем свою маленькую сестру Миа в США. Мистер Чэн гнусным образом вешает на Сэма убийство, которое он совершил, а также (   Читать дальше...   )Производство: США / Actionhouse Pictures, Grindstone Entertainment Group, Picture Perfect Corporation, Steamroller Productions, Voltage PicturesЖанр: БоевикРежиссер: Киони ВаксманАктеры: Стивен Сигал, Виктор Уэбстер, Ци Ма, Рон Балики, Юлия Вердес, Элиас ФеркинПеревод: Одноголосый закадровыйСубтитры: английские (форсированные)Продолжительность: 01:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E7201DD713CB3A4DD0F016533C37C9A59F112E
 ```
 
 https://mybot314.ru/tekegram_catalog/

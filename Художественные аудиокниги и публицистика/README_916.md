@@ -1,83 +1,3 @@
-###  Публикация: 1696904   (119302) от 04.02.2024
-
-Василий Шукшин | Рассказы (2013) [MP3, Илья Прудовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию сборник избранных рассказов замечательного советского писателя, драматурга и кинорежиссера Василия Макаровича Шукшина (1929–1974).
-Прочитано по изданию: М., Художественная литература, 1979 г.Жанр: Классика советской прозы, рассказИздательство: Нигде не купишьПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05A53F28FED62C72F04F00BD7A084AB3CD83A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356272   (119269) от 05.02.2024
-
-Велимир Хлебников | Творения (2006) [MP3, Вадим Максимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Велимир (Виктор Владимирович) Хлебников (1885–1922) – уникальное явление в русской культуре. Поэт, прозаик, теоретик и исследователь искусства, мыслитель, математик, орнитолог, он во многом опередил свое время. Его гениальные прозрения не укладывались в рамки современной ему науки, гениальные стихи – в рамки существовавших литературных (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 04:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B130E6F56201063742BBEC93FD122AC9435291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312560   (119258) от 05.02.2024
-
-Василий Ян | Александр Невский. Юность полководца (2007) [MP3, Владимир Конкин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига об Александре Невском Василия Яна. Его трилогией «Чингисхан», «Батый», «К последнему морю» русская публика зачитывается уже много лет. На этот раз маститый писатель говорит о юности Александра Невского. Он начинается с той поры, когда юный князь Александр Ярославич не был еще ни Невским, ни Святым, ни Благоверным, но он был русским рыцарем, и русская рыцарская (   Читать дальше...   )Жанр: Русская литература, исторический романИздательство: Эксмо-Сидиком, Sound TimeПродолжительность: 04:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE343AD8EE5655A2D684689E6DDDABF459D6565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310668   (119257) от 05.02.2024
 
 Василий Ян | Нашествие монголов (Книга 2) Батый (2007) [MP3, Сергей Казаков]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119257.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119251.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119243.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119212.jpg" />
 </div>
 
 
@@ -195,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119210.jpg" />
 </div>
 
 
@@ -221,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119207.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119201.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119177.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119176.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119165.jpg" />
 </div>
 
 
@@ -354,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119157.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119143.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119125.jpg" />
 </div>
 
 
@@ -436,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119122.jpg" />
 </div>
 
 
@@ -463,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119116.jpg" />
 </div>
 
 
@@ -490,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119113.jpg" />
 </div>
 
 
@@ -516,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119091.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119046.jpg" />
 </div>
 
 
@@ -570,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119027.jpg" />
 </div>
 
 
@@ -596,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119019.jpg" />
 </div>
 
 
@@ -624,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119004.jpg" />
 </div>
 
 
@@ -651,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119000.jpg" />
 </div>
 
 
@@ -677,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118999.jpg" />
 </div>
 
 
@@ -688,6 +608,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6364B998E83715F1A7A9E3A6FFD879206606FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697455   (118998) от 06.02.2024
+
+Дмитрий Дашко | Мент (Книга 6). Инспектор угрозыска (2024) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключаемся, расследуем новые дела и заносим старые «хвосты».Жанр: ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 05:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4081F0219EF6308E8F6595C543595E5669ED3383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697402   (118980) от 06.02.2024
+
+Сергей Карелин | Гном Мирн (Книга 1). Гном (2023) [MP3, Александр Бузычкин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был в небольшой деревеньке на севере Синих гор гном по имени Мирн, который мечтал о путешествиях. Но он не мог предположить, что в один прекрасный миг его мечты станут реальностью. Волею судеб он вынужден был покинуть родной дом и стать предметом охоты для магов, демонов и даже своих сородичей. В его руках судьба мира. Перед ним нелегкий выбор, и неясно – кто (   Читать дальше...   )Жанр: Боевая магия Боевое фэнтези Героическое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 08:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1C1B7109C5FC9FEA37B0589F6B3311F94CF0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697412   (118978) от 06.02.2024
+
+Вел Павлов | Высшая Речь (Книга 2). Последний реанорец (Том II) (2024) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я - Зеантар Ар-Ир Ор'Реанон. Убийца, мститель, кто-то даже называл Линчевателем и Жнецом Бездны. Но по своей натуре я искупитель, носитель Высшей речи и последний в своем роде реанорец. Я убивал, уничтожал, истреблял, испепелял и стирал с лица Мерраввина целые города и народы. Во имя мести и искупления. Но не зря любят философствовать замшелые пеньки из расы людей, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Неофициальное изданиеПродолжительность: 09:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50133CD1AD61DA76DC9CFDEBFC2A2107BBCD94AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

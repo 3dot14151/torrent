@@ -1,29 +1,3 @@
-###  Публикация: 1819561   (1236) от 24.09.2025
-
-ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157967) Repack Wanterlude [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-ENDLESS Legend 2 – это фэнтезийная стратегия, где вы управляете разнообразными фракциями, строящими величественные империи и ведущими войны в масштабах планеты в меняющемся океаническом мире на грани гибели. Катастрофы нарушили естественный баланс, и ландшафт меняется с течением времени, открывая смелым новые территории для исследований и завоеваний. Развивайте города, (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819696   (1235) от 24.09.2025
 
 Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
@@ -32,7 +6,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1235.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Hell is Us (2025) [Ru/Multi] (1.4.22.43941) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1225.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1216.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Old World (2022) [Ru/Multi] (1.0.79871/dlc) Repack Let'sРlay [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1117.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1116.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1114.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1088.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1082.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.5.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1081.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1080.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) Repack Other s [The Galactic Te
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1053.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.38/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_940.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_930.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_922.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_916.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.15) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_915.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6) License GOG [Patche
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_909.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_908.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_899.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_887.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ DOOM Eternal (2020) [Ru/Multi] (20078587/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_884.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_878.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_877.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_867.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_865.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0B2BA803DE5A0E90C4312CAECD1C7B577CF855C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820032   (853) от 26.09.2025
+
+Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели первого сиквела в истории Supergiant Games взяли только лучшее из оригинальной игры в жанре rogue-like, чтобы представить вам совершенно новое динамичное приключение, которое можно проходить снова и снова. Окажитесь в подземном мире из греческих мифов и узнайте, как зародилось колдовство.Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE01B52DFDA79C3B8C1956392096A9570C712F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

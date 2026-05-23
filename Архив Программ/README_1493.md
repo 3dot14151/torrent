@@ -6,7 +6,7 @@ IObit Uninstaller Free 8.2.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275196.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 10.0.20.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275156.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Claude 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275155.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Display Driver Uninstaller 18.0.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275154.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Auslogics BoostSpeed 10.0.20.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275152.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BlueStacks App Player 4.32.70.1004 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275148.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BlueStacks Tweaker 5.8.5 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275143.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ IObit Uninstaller Pro 8.2.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275141.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Malwarebytes AdwCleaner 7.2.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275106.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Print Conductor Free 6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275057.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Acronis True Image 2019 Build 14690 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274953.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ MKey 1.2.7.1  [Мультиязычный (русский присутствуе
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274807.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274765.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ FileMenu Tools 7.1.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274705.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Display Driver Uninstaller 17.0.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274700.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Vivaldi 1.6.689.34 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274695.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Internet Download Manager 6.35 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274686.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274677.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ oCam 490.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274671.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Privacy Eraser Free 4.31.0 Build 2421 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274668.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ MyLanViewer 4.4.2 [RU] Репак от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274644.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ StatWinPro 8.2.7 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274628.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Internet Download Manager 6.35 Build 9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274627.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Kaspersky Password Manager 5.0.0.147 [RUS/ENG/GER]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274621.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ qBittorrent 3.3.9 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274596.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ All AVS4YOU Software in 1 Installation Package 3.3.1.140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274591.jpg" />
 </div>
 
 

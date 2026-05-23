@@ -6,7 +6,7 @@ Souten no Ken: Regenesis 2 | Кулак синих небес: Перерожд�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213784.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213684.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213679.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213623.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Paripi Koumei | Ya Boy Kongming! | Тусовщик Кунмин [2022, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213227.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Healer Girl | Девушки-целительницы [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213209.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru / Величайший По
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213153.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shachiku-san wa Youjo Yuurei ni Iyasaretai. | Корпоративная раб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213134.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Стать наст�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213126.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Date a Live IV / Рандеву с Жизнью 4 [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213112.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic / Госпожа Кагуя: В лю�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213108.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213103.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Komi-san wa, Komyushou Desu. (2022) | Komi Can't Communicate | У Коми пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213078.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai 2 / Love Live! Nijigasaki Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213077.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213059.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Birdie Wing: Golf Girls Story | Бёрди винг: История гольфи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212988.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212921.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212738.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212363.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212133.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211015.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210976.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210957.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210590.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Atasha Kawajiri Kodama Da yo: Dangerous Lifehacker no Tadareta Seikatsu | I'm Ko
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210585.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Majutsushi Orphen Hagure Tabi: Seiiki Hen | Волшебник-воин Орфе
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210082.jpg" />
 </div>
 
 

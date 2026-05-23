@@ -1,29 +1,3 @@
-###  Публикация: 1740886   (47837) от 04.08.2024
-
-Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Игровой процесс Sumerians основан на истории 3000-летия до нашей эры в Месопотамии, во времена быстрого роста поселений и развития шумерских городов. Игрок побывает в роли правителя и займется строительством собственного города, будет управлять ресурсами, планировать будущую инфраструктуру и пытаться совладать с экономикой. В процессе предстоит только улучшать город, (   Читать дальше...   )Тип издания: SceneРазработчик: Decumanus GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Английский, Испанский, Французский, НемецкийЯзык интерфейса: Английский, Испанский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741119   (47833) от 05.08.2024
 
 S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
@@ -32,7 +6,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47833.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47826.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47823.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47808.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47806.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47796.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ UBOAT (2019) [Ru/Multi] (2024.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47794.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47788.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Mecha Knights: Nightmare (2021) [En] (1.620/dlc) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47786.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47783.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47780.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47773.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47772.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Deadlink (2022) [Ru/Multi] (1.2.27806) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47757.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Kingdom Shell (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47750.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Neon White (2022) [Ru/Multi] (1.0.740.0) Scene Dinobytes
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47743.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Minds Beneath Us (2024) [Multi] (1.0.1) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47733.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Citizen Sleeper (2022) [En] (1.4.9) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47716.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47710.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47709.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.8.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47707.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47704.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ House Flipper 2 (2023) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47703.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47701.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47699.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Thalassa: Edge of the Abyss погружает игроков в напряже�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CCA9034F8785D00EE6AD380EC67C3376BF24F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741352   (47683) от 06.08.2024
+
+Get To The Top (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит забраться на вершину с помощью крюков. Для перемещения используйте клавиатуру, а для управления руками и крюками - мышь (или геймпад, если вам не хватает боли). Только самые упорные доберутся до вершины.Тип издания: RepackРазработчик: Bootur GamesЖанр: ЭкшеныЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4659C83CB3C72BBD5934E563D66A775E4883806
 ```
 
 https://mybot314.ru/tekegram_catalog/

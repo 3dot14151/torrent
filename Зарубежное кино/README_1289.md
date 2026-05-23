@@ -1,56 +1,3 @@
-###  Публикация: 1414433   (385018) от 08.10.2020
-
-Затерянные в космосе / Lost in Space (1998) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в 2058 году, когда жить на Земле людям осталось не более двадцати лет — истощилось все. Выдающийся ученый Джон Робинсон и его семья отправляются на суперсовременном звездолете на далекую планету Альфа-прим, пригодную для обитания, чтобы построить там гиперворота, через которые будет осуществлена эвакуация человечества.
-Экстремисты подсылают на (   Читать дальше...   )Производство: США / Irwin Allen Productions, New Line Cinema, Prelude Pictures, Saltire EntertainmentЖанр: фантастика, боевик, триллер, приключенияРежиссер: Стивен ХопкинсАктеры: Уильям Хёрт, Мими Роджерс, Хизер Грэм, Лэйси Шабер, Джек Джонсон, Гари Олдман, Мэтт ЛеБлан, Джаред Харрис, Марк Годдар, Ленни ДжеймсПеревод: Дублированный, многоголосый закадровый, одноголосый авторскийСубтитры: русские (полные), английские (полные)Продолжительность: 02:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675D7CEBA2949E27ADE4B520D0DB16C553197DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625212   (385012) от 08.10.2020
-
-Мне отмщение, и аз воздам / Я отомстил / Fukushû suru wa ware ni ari (1979) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Семьдесят восемь дней смертельного веселья безжалостного человека — история о воре, убийце, мошеннике и очаровательном сердцееде — Ивао Энокидзу. Сёхэй Имамура преобразовал и экранизировал, основанный на исторических фактах, холодный, извращённый, и, время от времени, дьявольски забавный рассказ о похождениях циничного Ивао. Грамотно выстроенные флэшбэки, ответвление (   Читать дальше...   )Производство: ЯпонияЖанр: Драма, криминалРежиссер: Сёхэй ИмамураАктеры: Кен Огата, Рэнтаро Микуни, Чочо Мияко, Мицуко Байсё, Маюми Огава, Нидзико Киёкава, Тайдзи Тонояма, Горо Таруми, Моеко Езава, Казуко ШиракаваПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 02:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A60F9F13A1C4D8A6423369FD43410FA7D13CAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408694   (385009) от 08.10.2020
 
 Побег невозможен / No Escape (1994) BDRip [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385009.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384977.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384973.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384970.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384951.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384918.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384898.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384893.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384891.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384890.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384889.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384887.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384886.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384838.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384835.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384832.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384813.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384810.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384807.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384797.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384796.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384758.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384750.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384744.jpg" />
 </div>
 
 
@@ -671,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A7A37F22DE8282366C8D657022A11B07BFE0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174458   (384674) от 15.10.2017
+
+Розовая Пантера / The Pink Panther (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ужасно некомпетентный и неуклюжий в своих суждениях инспектор из Франции Клузо, который остается при своей должности лишь благодаря своему невероятному везению, расследует дело об убийстве тренера национальной футбольной команды. Но это не все, чем он занимается, ведь по ходу своего расследования инспектор пытается докопаться до истины в деле о пропаже всемирно известного (   Читать дальше...   )Производство: СШАЖанр: Комедия, Криминал, Детектив, ПриключенияРежиссер: Шон Леви / Shawn LevyАктеры: Стив Мартин, Кевин Клайн, Жан Рено, Эмили Мортимер, Генри Черни, Кристин Ченоуэт, Бейонсе Ноулз, Уильям Абади, Роджер Рис, Филлип Гудвин, Анри Гарсен, Дэниэл Саули, Жан Делл, Анна Катарина, Ник Торен, Сэлли Люн Байер, Шарлотта Мэйер, Стефан Буше, Раду Спингель, Скотт Эдкинс, Ян-Сан Руссель, Борис МакГайвер, Стивен Роу, Элис Тальони, Грегори Салата, Стефан ЭлбаумПеревод: Дублированный, двухголосый закадровыйСубтитры: русские, английскиеПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF432048E0BBA8B9E9CAB62D21CD084BC7DCA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572080   (384673) от 08.11.2012
+
+Промах / Gli sfiorati (2011) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — 30-летний графолог Мете, зачарованный тайнами, которые может раскрыть человеческий почерк.
+За неделю до свадьбы отца с новой пассией сводная сестра Мете, 17-летняя подросток-озорница Белинда, переезжает в его римскую квартиру — и новое соседство становится началом совсем не дружеских отношений.Жанр: Драма, ЭротикаРежиссер: Маттео Ровере / Matteo RovereАктеры: Андреа Боска, Мириам Джованелли, Клаудио Сантамария, Азия АрджентоПеревод: Одноголосый закадровый |А. Кедров|Язык субтитров: Русские  |отдельным файлом|Продолжительность: 01:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C784AEB6744BBA0B8776D5DC660A648DC66CE416
 ```
 
 https://mybot314.ru/tekegram_catalog/

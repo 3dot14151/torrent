@@ -1,55 +1,3 @@
-###  Публикация: 1606174   (1044463) от 21.01.2023
-
-Поворот не туда. Дом зла / The Price We Pay (2022) WEBRip [H.264/1080p] [DVO]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-После успешного ограбления ломбарда грабителям удаётся уехать из города, взяв в заложницы его сотрудницу. Скрываясь от преследования преступники и их жертва оказываются на удалённой ферме, где их встречает нечто гораздо более опасное, чем они сами.Производство: США, 828 Productions, Buffalo 8 Productions, VMI WorldwideЖанр: боевик, триллерРежиссер: Рюхэй КитамураАктеры: Эмиль Хирш, Гиги Зумбадо, Элинор Бурк, Стивен Дорфф, Эрика Эрвин, Джесси Кинсер, Сабина Мах, Кристофер Роблето, Тайлер Сандерс, Вернон УэллсПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FD010C240FD868DB908FB922BCFF8FC2912D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606604   (1044426) от 22.01.2023
-
-Соло / Solo (1996) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Роберта Мэйсона "Оружие". Он - универсальный солдат, способный сражаться и побеждать в любых условиях. У него нет семьи, нет друзей. Он похож на человека, но сделан из полимеров и микросхем. Он - Соло, машина с единственной программой - убивать. Но программа дает сбой. Соло начинает думать как человек. У него появляются человеческие чувства (   Читать дальше...   )Производство: Мексика, США / Kinema Films de Mexico, Orpheus Films, Triumph Enterprises Inc., Triumph Films, Van Peebles FilmsЖанр: фантастика, боевик, триллерРежиссер: Норберто БарбаАктеры: Марио Ван Пиблз, Бэрри Корбин, Уильям Сэдлер, Хайме Гомес, Демиан Бишир, Сейди Лопез, Абрахам Вердуско, Хоакин Гарридо, Уильям Уоллес, Эдриан БроудиПеревод: Профессиональный многоголосый (Видеосервис, СТС), авторский (Визгунов, Кашкин)Язык озвучки: Русский, английскийСубтитры: русские, английские, испанские, португальские и д.р.Продолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9181337BBA83A47C7D72B22B031F326553E386F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606514   (1044422) от 22.01.2023
 
 Крупье / Croupier (1998) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044422.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044397.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044391.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044388.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044377.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044348.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044275.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044271.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044268.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044191.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044184.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044183.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044104.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044101.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044096.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044039.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044032.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044001.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043990.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043929.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043927.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043892.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043876.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043874.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B099AEE90EA5BAFBF4A0E49D7B7FFBE8F875AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607682   (1043870) от 27.01.2023
+
+Оборотень: Фильм / Teen Wolf: The Movie (2023) WEBRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе Бикон-Хиллз появилось ужасающее зло. Волки снова воют, призывая вернуться Банши, Верекойотов, Адских гончих, Кицунэ и всех остальных ночных оборотней. Но только такой оборотень, как Скотт МакКолл, уже не подросток, но еще альфа, может собрать новых союзников и воссоединить проверенных друзей, чтобы дать отпор самому могущественному и смертоносному врагу, (   Читать дальше...   )Производство: США, MGM Television, MTV Entertainment Studios, Orion TelevisionЖанр: Фэнтези, боевик, триллер, драма, мелодрамаРежиссер: Расселл МалкэйАктеры: Тайлер Пози, Кристал Рид, Холлэнд Роден, Тайлер Хэклин, Шелли Хенниг, ДжейАр Борн, Колтон Хэйнс, Линден Эшби, Мелисса Понцио, Райан КеллиПеревод: Любительский двухголосый (Kerob)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 02:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BC0E44C7FE31E65FCDDBCCA97AC1055A05831F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607909   (1043850) от 28.01.2023
+
+Лейла / Leila (1997) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейла и Реза — молодая семейная пара. Через несколько месяцев после свадьбы они узнают, что Лейла не может иметь детей. Мать Резы настаивает на том, что «каждый должен иметь детей» и уговаривает молодожёнов взять в дом вторую жену. Лейла пытается всем угодить и убеждает мужа согласиться, в душе надеясь, что он откажется. Реза хочет всем угодить и соглашается, в душе (   Читать дальше...   )Производство: Иран / Farabi Cinema FoundationЖанр: драма, мелодрама, семейныйРежиссер: Дарьюш МехрджуиАктеры: Лейла Хатами, Али Мосаффа, Ямильен Шейхи, Мохаммад Реза Шарифиния, Туран Мэрзад, Амир Пивар, Шагнаегх Фараханы, Али МосафаПеревод: Двухголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, персидскийСубтитры: русские, английскиеПродолжительность: 02:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8B09EF5691DCDC5A60AEC97B3D724552A7267D
 ```
 
 https://mybot314.ru/tekegram_catalog/

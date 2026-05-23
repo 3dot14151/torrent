@@ -1,32 +1,3 @@
-###  Публикация: 1856590   (1058984) от 01.03.2026
-
-Ai - No name compilation part 64 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kbps] <Relaxing ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01 - Say My Name Again
-02 - I’d Rather Go Blind for You  ( A Love I Wasn’t Ready to Lose)
-03 - Red Wine in the Dark
-04 - Soft Bite in the Dark(   Читать дальше...   )Жанр: Relaxing balladsПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6B928B2971D54AB3097C4CB568086CB6DB3D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856589   (1058983) от 01.03.2026
 
 Ai - No name compilation part 63 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kbps] <Relaxing ballads>
@@ -35,7 +6,7 @@ Ai - No name compilation part 63 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058983.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - No name compilation part 62 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058982.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Cypress Hill - Compilation (1991-2025) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058981.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Danekoo1 - Remixes (2026) [MP3|320 Kbps] <Instrumental, Electronic, Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058914.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - No name compilation part 61 Assorted (2026) [MP3|320 Kbps] <Electronic, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058912.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058796.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - No name compilation part 60 remixes (2026) [MP3|320 Kbps] <Italodisco, Ital
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058759.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Amanda Lear - Compilation (1977-2025) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058402.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Russian Hits 2025 (2025) [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058398.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - No name compilation part 59 Assorted (2026) [MP3|320 Kbps] <Electronic, Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058263.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Lounge And Jazz Background Music (2024) [MP3|320 Kbps] <Lounge, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058219.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Romantic Dreams - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Italodisco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058129.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Music News For Forum vol.163 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058101.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Euro Hits 2021 (2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058046.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Reteox - Favorites Collection Part 4 (2026) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058041.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Reyvi - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058026.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058025.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Secret Service best (1979-2025) [MP3|320 Kbps] <electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057920.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - No name compilation part 57 Relaxing Smooth Soul Ballads (2026) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057919.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - No name compilation part 58 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057917.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - No name compilation part 56 remixes (2026) [MP3|320 Kbps] <Italodisco, Ital
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057896.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - DOWN LOW 9 (2026) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057808.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - No name compilation part 55 Relaxing Smooth Neo Soul Vibe (2026) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057738.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057663.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - 60 minutes. Old School Dance Music vol.33 (mixed by Dj V) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057659.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - 60 minutes. Old School Dance Music vol.33 (mixed by Dj V) (2025) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E97424E0D3F3220282B162859F198BA325EF9E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854970   (1057599) от 20.02.2026
+
+VA - Music News For Forum vol.162 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057599.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bagryana Nebo - Лучше всех (02:12)
+ 002. 7 Отличий - Принцы снов (03:29)
+ 003. 21 Keyz - Нет иллюзий (03:04)
+ 004. 84 & LOOKBUFFALO & tet baby - Франция (02:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F77DFB7D53DE4048DF4ED09EC69A8801C4AAC9D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

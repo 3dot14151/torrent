@@ -1,32 +1,3 @@
-###  Публикация: 918474   (586860) от 15.07.2015
-
-VA - Ваши любимые песни от радио Шансон Часть 2 (2015) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Забазный - Славный Мой Город
-002. Геннадий Лист - Израненный Вечер
-003. Владимир Кисткин - Ты Пойми
-004. Дмитрий Треликовский - Мы Будем(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C074CEF7BCBF7670744BC08508AC39638E401D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552196   (586757) от 21.05.2022
 
 Alexandr Misko - Roundtrip (2019) [MP3|320 Kbps] <Fingerstyle, Guitar>
@@ -35,7 +6,7 @@ Alexandr Misko - Roundtrip (2019) [MP3|320 Kbps] <Fingerstyle, Guitar>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586757.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586690.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Laidback Acoustic (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586688.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Aria - The Best Of Aria (2019) [MP3|320 Kbps] <Classical, Classical Crossover>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586681.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586678.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - 100 Best Rock Ballads (2015) [MP3|256 кб/с]<Rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586675.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Urban Glow: May Release Trance Set (2022) [MP3|320 Kbps] <Trance, Progressi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586646.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Futuretrance (2016) [MP3|320 Kbps] <Trance, Future Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586549.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Madonna - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586421.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Dire Straits - 25 Best Songs (2014) [MP3|~245 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586419.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Путёвый Хит (2016) [MP3|256 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586388.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Полный Вперед На Русском Радио №4 (2011) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586352.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ VA - Лучшая Пляжная Туса на 5+ (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586349.jpg" />
 </div>
 
 
@@ -406,7 +377,7 @@ VA - Танцевальное искушение Vol.5 (2011) [MP3|256 kbps]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586341.jpg" />
 </div>
 
 
@@ -432,7 +403,7 @@ Bad Boys Blue - Hit Collection (2016) [MP3|320 Kbps] <Disco, Pop, Eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586328.jpg" />
 </div>
 
 
@@ -461,7 +432,7 @@ VA - Weekend Forever Summer Control (2016) [MP3|258-320 Kbps] <Club, Funky, Trop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586316.jpg" />
 </div>
 
 
@@ -490,7 +461,7 @@ VA - Новинки Года 6 (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586286.jpg" />
 </div>
 
 
@@ -516,7 +487,7 @@ VA - Дискотека: Летний отрыв Русский №100 (2011) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586284.jpg" />
 </div>
 
 
@@ -542,7 +513,7 @@ VA - Дави на газ! (2011) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586144.jpg" />
 </div>
 
 
@@ -568,7 +539,7 @@ Gary Glitter - Greatest Hits (2019) 2CD [MP3|320 Kbps] <Glam Rock, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586107.jpg" />
 </div>
 
 
@@ -597,7 +568,7 @@ VA - Пиратская Станция Exclusive (2011) [MP3|256-320 kbps]<Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585955.jpg" />
 </div>
 
 
@@ -623,7 +594,7 @@ VA - Summer Top House Music (2015) [MP3|320 кб/с]<Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585942.jpg" />
 </div>
 
 
@@ -652,7 +623,7 @@ VA - Dreams of a shaman 3 (2015) [MP3|320 кб/с]<Native American, World, Ethni
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585937.jpg" />
 </div>
 
 
@@ -680,7 +651,7 @@ VA - Русский Хип-Хоп 80-90х (2011) [MP3|224 kbps]<Рэп / Хип-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585903.jpg" />
 </div>
 
 
@@ -706,7 +677,7 @@ VA - Idol Classic Rock (2015) [MP3|256 кб/с]<Classic Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585797.jpg" />
 </div>
 
 
@@ -720,6 +691,32 @@ VA - Idol Classic Rock (2015) [MP3|256 кб/с]<Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5839309616C3AB1A17D3337C72391D34EA7B025A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357860   (585763) от 02.07.2011
+
+VA - Gold Retro Hits 80-90-X (2011) [MP3|256 kbps]<Pop / Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop / DiscoПродолжительность: 06:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB31E4869A7947F3637E9BC1FE52CC5E73F2D1C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ DriverPack Solution 15.7 + Драйвер-Паки 15.06.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595662.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BELOFF 2015.7 [minstall vs wpi] [Папками] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595659.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows 10 Pro Insider Preview 10.0.10162 (x64) (esd) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595657.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ System Explorer 3.9.1 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595640.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Almeza MultiSet Professional 8.3.0 RePack by Boomer [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595637.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595632.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ K-Lite Codec Pack 12.3.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595594.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AusLogics BoostSpeed 9.0.0.0 DC 01.08.2016 RePack (& Portable) by KpoJIuK [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595590.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Zemana AntiLogger 1.9.3.200 [Multil/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595572.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ TMeter 12.2.619 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595571.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Internet Download Manager 6.12 Beta Build 7 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595524.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ TNod User & Password Finder 1.6.1 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595484.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Recuva 1.43.623 Slim [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595412.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Evaer Video Recorder for Skype 1.2.8.19 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595398.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Pale Moon 12.3 (86-x64) + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595343.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595338.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ZiggyTV Basic 4.2. [2012] [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_595315.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Alternate File Shredder 2.090 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595228.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Cacheman 10.10.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595161.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Cumulative Update KB4025338 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595150.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ashampoo WinOptimizer 15.00.04 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595065.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Daum PotPlayer 1.6.54915 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595050.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ BurnAware Professional 11.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595011.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ QuarkXPress 2017 13.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594948.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Internet Download Manager 6.28 Build 16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594942.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ TotalCodeStudio 3.3.0 build 19618 RePack by TeamVR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594932.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Rufus 3.7.1576 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424991.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StartIsBack++ 2.8.9 RePack by VandIT [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424986.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Victoria 4.76b Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424985.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BELOFF 2019.9 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424980.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424970.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Video Enhance AI 1.6.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424965.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Total Commander 9.51 MAX-Pack 2020.09.25.1 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424961.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Icecream Ebook Reader 2.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424952.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adobe Flash Player 19.0.0.207 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424947.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Comodo Dragon 45.6.11.385 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424945.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ HWiNFO 32-64 5.06-22640 Final + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424933.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VSO Downloader Ultimate 4.4.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424929.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ TeamSpeak 3 Client 3.0.18.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424813.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ExperienceIndexOK 1.06 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424812.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Google Chrome 46.0.2490.71 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424801.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ ReviverSoft Driver Reviver 5.3.2.16 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424798.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Maxthon Browser 5.2.5.500 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424761.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424753.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Mozilla Firefox Quantum ESR 60.2.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424751.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Punto Switcher 4.1.4 Build 568 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424720.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ UltraUXThemePatcher 3.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424719.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ O&O Defrag Professional 19.0 Build 99 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424714.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MInstAll v.24.09.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424630.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Adobe Acrobat Pro DC 2020.012.20048 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424628.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BELOFF 2020.09 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424621.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BluffTitler Ultimate 14.1.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424618.jpg" />
 </div>
 
 

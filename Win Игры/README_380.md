@@ -1,29 +1,3 @@
-###  Публикация: 1685639   (127161) от 19.12.2023
-
-TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в фестиваль взрывоопасных гонок ТРЕЙЛ АУТ! Вас ожидают безбашенные гонки в разных уголках планеты, ваша главная цель дожить до финиша и взять главный кубок фестиваля! Аварии машин, крики вылетающих водителей, хайп от фанатов и невиданное разрушение всей трассы - всё это ожидает вас здесь! А так же переживите историю гонщика Михалыча, простая история, (   Читать дальше...   )Тип издания: RepackРазработчик: GOOD BOYSЖанр: Racing, Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685857   (127018) от 20.12.2023
 
 Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
@@ -32,7 +6,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127018.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127014.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127001.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126995.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126977.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126842.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Lim
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126720.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126691.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Book Travelers 2: A Royal Story (2023) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126644.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Christmas Stories 12: The Legend of Toymakers / Рождественские и�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126641.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126572.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126571.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126557.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Fabulous Fear Machine (2023) [Ru/Multi] (1.0.28) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126541.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Trinity Fusion (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126386.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Buried Alive: Breathless Rescue (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126385.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126380.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Cyber Shadow (2021) [Ru/Multi] (1.04) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126342.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ You Will Die Here Tonight (2023) [En] (20231102) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126341.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126067.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126066.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Knight Cats 2: Waves on the Water / Коты-рыцари 2: Волны на в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126001.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125949.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dead Silence - Echoes of the Damned (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125937.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.4.0.r49909/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125933.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Autobahn Police Simulator 3 позволяет вам играть за офиц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95123A04FA4A7EE2C636D82AF8D4650DD654DDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823660   (125927) от 12.10.2025
+
+Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древнее зло пробудилось в недрах удаленного горнодобывающего астероида, пробуждённое ото сна человеческой жаждой власти. Не подозревая об этом, вы отвечаете на сигнал бедствия и застреваете в окружении чудовищных врагов. Раскройте тайну этого безумия и остановите его распространение в этом жестоком ретро-шутере! Брутальный олдскульный шутер от первого лица в стиле (   Читать дальше...   )Тип издания: RepackРазработчик: nfoPRINCE, Terminist ArcadeЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C6F395ED0CBFDD464F90929773746D28C21326
 ```
 
 https://mybot314.ru/tekegram_catalog/

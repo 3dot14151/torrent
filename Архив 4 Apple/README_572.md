@@ -6,7 +6,7 @@ JetBrains WebStorm for Mac 2023.2.1 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203251.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DxO PhotoLab 6 ELITE Edition 6.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203157.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Commander One PRO - FTP client 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203146.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ XMind Pro 2023 23.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203138.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ DxO ViewPoint 4 for Mac v.4.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203081.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Duplicate File Finder Pro 7 v.7.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203073.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ SQLPro Studio 2023.55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203033.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ SQLPro for SQLite 2023.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203027.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BuhoCleaner for Mac 1.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203009.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ GarageSale 9.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202996.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202982.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ FxFactory Pro 8.0.9 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202805.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mimestream 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202780.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202776.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DxO FilmPack 6 ELITE Edition v.6.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202773.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ABBYY FineReader PDF for Mac 15.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202501.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Adobe Acrobat Pro DC 23.003.20244 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202132.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ CleanMyMac X 4.14.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201880.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ableton Live Suite 11 v.11.2.11 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200953.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Transmit 5.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200859.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ SketchUp Pro 2023 v.23.0.396 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200818.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Luminar Neo 1.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200592.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Cinema 4D Studio 2023.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200502.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Screaming Frog SEO Spider 18.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200424.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ MacCleaner 3 PRO 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200407.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Charles Web Debugging Proxy 4.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200400.jpg" />
 </div>
 
 

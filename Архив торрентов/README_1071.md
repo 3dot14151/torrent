@@ -6,7 +6,7 @@ Wise Duplicate Finder Pro 1.3.6.44 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801590.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ YTD Video Downloader PRO 5.9.18.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801584.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Edge 95.0.1020.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801574.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FileZilla Server 1.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801569.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Calibre 5.31.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801566.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801557.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ ProPresenter 6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801556.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Opera 68.0.3618.125 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801542.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wikluh Sky - A Serbian Film/Сербский фильм (2010) [MP3|320 Kbps] <S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801520.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Smart Shooter 4 v4.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801518.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ FanControl V95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801513.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ RAR Extractor Max-Unzip Winrar 7.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801511.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Tixati 2.86 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801509.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mp3tag 3.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801506.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tommy '86 - Change of Scenery (2021) [MP3|320 Kbps] <Synthwave, Dreamwave, Outru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801503.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Internet Download Manager 6.30 Build 6 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801490.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801480.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ BlueStacks App Player 3.55.70.1783 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801476.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ LibreOffice 6.4.4.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801475.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Soft Organizer Pro 9.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801460.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Sensei 1.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801457.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ HWiNFO 7.14 Build 4610 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801455.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ ESET Online Scanner 3.6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801452.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Serif Affinity Publisher 1.10.4.1198 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801451.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Wise Care 365 Pro 6.1.1.595 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801448.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ NoMachine 6.10.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801436.jpg" />
 </div>
 
 

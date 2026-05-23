@@ -1,55 +1,3 @@
-###  Публикация: 1165828   (428004) от 15.09.2017
-
-Невозмутимый / Stone Cold (1991) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джо Хафф — полицейский, который внедряется в банду байкеров, терроризирующую городок в штате Миссисипи, подминая под себя не только рядовых его жителей и подпольных бизнесменов, но и местные органы власти, включая представителей правосудия. Внешность и манеры поведения Джо позволяют ему выдать себя среди байкеров за своего и под именем Джо Стоуна начать разработку (   Читать дальше...   )Производство: США / Stone Group Pictures, Vision InternationalЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Крэйг Р. БэкслиАктеры: Брайан Босворт, Лэнс Хенриксен, Уильям Форсайт, Арабелла Хольцбог, Сэм МакМюррей, Ричард Гант, Пауло Тока, Дэвид Тресс, Ивэн Джеймс, Тони ПирсПеревод: Двуголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC1A4DD755663C85D627DA85FA2195FDB9BCA4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555406   (427998) от 04.10.2012
-
-Ганс Клосс: Ставка больше, чем смерть / Hans Kloss. Stawka wieksza niz smierc (2012) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новая киноверсия легендарного сериала 60-ых годов "Ставка больше, чем жизнь". Ганс Клосс возвращается, чтобы выяснить одну самых больших тайн Второй мировой войны. Новые приключения агента J-23 разыгрываются как во время войны, так и несколько десятилетий после её окончания. Кёнигсберг, 1945 год. Ганс Клосс нападает на след сокровища, похищенного нацистами. В интриге замешан, конечно, старый знакомый Клосса Германн Брюннер. Клосс хочет разрушить и планы врага, и спасти красавицу Эльзу. Это ради неё он готов рискнуть успехом операции... Фильм снят в духе легендарного сериала, но рассказан языком современного кино - со спецэффектами и динамичным развитием действия.Жанр: КомедияРежиссер: Патрик ВегаАктеры: Томаш Кот, Пётр Адамчик, Станислав Микульский, Эмиль Каревич, Марта Жмуда, Анна Шарек, Даниэль Ольбрыхский, Войцех Мецвальдовский, Адам Воронович, Ежи Боньчак, Пётр Гловацкий, Януш Хабёр, Пётр Гарлицкий, Ежи Цишевский, Бартош Порчик, Михал Брейтенвальд, Гжегож Ковальчик, Мацей Ферляк, Марек Коссаковский, Марцин Перхуць, Войцех Махницкий, Гжегож Мостович, Блажей Печонка, Дариуш Юзышин, Гжегож Стельмашевский, Томаш Освециньский, Дарюш Одия, Яцек Лябияк, Збигнев Дзидух, Анджей Прецигс, Ливиуш Фаляк, Клаудиуш КауфманнПеревод: Любительский одноголосый (SATKUR)Продолжительность: 01:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE1F311F803601FF056BC634ACA7453E326E8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 556041   (427996) от 04.10.2012
 
 Медальон / Stolen (2012) [H.264] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427996.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427994.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427991.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427990.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427935.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427924.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427890.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427879.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427877.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427869.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427847.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427785.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427757.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427670.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427646.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427642.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427641.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427630.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427603.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427561.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427503.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427501.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427418.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427415.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251624F59FA94C7181448A28FFE7822B517E6074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411336   (427297) от 25.09.2020
+
+Ромео должен умереть / Romeo Must Die (2000) WEB-DLRip [H.264] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Между китайской мафией и афроамериканской бандой идёт война. Однажды убивают младшего сына главы китайской мафии. Его старший брат Хан решает найти убийцу, но на своём пути он встречает обворожительную Триш О’Дэй. Несмотря на то, что их семьи ведут жестокую войну за передел участков в Окленде, опасности объединяют влюблённых.Производство: США / Warner Bros., Silver PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Анджей БартковякАктеры: Джет Ли , Алия, Исайя Вашингтон, Расселл Вонг, Делрой Линдо, Д.Б. Вудсайд, Генри О, Джонкит Ли, Эдоардо Баллерини, Энтони АндерсонПеревод: Дублированный (Мосфильм-Мастер)Субтитры: РусскиеПродолжительность: 01:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686B3BFCEF77E7B1950C14FC559597A742A3FF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411428   (427291) от 25.09.2020
+
+Шарлотта Грей / Charlotte Gray (2001) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случайная встреча с офицером английской разведки заставляет прелестную блондинку Шарлотту стать тайным агентом. А внезапная страсть к английскому летчику, исчезнувшему после ночи любви, ведет ее в оккупированную Францию.
+Теперь ее, шатенку Доминик, ждут встреча с нервным и верным Жюльеном, активистом движения Сопротивления, и неженские испытания. Ее будут шантажировать, (   Читать дальше...   )Производство: Великобритания, Австралия, Германия / Warner Bros., Ecosse Films, FilmFour, Pod Film, Senator Film ProduktionЖанр: триллер, драма, мелодрама, военныйРежиссер: Джиллиан АрмстронгАктеры: Кейт Бланшетт, Джеймс Флит, Эбигейл Круттенден, Шарлотта МакДугалл, Руперт Пенри-Джонс, Роберт Хэндс, Том Гудман-Хилл, Майкл Фицджералд, Хью Росс, Мартин ОлдфилдПеревод: Многоголосый профессиональныйСубтитры: русские, английскиеПродолжительность: 02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E28D2C65B36D743A5CD50D400361C4831CEB14F
 ```
 
 https://mybot314.ru/tekegram_catalog/

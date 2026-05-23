@@ -6,7 +6,7 @@ Frozen Crown - Winterbane (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009339.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Frozen Crown - The Fallen King (2018) Japanese Edition [FLAC|Lossless|image + .c
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009338.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Subset - Lacidus (2021) [FLAC|Lossless|Web-DL|tracks] <Techno, Dub Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009330.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Califato ¾ - La Contraçeña  (Califato 3/4 - La Contracena) (2021) [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009310.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Mirillis Action! 4.19.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009304.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Acoustica Premium Edition v7.3.10 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009287.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009276.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Telegram Desktop 2.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009275.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ TeamViewer 15.19.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009233.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PrivaZer 4.0.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009158.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ OCCT 8.2.2 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009157.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Chromium 91.0.4472.124 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009156.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ PowerISO 7.9 (DC 27.06.2021) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009144.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Unscripted v3.3.7 [En] - Posing Guide for Photographers
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009126.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ FreeTube 0.13.2 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009110.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ qBittorrent 4.3.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009075.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009063.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ SkillBox, Алексей Половинкин и др. | Python-фреймвор
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009057.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ aText 2.38.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009051.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BetterZip 5 v5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009046.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Shortcut Bar 2.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009039.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ RAW Power 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009038.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ AnyGo 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009034.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ SoundSource 5.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009032.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Sketch 73 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009031.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Live Home 3D Pro Edition 4.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009030.jpg" />
 </div>
 
 

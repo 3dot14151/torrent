@@ -6,7 +6,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack dixen18 [Ultim
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061992.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Heroes of Science and Fiction (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061986.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Starsand Island (2026) [Ru/Multi] (1.0.0.7673.194862/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061968.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Legend of Khiimori (2026) [Ru/Multi] (0.6.4/dlc) Repack Let'sРlay [Early Ac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061943.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Everwind (2026) [Ru/Multi] (0.4.417/dlc) Repack Let'sРlay [Capybara Edition] [E
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061942.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ghost Master Resurrection (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061937.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Heroes of Science and Fiction (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061915.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Age of Barbarians Chronicles (2026) [Ru/Multi] (1.0.2.3) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061906.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Other s 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061899.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bullet Noir (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061864.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Wanterlu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061859.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Scene Rune [Dig
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061854.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack dixen18 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061853.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Scouring (2025) [Ru/Multi] (19.03.26/dlc) Repack Let'sРlay [Digital Deluxe]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061852.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack seleZen [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061851.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.77.166257-S35) Repack Let'sРlay [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061810.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack Deceptic
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061803.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.48.0/dlc) Repack FitGirl 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061735.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tiny Isle (2026) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061734.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (1.1.0.15) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061710.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Towerborne (2024) [Ru/Multi] (5.6.1-488249.4611/dlc) Scene Rune [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061709.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dragon Quest I and II HD: 2D Remake (2025) [Multi] (1.0.2.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061708.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Desynced (2023) [Ru/Multi] (1.0.17522) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061676.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.16.134/dlc) Repack HardwareMining [Dig
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061675.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ FATAL FRAME II: Crimson Butterfly REMAKE (2026) [Multi] (1.02.01/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061674.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (3.0.91735/dlc) Repack Decepticon [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061644.jpg" />
 </div>
 
 

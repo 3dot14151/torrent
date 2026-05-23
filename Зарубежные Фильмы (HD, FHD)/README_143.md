@@ -1,57 +1,3 @@
-###  Публикация: 1358592   (965834) от 10.02.2020
-
-21 мост / 21 Bridges (2019) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Он охотится на преступников, которые совершили на Манхэттене дерзкое ограбление, оставив после себя 8 мертвых полицейских. А продажные копы тем временем охотятся на него, пытаясь подставить. Но преступникам не скрыться, так как первый раз в истории Нью-Йорка полиция перекрыла все выходы с острова, в том числе 21 мост.Производство: США | AGBO, Huayi Brothers, MWM StudiosЖанр: Боевик, триллер, драма, криминалРежиссер: Брайан КиркАктеры: Чедвик Боузман, Сиенна Миллер, Тейлор Китч, Дж.К. Симмонс, Стефан Джеймс, Кит Дэвид, Александр Сиддиг, Луис Канселми, Виктория Картахена, Гари КаррПеревод: Дублированный | iTunesСубтитры: Английские (Full, SDH)Продолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D4483A09C17CADEF51CD0146A3F7F8E2FE86F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591698   (965828) от 10.02.2020
-
-Параллельные миры / Upside Down (2012) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Однажды, несколько тысяч лет тому назад, две планеты притянулись друг к другу. Там правили мир и гармония. Но стоило верхнему миру обрести уверенность и власть, как между планетами началось противостояние. Казалось, ничто не может примирить параллельные миры.
-
-Она - дочь президента верхнего мира. Эта хрупкая девушка с сильным характером и не подозревала, что душа (   Читать дальше...   )Жанр: Фэнтези, МелодрамаРежиссер: Хуан Диего СоланасАктеры: Кирстен Данст, Джим Стёрджесс, Стелла Маив, Нил Напье, Джэйн Хейтмейер, Холли О’Брайэн, Ларри Дэй, Агнешка Вроновска, Джон МакЛарен, Дон ДжорданПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358476   (965817) от 10.02.2020
 
 Иди к папочке / Come to Daddy (2019) WEB-DL [H.264/1080p] [AVO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965817.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965368.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965310.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964947.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964944.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964941.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964939.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964909.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964877.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964872.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964868.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964853.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964760.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964745.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964637.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ Starперцы / Last Vegas (2013) Blu-Ray [1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964622.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_964581.jpg" />
 </div>
 
 
@@ -504,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964574.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964390.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964350.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964293.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964276.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964230.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964224.jpg" />
 </div>
 
 
@@ -672,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C0267C203EEE1F5D5D1E5FEE26EA9C683E1907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359223   (964174) от 12.02.2020
+
+Рестлер / The Wrestler (2008) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о судьбе рестлера Рэнди Робинсона по кличке «Баран». В 80-е годы он был звездой ринга. Но прошло время и огромное количество принятых стероидов, бесконечные физические нагрузки и просто возраст сделали свое дело – после одного из тяжелых поединков у Рэнди в раздевалке случился инфаркт. Оклемавшись после инфаркта, Робинсон узнает от врачей, что (   Читать дальше...   )Производство: США, Франция, Protozoa Pictures, Saturn Films Inc., Sessions Payroll Management, Wild BunchЖанр: Драма, мелодрама, спортРежиссер: Даррен АронофскиАктеры: Микки Рурк, Мариса Томей, Эван Рэйчел Вуд, Марк Маргулис, Тодд Бэрри, Уасс М. Стивенс, Джуда Фридлендер, Эрнест Миллер, Дилан Кейт Саммерс, Томми Фара и др.Перевод: Дублированный, профессиональный многоголосый, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 01:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A08DB415E4450F98CD66B13041C607CC5358E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359220   (964169) от 12.02.2020
+
+Рождение оборотня / Ginger Snaps Back: The Beginning (2004) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм ужасов «Рождение оборотня» рассказывает историю того, как давнее проклятие попало на сестер Фитцджеральд. Действия фильма происходят в XIX веке в Канаде, в маленьком захолустном селении. В темных и мрачных лесах живут настоящие чудовища – охотники на людей, жестоко убивающие их в полнолуние. Люди в округе особенно боятся наступления этой поры, они запасаются (   Читать дальше...   )Производство: Канада, Lions Gate FilmsЖанр: Ужасы, драмаРежиссер: Грант ХарвиАктеры: Кетерин Изабель, Эмили Перкинс, Натаниэль Арканд, Хьюг Диллон, Адриэль Дорваль, Брендан Флехер, Девид Ла Хайе, Том Мс КамусПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C54EA7F2CA7183B56E9D5F1283D69CD137BBA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

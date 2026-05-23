@@ -6,7 +6,7 @@ Armored Dawn - Barbarians In Black (2018) [MP3|320 Kbps] <Heavy Metal, Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776510.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ministry - AmeriKKKant (2018) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776431.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Myra - Discography (2006-2018) [MP3|192-320 кб/с]<Metalcore, Hardcore, Thrash
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776427.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Drudkh - Їм часто сниться капіж (They Often See Dreams About 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776418.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Axel Rudi Pell - Knights Call (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775115.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Helevorn - Aamamata (2019) [MP3|320 Kbps] <Gothic Metal, Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775099.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Unhoped - Sonic Violence (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775076.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hidden Intent - Walking Through Hell (2013) Not On Label [MP3|320 Kbps] <Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774512.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ex Animo - Neverday (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal, Dark Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773145.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kvelertak - Nattesferd (2016) [MP3|320 кб/с] <Black Metal, Punk Rock, Black'n
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772968.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Shadows Fall - 13 Releases (1997-2012) [MP3|~245-320 кб/с]<MDM (early), Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772842.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lich King - The Omniclasm (2017) [MP3|320 Kbps] <Thrash Metal, Crossover>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772095.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - A Tribute To Iron Maiden (1997 - 2011) [MP3|192-320 кб/с]<NWOBHM, Heavy,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771805.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Hatebreed - The Concrete Confessional (2016) [MP3|320 кб/с] <Thrash Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771484.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ DevilDriver - Trust No One (2016) Special Edition [MP3|320 кб/с] <Groove, Mel
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771466.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hatebreed - 9 Albums (1996-2016) [MP3|320 кб/с]<Hardcore, Metalcore, Trash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770997.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Binary Code - Memento Mori (2020) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770714.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Oceans of Slumber - The Banished Heart (2018) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770689.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Destruction - Under Attack (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770402.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Mindwarp - A Cold Black Day (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769743.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Purtenance - Buried Incarnation (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769403.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Vampire - Rex (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769398.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Pyrrhon - Abscess Time (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769260.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Acherontas - Psychic Death:The Shattering of Perceptions (2020) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769258.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Emmure - Hindsigth (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769248.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Falconer - From a Dying Ember (2020) [MP3|320 Kbps] <Power Metal, Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769108.jpg" />
 </div>
 
 

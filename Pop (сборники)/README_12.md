@@ -6,7 +6,7 @@ VA - Зимние мега хиты. Зарубежный выпуск (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941542.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Дискотека зимних дорог. Русские хиты (2017) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941426.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Звездная вечеринка. Зарядись хитами Выпу
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940347.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Klubnaya Volna Vol.1 (2015) [MP3|320 кб/с] <Club, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940307.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Полный отрыв. Зимние хиты. Сборник № 3 (2017)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940279.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Зимняя сотка хитовая (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939752.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - German Top 100 Single Charts 28.02.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939612.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Зимний музобоз русский. Выпуск № 2 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938879.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Зимние зарубежные хиты экспресс. Часть №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938865.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Зарубежные хиты января Vol.2 (2011) [MP3|320 kbps]<Pop/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938795.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Взрывной хит-парад. Сборник № 7 (2017) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938755.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Звездные хиты зимние. Сборник 3 (2016) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938725.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Золото Русского Диско - 19 (2017) [MP3|160-320 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938636.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Italo & Space Disco Vol.2 (2016) [MP3|320 кб/с] <Italo-Disco, Spacesynth
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938495.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938418.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - The Dance Riot (2020) [MP3|320 Kbps] <Dance, Disco, EDM>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937943.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937731.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,Hous
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937139.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937036.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Русская дискотека. Энергия хитов (2016) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936772.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - UNKNOWN 80'S (PART XII) (2020) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936248.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935664.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Evolution of Disco - CD1 (1964-2015) [MP3|128-320 кб/с] <Funk,Disco,Hous
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935518.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - German Top 100 Single Charts 13.01.2017  [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935338.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Unknown 80's (part II) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935122.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - The Official UK Top 40 Singles Chart (10-03-2013) [MP3|320 кб/с]<Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935104.jpg" />
 </div>
 
 

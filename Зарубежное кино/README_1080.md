@@ -1,56 +1,3 @@
-###  Публикация: 1560001   (522578) от 27.06.2022
-
-Полицейская история 2 / Ging chaat goo si juk jaap / Police Story 2 (1988) BDRip [H.264/1080p-LQ] [Extended Cut] [Remastered] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На свободу выходит босс наркомафии Ку, но наркоторговля не остановлена, и первой его мыслью после заключения - отомстить полицейскому Кевину Чану, упрятавшему его за решетку. Ку нанимает киллера, который, впрочем, явно не в себе.Производство: Гонконг / Golden Way Films Ltd., Paragon Films Ltd.Жанр: боевик, триллер, комедия, криминалРежиссер: Джеки ЧанАктеры: Джеки Чан, Мэгги Чун, Лам Квок-Хун, Билл Тун, Бенни Лай, Джон Чун, Чарли Чо, Чо Юэнь, Бен Лам, Чан Чи Фай СанниПеревод: Профессиональный многоголосый, закадровый (Интер / Хлопушка + вставки Японца), Профессиональный двухголосый (НТВ / РТР + вставки Японца, REN-TV / СТС / ТНТ + вставки Японца)Субтитры: АнглийскиеПродолжительность: 02:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC7AEBB7846073E7034AFA3EABE49297B66E83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928371   (522482) от 16.08.2015
-
-Парень с Белой реки / The White River Kid (1999) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Наглые шулеры и прохвосты Брат Эдгар и Моралес Питтман странствуют по Америке, успешно облапошивая обывателей под видом святош, пока не оказываются заложниками отчаянного Парня С Белой Реки. Незадачливым мошенникам предстоит отвезти этого маньяка-убийцу в родной город его эксцентричной невесты.
-Друзья уже готовы расстаться с жизнью, но им следует благодарить судьбу, (   Читать дальше...   )Производство: США / Franchise Pictures, St. Mortimer Productions Inc.Жанр: КомедияРежиссер: Арн ГлимчерАктеры: Боб Хоскинс, Антонио Бандерас, Эллен Баркин, Уэс Бентли, Ким Диккенс, Рэнди Трэвис, Свузи Кёрц, Бо Бриджес, Майкл Масси, Чэд ЛиндбергПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37DA1DC8F65DFFBE42090B953079B4C333B8D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927910   (522410) от 16.08.2015
 
 Неудержимый / Aagadu (2014) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522410.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522371.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522289.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522286.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522276.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522275.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522272.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522232.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522228.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522123.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522118.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522114.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522110.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522063.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522046.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522040.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522029.jpg" />
 </div>
 
 
@@ -507,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522022.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521994.jpg" />
 </div>
 
 
@@ -562,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521945.jpg" />
 </div>
 
 
@@ -588,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521943.jpg" />
 </div>
 
 
@@ -614,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521938.jpg" />
 </div>
 
 
@@ -640,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521917.jpg" />
 </div>
 
 
@@ -666,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521907.jpg" />
 </div>
 
 
@@ -677,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D450DD0291FDA8A85261502BF3FBC96B2057D9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560101   (521893) от 28.06.2022
+
+Когда гаснет свет / Te Zhong Jiu Yuan Ying Xiong / As the Light Goes Out (2014) BDRip [H.264/1080p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-катастрофа «Когда гаснет свет» посвящен героической работе гонконгских пожарных. Начинается история с рядового, незначительного пожара на ликерном складе. Но ситуация с огнем быстро выходит из-под контроля, грозя ввернуть весь Гонконг в темноту накануне Сочельника. Узы братства всегда более сильны, когда вы связаны опасными для жизни ситуациями, и когда большое (   Читать дальше...   )Производство: Гонконг / Emperor Motion Pictures, Media Asia Films LtdЖанр: боевик, драмаРежиссер: Дерек КвокАктеры: Джеки Чан, Николас Це, Шон Юе, Саймон Ям, Ху Цзюнь, Бин Бай, Уильям Чань, Энди Он, Патрик ТамПеревод: Авторский одноголосый (Белов)Субтитры: ОтсутствуютПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B917394B4A9A38525E883C69BFE4CB911115549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372026   (521877) от 06.08.2011
+
+Старикам тут не место / No Country for Old Men (2007) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет завязывается, когда охотник Ллевеллин Мосс находит неподалеку от Рио Гранде пикап, окруженный кучей трупов. В багажнике лежит героин и два миллиона долларов. Мосс берет деньги и запускает цепную реакцию катастрофической жестокости, которую даже закон в лице стареющего и лишенного иллюзий шерифа Белла не в силах удержать. Мосс пытается скрыться от своих преследователей (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Итэн Коэн, Джоэл КоэнАктеры: Томми Ли Джонс, Хавьер Бардем, Джош Бролин, Вуди Харрельсон, Келли Макдоналд, Гаррет Диллахант, Тесс Харпер, Бэрри Корбин, Стивен Рут, Роджер БойсПеревод: ДублированныйПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9ABD4C5878299ACB6F8C6CCD1E93543623371A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

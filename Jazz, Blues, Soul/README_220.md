@@ -6,7 +6,7 @@ Beth Hart - Better Than Home (2015) Deluxe Edition, 2022, Provogue Records [FLAC
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620047.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Michal Urbaniak - Manhattan Man (1992) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619998.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Keith Jarrett - Standards, Vol. 1 (1983) Remaster, 1985, ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619994.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Keith Jarrett - Standards, Vol. 2 (1983) Remaster, 1985, ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619993.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tommy Flanagan - Let's: play the Music of Thad Jones (1993) /2005, Enja/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619975.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Beth Hart - A Tribute To Led Zeppelin (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <B
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619908.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Diana Krall - Turn Up the Quiet (2017) Japan, SHM-CD [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619678.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Buddha Jazz Bar Lounge: Best Relaxation Instrumental Soft Music (2017) [MP3
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619677.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Etta James - 44 CDs (1960..2011) Discography [MP3|152..320 kbps]<Blues, R&B, Sou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619516.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Warren Bernhardt Trio - Ain't Life Grand (1990) Digital Music Products[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619335.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - King & Deluxe Acetate Series: Beef Ball Baby - New Orleans R&B Sessoions (2
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619247.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Larry Miller - Unfinished Business (2010) [APE|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619147.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619146.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ The Stumble - The Other Side (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619145.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619076.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618973.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Carlos Martins - Passagem (1996) Enja Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618858.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dananja Aloysius - Passover (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618588.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Fran McGillivray Band - Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618578.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sven Lundestad & The BlueZmates - Lookin´ Back (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618505.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Bix Beiderbecke - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618503.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Taylor Carano - Where Hate & Ash Bury (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618502.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Artie Shaw - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618497.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Art Blakey - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618496.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Charlie Byrd - Bossa Nova Pelos Passaros (1962-1963) /2002, Riverside/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618495.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Duke Ellington - Live in Zurich, Switzerland 2.5.1950 (2007) [FLAC|tracks]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618489.jpg" />
 </div>
 
 

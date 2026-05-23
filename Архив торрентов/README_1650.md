@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676799.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Svartsinn - 4 albums (2002-2010) [FLAC|Lossless] <Dark / Drone / Ritual Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676795.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ VA - Trance Summer Essentials (2016) [MP3|320 Kbps] <Trance, House, Progressive 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676790.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Heavy Load - Death or Glory (1982) Japan [APE|Lossless|image + .cue] <Heavy Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676783.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Total Commander 9.12 VIM 31 Portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676752.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ FastStone Image Viewer 6.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676749.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ MediaHuman YouTube Downloader 3.9.8.13 (1805) Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676736.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VMware Workstation 12 Pro 12.5.6 Build 5528349 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676729.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MKVToolNix 12.0.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676726.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Process Lasso Pro 9.0.0.348 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676722.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676719.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ jv16 PowerTools 2017 4.1.0.1703 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676718.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ LibreOffice 5.3.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676717.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676716.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shape Of Despair - Return to the Void (2022) [FLAC|Lossless|image + .cue] <Funer
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676689.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Derdian - Revolution Era (2016) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676677.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Trance Around the World (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676676.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676666.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ F-22 Lightning 2 [En] (RePack) 1996 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676662.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Led Zepagain - A Tribute To Led Zeppelin (3CD) (2005-2012) [MP3|320 кб/с]<Har
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676660.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ SSD Mini Tweaker 1.3 | 2.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676633.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676625.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Coloring Book ColorCure v1.3.3 [En/Ru] - раскраска
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676616.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ SoftOrbits Photo Editor Pro 3.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676607.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676606.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Maxthon Browser 5.0.4.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676604.jpg" />
 </div>
 
 

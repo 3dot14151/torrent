@@ -6,7 +6,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740301.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739923.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739574.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Free! / Free! Iwatobi Swim Club / Вольный! [2013, TV, 12 + 3sp] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739548.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки Буранки [2016, TV, 12 из 12] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739359.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Courtesy of Zettai Karen Children: The Unlimited - Hyoubu Kyousuke | The Unlimit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739221.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739073.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Shinreigari | Shinrei Kari | Ghost Hound | Охота на призраков [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738934.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kyoukai no Rinne | Rin-ne | Риннэ: Меж двух миров [2015, TV, 75
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738702.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ World Trigger 3rd Season | Импульс мира [ТВ-3] [2021, TV, 14 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738630.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bubuki Buranki: Hoshi no Kyojin | BBK/BRNK: The Gentle Giants of the Galaxy | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737604.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sakurada Reset | Sagrada Reset | Переустановка Сакурады [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737594.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Seisen Cerberus: Ryuukoku no Fatalite | Святой воин Цербер: Бе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737587.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Maiko-san Chi no Makanai-san | Kiyo in Kyoto: From the Maiko House | Повар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736764.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ World Trigger | Импульс мира [2014, TV, 73 из 73] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736568.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Action Heroine Cheer Fruits | Фруктовые героини [2017, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736112.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ookiku Furikabutte: Natsu no Taikai-hen | Замахнись сильнее: Л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735271.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Pants no Ana: Mambo de Ganbo! | Дырявые трусики [1987, OVA, 1 эп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735157.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Akikan! / Empty Can / Пустая банка [2009, TV, 12] SDTV 1080p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734392.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Handa-kun | Ханда [2016, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734276.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Oshi ga Budoukan Itte Kuretara Shinu | If My Favorite Pop Idol Made It to the Bu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733998.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733527.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Maison Ikkoku: Bangaihen Ikkokujima Nanpa Shimatsuki | Maison Ikkoku: Deserted I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733430.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Maison Ikkoku: Shiki Utsuriyuku Kisetsu no Naka de | Maison Ikkoku: Through the 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733387.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Kuro no Sumika -Chronus- / Чёрные сущности -Хронус- [2014, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732741.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732703.jpg" />
 </div>
 
 

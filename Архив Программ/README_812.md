@@ -6,7 +6,7 @@ Mozilla Firefox 48.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636277.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Junkware Removal Tool 6.9.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636257.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Junkware Removal Tool 6.9.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636158.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils PDF Combine 5.1.86 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636140.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Macgo Windows Blu-ray Player 2.15.2.1987 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636061.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Macgo Windows Blu-ray Player 2.15.2.1987 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636056.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ XYplorer 17.00 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636027.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Restore Point Creator 3.0 Build 2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635965.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CrystalDiskInfo 6.5.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635963.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Daum PotPlayer 1.6.62377 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635938.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Daum PotPlayer 1.6.62377 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635928.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Acrobat Reader DC 2015.017.20050 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635925.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Classic Shell 4.2.7 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635923.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Apowersoft Video Converter Studio 4.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635919.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DVDFab 9.2.0.2 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635851.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Daum PotPlayer 1.6.54549 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635848.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ K-Lite Codec Pack Update 11.2.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635841.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BurnAware Professional 8.2 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635839.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Slimjet 19.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635822.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Flash Player 22.0.0.209 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635815.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ CrystalDiskInfo 6.5.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635737.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ TapinRadio Pro 1.70.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635735.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VSO ConvertXtoDVD 5.3.0.11 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635733.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ GridinSoft CHM Editor 3.0.0 RePack by leserg73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635731.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ USB Device Tree Viewer 2.5.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635722.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Adobe Flash Player 22.0.0.209 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635717.jpg" />
 </div>
 
 

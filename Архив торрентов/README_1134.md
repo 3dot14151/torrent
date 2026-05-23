@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792331.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VMware Workstation 15 Pro 15.5.5.16285975 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792307.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CCleaner 5.67.7763 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792291.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792284.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kaleidoscope 3.1.1  U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792258.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Boxy SVG 3  v3.70.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792257.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bootstrap Studio 5.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792255.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Insane Records presents: Terror Night Series - 4 Releases (2015-2018) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792237.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Kane Strang - Two Hearts and No Brain (2017) [FLAC|Lossless|tracks + .cue] <Indi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792234.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ BlueHarvest 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792223.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ CoolUtils Total Audio Converter 5.3.0.160 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792217.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Aiseesoft Screen Recorder 1.1.28 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792216.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Yate 6.6.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792214.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Deliver 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792212.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Data Guardian 7 v7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792211.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Valentina Studio Pro 11.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792210.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ FontXChange 5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792208.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Filmage Converter-ConvertVideo 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792205.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Performance Index 64 Pro 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792204.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Filmage Screen-Screen Recorder 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792203.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Lunar Pro for Mac 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792199.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Kaleidoscope 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792195.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Wise Disk Cleaner 10.1.5.762 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792191.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Aiseesoft Video Converter Ultimate 9.2.36 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792166.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Navicat Premium 12.0.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792163.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Cisdem PDFMaster 4.1.0 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792153.jpg" />
 </div>
 
 

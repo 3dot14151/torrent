@@ -6,7 +6,7 @@ Susie Webb - Bossa Loves Abba (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Latin>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567098.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stephane Grappelli & Yo Yo Ma - Anything Goes { Grappelli and Ma play (mostly) C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567052.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ American Blues Box - American Blues Box (2006) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567033.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Claude Bolling & Yo-Yo Ma - Suite for Cello & Jazz Piano Trio (1984) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566915.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Jimmy Smith - Cool Blues (1957) /2002, Blue Note/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566605.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Miles Davis - Miles + Miles (2015) [MP3|320 кб/с]<Bop, Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566470.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Muddy Waters 100 (2015) [MP3|320 кб/с]<Blues, Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566464.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Summer of Sax (Smooth 'n' Easy Listening Jazz Lounge Collection) (2015) [MP
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566460.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Jacques Loussier Trio - Handel - Water & Fireworks Music (2006) [FLAC|image +.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566454.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ B.B. King & Eric Clapton - Riding With The King (2000) / Remastered 2015 / [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566256.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Illinois Jacquet - The Illinois Jacquet Story: Flying Home (1944 - 1951) 2002, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566008.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Teddy Wilson - Stomping At The Savoy (1969 - 1971) 1991, Black Lion [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566006.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Lisa Casalino - Introducing Lisa Casalino (2011) Lisa Casalino Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565795.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Phil Woods And His European Rhythm Machine - At The Frankfurt Jazz Festival (197
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565656.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Charles Lloyd - Manhattan Stories (1965) 2CD, 2014, Resonance Records[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565652.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Christian McBride - Christian McBride's New Jawn (2018) Mack Avenue Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565562.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Buddy DeFranco (De Franco) - Charlie Cat 2 (2007) Arbors Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565520.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565503.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565499.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Evening Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565378.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565356.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Alastair Greene Band - Walking In Circles (2009) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565200.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Julian Curwin & The Tango Saloon - The Tango Saloon (2006) [APE|Lossless]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565083.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Armand & Bluesology - Too Much Is Not Enough (2001) [FLAC|Lossless]<Modern Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565076.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Artie Kaplan - Confessions of a Male Chauvinist Pig (1997) [FLAC|Lossless]<Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564965.jpg" />
 </div>
 
 
@@ -766,7 +766,7 @@ Deniece Williams - This Is Niecy (1976) (2012 Remastered) [FLAC|Lossless]<Rhythm
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564963.jpg" />
 </div>
 
 

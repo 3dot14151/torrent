@@ -1,83 +1,3 @@
-###  Публикация: 1659462   (190065) от 11.09.2023
-
-Брендон Сандерсон | Элантрис (2023) [MP3, Степан Дружинин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Родиться арелонцем — значит иметь шанс стать одним из богоподобных сияющих элантрийцев. Но так было до катастрофы, а когда она произошла, сказочный город превратился в разлагающийся город-призрак, и населяли его уже не совершенные создания, а несчастные живые мертвые. Но вот незадача, стать одним из элантрийцев по прежнему мог каждый, даже... сын императора.
-
-Как (   Читать дальше...   )Жанр: ФентезиПеревод: booktranИздательство: Аудиокнига своими рукамиПродолжительность: 19:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E7956210D5B35DA6295987BEB4F6298EB4EC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659429   (190042) от 11.09.2023
-
-Михаил Задорнов, Владимир Качан - | Задорнизмы и Качанушки (2008) [MP3, Михаил Задорнов, Владимир Качан]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-На диске представлены "Задорнизмы" - ностальгические монологи Михаила Задорнова, и "Качанушки" - песни Владимира Качана на стихи Леонида Филатова, Валерия Шульжик и др.Жанр: ЮморИздательство: АудиокнигаПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD377014C25899E93630F56F72F4F680E715636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589619   (190022) от 10.11.2022
-
-Тайга Ри | Грозовая охота (Книга 2). Турнир (Том 1) (2022) [MP3, Татьяна Манетина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Главной героине Вайю Блау дан шанс изменить свою жизнь и участь своего рода. Последняя в семье оставшаяся в живых, она оказалась в тюрьме и ожидала казни. Но десять её предков выразили готовность лишить себя посмертия в загробном мире ради шанса исправить судьбу рода. И вот Блау, вновь маленькая девочка, очутилась в тёмной пещере, искусанная скорпионами. Её задачей (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 13:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859ED52B7C91782F95ACD6E60C3EE7D533DBC93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589623   (190020) от 10.11.2022
 
 Тайга Ри | Грозовая охота (Книга 2). Турнир (Том 2) (2022) [MP3, Татьяна Манетина]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190020.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190019.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190010.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190009.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190002.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190000.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189996.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189976.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189974.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189950.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189944.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189922.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189919.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189876.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189789.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189784.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189774.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189773.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189772.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189768.jpg" />
 </div>
 
 
@@ -616,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189767.jpg" />
 </div>
 
 
@@ -642,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189749.jpg" />
 </div>
 
 
@@ -668,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189733.jpg" />
 </div>
 
 
@@ -679,6 +599,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5E6F288D00512375591C573EED39DA1C287F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659874   (189729) от 12.09.2023
+
+Рэйда Линн | Сталь и Золото (Книга 1). Истинное имя. Том 1 (2020) [MP3, Иван Букчин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189729.jpg" />
+</div>
+
+
+###  Подробнее
+
+На бескрайних просторах империи затеряна глухая деревня, в которой живёт подросток без имени. Все его так и называют: Безымянный – даже члены приютившей его семьи. Мало кто знает, что мальчик находится под пристальным вниманием самого императора и его ближайшего помощника сэра Ирема. И уж точно никто не догадывается, что подростка безуспешно пытается найти тёмный (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: 1С-ПаблишингПродолжительность: 12:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1C53CA59BE8395938D39EAB6A6460217093B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589909   (189727) от 11.11.2022
+
+Юлия Журавлёва | Полный попадос (Книга 2). Орки тоже люди (2022) [MP3, Ульяна Галич]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то мир спасает красота, а где-то зеленая орка с верной дубиной.
+За недолгое время в новом теле я смогла найти несколько друзей, нажить кучу врагов и уйму проблем.
+А мои мечты всё продолжают сбываться самым невероятным образом. И что теперь с этими мечтами делать – ума не приложу.
+Заключительная часть дилогии.Жанр: Юмористическое фэнтези, Попаданцы в магические мирыПродолжительность: 13:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F312A3A1928B77CDF52F13CCDC8D510B25E5D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589979   (189725) от 11.11.2022
+
+Фредерик Браун | Немного зелени (2022) [MP3, Антон Литий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Около пяти лет назад корабль Макгэрри потерпел крушение на планете Крюгер-3, планете на которой есть все цвета, кроме зелёного. Такого желанного зелёного цвета... Маленькое существо с пятью конечностями на плече по имени Дороти — вот единственный спутник и безмолвный собеседник Макгэрри. Только ее присутствие спасает его от безумия. Его единственной целью является (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF97B13D052DCDC0B4643C0C1E04129D7F142CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

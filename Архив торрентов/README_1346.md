@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749893.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cytomic The Drop 1.7.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749886.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749884.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ K-Lite Codec Pack Update 16.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749882.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cinemagraph Pro 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749879.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PDF24 Creator 7.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749867.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Icecream Ebook Reader PRO 4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749858.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Elmedia Player PRO 6.5.2 (912) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749855.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CareUEyes 1.1.20 Portable by Joo Seng [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749827.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Disk Drill Enterprise 3.7.929 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749825.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Game WideScreener 1.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749823.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MKVToolNix 31.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749821.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ StartIsBack++ 2.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749815.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ StartIsBack++ 2.8 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749814.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ CleanMyPC 1.10.0.1991 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749809.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Yelawolf x DJ Muggs - Mile Zero (Mile 0) (2021) [FLAC|Lossless|tracks + .cue] <H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749808.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Aesop Rock x Blockhead - Garbology (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749804.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Rhinoceros 7 v7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749803.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Gemini 2: The Duplicate Finder 2.8.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749797.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Waterfox Current G4.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749791.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Google Chrome 44.0.2369.0 Developer [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749777.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ABBYY Comparator 13.0.101.87 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749774.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Airmail 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749748.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Advanced SystemCare Ultimate 9.0.1.644 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749746.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Classic Shell 4.2.5 DC 21.05.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749744.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ CleanMyMac 3.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749738.jpg" />
 </div>
 
 

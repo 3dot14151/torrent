@@ -1,55 +1,3 @@
-###  Публикация: 1630228   (254684) от 29.04.2023
-
-Пропавшая без вести / Missing (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После смерти отца для 18-летней Джун её мама — единственная семья. Та вместе с новым ухажёром Кевином отправляется в отпуск в Колумбию, а девушка всю неделю проводит на вечеринках, но когда мама не появляется в аэропорту, дочь начинает поиски. Поскольку представитель консульства без должных бумаг не может перейти к активным действиям, через специализированный сайт (   Читать дальше...   )Производство: США, Stage 6 FilmsЖанр: Детектив, триллер, драмаРежиссер: Николас Д. ДжонсонАктеры: Сторм Рид, Ниа Лонг, Жоакин де Алмейда, Кен Люн, Эми Ландекер, Дэниэл Хенни, Тим Гриффин, Ава Зариа Ли, Кимберли Чэн, Меган Сури, Лиза ЯмадаПеревод: Дублированный (Bravo Records Georgia), Профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Full), Английские (Full)Продолжительность: 01:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA3BEE40E8CC69D219D9A2C0545B5E0DC66DBC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630136   (254683) от 29.04.2023
-
-Игра на выживание / Hunt Club (2022) WEB-DLRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Мужчины-охотники ради развлечения привыкли заманивать женщин на свой остров, предлагая им крупный денежный выигрыш. ​​​​​​​Только в этот раз они пригласили не тех женщин, и охота открывается на них самих.Производство: США / Latigo Films, Matt Dean Films, Titan Global EntertainmentЖанр: Боевик, триллерРежиссер: Элизабет Блейк-ТомасАктеры: Мена Сувари, Каспер Ван Дин, Уилл Пельтц, Майя Стоян, Микки Рурк, Джессика Белкин, Дэвид Липпер, Джейсон Лондон, Кипп Трайббл, Джофф СэмюэлсПеревод: Дублированный (Баритон)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A44883F26661993DB0510E18D9B56E0635B1CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629779   (254677) от 29.04.2023
 
 Война миров: Вторжение / War of the Worlds: The Attack (2023) WEB-DLRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254677.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254636.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254629.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254628.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254622.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254621.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254619.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254617.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254611.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254608.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254606.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254605.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254603.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254600.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254592.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254581.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254577.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254574.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254571.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254569.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254568.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254567.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254566.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254565.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B460FF6C3C2E364F833029A004BD724B2F5F262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631435   (254561) от 05.05.2023
+
+Ренфилд / Renfield (2023) UHD WEB-DLRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ренфилд, верный слуга графа Дракулы, пытается начать новую жизнь в Новом Орлеане. Он начинает посещать группу психологической поддержки, чтобы избавиться от власти своего хозяина. Правда, вампира данный факт совсем не устраивает.Производство: США / Universal Pictures, Skybound EntertainmentЖанр: фэнтези, комедия, боевикРежиссер: Крис МакКейАктеры: Николас Холт, Николас Кейдж, Аквафина, Бен Шварц, Шохре Агдашлу, Брэндон Скотт Джонс, Адриан Мартинес, Камилль Чен, Бесс Роус, Дженна КэнеллПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: Русские (18+)Продолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8979A7EC037FD8A30CF6EA6DB47921FE28BF9895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631488   (254551) от 06.05.2023
+
+Взломщик / The Locksmith (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллер Грэм может пройти через любые двери, вскрыть любой замок и опустошить самый надежный сейф. Он — гениальный взломщик. Но даже таким профессионалам иногда не везет. Однажды Грэм попался и отправился в тюрьму, оттуда вернулся совершенно другим человеком. Но исчезновение его дочери вынуждает вора снова встать на скользкий путь: последнее дело будет самым опасным (   Читать дальше...   )Производство: США / Buffalo 8 Productions, Golden State FilmsЖанр: Боевик, триллер, криминал, детективРежиссер: Николас Дачемин ХарвардАктеры: Кейт Босворт, Райан Филипп, Винг Реймз, Ноэль Гульеми, Джеффри Нордлинг, Чарли Уэбер, Том Райт, Кайли Брайант, Габриэла Квезада Блумгарден, Бурк Флойд, Мадлен ГибоПеревод: Дублированный (Велес), Любительский двухголосый (Велес)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2E4CC8AF3734A72280FD66B17B153CAB8601F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

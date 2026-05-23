@@ -6,7 +6,7 @@ IObit Driver Booster Pro 10.4.0.127 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238191.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Smart Driver Manager Pro 6.4.975 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238189.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Find Same Images OK 5.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238181.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FastFlix 5.5.1 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238178.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Duplicate Cleaner Pro 5.16.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238174.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Thunderbird 102.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238172.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PDFCreator 5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238169.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ USB Image Tool 1.85 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238166.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ GPU Shark 0.29.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238165.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ OCCT 7.3.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238164.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Opera GX 98.0.4759.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238160.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wondershare UniConverter 14.1.16.174 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238135.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FotoSketcher 3.80 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238115.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PDFsam Basic 5.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238114.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ IObit Driver Booster Pro 10.4.0.127 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238112.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ IObit Driver Booster Pro 10.4.0.127 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238106.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Moho Pro 13.5.4 Build 20220425 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238101.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Everyone Piano 2.5.5.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238095.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ WidsMob Portrait Pro 1.5.0.116 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238077.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Calibre 6.17.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238072.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ IObit Driver Booster Pro 10.4.0.127 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238067.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Skype 8.97.0.204 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238059.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ OneCommander Pro 3.45.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238057.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Program Uninstaller 3.1.3.255 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238056.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ IObit Driver Booster Pro 10.4.0.127 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238053.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ MSI Kombustor 4.1.23.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238044.jpg" />
 </div>
 
 

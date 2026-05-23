@@ -1,56 +1,3 @@
-###  Публикация: 1587608   (192455) от 31.10.2022
-
-Ужасающий 2 / Terrifier 2 (2022) WEB-DLRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В этот Хэллоуин в городке округа Майлз снова пробуждается зло: клоун Арт возвращается после воскрешения из мертвых. Чтобы остановить его, девушке с братом предстоит раскрыть секрет Арта и понять, из какого мира он пришел.Производство: США / Dark Age Cinema, Fuzz on the Lens ProductionsЖанр: ужасыРежиссер: Дэмиен ЛеонеАктеры: Дэвид Ховард Торнтон, Дженна Кэнелл, Лорен ЛаВера, Катрин Коркоран, Саманта Скаффиди, Фелисса Роуз, Кэти Магуайр, Гриффин Сантопьетро, Кэйси Хартнет, Kailey HymanПеревод: авторский (М.Яроцкий)Субтитры: английские (full, SDH)Продолжительность: 02:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A1A2A3D438FB5786887398BB4E57CAD9F419E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587613   (192452) от 31.10.2022
-
-Убойный монтаж / Coupe / Coupez! / Final Cut (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Французский ремейк японского треш-хоррора «Зомби одним планом» 2017 года.
-Начинающий режиссёр и не особо профессиональная съемочная группа подписываются на экспериментальный хоррор. Но во время съёмок все идет наперекосяк — ведущая актриса неубедительно изображает ужас, ключевой актер напился, а на самих киношников внезапно нападают настоящие живые мертвецы.Производство: Франция, Великобритания, Япония / Getaway Films, La Classe Américaine, SK GlobalЖанр: ужасы, комедияРежиссер: Мишель ХазанавичусАктеры: Ромен Дюрис, Беренис Бежо, Грегори Гадебуа, Финнегэн Олдфилд, Матильда Анна Ингрид Лутс, Себастьян Шассейн, Рафаэль Кенар, Лье Салем, Жан-Паскаль Зади, Симона ХазанавичусПеревод: дублированный (Vox Records), профессиональный двухголосый (Кубик в кубе)Субтитры: французскиеПродолжительность: 01:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D00BC0BA6A7CFF57530A6FCAA903CE39762A08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587361   (192449) от 31.10.2022
 
 Билет в рай / Ticket to Paradise (2022) WEB-DL [H.264/1080p] [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192449.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192448.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192437.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192428.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192412.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192357.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192340.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192334.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192331.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192323.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192322.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192299.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192284.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192255.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192252.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192244.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192231.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192225.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192205.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192201.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192192.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192176.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192155.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192088.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7277CEC73E961A339406C04D34700AABD0D53D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657713   (192065) от 05.09.2023
+
+Гипнотик / Hypnotic (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель жизни детектива Дэнни Рурка — найти пропавшую дочь. Параллельное расследование серии преступлений, совершенных при необъяснимых обстоятельствах, все глубже погружает Рурка в ирреальность происходящего и ставит под сомнение все его принципы и убеждения. Заручившись поддержкой одаренного экстрасенса Дианы Крус, Дэнни вступает в смертельно опасное противостояние (   Читать дальше...   )Производство: США / Blue Rider Pictures, Double R Productions (II), Hoosegow ProductionsЖанр: Боевик, триллер, детектив, фантастикаРежиссер: Роберт РодригесАктеры: Бен Аффлек, Алиси Брага, Уильям Фихтнер, Дж.Д. Пардо, Дайо Окенийи, Джефф Фэйи, Джеки Эрл Хейли, Зейн Холц, Рубен Хавьер Кабальеро, Келли ФрайПеревод: Дублированный, Профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full)Продолжительность: 01:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156346144631C79A0B0729F7D023EC19E773A586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657786   (192060) от 05.09.2023
+
+Мое итальянское лето / Gli anni belli (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1994 года Элена проводит со своей семьей на море. Девушке 17 лет, она обожает «Нирвану» и готова покорять этот мир своей молодостью и энергией. Ее жизнь прямо сейчас — это обжигающее солнце, сладкая беззаботность и… красавец Андре, способный составить конкуренцию Курту Кобейну. Молодых людей ждет самое волнующее лето, которое произведет революцию в их жизни, (   Читать дальше...   )Производство: Италия, Сербия / Art & Popcorn, Bendico, Hora MagicaЖанр: КомедияРежиссер: Лоренцу д’Амику де КарвальюАктеры: Романа Маджора Вергано, Лука Аттадья, Антонино Брускетта, Костантино Комито, Мария Грация Кучинотта, Паола Лавини, Риккардо Мария Манера, Бениамино Марконе, Ана Падран, Розалия ПоркароПеревод: Многоголосый профессиональный ( IVI)Язык озвучки: Русский, итальянскийСубтитры: РусскиеПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3FF7184B2343A4A311DA56F4F340A810355191
 ```
 
 https://mybot314.ru/tekegram_catalog/

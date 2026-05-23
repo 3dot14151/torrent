@@ -7,7 +7,7 @@ WinPE 11-10 Sergei Strelec (x64) 2026.05.11 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069179.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2026.04.14 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065284.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Active@ Boot Disk v26.0.1 WinPE x64 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062926.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NHV Boot 2026 v2100 Extreme [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062078.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WinPE 11-10 Sergei Strelec (x64) 2026.03.03 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059214.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2026.02.05 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055489.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052085.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052034.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Jinn'sLiveUSB 11.6 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авто�
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050338.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Multiboot Collection Full v.8.9 (Обновляемая) [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050158.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.12.14 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048577.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046917.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 10-11 PE x64 by Xemom1 (2022) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043477.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Anhdv Boot 2023 Premium v23.4 x86-x64 (03.03.2023) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035800.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Bootable Flash Drive USB by StartSoft Happy New Year! 01-2021 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034271.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MCBoot WinPE VN 2023 PRO v9.6 build 010323 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034266.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ USB Reanimator Zolotoy v.4 [английский + русский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973266.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Windows 10 PE x64  Acronis Edition by evgen_b (2021.05.30) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911482.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Stop SMS Uni Boot x64 (UEFI) (Win 8.1) v.6.03.03 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896830.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Stop SMS Uni Boot x64 Win 10(UEFI) v.6.03.06 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893090.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Windows 8 PE x86x64 Universal by Xemom1 01.04.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842490.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ RuneBit Flash MultiBoot USB 3.0 Final [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834455.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818515.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813057.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ RA SYSadminSFT 2016 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803223.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Ieshua's Live-DVD/USB 2.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794694.jpg" />
 </div>
 
 

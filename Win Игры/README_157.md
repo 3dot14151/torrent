@@ -1,29 +1,3 @@
-###  Публикация: 1203541   (729458) от 20.02.2019
-
-Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Remothered - кинематографичная трилогия в жанре survival horror, подкупающая исключительно реалистичным геймплеем. История насыщена оригинальными сюжетными поворотами, которые не оставят игрока равнодушным. В “Remothered” психология играет важную роль: герои и злодеи не вписываются в рамки стереотипов, а грань между добром и злом размыта.Тип издания: RepackРазработчик: Stormind Games, Darril ArtsЖанр: Action, Horror, Adventure, Stealth, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6685497879DABF86C6516019A7E8F264C85947D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284089   (729455) от 20.02.2019
 
 Yakuza Kiwami (2019) [En/Jp] (1.0) License CODEX
@@ -32,7 +6,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729455.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ War Mongrels (2021) [Ru/Multi] (42052) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729432.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) License GOG [The Full Pack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729295.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Editi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729287.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729235.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Tumbleweed Express (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729229.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729221.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.1464/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729204.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Cornerstone: The Song of Tyrim (2016) [En] (3.1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729164.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Grim Facade 10: The Message (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728879.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ The Unseen Fears 2: Outlive (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728863.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Medium Detective: Fright from the Past (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728772.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ Wanderlust 4: The Bermuda Secret / Жажда странствий 4: Тайна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728692.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Enchanted Kingdom 4: Fiend of Darkness / Зачарованное королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728534.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Hidden Expedition 11: Midgard's End (2016) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728471.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Total War: Rome Remastered (2021) [Ru/Multi] (2.0.5) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728316.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ The Disney Afternoon Collection (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728191.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) License GOG [Game of the Century E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728103.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728096.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Counter Strike 1.6 от Сахара (1999-2015) [Ru/En] (1.1.2.6/pv48/b4554) Re
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728088.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728014.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728009.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ STCC: The Game 2 (L) [Multi10/Ru] 2011 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_727944.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Phantasmat 10: Curse of the Mist (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727755.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Darkheart: Flight of The Harpies (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727655.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Darkheart: Flight of The Harpies (2017) [En] (1.0) Unofficial [Collector's Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E71F3D37A7182B0B2788A82266E049690EE8B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284598   (727649) от 22.02.2019
+
+Fright Chasers: Dark Exposure (2017) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы приходите в обсерваторию Килборн с вашим фотографом, чтобы исследовать ее после рядя странных сообщений. Когда вы приехали на место, начались какие-то необъяснимые явления, вещи быстро превращаются в причудливые, когда на них влияют потусторонние силы. Вашей помощнице-фотографу угрожает опасность! Сможете ли вы предотвратить все это и спасти ее.Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9E71AC1CF8B3005EB62C3D83AF5319F49044CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Wagamama High Spec [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637940.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kemono Friends 2 | Друзья-зверушки | Ушастые друзья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636900.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки/Буранки [2016, TV, 24 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636814.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636389.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Seikoku no Dragonar | Dragonar Academy | Академия Драконов [2014
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636090.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Gin no Guardian / The Silver Guardian / Серебряный страж [2017, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634584.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Joker Game / Игра Джокера [2016, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634127.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tokyo 24-ku | Tokyo 24th Ward | Токио: 24-й район [2022, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632935.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631386.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Toaru Majutsu no Index III / A Certain Magical Index 3 / Индекс волше
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631244.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Никчёмный учите�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629010.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Shingeki no Kyojin Season 2 / Вторжение гигантов-2 [2017, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628905.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ RS Keikaku: Rebirth Storage | Проект «БП»: База Перерожде
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628297.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625125.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Triage X [2015, TV, 10] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625070.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] WEB-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625006.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! / Пока есть любовь,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621935.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Double Decker! Doug & Kirill | Двойной удар: Даг и Кирилл [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621853.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621409.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Berserk (Season 2) | Берсерк [ТВ-3] [2017, ТВ, 12 эп.] HDTV 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621228.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Oushitsu Kyoushi Haine / Королевский наставник [2017, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617632.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617348.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615815.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Haiyore! Nyaruko-san F | Няруко-сан: Крадущийся хаос F [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615787.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Break Blade / Broken Blade / Сломанный Меч [2014, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615031.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Ultraman Season 2 | Ультрамен 2 [2022, Web, 6 эп.] WebRip 720p raw+en
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614791.jpg" />
 </div>
 
 

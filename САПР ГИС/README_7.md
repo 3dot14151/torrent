@@ -6,7 +6,7 @@ DipTrace 5.1.0 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36286.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34981.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ LiraLand ЛИРА-САПР + САПФИР 2024 R2.3 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32574.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Altair PollEx 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30118.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Altair PSIM 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30117.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23808.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ashampoo 3D CAD Professional 12.0.0 Portable by FC Portables [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20441.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ ZWCAD 2026 SP0 Professional [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17712.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Plexim Plecs 4.9.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17686.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Graebert ARES Mechanical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16778.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ZW3D 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15392.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Proteus Professional 9.0 SP2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13515.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ KiCad 9.0.3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11561.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Keysight Advanced Design System 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9342.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Graebert ARES Commander 2026.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8998.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ARES Electrical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8992.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ProfiCAD 13.1.7 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5266.jpg" />
 </div>
 
 

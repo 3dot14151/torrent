@@ -1,29 +1,3 @@
-###  Публикация: 1787465   (23561) от 25.03.2025
-
-Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack seleZen [Ultimate Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Them and Us - классический хоррор на выживание с уклоном на погружение в атмосферу игры. Узнайте правду о прошлом Алиши, пока она всё глубже погружается в нескончаемый кошмар. На дворе 1978 год. Автобус попал в ужасную аварию на извилистых грунтовых дорогах бескрайней американской пустыни. Выжил лишь один человек.Тип издания: RepackРазработчик: TendoGamesЖанр: Экшны, Survival, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49BC1860BACAED6B0A914EC64D36617E368C5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787455   (23554) от 25.03.2025
 
 Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.13/dlc) Repack Wanterlude
@@ -32,7 +6,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.13/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23554.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23525.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Lucky Season 2: End of the Rainbow / Сезон удачи 2: Конец рад�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23509.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.28/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23508.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23506.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ WARNO (2024) [Ru/Multi] (150731/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23493.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [S
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23486.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23483.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.29/dlc) Repack FitGirl [Ultimate Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23478.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Zombieville USA 3D (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23468.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23402.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.1.1.22380) Repack Let'sР
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23398.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (build 17836335) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23381.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.12/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23372.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23367.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Empires of the Undergrowth (2017) [Multi] (1.101071/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23362.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23356.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23355.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23346.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23343.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack Other s [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23340.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Spirit City: Lofi Sessions (2024) [Multi] (1.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23288.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23279.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23275.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ MOOD (2024) [Ru/En] (Build 17818395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23272.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ MOOD - это мрачная визуальная новелла, с элеме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787961   (23270) от 28.03.2025
+
+Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/dlc) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ryse: Son of Rome рассказывает историю Мариуса Тита, молодого римского солдата, на глазах которого, от рук варваров, погибает вся его семья. После этого, мечтая о мести, он направляется с римской армии к Британии. Быстро добиваясь успехов, Мариус должен стать лидером войска и защитником Империи. Но вскоре он обнаруживает, что его планы по отмщению могут быть реализованы (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF1262D39343D23F9F31747ECD084EA2B064924
 ```
 
 https://mybot314.ru/tekegram_catalog/

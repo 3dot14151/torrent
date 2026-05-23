@@ -1,81 +1,3 @@
-###  Публикация: 959812   (309939) от 27.11.2015
-
-Андрей Воронин | Последний аргумент закона (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В центре остросюжетного и увлекательного романа боевика – приключения неуловимого и бесстрашного Иллариона Забродова, известного читателям по предыдущим книгам Андрея Воронина. Волей обстоятельств он оказывается одним из свидетелей жуткого инцидента на шоссе. Других свидетелей убивают, остается только Забродов. Бывший инструктор спецназа играет с огнем, начав собственное (   Читать дальше...   )Жанр: БоевикПродолжительность: 12:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:028826835DC732854E2F1B29B536C0E76E656872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183350   (309800) от 13.11.2017
-
-Андрей Буревой | Рыцарь Империи (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вот и вышел срок службы тьера Кэрридана Стайни! Отныне он вольный человек! Так что можно ему, ни на кого не оглядываясь, и на охоту на дракона отправляться. Хотя и сумасшествие это в чистом виде — простому человеку с сим чудищем воевать: шансов-то на победу никаких… А добром ни один дракон свою голову в качестве трофея не отдаст. Вот и думай, как тут быть… Разве (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 18:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BF5454C5B64E8B92953E2D179F1BC83F4DAA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183352   (309797) от 13.11.2017
-
-Андрей Буревой | Драконоборец Империи (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Опасно ремесло драконоборца, очень опасно. Оттого лишь очень немногие соглашаются этим делом заняться, даже зная, что оно сулит немалую выгоду. Но сэру Кэрридану Стайни некуда деваться. Пожелание императора — это не та вещь, которую можно проигнорировать. Так что хочешь не хочешь, а драконов, оккупировавших предгорья Палорского хребта, придется изводить. Благо еще (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 15:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299583E9F7F640165F20DC8DD7D5825E93F69369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183346   (309792) от 13.11.2017
 
 Антон Чехов | Мошенники поневоле и другие юмористические рассказы (2010) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309792.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309720.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309672.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309667.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309609.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309570.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309557.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309542.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309436.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309361.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309310.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309262.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309209.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309107.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309084.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309034.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308947.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308934.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308888.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308878.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308731.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308720.jpg" />
 </div>
 
 
@@ -662,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308697.jpg" />
 </div>
 
 
@@ -675,6 +597,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2581D5C65C300114DE1ED3B412D5F574CF807109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422052   (308679) от 09.11.2020
+
+Николай Леонов, Алексей Макеев | Плохая компания (2020) [MP3, Святой]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковники уголовного розыска Гуров и Крячко простыми делами не занимаются. Вот и сейчас начальство подкинуло им запутанное дело… В пансионате «Голубое озеро» таинственно погиб Вячеслав Гладких, ответственный работник министерства строительства.Жанр: Полицейский детективПродолжительность: 07:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33514E4CD1F48B253EEFDAFFEDD0756F1474BCA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076790   (308603) от 27.11.2016
+
+Джон Шемякин | Дикий барин (2016) [MP3, Кирилл Радциг]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Шемякин – знаменитый российский блогер, на страницу которого в Фейсбуке подписано более 50 000 человек, тонкий и остроумный интеллектуал, автор восхитительных баек, неизменно вызывающих фурор в Рунете и интенсивно расходящихся на афоризмы.
+"Если бы мне дали книгу с таким автором на обложке, я бы сразу понял, что это мистификация. К чему Джон? Каким образом (   Читать дальше...   )Жанр: Юмористическая прозаПродолжительность: 09:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119D886333214739F45AC4D8247581CF28A1D0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422549   (308562) от 09.11.2020
+
+Людмила Шапошникова | Мастер (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга – одна из лучших биографий Николая Константиновича Рериха, великого русского художника, философа, путешественника и общественного деятеля с мировым именем. Автор книги – Людмила Васильевна Шапошникова (1926–2015) – доверенное лицо Святослава Николаевича Рериха, выдающийся ученый-востоковед, историк, философ, писатель, общественный деятель, академик (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 17:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E01F2F470CE81F94C2589845C58521A94A3B320
 ```
 
 https://mybot314.ru/tekegram_catalog/

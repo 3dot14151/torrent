@@ -1,81 +1,3 @@
-###  Публикация: 1593116   (181905) от 25.11.2022
-
-Картер Браун | Рик Холман (Книга 6). Зеленоглазые джунгли (2022) [MP3, Сергей Пухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Блистательный Голливуд! Очаровательные кинодивы, мужественные ковбои, влиятельные продюсеры, выгодные контракты. Погружающемуся в этот мир, он невольно кажется похожим на мир джунглей. Так же сверкают во тьме чьи-то хищные глаза и действуют те же законы - законы джунглей. Но Рик Холман чувствует себя здесь как рыба в воде. А сценарист Ларри Бейкер из Нью-Йорка попадает-таки (   Читать дальше...   )Жанр: детективПродолжительность: 03:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED055948A85E0182D94F3BD462BCDA513F8130B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593114   (181892) от 25.11.2022
-
-Картер Браун | Рик Холман (Книга 5). Блондинка в беде (2022) [MP3, Сергей Пухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив Рик Холман - последняя надежда попавшей в беду голливудской элиты. Одна из самых крупных звезд американской "фабрики грез" неожиданно для нее отлучена от работы, как ей кажется, кто-то задался целью похоронить ее заживо. Холман берется выяснить, не связано ли все это с трагической гибелью дерзкого и капризного возлюбленного актрисыЖанр: детективПродолжительность: 04:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D326962F0BB30379BFA97F3848D1B640CEB19B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593112   (181877) от 25.11.2022
-
-Картер Браун | Рик Холман (Книга 4). Белое бикини (2022) [MP3, Сергей Пухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Детективные романы известного американского писателя, пожалуй, немного перегружены сексуальными сценами, чересчур подробной деталировкой их. Но ведь существуют же преступления, связанные с извращениями на почве секса и от этого никуда не денешься. А в целом эти романы отличаются «крутыми» сюжетами и увлекают динамичностью повествования.Жанр: детективПродолжительность: 03:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4582952B4229A306F03D43688118F0DD6322FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593150   (181864) от 25.11.2022
 
 Картер Браун | Рик Холман (Книга 9). Все дело в пакете (2022) [MP3, Сергей Пухов]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181864.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181860.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181859.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181833.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181832.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181810.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181769.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181732.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181721.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181714.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181705.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181679.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181571.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181559.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181542.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181522.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181509.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181417.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181414.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181397.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181379.jpg" />
 </div>
 
 
@@ -636,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181373.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181366.jpg" />
 </div>
 
 
@@ -674,6 +596,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:762FF281FE6C8616DEBBB1ECF8DAE891D797049C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427985   (181361) от 30.11.2020
+
+Ник Перумов | Алмазный Меч, Деревянный Меч. Том 1 (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже несколько столетий Империя, основанная людьми, победившими гномов, эльфов, орков, и Дану, держится на крови и страхе. Опоры трона – семь Магических Орденов – имеют неограниченную власть над душами и судьбами обитателей страны и самого Императора. Но близок день мести, день начала великой битвы, ибо пробудился уже в глубине Друнгского Леса священный меч Иммельсторн (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 19:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDED0B4D5D8C1A541B9294C81307D188F4925166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665750   (181342) от 01.10.2023
+
+Александр Тамоников | Спецназ Берии. Бросок из западни (2023) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман о военном времени, о сложных судьбах и опасной работе неизвестных героев, вошедших в ударный состав «спецназа Берии».
+
+Возвращаясь из заграничной командировки, подполковник спецподразделения НКВД Максим Шелестов и его помощник Михаил Сосновский попадают в авиакатастрофу. Их самолет терпит крушение над одним из островов в районе Гавайев. Пилоты погибают. Выжившие (   Читать дальше...   )Жанр: БоевикиИздательство: ЭксмоПродолжительность: 06:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F70F8196141B9DF76252C5F7B0E36CD3368D402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427995   (181333) от 30.11.2020
+
+Ник Перумов | Эльфийский клинок (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поставив последнюю точку во «Властелине Колец», профессор Толкиен закрыл дверь в созданный им мир эльфов и гномов, орков и гоблинов, хоббитов и людей и выбросил магический ключ. Лишь одному писателю – Нику Перумову – удалось нащупать путеводную нить в таинственный и хрупкий мир Средиземья. Задача оказалась непростой, ведь каждый неверный шаг грозил потерей тропы, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 21:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337103D49FA785E28BACB1899FA8680E8F13098D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1466019   (1018698) от 28.04.2021
-
-Семь психопатов / Seven Psychopaths (2012) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Непутевый писатель потерял вдохновение и никак не может справиться с новым сценарием. Волей случая он оказывается втянутым в похищение собаки, затеянное его эксцентричными дружками. Выясняется, что украденное животное – любимый пёс главного местного гангстера, которому ничего не стоит в два счета вычислить и уничтожить оболтусов.Производство: Великобритания, США / CBS Films, Film4, British Film Institute (BFI)Жанр: комедия, криминалРежиссер: Мартин МакДонаАктеры: Колин Фаррелл, Сэм Рокуэлл, Кристофер Уокен, Вуди Харрельсон, Том Уэйтс, Эбби Корниш, Ольга Куриленко, Желько Иванек, Майкл Питт, Майкл СтулбаргПеревод: Дублированный, авторский (одноголосый)Субтитры: русские, английскиеПродолжительность: 01:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8581543E0278FECA060F8CD646E63A0FEFE1EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465695   (1018696) от 28.04.2021
-
-Отчаянный ход / The Last Full Measure (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Военный медик Уильям Питсенбаргер в ходе специальной операции во время войны во Вьетнаме спас более 60-ти сослуживцев. Несмотря на героические действия, ему не был присуждена Медаль Почёта. 30 лет спустя работнику Пентагона поручают разобраться, почему награда не нашла героя. В ходе расследования он натыкается на заговор, покрывающий ошибку высшего руководства армии (   Читать дальше...   )Производство: США / Foresight Unlimited, Provocator, SSS EntertainmentЖанр: Драма, военный, историяРежиссер: Тодд РобинсонАктеры: Себастиан Стэн, Элисон Судол, Эшер Майлз Фаллика, Лиза Гэй Хэмилтон, Брэдли Уитфорд, Уильям Хёрт, Лайнас Роуч, Джереми Ирвин, Оуэн О'Брайен, Кристофер ПламмерПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C96B08B09D262F032CCE77E8D1C5F0D913095B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465892   (1018692) от 28.04.2021
 
 Иуда и чёрный мессия / Judas and the Black Messiah (2021) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018692.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018688.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018686.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018685.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018680.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018671.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018658.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018567.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Indian Horse / Индейский конь (2017) BDRip [H.264/720p] [PR]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018565.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018549.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018546.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018543.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018534.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018513.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018510.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018501.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018496.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018489.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018411.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018394.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018392.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018380.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018368.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018361.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5777684D69AFBDCED8A761F6D21E0365845AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466403   (1018341) от 30.04.2021
+
+Дьявол в деталях / The Little Things (2021) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октябрь 1990 года. Уже немолодого заместителя окружного шерифа Джо Дикона по прозвищу Дики отправляют с мелким поручением в Лос-Анджелес. Именно тут пять лет назад он был уважаемым детективом, но одно расследование испортило ему жизнь и подорвало здоровье. Дики знакомится с молодым амбициозным коллегой Джимом Бэкстером, который ведёт дело об убийствах, подозрительно (   Читать дальше...   )Производство: США / Gran Via, Warner Bros.Жанр: Детектив, криминал, триллерРежиссер: Джон Ли ХэнкокАктеры: Дензел Вашингтон, Рами Малек, Джаред Лето, Кристофер Бауэр, Майкл Хайатт, Терри Кинни, Натали Моралес, Изабель Арраиса, Джорис Джарски, Гленн МоршауэрПеревод: Дублированный (Мосфильм-Мастер)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED57C0F1C06ADCA0ACEB12FBD8C6CAD1FAD693B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466119   (1018336) от 30.04.2021
+
+Отчаянный ход / The Last Full Measure (2019) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военный медик Уильям Питсенбаргер в ходе специальной операции во время войны во Вьетнаме спас более 60-ти сослуживцев. Несмотря на героические действия, ему не был присуждена Медаль Почёта. 30 лет спустя работнику Пентагона поручают разобраться, почему награда не нашла героя. В ходе расследования он натыкается на заговор, покрывающий ошибку высшего руководства армии (   Читать дальше...   )Производство: США / Foresight Unlimited, Provocator, SSS EntertainmentЖанр: Драма, военный, историяРежиссер: Тодд РобинсонАктеры: Себастиан Стэн, Элисон Судол, Эшер Майлз Фаллика, Лиза Гэй Хэмилтон, Брэдли Уитфорд, Уильям Хёрт, Лайнас Роуч, Джереми Ирвин, Оуэн О’Брайен, Кристофер ПламмерПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3CCDBBCA2FD359DFD73EC3C38E65E5DEDE4149
 ```
 
 https://mybot314.ru/tekegram_catalog/

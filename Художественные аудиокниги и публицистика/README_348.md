@@ -1,82 +1,3 @@
-###  Публикация: 1217936   (739988) от 07.04.2018
-
-Константин Калбазов | Боярин (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Угораздило же нашего современника Ивана Рогозина, мужчину среднего возраста, оказаться в конце альтернативного семнадцатого века! С одной стороны, вроде как обретенная молодость, и сейчас ему не сорок с лишним, а всего двадцать два. И весь его багаж знаний и опыта остался с ним. И перспективы безбедного существования очень даже реальны. Но, с другой стороны, на плечах (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 13:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB8F6CD798FCE91F89B9659DEECD714100E6FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217902   (739987) от 07.04.2018
-
-Антон Демченко | Гранд (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самое страшное проклятие у китайцев: «Чтоб ты жил в эпоху перемен!» Если так, то Кирилла Николаева явно проклял весь китайский народ. Не успел мещанин Николаев выкрутиться из неприятностей с клубом эфирников и отвести от себя угрозу со стороны бывших родственников, как навалились новые неприятности. Мятеж в столице недавно спокойного Русского государства подхватывает (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 15:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514B2E4BC3C3166231F3217D7E87A63ED7A84C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218032   (739959) от 07.04.2018
-
-Виталий Зыков | Великие Спящие. Том 1. Тьма против Тьмы (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Студия АРДИС предлагает вашему вниманию первый том аудиокниги «Великие Спящие», завершающей авторский цикл Виталия Зыкова «Дорога домой».
-Годами и десятилетиями копилось напряжение на Торне. Множились взаимные обиды, заходили в тупик интриги, росли и крепли мстители. Иногда напряжение сбрасывалось в войнах и локальных конфликтах, но всегда были те, кто оставался (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 16:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF159A824805182E41FBF9AACA49DFB67DB39326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218142   (739958) от 07.04.2018
 
 Василий Сахаров | Ведун (2018) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739958.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739945.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739941.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739930.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739878.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739706.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739523.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739071.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739063.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738992.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738771.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738768.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738750.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738741.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738661.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738659.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738483.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738479.jpg" />
 </div>
 
 
@@ -558,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738466.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738459.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738454.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738425.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738382.jpg" />
 </div>
 
 
@@ -674,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CAE51A6901BE9777F1704ED9642806D28BF3984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526398   (738334) от 24.01.2022
+
+Дем Михайлов | Крест (Книга 3). ПереКРЕСТок одиночества – 3 (2022) [MP3, Петров Никита (Петроник)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой многого добился в этой жизни – и заскучал. Заскучал по временам, когда шёл к цели и каждый прожитый день был наполнен смыслом и борьбой. Что ж, судьба даёт ему возможность снова испытать эти чувства. Правда, в условиях, совсем некомфортных. Герой оказывается в странном месте, где каждый день нужно бороться за жизнь. Где чтобы поесть и согреться – нельзя (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика, ПопаданцыПродолжительность: 11:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8248BB5423A25D8F0BCE03943E8EBF1172BDF0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526793   (738144) от 25.01.2022
+
+Татьяна Устинова | Свиданье с Богом у огня. Разговоры о жизни, любви и самом важном (Сборник рассказов) (2019) [MP3, Анна Каменкова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Татьяна Устинова - известный писатель, телеведущая и интереснейший собеседник. Разговоры о жизни, любви и самом важном - сборник размышлений автора о тех самых простых и сложных вещах, составляющих нашу жизнь. Любовь, отношения в семье, дети, друзья, интересные незабываемые встречи - вот те темы-киты, которые интересны каждому из нас. А нетривиальный взгляд писателя (   Читать дальше...   )Жанр: Биографии и мемуары, Легкая проза, Современная русская литератураПродолжительность: 10:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8665B52F7F338FB60F6B8735E098455A9AF00DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526688   (738132) от 25.01.2022
+
+Бен Элтон | Два брата (2019) [MP3, Владимир Левашев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738132.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1920 году в роддоме Берлина на свет появляются два младенца, у одного из которых умирает мать. И вторая женщина решает усыновить сироту – так мальчики становятся братьями. Пауль и Отто вместе растут, вместе дружат с одной девочкой, вместе влюбляются в другую. Но к власти приходят нацисты, и жизнь меняется быстро и страшно. Когда в стране важнее всего оказываются (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Александр СафроновПродолжительность: 18:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F181842711B1A192E76A07577B1812335EB58446
 ```
 
 https://mybot314.ru/tekegram_catalog/

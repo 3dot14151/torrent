@@ -6,7 +6,7 @@ Active@ Boot Disk 14.0.0.4 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228484.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Echosync 7.0.1.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227263.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics File Recovery 11.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209076.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.8 RePack (& Port
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208745.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.8 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208647.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AOMEI WinfrGUI 1.0.2 Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208205.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ASCOMP BackUp Maker 8.202 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208151.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PureSync 7.2.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207627.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.9 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203193.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202725.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hetman Partition Recovery 4.6 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202508.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ R-Drive Image Technician 7.3 Build 7312 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201758.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wise Data Recovery Pro 6.1.3.495 Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201101.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Wise Data Recovery Pro 6.1.3.495 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201053.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Cobian Backup 11.2.0.582 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200194.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 4.8 RePack (& Portab
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195637.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Hetman Uneraser Unlimited Edition 6.9 RePack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193620.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Magic Recovery Software 2023.08 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193534.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Magic Partition Recovery Home / Office / Unlimited Edition 4.9 RePack (& Portabl
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193450.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ KLS Backup 2025 Professional 14.0.2.7 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193379.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ MiniTool Power Data Recovery Standard / Deluxe / Enterprise / Technician 11.3 Re
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182911.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Hasleo Backup Suite 3.0.1 Portable by AlexYar [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177058.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ FreeFileSync 13.1 (Donation Edition) + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170687.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Allway Sync 20.2.1 Pro [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169361.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Hetman Partition Recovery 4.5 Unlimited Edition Portable by FC Portables [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167263.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Tenorshare UltData for Android 6.5.0.22 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163107.jpg" />
 </div>
 
 

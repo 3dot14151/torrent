@@ -6,7 +6,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688109.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Karasu Tengu Kabuto / Raven Tengu Kabuto / Кабуто [1992, OVA, 1 ep.] DVDRi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686957.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Marie and Gali / Мари и Гали (второй сезон) [2010, TV, 30 ep
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686795.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686440.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686433.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Denei Shoujo Ai / Video Girl Ai / Ай - девyшка с кассеты [1992, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_684903.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684570.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru | My Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684220.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kuroshitsuji: Book of Circus | Black Butler: Book of Circus | Демон-дво�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684181.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Gunslinger Stratos The Animation | Небесные стрелки [2015, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682502.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kanojo ga Flag o Oraretara | Gaworare | If Her Flag Breaks | Если бы я о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682126.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Kangoku Gakuen | Prison School | Школа-тюрьма [2015, TV, 12] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681760.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Terraformars: Revenge / Терраформеры [ТВ-2] [2016, TV, 13 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681758.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Hakuouki: Shinsengumi Kitan / Hakuouki / Хакуоки [2010, 12 эп.] SDTV 72
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_680845.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Kyuukyoku Choujin R | The Ultimate Esper "R" | Абсолютный Суперч
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680791.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Chitose Get You!! | Читосе добьется тебя! [2012, TV, 26] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680254.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Konosuba OVA | Kono Subarashii Sekai ni Shukufuku o! OVA | Этот замеча
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679986.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Denki-gai no Hon`ya-san | Denki-Gai no Honya-san | Книжный магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679120.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуда лучше
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678988.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Ojou-sama Sousamou | Debutante Detective Corps | Дебютный детекти
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678986.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Miyuki | Миюки [1983, TV, 37 из 37] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678982.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tetsu no Otome Jun | Iron Virgin Jun | Железная дева Дзюн [1992,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678971.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Rokujouma no Shinryakusha!? | Invaders of the Rokujyoma!? | Захватчики
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678731.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678727.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Shin Kaitei Gunkan / Super Atragon / Супер Атрагон [1995, OVA, 2 и�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678551.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Military! Шизомилитаризм! [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678166.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Klocki (2016) [Ru] (1.5) Repack WetGrapesStudio
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550737.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Room (2014) [Ru/En] (1.0.0) Repack xGhost
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545011.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Pure Chess (2016) [Ru/Multi] (1.0) Repack Other s [Grandmaster Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526432.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Peregrin (2017) [Ru/Multi] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526251.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The King Of Attention / Король внимания (2011) [Ru] (1.0.1) Licens
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524851.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Inscryption (2021) [Ru/Multi] (1.10) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521798.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tetris Effect (2019) [Multi] (1.0) License CODEX
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504948.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Insane Robots (2018) [En] (1.0.7/dlc) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495452.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.9) Repack D!akov
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493556.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Opus Magnum (2017) [Ru/Multi] (20180817) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487593.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Donut County (2018) [Ru/Multi] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487592.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Turner (2016) [En/Es] (1.5/dlc) License HI2U
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481750.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Mystery Solitaire: The Black Raven / Мистический солитер: Че
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447881.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Shiny Summer / Блестящее Лето (2020) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437566.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Nevaeh (2020) [Ru/Multi] (1.0.1010) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435491.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ LUMINES REMASTERED (2018) [Multi] (1.04) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432481.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Puzzle Dimension [Ru/Multi11] (RePack/1.0u12) 2010 | NSIS
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425905.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Crazy Machines 3 (2016) [Ru/Multi] (1.0.1) License RELOADED
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420348.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Jigsaw Boom 2 / Пазл Бум 2 [Ru] (P) 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406300.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Monopoly Plus (2017) [Ru/Multi] (1.0) Repack xatab
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394499.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Monopoly Plus (2017) [Ru/Multi] (1.0) License STEAMPUNKS
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393695.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ MONOPOLY PLUS (2017) [Ru/Multi] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393597.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Quantum Conundrum [En/Multi6] (Steam-Rip/1.0.8623.0/2 DLC) 2012 | R.G. Origins
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391678.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Iron Ladies 2048 (2018) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372115.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.10) Repack/Portable TryRooM
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371193.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Living Dungeon (2015) [En] (1.0) License SKIDROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350558.jpg" />
 </div>
 
 

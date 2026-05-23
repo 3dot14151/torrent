@@ -6,7 +6,7 @@ Renee Rosnes - Beloved Of The Sky (2018) Smoke Session Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457123.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Count Basie - Celebrating the Best of Jazz (2001) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457122.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vic Juris - Eye Contact (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457113.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Art Blakey & The Jazz Messengers - Farewell: Live At Sweet Basil (1985) 2CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457007.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Quincy Jones - The Quincy Jones ABC / Mercury Big Band Jazz Sessions (1959 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456975.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lionel Hampton - Paris Session (1956) 1989, EMI [FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456129.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Richie Beirach Trio - Trust (1996) /Evidence/[FLAC|tracks+.cue]<Post-Bop, Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456089.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sidney Bechet, Pee Wee Russell - Soprano And Clarinet (1953 - 1954) 1996, Da Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455815.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Donald Fagen - Donald Fagen's The Nightfly Live (2021) Japanese Edition [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455800.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gregory Porter - All Rise (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455773.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Al Jarreau - All Fly Home (1978) [FLAC|Lossless|image + .cue] <Soul-Jazz, Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455302.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bud Freeman - Chicago / Austin High School Jazz In Hi-Fi (1957) 2006, Mosaic Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455135.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ June Christy And The Stan Kenton Orchestra - The Complete Studio Recordings (194
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455133.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Will Davis Trio - Have Mood Will Call... (1959) 2017, Warner [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455117.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Diana Horta Popoff - Amor de Verdade (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455111.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Red Rodney - Then And Now (1992) Chesky Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454932.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Norah Jones - Day Breaks (Deluxe Edition) (2016) [FLAC|Lossless|image + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454823.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tony Bennett & Diana Krall - Love Is Here To Stay (2018) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454638.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stanley Cowell - Juneteenth (2014) 2015, Vision Fugitive [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454028.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Stanley Cowell Trio - Bright Passion (1993) SteepleChase [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454026.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stanley Cowell - Are You Real? (2014) SteepleChase [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454025.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stanley Cowell Trio - Close To You Alone (1990) DIW [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454023.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Stanley Cowell - Reminiscent: plus A Xmas Suite (2015) SteepleChase [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454022.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Bill Evans Trio featuring Stan Getz - But Beautiful (1974) /1996, Oldis/[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453997.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Jeff Lorber - Chuck Loeb - Everette Harp - Jazz Funk Soul (2014) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453939.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Phil Bodner - Once More With Feeling! (1960 - 1970) 2006, Arbors Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453833.jpg" />
 </div>
 
 

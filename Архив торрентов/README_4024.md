@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188726.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188718.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iZotope - Neutron 4 4.5.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188715.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Antivirus Removal Tool 2022.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188709.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Auslogics BoostSpeed 13.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188703.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Simple Sticky Notes 5.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188701.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SketchUp Pro 2023 23.1.319 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188687.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Windows 10 21H2 (19044.2251) x64 (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188686.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Native Instruments - Effects Plugins Pack 11.2022 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188682.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ IObit Driver Booster Pro 11.0.0.21 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188677.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Tipard Video Converter Ultimate 10.3.18 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188668.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Auslogics BoostSpeed 13.0.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188641.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ LDPlayer 9.0.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188638.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.3 Stable + Portable + Standa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188630.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ WinPaletter v1.0.6.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188622.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Visual Studio 2022 Enterprise 17.4.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188619.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Windows 10 22H2 (19045.2251) x64 (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188618.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Text Workflow 1.6.6  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188613.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ File List Export 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188610.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ MediaInfo for Mac 23.09 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188608.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Yoink 3.6.86  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188598.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Native Instruments - Guitar Rig 6 Pro 6.2.4 STANDALONE, VST, VST3, AAX (x64) [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188587.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ ZEDGE 8.17.0-beta Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188581.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ RJ TextEd 15.95.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188569.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ PDF Extra: сканер и редактор 10.5.2136 Lite-Mod by Number one' [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188565.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Opera GX 102.0.4880.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188542.jpg" />
 </div>
 
 

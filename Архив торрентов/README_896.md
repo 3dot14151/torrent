@@ -6,7 +6,7 @@ SUMo Pro 5.10.16.455 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842891.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sidify Apple Music Converter 1.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842887.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SQL Dynamite 2.5.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842882.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842881.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842870.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Stand Up (2016.04.03) SATRip (сезон 4, выпуск 6)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842868.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Flowjob - Party Trap (2011) [MP3|320 kbps] <Psytrance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842857.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Elevated Mix - Control Change EP (2011) [MP3|320 kbps] <Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842855.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ R-Studio 7.8 Build 161189 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842850.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Hands Up Dance Vol. 1 (14.03.2011) [MP3|320 kbps]<Trance, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842847.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Sky Technology - Next Visions (2011) [MP3|320 kbps] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842846.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Хмельной Хит (2011) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842842.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Cakewalk SONAR Platinum 23.2.0 Build 45 (2017.02) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842834.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Xinorbis 8.0.6 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842833.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ O&O ShutUp10 1.4.1387 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842832.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Inkscape 0.92.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842821.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Transmission 1.8.4-seq [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842819.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ YouTube By Click Premium 2.2.127 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842804.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ LosslessCut 3.21.0 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842798.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ SwitchResX 4.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842792.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Multi Commander Full Edition 9.7 Build 2590 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842791.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Bishoujo Senshi Sailor Moon Super S | Красавица-Воин Сейлор �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842789.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842761.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Haldolium - GLW - DRK (2011) [MP3|~202 kbps] <Psytrance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842759.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ B.B. King - Martin Scorsese Presents  The Blues (2003) [FLAC|Lossless]<Modern El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842750.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Unknown Error - Knight Time EP (2010) [MP3|192-320 kbps]<Drum'n'Bass, Dub Step>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842748.jpg" />
 </div>
 
 

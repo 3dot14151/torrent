@@ -6,7 +6,7 @@ Catwoman (2004) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hitman: Contracts (2004) [En] (1.74) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059063.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059017.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FlatOut 2 (2006) [Ru] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058395.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FlatOut (2004) [Ru] (1.1) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058181.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Need for Speed: Underground 2 (2004) [En] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057979.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057871.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Total Overdose (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057869.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057817.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057674.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Juiced (2005) [En] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057672.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057513.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055670.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054984.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053919.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052280.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051929.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051683.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051372.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051371.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051007.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050983.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050980.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Rome: Total War - Alexander (2006) [En] (v1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050968.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Total War: MEDIEVAL II (2) (2006) [En] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050967.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Total War: MEDIEVAL II (2) (2006) [Ru] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050966.jpg" />
 </div>
 
 

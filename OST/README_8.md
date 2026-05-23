@@ -6,7 +6,7 @@ Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724241.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720303.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактик
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720046.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720039.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Mil
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719727.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718648.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718142.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717915.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Thomas Newman - Зеленая миля / The Green Mile (1999) [MP3|320 kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717501.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716127.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716035.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715958.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712685.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706949.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Bear McCreary - Colossal / Моя девушка – монстр (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706938.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706478.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Joseph Bishara - The Conjuring 2 / Заклятие 2 (Music from the Motion Pic
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705868.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700997.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700454.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Салют-7 (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700434.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Арт
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700358.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700322.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Pict
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700321.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698789.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Dishonored 2 (Original Game Soundtrack) (2016) [MP3|200-275 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698684.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698462.jpg" />
 </div>
 
 

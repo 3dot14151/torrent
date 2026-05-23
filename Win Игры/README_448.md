@@ -1,29 +1,3 @@
-###  Публикация: 1740444   (48099) от 02.08.2024
-
-Gym Simulator 24 (2023) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Gym Simulator 24 - виртуальный тренажерный зал, который позволяет создать собственную империю тренировок и привлечь клиентов со всего мира. Начав со скромного и грязного зала, вам необходимо постепенно совершенствовать свое заведение, внедряя новое оборудование, удобства и услуги. Вы будете избалованы выбором тренажеров: беговых дорожек, велотренажеров, гребных тренажеров (   Читать дальше...   )Тип издания: RepackРазработчик: QuatechЖанр: Казуальные игры, Симуляторы, Спортивные игрыЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A15C76712C3B57FC56A025CB8CE8DC1B1D9536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646683   (48093) от 02.08.2024
 
 The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) License GOG
@@ -32,7 +6,7 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48093.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Backrooms: Survival (2022) [En] (1.28) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48087.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ogu and the Secret Forest / Огу и Таинственный Лес (2024) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48079.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Oblivion Override (2024) [Multi] (1.1.2.1574) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48038.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BioGun (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48024.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48016.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48012.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48008.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Great Houses of Calderia (2023) [En] (1.0.1.1337) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47998.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Back (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47988.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Mini Airways (2024) [Ru/Multi] (0.8.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47987.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47984.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Tomba! (2024) [Multi] (1.0) Scene TiNYiSO [Special Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47982.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ First Cut: Samurai Duel (2024) [En] (1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47974.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Scene SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47970.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47969.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.999/dlc) Repack Decepticon [Premium E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47940.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ DAISY THE SWIMMER (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47909.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Chicken Game (2024) [Multi] (1.0.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47891.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47890.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47884.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47879.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ms. Holmes 6: Letter M / Мисс Холмс 6: Буква М (2024) [Ru] (1.0) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47867.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Rising Star 2 (2020) [Multi] (1.0) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47857.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Super Life (RPG) (2019) [En] (2.2) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47853.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Super Life (RPG) – казуальный симулятор прогресса.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E6A6057F9B1963BE656F1570B56B3630B1EC426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740886   (47837) от 04.08.2024
+
+Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игровой процесс Sumerians основан на истории 3000-летия до нашей эры в Месопотамии, во времена быстрого роста поселений и развития шумерских городов. Игрок побывает в роли правителя и займется строительством собственного города, будет управлять ресурсами, планировать будущую инфраструктуру и пытаться совладать с экономикой. В процессе предстоит только улучшать город, (   Читать дальше...   )Тип издания: SceneРазработчик: Decumanus GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Английский, Испанский, Французский, НемецкийЯзык интерфейса: Английский, Испанский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

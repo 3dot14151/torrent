@@ -1,29 +1,3 @@
-###  Публикация: 1784109   (69655) от 09.03.2025
-
-Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приключения в Nine Sols переносят игроков в сеттинг восточного фэнтези, где предстоит сразиться против 9 Солов. Игра представляет собой двухмерный платформер с элементами соулслайк, где приходится сталкиваться с уникальными боссами. События происходят на территории Нового Куньлунь, что является убежищем для выживших. Древни боги оставили смертных, вынуждая их противостоять (   Читать дальше...   )Тип издания: RepackРазработчик: RedCandleGamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3437ED7E76B8A18A9E868B9B5755587B9E627D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784137   (69628) от 09.03.2025
 
 Lucky Season 2: End of the Rainbow (2025) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Lucky Season 2: End of the Rainbow (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69628.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Speedollama (2024) [Ru/Multi] (1.3.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69467.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Combat Mission: Red Thunder (2023) [En] (2.13/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69455.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69435.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Whispered Secrets 16: In the Cards (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69420.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Enchanted Stories: Mystic Woods (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69387.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69196.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69063.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Magical Mixture Mill (2024) [Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68254.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68036.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (0.6.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67734.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Synergy (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67728.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66739.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66449.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66419.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66147.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65896.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65891.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65804.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65798.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack seleZen [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65759.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65755.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65663.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65661.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65642.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C92CBA8643AE240C6D2090704D505A449CF77EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804407   (65641) от 29.06.2025
+
+Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куранари Такеши, обычный студент, посещает подводный тематический парк LeMU. Происходит авария, в результате которой Такеши и еще 6 человек остаются запертыми в LeMU, на глубине 51 м. Без надежды на спасение, Такеши обследует LeMU вместе с загадочной девушкой Цугуми и работницей на полставки Ю, пытаясь найти способ выбраться на поверхность.Тип издания: SceneРазработчик: MAGES. Inc.Жанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (традиционный)Язык интерфейса: Английский, Японский, Китайский (традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54AECE2A3A74F89F0C27842D655B059D563DE074
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Macgo Mac Blu-ray Player Pro 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265130.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TG Pro (Temperature Gauge Pro) 2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265098.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tipard Blu-ray Player for Mac 6.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265073.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ABBYY Lingvo Dictionary для Mac 1.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265071.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bartender 3 v.3.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265054.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Photoshop Lightroom Classic CC 2018 v7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264928.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BATTLETECH  v1.3.0.413r (25481) (2018) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264814.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Alfred 4 Powerpack 4.0.7 (1126) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264712.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Yate 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264711.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Debookee 7 v7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264710.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1697 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264709.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Application Wizard 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264703.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ DoYourData AppUninser Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264701.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Acorn 6 v6.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264700.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Duplicate File Finder Pro 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264678.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264675.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Things 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264443.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ DuplicateViewer 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264311.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ GarageSale 8 v8.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264310.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ ExactScan Pro 19.11 (build 19.11.12) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264309.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Allegorithmic Substance Designer 2019.2.2 (build 2644) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264292.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Folx Pro 5.13 (13905) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264286.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Pixelmator Pro 1.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264273.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Wondershare PDFelement Pro 7.5.4.282 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264267.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VideoProc (former MacX Video Converter Pro) 3.5 (build 20191121) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264255.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ ACDSee Photo Studio 6 v6.0.1484 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264250.jpg" />
 </div>
 
 

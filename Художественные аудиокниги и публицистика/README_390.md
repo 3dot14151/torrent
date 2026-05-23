@@ -1,81 +1,3 @@
-###  Публикация: 1222864   (680568) от 01.05.2018
-
-Александр Конторович | Купец (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Попав в поле зрения спецслужб, человек уже не принадлежит себе. Никто не обязан учитывать его желания и считаться с его запросами. Чтобы обеспечить покой своей жены и еще не родившегося сына, Беглец соглашается вернуться в «Зону-31». На этот раз – уже не в роли Бродяги, ему поставлена задача, которую невозможно выполнить в одиночку. В команду Петра входят серьёзные (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПостапокалипсисПродолжительность: 08:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37A09AA538C4E2F851B95BD929980BE57F482D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135171   (680537) от 19.05.2017
-
-Терри Пратчетт | Плоский мир. Ведьмы (Книга 1). Творцы заклинаний (2017) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Всем известно, что в Плоском мире волшебниками могут быть только мужчины. Более того, волшебный посох может быть передан только восьмому сыну восьмого сына. Но в этот раз произошла серьезная ошибка….. Посох оказался у девочки. Впервые представительнице слабого пола суждено переступить порог Незримого Университета в Анк-Морпорк, где до этого никогда не училась ни (   Читать дальше...   )Жанр: ФэнтезиИздательство: ИД СОЮЗПродолжительность: 08:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7D6E3A692A9CEA09FE56AB559EB909BAECCAA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535951   (680389) от 09.03.2022
-
-Иван Любенко | Клим Ардашев (Книга 20). Путешествие за смертью (Том 1). Могильщик из Таллина (2022) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Таллине, в церкви Святого Олафа, в спину органиста вонзается стрела, а в музее братства Черноголовых пропадает складной золотой алтарь работы Яна ван-Эйка. Климу Ардашеву придётся разобраться, что объединяет четыре ноты, дописанные в партитуру погибшего музыканта, древнеримскую эпитафию на старом склепе и сражение времён Ливонской войны. Расследование осложняется (   Читать дальше...   )Жанр: Исторические детективыПродолжительность: 06:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488E9BA896D49E4FE550EA899D4D86615D1081A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536009   (680385) от 09.03.2022
 
 Андрей Ткачев, Иван Смирнов | Путь крови. В начале пути (Том 2) (2022) [MP3, Дмитрий Патрикеев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680385.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680384.jpg" />
 </div>
 
 
@@ -140,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680342.jpg" />
 </div>
 
 
@@ -166,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680340.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680295.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680289.jpg" />
 </div>
 
 
@@ -248,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680245.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680244.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680243.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680190.jpg" />
 </div>
 
 
@@ -355,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680136.jpg" />
 </div>
 
 
@@ -381,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680073.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680044.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679974.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679972.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679899.jpg" />
 </div>
 
 
@@ -512,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679716.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679713.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679608.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679585.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679578.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679244.jpg" />
 </div>
 
 
@@ -670,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679137.jpg" />
 </div>
 
 
@@ -681,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D77370B414EB83F3435F231734DDFC1622E02D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135507   (679134) от 20.05.2017
+
+Сол Шульман | Terra Incognita: Когда звери еще были людьми (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679134.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Австралии полна приключений и загадок. Неведомая земля начала будоражить умы европейцев еще задолго до ее открытия. Это континент удивительного животного мира, уникальной человеческой расы, золота и надежд. Книга рассказывает о превращении страны из места ссылки воров и убийц в одну из самых процветающих в мире. Эпохи великих морских открытий и не менее великих, (   Читать дальше...   )Жанр: Путешествия и географияПродолжительность: 08:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8669CD23D9477985D8716C838F5ED561E367E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 336787   (679006) от 14.05.2011
+
+Алистер Маклин | Сатанинский микроб (2011) [MP3, Николай Козий]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть шотландского писателя Алистера Маклина "Сатанинский микроб" посвящена острой и злободневной теме - опасности бактериологического оружия. В ней слиты элементы детективные и приключенческие. Развитие действия напряженное, стремительное, изобилующее неожиданными поворотами событий.Жанр: ДетективПродолжительность: 08:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E2A28316E7E31D9049448A3CE044E5E0369A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135512   (678980) от 20.05.2017
+
+Георгий Иванов | Мемуары. Литературная критика (2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Георгий Владимирович Иванов родился 11 ноября 1894 года в Студенках Ковенской губернии. Юность провел в Петербурге. Печататься начал рано, с 1910 года. Первую свою книгу - "Отплытье на о.Цитеру" - издал в 1911 году. После смерти Гумилева становится во главе "Цеха поэтов". В октябре 1922 года вместе с женой Ириной Одоевцевой покидает Россию. Живет (   Читать дальше...   )Жанр: МемуарыПродолжительность: 30:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDBE59566D284DF90C54DD9C4EB60B69C0B03B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

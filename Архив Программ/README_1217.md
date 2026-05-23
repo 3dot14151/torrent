@@ -6,7 +6,7 @@ Encrypto 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YTD Video Downloader PRO 5.9.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426884.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Reader DC 2015.009.20069 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426821.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SoftPerfect Network Scanner 6.0.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426815.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Freemake Video Converter 4.1.7.3 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426812.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SoftPerfect Network Scanner 7.1.7  + Portable[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426755.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426702.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Norton AntiVirus 22.5.4.24 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426699.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Acrobat XI Pro 11.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426690.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Acrobat Pro DC 2015.009.20069 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426688.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SoftPerfect NetWorx 6.2.2.18239 DC 27.08.2018 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426604.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AOMEI Partition Assistant Technician Edition 7.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426599.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ TechSmith SnagIt 2018.2.2 Build 2240 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426596.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Skype 8.31.0.92 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426595.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Office 2013-2016 C2R Install 4.6.1 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426503.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ LibreOffice 5.4.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426455.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Malwarebytes AdwCleaner 7.2.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426297.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Viber 6.9.5.1170 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426277.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ oCam 421.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426267.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Windows 7 Ultimate SP1 x64 09.2018 v.1.1 by DrozD [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426143.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ ACDSee Photo Studio Ultimate 2019 12.0.1593 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426134.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Torch Browser 57.0.0.12335 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426123.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Mozilla Thunderbird 50 beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426083.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425959.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Process Lasso Pro 8.9.8.52 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425947.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Total Uninstall 6.17.1 Professional Edition RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425944.jpg" />
 </div>
 
 

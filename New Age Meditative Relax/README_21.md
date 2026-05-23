@@ -6,7 +6,7 @@ Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389699.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387183.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386993.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383646.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Dominique German - God's Peace (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382955.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - The Worlds Most Beautiful Flute Music. Instrumental Dreams (2004) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382578.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Aeoliah - Sacred Mantras (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381082.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Galactic Agents - Human Contact (2002) [MP3|320 Kbps] <New Age, Worldbeat, Nativ
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380610.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376026.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374343.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Karunesh - 6 albums (1996-2012) [MP3|320 kbps]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372380.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366159.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363730.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sad Music Zone - Emotional Sad Music (2015) [MP3|320 кб/с]<Instrumental,Easy 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363470.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Steinar Lund - 3 albums (2001-2004) [MP3|320 kbps]<New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363422.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Longhouse - Native Chants (2019) [MP3|192 Kbps] <Native American, World, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361019.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy List
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359651.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Gavri - Global Inspiration (2006) [MP3|320 Kbps] <New age, World beat, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359061.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Two Steps from Hell - Illumina (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358743.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Enigma - The Fall Of A Rebel Angel (Limited Deluxe) (2016) [MP3|320 Kbps] <Downt
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358680.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ DJ Taz Rashid - A Story of Satori (2015) [MP3|320 Kbps] <New age, World music, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356422.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_355050.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Greg Maroney - Fall (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354271.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Toskana & Chakra's Dream - Chakra Meditation Music (2018) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354150.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Dreamline 3 (2017) [MP3|320 Kbps] <New Age, Balearic, Leftfield>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353705.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352360.jpg" />
 </div>
 
 

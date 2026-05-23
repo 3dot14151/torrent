@@ -1,29 +1,3 @@
-###  Публикация: 1212879   (774058) от 14.03.2018
-
-The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лондон, 1964 год. Из Британского музея пропал древний рубин, на месте преступления обнаружено вороново перо. Неужели кто-то пытается подражать знаменитому вору по кличке Ворон?T he Raven Remastered — полностью перерисованная игра с детективной историей, рассказанной от лица нескольких героев.Тип издания: LicenseРазработчик: KING ArtЖанр: Adventure, Quest, IndieЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE09F03579BFCE98C20303D8510DA74CB0E704C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278054   (774029) от 23.01.2019
 
 Block'hood (2017) [Ru/Multi] (1.1.25) License GOG
@@ -32,7 +6,7 @@ Block'hood (2017) [Ru/Multi] (1.1.25) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774029.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Q U B E  2 / Q.U.B.E.2 (2018) [Ru/Multi] (1.0.0.7) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774015.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack Other s [Del
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774001.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cosmochoria (2015) [En] (1.18.4) Repack ARMENIAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773990.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773943.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.1/dlc) License PLAZA [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773911.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Braid (2009) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773909.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Grim Tales 15: The Hunger (2018) [En] (1.0) Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773177.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Path of Sin: Greed (2018) [En] (1.0) Unofficial [Collector's Edition / Колл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773170.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Vermillion Watch 5: London Howling / Алый Дозор 5: Волки в Лон
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773008.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Fantasy Mosaics 31: First Date (2018) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772840.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Maze 5: Sinister Play (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772801.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Council of Hanwell (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772770.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Ride 2 (2016) [Multi] (20170224/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772768.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Planescape Torment (2017) [Multi] (3.0.3.0) License CODEX [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772738.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Sexy Brutale (2017) [En] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772736.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Tinertia (2015) [Multi] (2.0/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772735.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ ZAMB! Endless Extermination (2019) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772646.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772643.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Slay the Spire (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772529.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772527.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Space Tycoon (2019) [En/Ch] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772526.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ No Man's Sky (2016) [Ru/Multi] (1.77/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772509.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Britannic: Patroness of the Mediterranean (2020) [En] (1.0.85) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772492.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Daymare: 1998 (2019) [Ru/Multi] (10545) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772431.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ DAYMARE: 1998 – это хоррор-игра на выживание от тр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3BBCAA436F6FC2CF86EC73ED5970B17BCC106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278370   (771839) от 25.01.2019
+
+Maze 4: Stolen Minds (2018) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771839.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгого рабочего дня вы едете в машине - и вдруг как будто из ниоткуда на дороге появляется незнакомец. Так в одно мгновение вы стали пленницей. Какие эксперименты провел над вами незнакомец, что вы стали видеть призраков? Сможете ли вы отличить иллюзию от реальности и сбежать от безумца, пока не стало слишком поздно?Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA38B62C874DC1D8ED1517E880637AC5A2826573
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ StartIsBack++ 2.8.8 StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496301.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Polarity 7.0.8 Build 647 [En] (Online-Installer)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496300.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sleipnir 6.1.8.4000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496283.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reviversoft Registry Reviver 4.2.3.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496282.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496263.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VMware Workstation 12 Pro 12.5.0 build 4352439 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496257.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dism++ 10.1.11.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496241.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wise Care 365 Pro 1.84.139 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496215.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Opera Next 12.50.1581 (x86+x64) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496204.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ MAGIX Vegas Pro 17.0.0.284 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496192.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Gilisoft Privacy Protector 7.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496170.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AkelPad 4.9.5 + Portable + All Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496165.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Vivaldi 1.0.270.16 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496161.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Actual Multiple Monitors 8.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496159.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AnyToISO Converter Professional Portable by Baltagy 3.4.1 build 445 [Mульти
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496074.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mozilla Firefox 16.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496073.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wondershare PDFelement 5.6.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496067.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Avira Browser 45.0.2454.46 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496064.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VSO ConvertXtoDVD 5.3.0.24 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496061.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Aiseesoft Video Converter Ultimate 9.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496058.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Daum PotPlayer 1.6.56209 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496056.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Daum PotPlayer 1.6.56209 DC 10.09.2015 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496055.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ultimate Settings Panel 5.0.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496036.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MAGIX Sound Forge Pro 11.0 Build 345 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495997.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VMware Workstation 12 Pro 12.5.0 build 4352439 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495991.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Aiseesoft Video Downloader 7.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495989.jpg" />
 </div>
 
 

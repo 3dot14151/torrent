@@ -1,33 +1,3 @@
-###  Публикация: 561551   (406104) от 17.10.2012
-
-[Wallpapers] WideScreen с нескольких сетей... update_28  (1680х1050-9000х6384)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эти обои, картинки, фотографии были удалены с рабочих компьютеров УСЁРОВ нескольких сетей.
-Обои размещены в папках по 1000 штук, чтобы просмотрщики графики ворочались побыстрее.
-В основном разрешение 1920х... и еще больше. Очень много красивых фотографий (скорее всего надергали с ЯФ)
-Встречаются к сожалению дубли, все это скачивалось несколькими сотнями USERов, с разными разрешениями, под разными названиями иногда одного и того-же...
-Вкусы у всех разные, поэтому выбирайте кому что нравится и сами создавайте раздачи по темам, по размерам!Разрешение файлов: 1680х1050-9000х6384
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170A290256D0EB6D5297D6FF6973D64F87D6D733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561718   (406098) от 17.10.2012
 
 [Рисованая графика] Artworks by Anne Stokes
@@ -36,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406098.jpg" />
 </div>
 
 
@@ -62,7 +32,7 @@ Nature Wallpapers (17.10.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405981.jpg" />
 </div>
 
 
@@ -88,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405965.jpg" />
 </div>
 
 
@@ -116,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405964.jpg" />
 </div>
 
 
@@ -144,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405959.jpg" />
 </div>
 
 
@@ -172,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405957.jpg" />
 </div>
 
 
@@ -200,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405954.jpg" />
 </div>
 
 
@@ -228,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405876.jpg" />
 </div>
 
 
@@ -254,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405865.jpg" />
 </div>
 
 
@@ -280,7 +250,7 @@ Frans Mensink [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405706.jpg" />
 </div>
 
 
@@ -306,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405635.jpg" />
 </div>
 
 
@@ -334,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405632.jpg" />
 </div>
 
 
@@ -362,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405615.jpg" />
 </div>
 
 
@@ -390,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405512.jpg" />
 </div>
 
 
@@ -418,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405481.jpg" />
 </div>
 
 
@@ -444,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405265.jpg" />
 </div>
 
 
@@ -474,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405225.jpg" />
 </div>
 
 
@@ -500,7 +470,7 @@ Pixiv Artist - Mii~ina [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404914.jpg" />
 </div>
 
 
@@ -526,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404903.jpg" />
 </div>
 
 
@@ -552,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404775.jpg" />
 </div>
 
 
@@ -578,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404766.jpg" />
 </div>
 
 
@@ -604,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404761.jpg" />
 </div>
 
 
@@ -630,7 +600,7 @@ Herika Noronha [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404753.jpg" />
 </div>
 
 
@@ -656,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404691.jpg" />
 </div>
 
 
@@ -682,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404649.jpg" />
 </div>
 
 
@@ -693,6 +663,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E2DBD21C06B00520ECA831F2039588CFFB9EB47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562778   (404638) от 21.10.2012
+
+Artworks by Derek Jones [Графика]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Derek Jones
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A858DB00B8FFE7AA8EEDF81038E32AF816D57186
 ```
 
 https://mybot314.ru/tekegram_catalog/

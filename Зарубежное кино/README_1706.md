@@ -1,55 +1,3 @@
-###  Публикация: 1608233   (203411) от 29.01.2023
-
-Оборотень: Фильм / Teen Wolf: The Movie (2023) WEB-DL [H.265/1080p] [10-bit] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В городе Бикон-Хиллз появилось ужасающее зло. Волки снова воют, призывая вернуться Банши, Верекойотов, Адских гончих, Кицунэ и всех остальных ночных оборотней. Но только такой оборотень, как Скотт МакКолл, уже не подросток, но еще альфа, может собрать новых союзников и воссоединить проверенных друзей, чтобы дать отпор самому могущественному и смертоносному врагу, (   Читать дальше...   )Производство: США, MGM Television, MTV Entertainment Studios, Orion TelevisionЖанр: фэнтези, боевик, триллер, драма, мелодрамаРежиссер: Расселл МалкэйАктеры: Тайлер Пози, Кристал Рид, Холлэнд Роден, Тайлер Хэклин, Шелли Хенниг, ДжейАр Борн, Колтон Хэйнс, Линден Эшби, Мелисса Понцио, Райан КеллиПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русский (SDH), Английские (SDH)Продолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5FF1185F66D2CE07961FD0D84EED2018C7387F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608270   (203402) от 29.01.2023
-
-Оборотень: Фильм / Teen Wolf: The Movie (2023) WEB-DL [H.265/2160p] [4K, SDR] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В городе Бикон-Хиллз появилось ужасающее зло. Волки снова воют, призывая вернуться Банши, Верекойотов, Адских гончих, Кицунэ и всех остальных ночных оборотней. Но только такой оборотень, как Скотт МакКолл, уже не подросток, но еще альфа, может собрать новых союзников и воссоединить проверенных друзей, чтобы дать отпор самому могущественному и смертоносному врагу, (   Читать дальше...   )Производство: США, MGM Television, MTV Entertainment Studios, Orion TelevisionЖанр: фэнтези, боевик, триллер, драма, мелодрамаРежиссер: Расселл МалкэйАктеры: Тайлер Пози, Кристал Рид, Холлэнд Роден, Тайлер Хэклин, Шелли Хенниг, ДжейАр Борн, Колтон Хэйнс, Линден Эшби, Мелисса Понцио, Райан КеллиПеревод: Любительский двухголосый (Pazl Voice, Кероб)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D8774C4389A59D5C9DFDDE96C5D024BE46C9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608115   (203398) от 29.01.2023
 
 Что за люди / You People (2023) WEB-DLRip [H.264/720p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203398.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203395.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203389.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203383.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203381.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203371.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203364.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203363.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203342.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203341.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203338.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203334.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203326.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203297.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203291.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203278.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203272.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203259.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203253.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203248.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203244.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203243.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203241.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203236.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A07F943B599111505532F512A93673866FD84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608796   (203232) от 01.02.2023
+
+Что за люди / You People (2023)  WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения между двумя миллениалами из Лос-Анджелеса приводят к столкновению двух разных семей и культур. Впереди у них главное испытание - знакомство с родителями.Производство: США / Misher Films, Netflix, Khalabo Ink Society, Strong BabyЖанр: мелодрама, комедияРежиссер: Кенья БеррисАктеры: Джона Хилл, Лорен Лондон, Эдди Мерфи, Джулия Луи-Дрейфус, Сэм Джей, Ниа Лонг, Трэвис Беннетт, Дэвид Духовны, Молли Гордон, Дион КоулПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH, Full)Продолжительность: 01:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCB32B2C2ACCE099B6F165B091FBFBF0BCAF38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609265   (203216) от 02.02.2023
+
+Аладдин / Aladdin (2019) UHD BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой воришка по имени Аладдин хочет стать принцем, чтобы жениться на принцессе Жасмин. Тем временем визирь Аграбы Джафар намеревается захватить власть над Аграбой, а для этого он стремится заполучить волшебную лампу, хранящуюся в пещере чудес, доступ к которой разрешен лишь тому, кого называют «алмаз неограненный», и этим человеком является не кто иной, как сам (   Читать дальше...   )Производство: Великобритания, США, Австралия / Walt Disney Pictures, Lin Pictures, RidebackЖанр: мюзикл, фэнтези, мелодрама, приключенияРежиссер: Гай РичиАктеры: Мена Массуд, Наоми Скотт, Уилл Смит, Марван Кензари, Навид Негабан, Назим Педрад, Билли Магнуссен, Джордан А. Нэш, Талия Блэр, Обри ЛинПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F140C62B79AE99422139772F7B0F3384377773DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

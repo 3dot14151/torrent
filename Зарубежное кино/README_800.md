@@ -1,57 +1,3 @@
-###  Публикация: 1400528   (691898) от 19.08.2020
-
-Большие надежды / Great Expectations (1998) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Когда юный Финн впервые увидел прекрасную Эстеллу, сердце его разбилось. Несмотря на предсказание, гласящее о том, что страсть к Эстелле не принесет ему ничего хорошего, Финн поклялся завоевать прекрасную девушку. Годы спустя, стараниями таинственного благодетеля, молодой художник Финн оказывается в Нью-Йорке, где опять встречает свою неразделенную любовь. Но в тот (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Art Linson ProductionsЖанр: Драма, мелодрамаРежиссер: Альфонсо КуаронАктеры: Итан Хоук, Гвинет Пэлтроу, Хэнк Азария, Крис Купер, Энн Бэнкрофт, Роберт Де Ниро, Джош Мостел, Ким Диккенс, Нелл Кэмпбелл, Гэбриел МаннПеревод: Профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCEE1E730F2EECA03DF54416E297BCEE9340691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288947   (691832) от 13.03.2019
-
-Предельная глубина / Submerged (2005) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Крис Коди — самый независимый агент по борьбе с терроризмом — борется за жизнь глубоко в морской пучине. Борется не только со стихией, но и с предательством.
-Еще совсем недавно он был узником военной тюрьмы. Его освободили по распоряжению Президента США для выполнения особо важного задания. Он должен выявить и уничтожить убийц посла США в одной из стран мира.
-Но (   Читать дальше...   )Производство: США, Великобритания, Болгария / Millennium Films, Emmett/Furla/Oasis Films (EFO Films), Luminosity MediaЖанр: Боевик, ТриллерРежиссер: Энтони ХикоксАктеры: Стивен Сигал, Кристин Адамс, Уильям Хоуп, Ник Бримбл, Винни Джонс, Элисон Кинг, П.Х. Мориарти, Гэри Дэниелс, Росс МакКолл, Стивен ТейлорПеревод: Многоголосый, АвторскийСубтитры: Русские (full), Английские (full)Продолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DA569A79FFEB9E2AEF2EFBCD44A9D4D718F1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402278   (691810) от 19.08.2020
 
 Инцидент «Феникс» / The Phoenix Incident (2015) WEB-DLRip] [DVO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691810.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691809.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691807.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691799.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691798.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691796.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691794.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691772.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691730.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691716.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691638.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691630.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691579.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691560.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691493.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691449.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691401.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691398.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691395.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691390.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691388.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691385.jpg" />
 </div>
 
 
@@ -636,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691383.jpg" />
 </div>
 
 
@@ -662,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691288.jpg" />
 </div>
 
 
@@ -673,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F1958459279514AAD2DD9DC6E2CBAAF7E2D7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896435   (691282) от 10.05.2015
+
+Дикая / Wild (2014) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691282.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета Шерил Стрэйд, раздавленная неудавшимся браком и смертью матери и потерявшая всякую надежду на счастье женщина, отправляется в пешее странствие по территории Pacific Crest Trail — маршруту по наиболее высоким участкам хребта Сьерра-Невада и Каскадных гор. Испытания, выпавшие в этом опасном одиночном путешествии на долю героини, неминуемо исцеляют ее (   Читать дальше...   )Производство: СШАЖанр: Драма, БиографияРежиссер: Жан-Марк ВаллеАктеры: Риз Уизерспун, Лора Дерн, Томас Садоски, Кин МакРей, Михил Хаушман, У. Эрл Браун, Гэби Хоффманн, Кевин О. Ранкин, Брайан Ван Холт, Клифф Де Янг, Мо, Уилл Кадди, Ли Паркер, Ник Эверсман, Аллес Мист, Рэнди Шульман, Катрин Де Прюм, Курт Конройд, Тед ДеШатле, Джеффри НьюманПеревод: Дублированный (Лицензия BD EUR); Многоголосый закадровый (Цікава ідея)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B11FC53B3A8F5627E1C9A6C1D4725AB443F6E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221650   (691130) от 26.04.2018
+
+Величайший шоумен / The Greatest Showman (2017) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финеас Тейлор Барнум всегда мечтал войти в историю, но все его занятия не приносили ему удовольствия. И когда, казалось, весь мир обернулся против него, он решает пойти вслед за своей мечтой. Барнум создает завораживающее представление-сенсацию, которое стало рождением мирового шоу-бизнеса.Производство: США, 20th Century Fox Film CorporationЖанр: Драма, биография, мюзиклРежиссер: Майкл ГрэйсиАктеры: Хью Джекман, Зак Эфрон, Мишель Уильямс, Ребекка Фергюсон (II), Зендея, Кила Сеттл, Яхья Абдул-Матин II, Остин Джонсон, Эллис Рубин, Скайлар ДаннПеревод: Дублированный (Лицензия BD CEE)Субтитры: Английские, японские, русские, французские, испанские, датские, голландские, финские, немецкие, итальянские, норвежские, шведские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2AB9DD97E75388C0712211326E617EA54510839
 ```
 
 https://mybot314.ru/tekegram_catalog/

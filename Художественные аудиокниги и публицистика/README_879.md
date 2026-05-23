@@ -1,85 +1,3 @@
-###  Публикация: 352753   (134769) от 27.11.2023
-
-Борис Лавренев | Сорок первый (2006) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Союз классика. Советская классическая проза.
-Борис Андреевич Лавренев (1891-1959), русский советский писатель, прозаик, публицист, драматург, лауреат двух Сталинский премий (1946, 1950).
-По желтым пескам Средней Азии идет отряд красноармейцев. Всего вырвались из смертельного круга в бархатной котловине Евсюков, двадцать три и Марютка - лучший стрелок отряда, (   Читать дальше...   )Жанр: Русская литература, классика, драма, повестьИздательство: Издательский дом «Союз»Продолжительность: 01:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71857C60B3FC07CE878108BC9829F11742F833F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680191   (134581) от 28.11.2023
-
-Алан Александер Милн | Слишком поздно (2018) [MP3, Сергей Дадыко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Алан Александр Милн (1882—1956) в первую очередь известен как автор повестей о Винни-Пухе, однако его перу принадлежат также и «взрослые» романы, пьесы и эссе.
-«Слишком поздно» – остроумная и необыкновенно честная книга. Писатель создал великолепное произведение о времени и себе, близкое скорее к художественной, нежели к мемуарной прозе. Читателю предстоит окунуться (   Читать дальше...   )Жанр: Зарубежная литература, классика, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 10:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D2E4C2FADD6BBABF9CA0D9E34552F5AD2D2E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680205   (134573) от 28.11.2023
-
-Мигель де Сервантес Сааведра | Хитроумный идальго Дон Кихот Ламанчский (2013) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Роман «Хитроумный идальго Дон Кихот Ламанчский» был написан великим испанским писателем Мигелем де Сервантесом Сааведрой (1547-1616). Автор рассказывает, как герои его книги рыцарь и оруженосец, странствуют в поисках добра, справедливости и красоты по необъятным просторам своей многострадальной родины.
-Идеи Сервантеса о защите слабых и угнетенных, как о священном (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 54:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FA60DCCC9717D526901484D0EF2258C9D0FA7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680185   (134565) от 28.11.2023
 
 Алан Александер Милн | Столик у оркестра (2004) [MP3, Владимир Самойлов]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134565.jpg" />
 </div>
 
 
@@ -115,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134549.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134545.jpg" />
 </div>
 
 
@@ -168,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134503.jpg" />
 </div>
 
 
@@ -197,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134305.jpg" />
 </div>
 
 
@@ -223,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134303.jpg" />
 </div>
 
 
@@ -249,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134301.jpg" />
 </div>
 
 
@@ -275,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134273.jpg" />
 </div>
 
 
@@ -303,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134097.jpg" />
 </div>
 
 
@@ -331,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134079.jpg" />
 </div>
 
 
@@ -359,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134075.jpg" />
 </div>
 
 
@@ -387,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134041.jpg" />
 </div>
 
 
@@ -414,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134021.jpg" />
 </div>
 
 
@@ -442,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133963.jpg" />
 </div>
 
 
@@ -468,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133962.jpg" />
 </div>
 
 
@@ -494,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133943.jpg" />
 </div>
 
 
@@ -522,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133922.jpg" />
 </div>
 
 
@@ -557,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133917.jpg" />
 </div>
 
 
@@ -584,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133899.jpg" />
 </div>
 
 
@@ -610,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133890.jpg" />
 </div>
 
 
@@ -637,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133846.jpg" />
 </div>
 
 
@@ -664,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133837.jpg" />
 </div>
 
 
@@ -691,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133822.jpg" />
 </div>
 
 
@@ -703,6 +621,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64B039AB12ADEE87D8213FBE15CFA1457D0F92D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680785   (133789) от 30.11.2023
+
+Дмитрий Биленкин | Гениальный дом (2023) [MP3, Червь Книжный]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспериментальный «кристалл» был брошен на полянку и из него за 17 минут вырос дом, предназначенный для полного жизнеобеспечения человека......Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BB7C7D71A6EFC5C35A3F68161EEE91E983954B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594373   (133637) от 26.12.2012
+
+Жозе Сарамаго | Каин [2012] [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жозе Сарамаго, великий португальский писатель и лауреат Нобелевской премии по литературе, в своем творчестве - с одной стороны, убежденный марксист и член коммунистической партии, а с другой — несравненный философ современности - занимался вопросами религии и, можно так сказать, переписывал Библию. Его «Евангелие от Иисуса» предложило непривычный взгляд на сюжет, (   Читать дальше...   )Жанр: современная проза, роман, зарубежная прозаИздательство: Нигде не купишь
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E79322B9FF5DC62099C2330C2538078D089F609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333059   (133628) от 30.11.2023
+
+Борис Пастернак | Стихи разных лет (2006) [MP3, Сергей Парфёнов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Поэтическая библиотека».
+Борис Леонидович Пастернак (1890–1960) – величайший лирик XX столетия. За более чем полувековой период творчества он создал стихотворения, вошедшие в сокровищницу мировой поэзии. В 1958 году за роман «Доктор Живаго» Борис Пастернак был удостоен Нобелевской премии. Содержание сборника составили стихи разных циклов, произведения, напечатанные (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 03:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15B9B7359E735CBB9A2FB3E1311725DF4F4FD29
 ```
 
 https://mybot314.ru/tekegram_catalog/

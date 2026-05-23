@@ -1,119 +1,3 @@
-###  Публикация: 684824   (617897) от 29.07.2013
-
-Новая Волна 2013. Международный конкурс молодых исполнителей. День 1-6 (2013) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу в концертный зал "Дзинтари". Участники конкурсной программы уже прошли сложные региональные, окружные и национальные отборочные туры в России, Украине, Белоруссии, Армении, Финляндии и Латвии. Россию в этом году представят: группа FRUKTЫ, Арсений Бородин, группа (   Читать дальше...   )День 1
-01. Диcкотека Авария - Ноги
-02. Ани Лорак - Зажигай сердце
-03. В.Меладзе/Валерия - Не теряй меня(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 6 x ~ 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CD890307691736AC805DA0231486434C41C608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 352275   (617819) от 19.06.2011
-
-Сурганова и оркестр - Концерт на Красной площади   (2011.12.06) TvRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Светлана Сурганова и оркестр на гала-концерте «Россия молодая» в Москве на Красной площади 12. 06. 2011 года, в рамках празднования Дня России.
-Cветлана Яковлевна Сурганова поздравила всех с праздником и пожелала стране мудрых правителей..
-1.	Я не жалею
-.
-2.	ВеснаЖанр: VIP-Punk-DecadenceПродолжительность: 00:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEF43A7FEF0EDB969760C51F15CCFE329B60236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036988   (617172) от 22.07.2016
-
-Savage Garden - The Video Collection (1998) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1.	Program Start
-2.	I Want You
-3.	To The Moon & Back
-4.	Truly Madly Deeply(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетЯзык субтитров: English (lyrics)Продолжительность: 00:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FC34EE0590FC8FB44DF7DEA4EBB980985B5E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523704   (616473) от 16.07.2012
-
-Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Видеография группы Girls' Generation (SNSD)
-
-Girls' Generation (аббревиатура So Nyeo Shi Dae - SNSD)- корейская группа которая состоит из девяти девушек: Лим Юна (Lim Yoona), Стефани Хвон (Tiffany), Квон Юри (Kwon Yuri), Ким Хёён (Kim Hyoyeon), Чхве Суён (Choi Sooyoung), Сэ Чжихён (Сэхён (Seo Juhyun (Seohyun))), Ким Тэён (Kim Taeyeon), Джессика Чон (Jessica Jung), (   Читать дальше...   )Жанр: POP (kpop)Перевод: ОригинальныйСубтитры: Корейские, Японские, Китайские, Английские (вконверчены в некоторые файлы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D1FD9FD137642EA1B2990849A1716C6CE45179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523586   (616471) от 16.07.2012
 
 Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
@@ -122,7 +6,7 @@ Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616471.jpg" />
 </div>
 
 
@@ -157,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616416.jpg" />
 </div>
 
 
@@ -186,7 +70,7 @@ Celtic Woman - Believe (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616277.jpg" />
 </div>
 
 
@@ -215,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615923.jpg" />
 </div>
 
 
@@ -241,7 +125,7 @@ Sensation 2011 - Celebrate Life / St. Petersburg Russia (2011) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615755.jpg" />
 </div>
 
 
@@ -273,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615612.jpg" />
 </div>
 
 
@@ -299,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615135.jpg" />
 </div>
 
 
@@ -325,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_614497.jpg" />
 </div>
 
 
@@ -351,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614320.jpg" />
 </div>
 
 
@@ -381,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614048.jpg" />
 </div>
 
 
@@ -407,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613919.jpg" />
 </div>
 
 
@@ -437,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612373.jpg" />
 </div>
 
 
@@ -467,7 +351,7 @@ Garbage - Live at Festival Beauregard (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611151.jpg" />
 </div>
 
 
@@ -502,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611149.jpg" />
 </div>
 
 
@@ -531,7 +415,7 @@ Madonna - MDNA Tour (Live in Abu Dhabi) (2012) CAMRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611053.jpg" />
 </div>
 
 
@@ -560,7 +444,7 @@ Aerosmith / Rock for the Rising Sun (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611009.jpg" />
 </div>
 
 
@@ -589,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609434.jpg" />
 </div>
 
 
@@ -620,7 +504,7 @@ Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607502.jpg" />
 </div>
 
 
@@ -646,7 +530,7 @@ AC/DC: Let There Be Rock (1980/2011) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607217.jpg" />
 </div>
 
 
@@ -675,7 +559,7 @@ Queen - Rock Montreal & Live Aid (1981) Blu-ray [H.264/1080p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605996.jpg" />
 </div>
 
 
@@ -704,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605943.jpg" />
 </div>
 
 
@@ -730,7 +614,7 @@ AC/DC-No Bull (Live from Plaza De Toros De Las Ventas, Madrid, Spain) (1996) DVD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_605225.jpg" />
 </div>
 
 
@@ -744,6 +628,120 @@ AC/DC-No Bull (Live from Plaza De Toros De Las Ventas, Madrid, Spain) (1996) DVD
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913357   (605021) от 29.06.2015
+
+Мурат Тхагалегов: Всем красавицам Кавказа (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия первого сольного концерта. Популярный певец посвятил сольник всем девушкам Кавказа и не только! В исполнении кавказского "Казановы" прозвучат известные композиции и новые произведения, которые просто обречены стать хитами!01. Аслан Кушхов и ансамбль народного танца "Кафа" - Интро
+02. Мурат Тхагалегов - Казанова
+03. Мурат Тхагалегов - Одна ночь
+04. Мурат Тхагалегов - Плачут раны(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E29F7283204448E900A88E690ABE12479EEFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297304   (604054) от 22.04.2019
+
+Квартирник НТВ у Маргулиса. Женя Любич (20.04.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604054.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске в гости к Евгению Маргулису пришла «русская француженка» Женя Любич. В России о ней узнали как об участнице французской музыкальной группы Nouvelle Vague: она с ними часто и много выступала как в Париже, так и за пределами Франции. В уютной обстановке певица исполнила свои композиции и поделилась интересными воспоминаниями из жизни и творчества.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D979DF521EA354E77E978539913EE3D5DF4C9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547041   (603798) от 26.04.2022
+
+Музыка для души (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые песни и хиты, которые можно включить для фона и погрузиться в гармонию.
+Приятного просмотра.00:00 - Artik & Asti - Любовь после тебя
+03:52 - Мари Краймбрери ft. Звонкий - Как дела, малыш?
+06:09 - Ханна ft. Миша Марвин - Убью тебя
+08:34 - IOWA - В танце(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140F60377362B70EC49B5BD23BF3151672C23FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149003   (602399) от 09.07.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 3) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Третья часть серии видеомиксов, основа которых - популярные клипы легендарных 90-х. Немного ускоряем темп. К уже привычным по первым двум сериям клипам в стилях  Rock Ballads, Reggae и R&B добавляется не менее любимый всеми стиль Eurodance!  И вновь Philizz предлагает (   Читать дальше...   )Ace of Base – All That She Wants
+Robyn – Show Me Love
+Texas – Say What You Want
+Steps - Say You'll be mine(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8B5C970CDE2A47DB4E454D2387D559A347A022
 ```
 
 https://mybot314.ru/tekegram_catalog/

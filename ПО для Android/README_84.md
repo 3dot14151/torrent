@@ -1,58 +1,3 @@
-###  Публикация: 1575013   (196355) от 01.07.2023
-
-ByVoice v3.7.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобный инструмент для озвучивания текстовых уведомлений и различных системных событий (заряд аккумулятора, определённое время, данные звонящего, т.п.). Присутствуют настройки фильтрации озвучивания текста уведомлений. В наличии возможность настройки реакции приложения при чтении уведомления на движение телефона.
-Используя различные параметры настройки, вы (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 24.06.2023Разработчик: 코도코코Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739ACD6DD1D37CA062DD945F93CF97FA09D0BF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606238   (196270) от 01.07.2023
-
-WiFi Analyzer v3.7 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Представляем вам новый способ проверки и оптимизации сетей WiFi. Превратите ваше Android-устройство в анализатор Wi-Fi сетей!
-WiFi Analyzer порекомендует вам лучшую сеть Wi-Fi и самое оптимальное место для ее использования.
-WiFi Analyzer предоставит вам самую полезную информацию об оптимизации сети, чтобы помочь вам снизить уровень помех и увеличить скорость и стабильность (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.06.2023Разработчик: olgor.comПоддерживаемая ОС: Android 8.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819173BE9A4B958B335F005D5B2B51B41E1E63AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431340   (196264) от 01.07.2023
 
 Tone Generator PRO v3.36 [En/Ru]
@@ -61,7 +6,7 @@ Tone Generator PRO v3.36 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196264.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196196.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ Moon+ Reader Pro v8.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196064.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195849.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ AGAMA Car Launcher 3.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195746.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195648.jpg" />
 </div>
 
 
@@ -217,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195642.jpg" />
 </div>
 
 
@@ -243,7 +188,7 @@ Chronus Home & Lock Widget / Информационные виджеты Chronus
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195629.jpg" />
 </div>
 
 
@@ -269,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195614.jpg" />
 </div>
 
 
@@ -297,7 +242,7 @@ PictureThis - Plant Identification v3.58 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195587.jpg" />
 </div>
 
 
@@ -323,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195571.jpg" />
 </div>
 
 
@@ -350,7 +295,7 @@ Screenshot touch v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195493.jpg" />
 </div>
 
 
@@ -376,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195487.jpg" />
 </div>
 
 
@@ -402,7 +347,7 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195386.jpg" />
 </div>
 
 
@@ -428,7 +373,7 @@ X-plore File Manager 4.32.00 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195304.jpg" />
 </div>
 
 
@@ -454,7 +399,7 @@ Total Commander 3.42d Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195277.jpg" />
 </div>
 
 
@@ -480,7 +425,7 @@ CapCut - Видеоредактор 8.8.1 Mod by dimonx32, Айфона нет [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195237.jpg" />
 </div>
 
 
@@ -506,7 +451,7 @@ ViMu Media Player for TV 10.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195213.jpg" />
 </div>
 
 
@@ -532,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195210.jpg" />
 </div>
 
 
@@ -558,7 +503,7 @@ ESET Mobile Security Antivirus 8.2.8.0-15 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195188.jpg" />
 </div>
 
 
@@ -584,7 +529,7 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195079.jpg" />
 </div>
 
 
@@ -610,7 +555,7 @@ Persona: Бьюти-камера v1.6.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195017.jpg" />
 </div>
 
 
@@ -636,7 +581,7 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194996.jpg" />
 </div>
 
 
@@ -662,7 +607,7 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194993.jpg" />
 </div>
 
 
@@ -673,6 +618,59 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF901C958D344A6201DFF62A6B26CCA633FBDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650622   (194917) от 02.08.2023
+
+OsmAnd+ - Карты & GPS Офлайн 4.5.6 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194917.jpg" />
+</div>
+
+
+###  Подробнее
+
+OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету.
+OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: OsmAnd LiveРазработчик: OsmAndПоддерживаемая ОС: Android 6.0 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80909196830C10794157F4CF0C678408391B85C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643345   (194851) от 01.08.2023
+
+Remini / Улучшение Фото v3.7.314.202248013 [Ru/En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Lite ModРелиз состоялся: 01.08.2023Разработчик: Splice Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5DEBF3DF065821BFDF0E5044D9A2E39F169E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

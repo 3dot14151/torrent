@@ -6,7 +6,7 @@ VA - The New Jazz City Blues - Festival Summer 2015 (2015) [MP3|320 кб/с]<Jaz
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651605.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Manhattans - Black Tie (1981) Remastered /2014, Funky Town Grooves/ [FLAC|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651572.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Isley Brothers - Go For Your Guns (1977) Remastered /2011, Big Break Records
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651565.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gerry Mulligan - The Complete Verve Gerry Mulligan Concert Band Mosaic (May 21, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651331.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rufus - Party 'Til You're Broke (1981) Remastered /2012, Geffen Records/ [FLAC|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651111.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Joscho Stephan - Django Nuevo (2009) Acoustic Music Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650759.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eclectic Maybe Band - Again Alors? (2022) [FLAC|Lossless|image + .cue] <Jazz-Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650756.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ George Wallington - Knight Music (1956) 2000, Koch Jazz [APE|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650696.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650695.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650694.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Harpdog Brown - For Love & Money (2019) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650610.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kenny Parker - Hellfire (2019) [FLAC|Lossless|tracks + .cue] <Blues, Modern Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650604.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650561.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650559.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650558.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Johnny Smith Guitar - My Dear Little Sweetheart (1960) 2017, Roost, Parlopho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650545.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rickey Woodard - The Silver Strut (1996) Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650521.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Earl Anderza - Outa Sight (1962) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650519.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wycliffe Gordon - The Joyride (2000) 2003, Nagel Heyer Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650518.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dorothy Donegan - Dorothy Romps: A Piano Retrospective 1953-1979 (1991) Rosetta 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650513.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Wycliffe Gordon - The Search (2000) Nagel Heyer Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650495.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Blue Chevys - The Night Calls (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650470.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Djabe - Flow (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650401.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Robert Johnson - Crossroad: The Legendary Recordings (2009) Remastered, 2021, Re
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650360.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Best Of Blues & Roots (2017) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650188.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - 25 Legendary vocal jazz ballads (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649156.jpg" />
 </div>
 
 

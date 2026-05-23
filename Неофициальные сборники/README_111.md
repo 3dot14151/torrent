@@ -1,32 +1,3 @@
-###  Публикация: 1370821   (891661) от 30.03.2020
-
-Rammstein - Remixes (2020) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. du riechst so gut (scal remix) (04:45)
-02. rammstein in the house (the timewriter remix) (06:24)
-03. du riechst so gut ('98) (04:24)
-04. du riechst so gut (remix by faith no more) (01:57)(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 05:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28DCB8A040E3E1B37FBC13C26546C266950CD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994169   (891654) от 07.03.2016
 
 VA - Our All  Products In One Pack (2016) [MP3|218-320 кб/с] <House, Electro, Melodic, Progressive, Trance>
@@ -35,7 +6,7 @@ VA - Our All  Products In One Pack (2016) [MP3|218-320 кб/с] <House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891654.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - EDM Forever Soundset (2016) [MP3|253-320 кб/с] <House, Funky, Tropical, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891653.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Милым дамам к празднику весны (2016) [MP3|256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891649.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891644.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Star Hit. Самая желанная (2016) [MP3|192 kbps - 256 kbps] <Pop
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891616.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Судьба злодейка (2016) [MP3|224-320 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891612.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Electro Life 41 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Progressive Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891605.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Душевный шансон Любимая женщина (2016) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891600.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891599.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Deep Forest - 100% Deep Forest (2020) [MP3|320 Kbps] <Alternative, Enigmatic, Ne
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891579.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - TOP 100 Club Tracks (February) (2016) [MP3|96-320 кб/с] <Club House, Voc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891570.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - TOP 100 Deep House (February) (2016) [MP3|320 кб/с] <Deep House,Club Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891568.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Top 100 Electronic Dance Music and Rave Festival Chart Hits (2016) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891566.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Blues Memories (2016) [MP3|128-320 кб/с] <Rock Blues, Retro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891552.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Acoustic Pop Covers (2016) [MP3|320 кб/с] <Pop, Acoustic, Covers>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891534.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891460.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891436.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891417.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891342.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ VA - Ibiza Lounge Classics Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891191.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ VA - 100 Gold Classic Music Vol.2 (2017) [MP3|320 Kbps] <Classical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890337.jpg" />
 </div>
 
 
@@ -649,7 +620,7 @@ VA - 100 Gold Classic Music (2016) [MP3|320 Kbps] <Classical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890331.jpg" />
 </div>
 
 
@@ -678,7 +649,7 @@ VA - не Громкие новинки недели 61 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890099.jpg" />
 </div>
 
 
@@ -707,7 +678,7 @@ VA - Тебе любимая! (2016) [MP3|320 кб/с] <Pop, Шансон>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889848.jpg" />
 </div>
 
 
@@ -736,7 +707,7 @@ VA - Шансон-состояние души 87 (2013) [MP3|256 кб/с] <Ша�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889842.jpg" />
 </div>
 
 
@@ -750,6 +721,35 @@ VA - Шансон-состояние души 87 (2013) [MP3|256 кб/с] <Ша�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E78CF6F9F7C423EFAC5CE32DE75CAE0BC2BE408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994607   (889840) от 08.03.2016
+
+VA - Vocal Trance Seduction vol 8 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Jes - Yai (Here We Go Again) (Super8 & Tab Radio Edit) (03:46)
+02. Beat Service, Sarah Russell - Would You (05:02)
+03. Dennis Sheperd, Katty Heath - Where I Begin (Evoland Remix) (05:59)
+04. Tenishia & Ruben De Ronde feat. Nanje Nowack - Where Do We Go? (Tenishia Radio Edit) (03:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1098FC6A2D4CE1243D3739EF0F43EFA279F613
 ```
 
 https://mybot314.ru/tekegram_catalog/

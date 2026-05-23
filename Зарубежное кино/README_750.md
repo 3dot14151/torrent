@@ -1,56 +1,3 @@
-###  Публикация: 1024096   (719719) от 07.06.2016
-
-Годзилла против Гайгана / Chiky kogeki meirei: Gojira tai Gaigan (1972) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Инопланетные захватчики направляют для порабощения Земли двух космических монстров с дистанционным управлением. В противовес им выдвигается Годзилла и другой динозавроподобный ящер — Ангирус.Производство: ЯпонияЖанр: Ужасы, фантастика, боевик, приключенияРежиссер: Дзюн ФукудаАктеры: Хироши Ишикава, Юрико Хишими, Минору Такашима, Тошиаки Нисидзава, Кунио Мурай, Ген ШимицуПеревод: Любительский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB97CE7CE2CFBF30D0E3F7582EEBAFC0BC8C770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327522   (719673) от 24.04.2011
-
-Знакомство с родителями / Meet the Parents (2000) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Обладатель замечательной фамилии, санитар Грэг Трахер, отправляется за город, чтобы познакомится с родителями своей девушки Пэм. Здесь Грэг собирается торжественно просить руки возлюбленной. Но, к несчастью, Грэг - парень невезучий, и любые благие начинания в его исполнении превращаются в сущий кошмар.
-Несчастный Трахер и в самом страшном сне не предполагал, какие его ждут испытания. Дело в том, что отец Пэм, Джек Бернс, - отставной сотрудник ЦРУ, устраивает приятелям дочери свою особую и жесткую проверку. Эта проверка включает в себя даже специальный тест на детекторе лжи!Жанр: мелодрама, комедияРежиссер: Джей Роуч / Jay RoachВ ролях: Роберт Де Ниро (Jack Byrnes), Бен Стиллер (Gaylord 'Greg' Focker), Тери Поло (Pam Byrnes), Блайт Даннер (Dina Byrnes), Николь ДеХафф (Deborah Byrnes), Джон Абрахамс (Denny Byrnes), Оуэн Уилсон (Kevin Rawley), Джеймс Ребхорн (Dr. Larry Banks), Томас МакКарти (Dr. Bob Banks), Филлис Джордж (Linda Banks), Кали Роча (Atlantic American Flight Attendant), Bernie Sheredy (Norm the Interrogator)Перевод: Профессиональный (дублированный)Продолжительность: 01:47:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023916   (719606) от 07.06.2016
 
 Никогда не сдавайся 3 / Never Back Down: No Surrender (2016) WEB-DL [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719606.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719587.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719581.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719558.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719465.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719456.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719388.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719387.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719386.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719362.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719329.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719323.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719239.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719238.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719219.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719202.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719187.jpg" />
 </div>
 
 
@@ -507,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719125.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719112.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719111.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719110.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719033.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719020.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718983.jpg" />
 </div>
 
 
@@ -674,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFADF97E1183A5DFB9DD5D0E311ED5A0B1E3ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218855   (718979) от 11.04.2018
+
+Отпетый мачо / Несносный мачо / Gun Shy (2017) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри по прозвищу Бес — рок-звезда со всеми вытекающими. Правда, дни его славы остались в прошлом, и теперь единственное, на что он способен — это лежать и попивать пиво. Однажды он отправляется на отдых в Чили, а местные пираты от безнадежности похищают его красавицу-жену и просят за нее выкуп в 1 млн. долларов. Для Генри выплатить эти деньги, как дать на чай официанту. (   Читать дальше...   )Производство: Великобритания / Salty FilmЖанр: Боевик, триллер, комедия, криминал, приключенияРежиссер: Саймон УэстАктеры: Антонио Бандерас, Ольга Куриленко, Бен Кура, Марк Вэлли, Эшлин Лофтус, Дэвид Митчелл, Джесси Джонсон, Джереми Свифт, Миланка БруксПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Английские, итальянскиеПродолжительность: 01:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5DFF067B97800ACCBFE6CDAF2EEE62C704E84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218872   (718978) от 11.04.2018
+
+Недруги / Hostiles (2017) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на твоих глазах льется кровь, когда ты вынужден убивать, ты превращаешься в зверя... После долгих лет войны он дышал злобой, проклинал краснокожих, в каждом из них он видел врага. На исходе войны капитан Блокер получает приказ доставить на родину в Монтану умирающего вождя по кличке Желтый Ястреб. В цепях и кандалах он ведет семью индейцев через земли, где (   Читать дальше...   )Производство: США / Grisbi Productions, Le, Waypoint EntertainmentЖанр: Драма, приключения, вестернРежиссер: Скотт КуперАктеры: Скотт Шеперд, Розамунд Пайк, Ава Купер, Стелла Купер, Дэвид Мидфандер, Кристиан Бэйл, Рори Кокрейн, Джонатан Мэйджерс, Джон Бенжамин ХиккиПеревод: Дублированный (iTunes)Субтитры: Русские форс. (отдельно)Продолжительность: 02:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A227B0F1693E7D98306119CF9F3660AC0E16FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

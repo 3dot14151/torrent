@@ -6,7 +6,7 @@ FXSound Pro 1.1.14.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KLS Backup 2017 Professional 9.1.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744754.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ save2pc Ultimate 5.5.4 Build 1575 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744748.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PDF Eraser Pro 1.9.1.4 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744745.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio 8.0 Build 164571 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744736.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Zemana AntiMalware Premium + Portable 2.74.2.150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744717.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Visual Assist X 10.9.2062 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744698.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Meridian 5.0.740.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744692.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 10 21H2 (Build 19044.1466) (64in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744643.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SRWare Iron 65.0.3400.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744638.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Emsisoft Emergency Kit 2018.3.0.8532 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744621.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AVG Internet Security 2016 16.81.7639 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744610.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ QuarkXPress 2016 12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744603.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ammyy Admin Free 3.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744596.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ammyy Admin Corporate 3.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744587.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ KMSAuto Lite 1.5.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744581.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VirtualBox 5.0.0 r99573 Beta 2 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744559.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744555.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ CleanMyPC 1.9.1.1296 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744533.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ YouTube By Click Premium 2.2.82 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744527.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Registry First Aid Platinum 11.1.1 Build 2516 RePack (& portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744521.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Topoformer 0.50 Beta For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744515.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ HTC Home Apis 3.1 Build 627 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744491.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ EASEUS Partition Master 10.5 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744480.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Blok 4.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744479.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ WinTools.net Premium 18.3.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744451.jpg" />
 </div>
 
 

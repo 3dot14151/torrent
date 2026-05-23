@@ -6,7 +6,7 @@ Running Wild - Blood On Blood (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801580.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Michael Schinkel's Eternal Flame - Gravitation (2021) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801567.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Oblivion Beach - Cold River Spell (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801521.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Metallica - The Best Ballads (2CD) (2005) [FLAC|Lossless] <Metal, Ballad>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_801300.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Muro - Pacto De Sangre (1992) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801286.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hitten - State Of Shock (2016) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801279.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Negator - Die eisernen Verse (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801276.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Iced Earth - Days Of Purgatory (1997) Japan Ed. [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801263.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Arch Enemy - As The Stages Burn! (Live At Wacken 2016) (2017) [FLAC|lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801218.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rotting Christ - Non Serviam (1994) Remastered, 2020, Kattran Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801155.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801056.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Netherbird - Arete (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801046.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mercenary - The Hours That Remain (2006) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800995.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Golgotha - Elemental Changes (1998) [APE|Lossless|image + .cue] <Death Metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800711.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Demented Ted - Promises Impure (1993) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800658.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Golgotha - Melancholy (1995) [FLAC|Lossless|image + .cue] <Death Metal, Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800656.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ In Mourning - Shrouded Divine (2008) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800648.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Zaratustra - It Was A Night (1999) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800400.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800253.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800249.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Testament - Titans Of Creation (2020) 2CD, Japanese, Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800195.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Selfaware - Entropy (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800188.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Falconer - From A Dying Ember (2020) [FLAC|Lossless|image + .cue] <Power Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800182.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sammy Berell - Beyond the Veil (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800181.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Grandmaster - Skywards (2021) [FLAC|Lossless|image + .cue] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800180.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Death SS - Ten (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800171.jpg" />
 </div>
 
 

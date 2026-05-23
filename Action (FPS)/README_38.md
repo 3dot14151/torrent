@@ -6,7 +6,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165688.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Terminator: Resistance / Терминатор: Сопротивление (2019)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165619.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163665.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163382.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162793.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ion Fury (2018) [En] (3.0.0.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162647.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162231.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SUPERHOT: MIND CONTROL DELETE (2020) [Ru/Multi] (1.0.8b plus l1.1.36) License GO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161852.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160715.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159915.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ GUNHEAD (2023) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159428.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159146.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158754.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158732.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dusk (2018) [Ru/Multi] (1.8.25/dlc) License GOG [Intruder Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158721.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tom Clancy's Rainbow Six: Vegas 2 (2008) [Ru] (1.03.101.336/dlc/tr) Repack =nemo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158292.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.13/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158004.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Alien: Isolation (2014) [Ru/En] (1.0/upd9/dlc) Repack R.G. Механики [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157239.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dying Light: The Following (2016) [Ru/En] (1.15.0/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156245.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Remain (2016) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155103.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.5.13528/dlc) Repack xatab [Collector'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154569.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/upd9/dlc) Repack Other s [Collection Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153371.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Infliction (2018) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153029.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Duke Nukem 3D (1996) [En] (1.5) License GOG [Atomic Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152746.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Alien: Isolation (2014) [Ru] (1.0/upd9/dlc) Repack =nemos= [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151962.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150809.jpg" />
 </div>
 
 

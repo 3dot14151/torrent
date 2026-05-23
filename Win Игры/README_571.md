@@ -1,29 +1,3 @@
-###  Публикация: 1805401   (12387) от 06.07.2025
-
-The Echo Paradox (2025) [En] (19081580) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The Echo Paradox - это психологическая игра ужасов, в которой вы исследуете альтернативные вселенные с различными существами. Человечество стоит на пороге тревожного откровения – мультивселенная реальна, но жутко лишена жизни. Как смелый доброволец исследовательской группы Phaselink, вы отправляетесь в пугающее путешествие, отправляясь в неизвестные параллельные (   Читать дальше...   )Тип издания: RepackРазработчик: VirtuzillaЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F18B917D9DBCF0BA12E7F176A4E2CE88A3EC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805447   (12385) от 06.07.2025
 
 Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
@@ -32,7 +6,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12385.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12380.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Disney Dreamlight Valley (2022) [Ru/Multi] (1.17.0.7420/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12371.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12356.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack Yaroslav98
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12355.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12354.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12336.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ White Knuckle (2025) [En] (b0.43j) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12312.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12308.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Void War (2025) [Ru/En] (1.0.1d) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12307.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12302.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Eternal Strands (2025) [Multi] (1.0.14.1638) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12300.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.6) Repack Let'sРlay [The Complete Col
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12299.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Railway Empire 2 (2023) [Ru/Multi] (64144 114/dlc) License GOG [Digital Deluxe E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12296.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Hidden Legacy: Dark Heirloom / Скрытое наследие: Темная р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12267.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12211.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Motor Town: Behind The Wheel (2021) [Ru/Multi] (0.7.14 b865) Repack Pioneer [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12203.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.14) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12201.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12197.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.114/dlc) Repack Let'sРlay [Digital 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12196.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Eternal Strands (2025) [Ru/Multi] (1.0.14.1638) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12195.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12155.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12104.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12082.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12059.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33F59356309CF80A3B8F0A2757A56F07853170A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805884   (12050) от 09.07.2025
+
+Rise of Rebellion (2025) [Multi] (build 18176641) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом ролевом экшене вы оказываетесь в мире, где драконы изгнаны с небес, а люди живут под властью бога земли. Вам необходимо взять на себя роль Мануса, храброго воина, который стремится освободить свой родной город от захватчиков. Вашим оружием будет не только меч, но и «Мэй» - земная энергия, которая дарит вам разнообразные способности. Но будьте осторожны: при (   Читать дальше...   )Тип издания: RepackРазработчик: Team 疾鷹Жанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A3285F738943C14C12E88A250B84B5BF4ACE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

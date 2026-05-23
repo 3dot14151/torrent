@@ -1,59 +1,3 @@
-###  Публикация: 405693   (115422) от 27.02.2024
-
-Торнтон Уайлдер | Мартовские иды (2005) [MP3, Юрий Григорьев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Торнтон Найвен Уайлдер (1897–1975) – драматург и эссеист, классик американской литературы ХХ столетия.
-«Мартовские иды» (1948) Торнтона Уайлдера – замечательный исторический роман, представляющий эпоху Юлия Цезаря, «фантазия о некоторых событиях и персонажах последних дней Римской республики», по словам самого автора. Через письма и документы писатель возрождает (   Читать дальше...   )Жанр: Зарубежная литература, исторический романИздательство: БиблиофоникаПродолжительность: 09:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F67F6319204D31AD2B0FC074ADE0AB875A6193C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405695   (115420) от 27.02.2024
-
-Торнтон Уайлдер | Мост короля Людовика Святого (2004) [MP3, Александр Хорлин и др.]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: О, дерзкий новый мир.
-Торнтон Найвен Уайлдер (1897–1975) – драматург и эссеист, классик американской литературы ХХ столетия, лауреат Пулитцеровской премии (1928, 1938 и 1943).
-Роман-притча «Мост короля Людовика Святого» принес Торнтону Уайлдеру первую из трех его Пулитцеровских премий.
-В полдень в пятницу 20 июля 1714 года рухнул самый красивый мост в (   Читать дальше...   )Жанр: Зарубежная литература, исторический роман-притчаИздательство: ЭлитайлПродолжительность: 03:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDE2C433EC80CFD3D6C44A56EA92CD830E0BD19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 405696   (115398) от 27.02.2024
 
 Торнтон Уайлдер | Мост короля Людовика Святого (2011) [MP3, Вячеслав Герасимов]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115398.jpg" />
 </div>
 
 
@@ -89,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115393.jpg" />
 </div>
 
 
@@ -115,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114650.jpg" />
 </div>
 
 
@@ -143,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114631.jpg" />
 </div>
 
 
@@ -171,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114522.jpg" />
 </div>
 
 
@@ -198,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113753.jpg" />
 </div>
 
 
@@ -224,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113741.jpg" />
 </div>
 
 
@@ -253,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113434.jpg" />
 </div>
 
 
@@ -279,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113083.jpg" />
 </div>
 
 
@@ -306,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111838.jpg" />
 </div>
 
 
@@ -333,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111710.jpg" />
 </div>
 
 
@@ -360,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111706.jpg" />
 </div>
 
 
@@ -386,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111690.jpg" />
 </div>
 
 
@@ -414,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111687.jpg" />
 </div>
 
 
@@ -441,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111683.jpg" />
 </div>
 
 
@@ -468,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111681.jpg" />
 </div>
 
 
@@ -495,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111625.jpg" />
 </div>
 
 
@@ -523,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109995.jpg" />
 </div>
 
 
@@ -550,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109237.jpg" />
 </div>
 
 
@@ -578,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109114.jpg" />
 </div>
 
 
@@ -605,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109113.jpg" />
 </div>
 
 
@@ -631,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109015.jpg" />
 </div>
 
 
@@ -658,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108997.jpg" />
 </div>
 
 
@@ -685,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108410.jpg" />
 </div>
 
 
@@ -697,6 +641,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6632422820D0AE54ACDCC2226A1AE7BE1544B37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731856   (107622) от 22.06.2024
+
+К.К. Рокоссовский | Солдатский долг (2013) [MP3, Владимир Сушков]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин Константинович Рокоссовский (1896–1968) был действительно уникальным человеком. Именно он командовал Парадом Победы 24 июня 1945 года на Красной площади в Москве, а принимал парад Маршал Советского Союза Георгий Константинович Жуков.
+На долю Константина Рокоссовского выпало немало испытаний. Он участвовал в трех войнах – Первой мировой, Гражданской, Второй (   Читать дальше...   )Жанр: Русская историческая литература, военные мемуарыИздательство: Нигде не купишьПродолжительность: 16:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41839FF1DDDB336D2FE7C9546D75980AFC337BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735748   (106864) от 09.07.2024
+
+Николай Чуковский | Хочу всё знать! (Выпуск № 6). Великие мореплаватели. Джеймс Кук (2007) [MP3, Денис Некрасов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Хочу всё знать!
+Николай Корнеевич Чуковский (1904–1965) – русский писатель, переводчик прозы и поэзии, сын писателя Корнея Чуковского.
+Как были открыты Австралия и Таити?
+Как исчезали с карты земли белые пятна?(   Читать дальше...   )Жанр: Историческая литература, биографияИздательство: Элитайл, СиДиКомПродолжительность: 04:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C901A8BD2068249D2A3F9A48DA0FAAF5894637
 ```
 
 https://mybot314.ru/tekegram_catalog/

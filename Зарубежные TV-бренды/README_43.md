@@ -1,29 +1,3 @@
-###  Публикация: 328790   (715815) от 26.04.2011
-
-NG: Самые страшные стихийные бедствия: Торнадо / Ultimate Disaster: Tornado (2007) TVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Торнадо - это яркое зрелище, но его разрушительная сила колоссальна. С помощью специалистов и компьютерной графики, мы увидим к чему может привести это стихийное бедствие.Производство: СШАЖанр: ДокументальныйРежиссер: Jeff SwimmerПеревод: Одноголосый профессиональныйПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E77D3E0998157B8B99CDB486F40304BEC7018A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219136   (715732) от 13.04.2018
 
 NGW: Кровавые соперники: гиппопотамы против львов / Blood rivals: Hippo V. Lion (2015) HDTV [H.264/1080i-LQ]
@@ -32,7 +6,7 @@ NGW: Кровавые соперники: гиппопотамы против л
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715732.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NGW: Самые опасные животные. Безумные акулы / W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715726.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ History Channel. Войны Юрского периода / Jurassic Fight Club 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715456.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ PBS. Секреты меча викингов / Secrets of the Viking Sword (201
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715422.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714665.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714399.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Discovery. Что скрывает Солнце / The Dark Side of the Sun (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713937.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713772.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713535.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712991.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ BBC. Как вырастить планету / How to Grow a Planet (2012) BDRe
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712862.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712609.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712605.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712462.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ BBC. Замки: История укреплений Британии / Castles:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712282.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712054.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710532.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709953.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ NGW: Самые опасные убийцы. Опасная зона / World's d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709948.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ NGW: Глубоководные убийцы / Deep sea killers (2017) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709859.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ NGW: Дикая река Конго / Wild Congo (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709850.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708969.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ NG: Разобрать до основания. Суперджеты (Больш
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708968.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ NGW: Смертоносная Африка. Степи / Africa's Deadly Kingdom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708855.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ NG: Возрождение морского шелкового пути / Mariti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708619.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ NG: Возрождение морского шелкового пути / Mariti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F288CCD38F59F2A91AF029F7336321DAEF21D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219983   (708105) от 17.04.2018
+
+NGW: Самые странные в мире питомцы / World's weirdest pets (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда речь заходит о домашних питомцах, никакие правила не действуют. Познакомьтесь с самыми необычными в мире домашними животными от самых маленьких до просто громадных.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид М. ФрэнкПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CE4FE84C28381829F7843DE0BF89461E090697
 ```
 
 https://mybot314.ru/tekegram_catalog/

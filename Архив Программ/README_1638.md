@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.0.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221873.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DAEMON Tools Lite 11.1.0.2037 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221841.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Firefox Browser 116.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221832.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Victoria 4.71b Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221827.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Re-Loader Activator 2.0 RC 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221821.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MAGIX Sound Forge Pro 15.0 Build 159 (x64) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221815.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 10.2022
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221800.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Format Factory 5.5.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221772.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ W10Privacy 3.6.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221763.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Topaz Photography Suite 2015 Plugin Portable by PortableWares (16.12.2015) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221741.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CrystalDiskMark 8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221738.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IObit Driver Booster Pro 3.1.1.450 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221728.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Attribute Changer 11.20a + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221724.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ YT Downloader 9.2.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221715.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221708.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ K-Lite Codec Pack Update 17.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221698.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Google Chrome 47.0.2526.106 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221656.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ HiBit Uninstaller 3.1.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221655.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Vivaldi 2.2.1388.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221633.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SolveigMM Video Splitter 5.2.1512.14 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221615.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ KMSAuto++ Portable 1.6.4 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221586.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Opera 57.0.3098.102 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221584.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ SRWare Iron 70.0.3650.1 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221569.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Windows 10 Manager 1.0.6 Final Portable by PortableWares [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221556.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Windows 7 Максимальная SP1 x64 JAWS15 для незрячих. 2015.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221550.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Webcam Surveyor 3.3.5 Build 999 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221529.jpg" />
 </div>
 
 

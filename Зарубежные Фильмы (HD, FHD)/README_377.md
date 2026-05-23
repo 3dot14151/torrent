@@ -1,55 +1,3 @@
-###  Публикация: 1022743   (725532) от 04.06.2016
-
-Полицейская тачка / Cop Car (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие криминального триллера «Полицейская тачка» разворачивается в небольшом американском городке. Однажды двое местных мальчишек обнаруживают на окраине города брошенную полицейскую машину. Некоторое время Трэвис и Харрисон просто наблюдают за автомобилем, но, убедившись, что рядом нет шерифа и других копов, решают погонять на тачке. Отсутствие навыков вождения (   Читать дальше...   )Производство: США / Audax Films, Dark Arts Film, End Cue, Park PicturesЖанр: Триллер, КриминалРежиссер: Джон УоттсАктеры: Кевин Бейкон, Джеймс Фридсон-Джексон, Хэйс Уэллфорд, Камрин Менхейм, Ши Уигхэм, Кира Седжвик, Шон Хартли, Лой Нгуен, Чак Калл, Томас Коутс, Кэтлин Бентли, Джастин Барр, Адам Барр, Лилия Хебер, Кутер Хебер, Джозеф ОливейраПеревод: Профессиональный (многоголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7151316DE78130FEB2A1F5BB5ED5B4CE3ABAE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326523   (725474) от 21.04.2011
-
-Ангелы Чарли / Charlie's Angels (2000) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ангелы Чарли, суперсекретное элитное спецподразделение, которому доверяют только невыполнимые задания. С помощью новейших технологий, современного оружия, боевых искусств и убийственного женского очарования Ангелы Чарли творят чудеса. Но настоящим испытанием станет лишь это последнее задание…Жанр: Боевик, Триллер, Комедия, Криминал, ПриключенияРежиссер: МакДжи.Актеры: Кэмерон Диаз, Дрю Бэрримор, Люси Лью, Билл Мюррей, Сэм Рокуэлл, Келли Линч, Тим Карри, Криспин Гловер, Мэтт ЛеБлан, LL Кул Джей и др.Язык субтитров: 1. Русские (2 вида) 2. Английские 3. Английские (SDH)Продолжительность: 01:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EDB1CD375F3F3EAEE75E754FD80506577B86BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023061   (725458) от 04.06.2016
 
 13 часов: Тайные солдаты Бенгази / 13 Hours: The Secret Soldiers of Benghazi (2016) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725458.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725448.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725446.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725332.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725252.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725173.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724893.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724765.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724524.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724423.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724273.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724266.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724188.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724187.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724134.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724133.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724126.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724072.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724060.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723976.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723866.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723854.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723789.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723727.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54D07D4FC7F4A3A339BC995E088185004BB7E403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790055   (723684) от 26.05.2014
+
+Последний рубеж / Homefront (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фил Брокер — бывший агент из отдела борьбы с наркотиками. Фил переезжает в небольшой город вместе с семьей в надежде забыть прошлое. Но он узнает, что город только со стороны кажется тихим и спокойным местом, на самом деле он кишит насилием, наркотиками, а всем этим заправляет злодей по кличке Аллигатор…Производство: США / Homefront Productions, Millennium FilmsЖанр: Боевик, криминалРежиссер: Гэри Фледер / Gary FlederАктеры: Джейсон Стэйтем, Джеймс Франко, Изабела Видович, Вайнона Райдер, Кейт Босворт, Клэнси Браун, Рашель Лефевр, Омар Бенсон Миллер, Маркус Хестер, Фрэнк ГриллоПеревод: Дублированный, Одноголосый закадровый (авторский и любительский)Язык субтитров: Русский, английский (full, SDH)Продолжительность: 01:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E86DCA2A5DAF449A9FE6EDE5B5B30372D6BC182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022205   (723626) от 05.06.2016
+
+Гордость / Theeb (2014) BDRip [h.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не сентиментальная история о Первой мировой войне в непривычных декорациях – на окраине Османской империи, и от лица непривычного героя – бедуинского сироты. Ему предстоит преждевременное взросление, когда придется сопровождать офицера-англичанина через ночную пустыню, где орудуют бандиты. "Гордость" - первый арабский фильм, который стал номинантом на премию (   Читать дальше...   )Производство: ОАЭ, Катар, Иордания, Великобритания / Bayt Al Shawareb, Noor PicturesЖанр: Триллер, Приключения, ДрамаРежиссер: Наджи Абу НоварАктеры: Джасир Аид Аль-Хвитат, Хуссейн Саламех Аль-Свельхоин Хассан Мутаг Аль-Мараех, Джек ФоксПеревод: Профессиональный одноголосый |Язык субтитров: Русские, английские, французские, испанскиеПродолжительность: 01:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1171F47ADD038CAE1CF585EC5BC54D8CD376FA9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

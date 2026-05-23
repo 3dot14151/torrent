@@ -1,30 +1,3 @@
-###  Публикация: 289282   (919925) от 30.01.2011
-
-Reel Deal Slots Adventure III World Tour (L) [En] 2011
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Новая игрушка от "Phantom EFX"! Теперь мы попадем на мировой тур! Увидим множество красивых мест, а также новые игровые автоматы, разработанные по новой системе! Так давайте же начнем! Всем удачи!
-.Тип издания: ЛицензияЖанр: 3D / Casino / ArcadeЯзык озвучки: АнлийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490204   (919899) от 19.08.2021
 
 Hell Architect (2021) [Ru/Multi] (1.0.2) Repack Other s
@@ -33,7 +6,7 @@ Hell Architect (2021) [Ru/Multi] (1.0.2) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919899.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0/upd4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919776.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Lost Lands 2: The Four Horsemen / Потерянные земли: Четыре 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919738.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Mysteries Of The Past: Shadow Of The Daemon (2016) [En] Unofficial [Platinum Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918993.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ PuppetShow 8: The Face of Humanity (2016) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918827.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918669.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Immortal Love: Letter From The Past / Бессмертная любовь: Пи�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918553.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ Rift (2011) [Ru/En] (4.0/hf9) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918542.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ Sid Meier's Civilization V (2011) [Ru/En] (1.0.3.279/dlc) Repack R.G. Механ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918538.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Sable Maze 5: Soul Catcher / Темный лабиринт 5: Ловец душ 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918525.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Fantasy General II (2019) [Ru/Multi] (01.01.09312/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918482.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918478.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918476.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Dark Romance 2: Heart of the Beast / Мрачная история. Сердце
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918387.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ Tomb Raider (2013) [Ru/Multi] (1.0/dlc) License GOG [Game of the Year Edition / 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918332.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917993.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ Dark Parables 6: Jack and the Sky Kingdom / Темные Притчи 6: Дже�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917539.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ Paranormal Files 5: Trials of Worth (2020) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917141.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ Secret City 4: Chalk of Fate / Тайный город 4: Мел судьбы (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916980.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ Good Night, Knight (2021) [En] (0.6.2.04) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916827.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ Pulang: Insanity (2020) [Multi] (1.0.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916809.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ The Last Look (2016) [Ru/Multi] (0.4.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916744.jpg" />
 </div>
 
 
@@ -606,7 +579,7 @@ Vector 36 (2017) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916697.jpg" />
 </div>
 
 
@@ -632,7 +605,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/upd7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_916689.jpg" />
 </div>
 
 
@@ -658,7 +631,7 @@ STELA (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916685.jpg" />
 </div>
 
 
@@ -669,6 +642,32 @@ STELA — кинематографичный, атмосферный платф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1A5D49887FF89DF5FDD971A4821DD09CA672041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989345   (916350) от 22.02.2016
+
+Spellcrafter (2015) [Ru/Multi] (1.0) License PROPHET
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магия – это не искусство и не религия. Магия – это ремесло. Погрузись в увлекательный и незабываемый мир приключений в темной вселенной фэнтези! Spellcrafter – это стратегия с ведением тактических пошаговых сражений и уникальной системой заклинаний. Исследуй мир, полный магии; собери золото; взаимодействуй с неигровыми персонажами; получай задания и делай правильный (   Читать дальше...   )Тип издания: LicenseРазработчик: Jujubee S.A.Жанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868A35871BFA51ED32C450A865EDABEBB1E27BB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

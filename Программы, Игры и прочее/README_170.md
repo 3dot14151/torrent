@@ -1,57 +1,3 @@
-###  Публикация: 1794860   (19725) от 01.05.2025
-
-Translator / Мгновенный перевод речи v11.3.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобное приложение для перевода речи на другие языки. Используют приложение Google для работы с речью. Поддерживает ввод текста для перевода и озвучивания и распознавание оного с изображений (в том числе полученных с камеры вашего устройства). В наличии возможность настройки скорости и тембра синтезируемой речи. Минималистичный внешний вид значительно упростит (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.05.2024Разработчик: EruditeПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794935   (19706) от 01.05.2025
-
-Mountain Legends 5 v1.2 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Mountain Legends 5 – наша гоночная игра из серии Mountain Legends.
-Доберитесь до финиша, пока не стало слишком поздно. Победите своих противников и первым пересеките финишную черту.
-ML5 также работает с устройствами с клавиатурой/геймпадом/сенсорным экраном.Тип издания: PaidРелиз состоялся: 18 мар. 2025 г.Разработчик: M.H.MISHUПоддерживаемая ОС: Android 5.1+Жанр: ГонкиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC20246BB1A5195063591FE581790FFE9D4D06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794963   (19699) от 01.05.2025
 
 Crashlands 2 v100.1.407 [Ru]
@@ -60,7 +6,7 @@ Crashlands 2 v100.1.407 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19699.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ Stellarium Plus - Star Map v1.14.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19689.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ Ocean Match / Рыбки: Три в ряд v3.1.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19688.jpg" />
 </div>
 
 
@@ -141,7 +87,7 @@ Zen Life: игры с плитками v3.258 Mod by Viktorovich31 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19594.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ Timelie v1.0.2 Mod by LITEAPKS [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19286.jpg" />
 </div>
 
 
@@ -193,7 +139,7 @@ Cuphead v1.60 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19278.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ Follow the meaning v1.1.39 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19267.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ Garmin: City Navigator Europe NTU 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19251.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ GIF Maker - GIF Editor v3.0.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19241.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ Way of the Hunter Wild America v1.0.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19173.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ Eastern Exorcist v1.00.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18973.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18958.jpg" />
 </div>
 
 
@@ -378,7 +324,7 @@ Voodoo Detective v0.0.33 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18952.jpg" />
 </div>
 
 
@@ -405,7 +351,7 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18950.jpg" />
 </div>
 
 
@@ -432,7 +378,7 @@ Sunset Hills v1.0.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18949.jpg" />
 </div>
 
 
@@ -458,7 +404,7 @@ Through the Darkest of Times v1.0.18 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18944.jpg" />
 </div>
 
 
@@ -484,7 +430,7 @@ Garage: Bad Dream Adventure v1.1.263 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18864.jpg" />
 </div>
 
 
@@ -513,7 +459,7 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18819.jpg" />
 </div>
 
 
@@ -539,7 +485,7 @@ CCleaner Pro: ПО для очистки 25.08.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18752.jpg" />
 </div>
 
 
@@ -565,7 +511,7 @@ WPS Office + PDF v18.17.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18738.jpg" />
 </div>
 
 
@@ -591,7 +537,7 @@ EPIK - AI Photo & Video Editor 5.6.22 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18724.jpg" />
 </div>
 
 
@@ -617,7 +563,7 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18674.jpg" />
 </div>
 
 
@@ -643,7 +589,7 @@ TickTick: Список дел и задачи v7.6.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18652.jpg" />
 </div>
 
 
@@ -669,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18604.jpg" />
 </div>
 
 
@@ -680,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B288E8CFAC5E892192976DEF993124333E33288C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796593   (18598) от 11.05.2025
+
+Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставляйте рукописные заметки естественным образом на планшете или телефоне Android! В приложении Squid вы можете писать словно на бумаге с помощью активного пера, пассивного стилуса или пальца. С легкостью размечайте файлы PDF для заполнения форм, редактирования/рецензирования или подписывания документов. Импортируйте изображения, рисуйте фигуры и добавляйте к своим (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.05.2025Разработчик: Steadfast innovation, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796909   (18452) от 13.05.2025
+
+Darts Club: PvP Multiplayer v6.0.3 Mod by Viktorovich31 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darts Club – это многопользовательская игра в дротики, содержащая элементы коллекционирования. Учитесь, собирайте части для дротиков и улучшайте своё оружие, соревнуйтесь с игроками со всего мира! Соревнуйтесь по сети с другими игроками! Научитесь попадать прямо в яблочко, отточите своё мастерство и станьте чемпионом мира. Просто играя, а также побеждая в состязаниях, (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 12.05.2025Разработчик: BoomBit GamesПоддерживаемая ОС: Android 7.0+Жанр: ДартсЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169ADA6F524667F125D4817C90ECC03F39B6CEA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

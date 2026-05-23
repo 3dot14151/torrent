@@ -1,90 +1,3 @@
-###  Публикация: 1811167   (16479) от 08.08.2025
-
-Кирилл Довыдовский | Мастер Перемен (Книга 3). Спасти Род. Том 3 (2025) [MP3, Иван Глебов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Тысячи лет назад человечество переселилось на Девять Планет. С тех пор борьба за деньги и власть между Стихией и Системой, империями и корпорациями, кланами и гильдиями не останавливается ни на миг.
-
-Михаил Духов – безбашенный гений и культиватор - погибнув в своем мире, переносится на Девять Планет, где получает шанс на полноценную жизнь.
-Но он еще не знает, что (   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 10:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E5810EE53AB1791AF7A24814E24E4CB66E9D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811168   (16478) от 08.08.2025
-
-Кирилл Довыдовский | Мастер Перемен (Книга 4). Спасти Род. Том 4 (2025) [MP3, Иван Глебов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Тысячи лет назад человечество переселилось на Девять Планет. С тех пор борьба за деньги и власть между Стихией и Системой, империями и корпорациями, кланами и гильдиями не останавливается ни на миг.
-
-Михаил Духов – безбашенный гений и культиватор - погибнув в своем мире, переносится на Девять Планет, где получает шанс на полноценную жизнь.
-Но он еще не знает, что (   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 10:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0819D071218ED2449292DD1C195D7FC5AC6882B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811169   (16477) от 08.08.2025
-
-Кирилл Довыдовский | Мастер Перемен (Книга 5). Спасти Девять Планет. Том 1 (2025) [MP3, Иван Глебов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Тысячи лет назад человечество переселилось на Девять Планет. С тех пор борьба за деньги и власть между Стихией и Системой, империями и корпорациями, кланами и гильдиями не останавливается ни на миг.
-
-Михаил Духов – безбашенный гений и культиватор - погибнув в своем мире, переносится на Девять Планет, где получает шанс на полноценную жизнь.
-Но он еще не знает, что (   Читать дальше...   )Жанр: Фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 09:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FD4BDBEEFDB4BCABE252E3CB3DC56DB38E5371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811172   (16476) от 08.08.2025
 
 Кирилл Довыдовский | Мастер Перемен (Книга 6). Спасти Девять Планет. Том 2 (2025) [MP3, Иван Глебов]
@@ -93,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16476.jpg" />
 </div>
 
 
@@ -122,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16475.jpg" />
 </div>
 
 
@@ -150,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16474.jpg" />
 </div>
 
 
@@ -179,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16473.jpg" />
 </div>
 
 
@@ -205,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16472.jpg" />
 </div>
 
 
@@ -232,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16471.jpg" />
 </div>
 
 
@@ -258,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16470.jpg" />
 </div>
 
 
@@ -285,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16469.jpg" />
 </div>
 
 
@@ -312,7 +225,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16467.jpg" />
 </div>
 
 
@@ -338,7 +251,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16466.jpg" />
 </div>
 
 
@@ -364,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16418.jpg" />
 </div>
 
 
@@ -390,7 +303,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16417.jpg" />
 </div>
 
 
@@ -416,7 +329,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16416.jpg" />
 </div>
 
 
@@ -443,7 +356,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 4)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16415.jpg" />
 </div>
 
 
@@ -469,7 +382,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 5)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16414.jpg" />
 </div>
 
 
@@ -495,7 +408,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 6)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16413.jpg" />
 </div>
 
 
@@ -521,7 +434,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 7)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16412.jpg" />
 </div>
 
 
@@ -547,7 +460,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 8)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16411.jpg" />
 </div>
 
 
@@ -573,7 +486,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 9)
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16410.jpg" />
 </div>
 
 
@@ -599,7 +512,7 @@ Ascold Flow | Граф Берестьев. Законы Рода. (Книга 10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16409.jpg" />
 </div>
 
 
@@ -625,7 +538,7 @@ Ascold Flow | Мертвецкий круиз (Книга 4). Бастион (20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16408.jpg" />
 </div>
 
 
@@ -651,7 +564,7 @@ Ascold Flow | Мертвецкий круиз (Книга 5). Маршируя �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16407.jpg" />
 </div>
 
 
@@ -677,7 +590,7 @@ Ascold Flow | Вторжение (Книга 5). Академия магоуби
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16406.jpg" />
 </div>
 
 
@@ -688,6 +601,87 @@ Ascold Flow | Вторжение (Книга 5). Академия магоуби
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEF83E6046F3F7E22B0FFDD1D3836FB214A2283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811241   (16405) от 08.08.2025
+
+Ascold Flow | Релокант в другой мир (Книга 3). #RealRPG. Релокант 3. По следам Ушедшего (2024) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш Чел1856397434 (Дмитрий) решил, что большая часть проблем позади и наконец-то можно сделать следующий шаг вперёд. Кто же знал, что этот шаг будет сродни шагу в пропасть?Жанр: Боевое фэнтези, РеалРПГ , ПопаданцыИздательство: ЛитРесПродолжительность: 08:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290BAB634A3287B97E34E97F8563C3446BDD4D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811242   (16404) от 08.08.2025
+
+Ascold Flow | Релокант в другой мир (Книга 4). #RealRPG. Релокант 4. Дорога к вершине (2024) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Турнир сильнейших в самом разгаре и наш Чел становится частью сокрытой от него игры. Послушно исполнить приказ или сохранить верность собственным принципам? Какие последствия будут у его решений? Взойдёт ли он к самой вершине или падёт в адскую бездну?Жанр: Боевое фэнтези, РеалРПГ , ПопаданцыИздательство: ЛитРесПродолжительность: 07:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2662F2126756C35E84BC2F074C66B6775213CECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811243   (16403) от 08.08.2025
+
+Ascold Flow | Релокант в другой мир (Книга 5). #RealRPG. Релокант 5. Основы могущества (2024) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16403.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Клякса, выдай текст аннотации!
+- Сию секунду!
+*Звук подкатывающего к горлу кома*
+- Всё-всё, бездарь... Не надо. Сам сделаю... Зачищу воооон тот гекс, и сделаю.Жанр: Боевое фэнтези, РеалРПГ , ПопаданцыИздательство: ЛитРесПродолжительность: 08:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55878A70177E13B0FC4774D94E5CAD0D861790A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Jaded Heart - Guilty By Design (2016) Limited Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742444.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Astralion - Outlaw (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742425.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Iron Savior - Titancraft (2016) Limited Edition [FLAC|Lossless|image + .cue] <Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742304.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Katatonia - Last Fair Day Gone Night (2014) 2CD, Live [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742302.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Darkness Divine - Departure (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742258.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Arsenic - Faith Is Gone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742243.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Coldspell - A New World Arise (2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742242.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Morta Skuld - Wounds Deeper Than Time (2017) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741374.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mean Streak - Eye of the Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741369.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Alestorm - No Grave But the Sea (2017) Napalm Records [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741359.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Project Hate MCMXCIX - The Lustrate Process (2009) [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741124.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Watain - Trident Wolf Eclipse (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741043.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Slammer - The Work of Idle Hands... (1989) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741042.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Morta Skuld - Serving Two Masters (2014) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740476.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Duel Of Fate - Don't Leave This World (2006) [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740475.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Vampire - Rex (2020) Century Media Records [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740472.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Natron - Bedtime for Mercy (2000) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740327.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Myrk - Icons of the Dark (2003) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740326.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Beast In Вlасk [ex-Battle Beast] - Frоm Неll With Lоve (2019) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740261.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Avantasia - Moonglow (2019) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740254.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Immorior - Herbstmar (2014) [FLAC|Lossless|image + .cue] <Post Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739914.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Misery Index - Rituals of Power (2019) Deluxe Edition [FLAC|Lossless|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739904.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dream Child - Reaching The Golden Gates (1998) [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739903.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Herman Frank (ex-Accept) - Fight The Fear (2019) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739670.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Deadlock - Earth.Revolt (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739379.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Grand Delusion - After The Flood (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739137.jpg" />
 </div>
 
 

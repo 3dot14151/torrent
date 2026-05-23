@@ -1,81 +1,3 @@
-###  Публикация: 1692666   (122382) от 17.01.2024
-
-Джон Уиндем | Метеор (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-"Очень древняя цивилизация планеты Форта столкнулась с тем, что истощение ресурсов неминуемо приведет к деградации и вымиранию. Правитель Форты решает дать истории своей расы последний шанс, построив флот из кораблей-ковчегов, чтобы отправить их в дальний полет в разные уголки галактики. Кому-то из отважных фортианцев повезет продолжить цивилизацию в более благоприятном (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB6F7FCB4D6A3952662768F5D3A87605CF011C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692526   (122375) от 17.01.2024
-
-Алексей Атеев | Солнце мертвых (Сага 2). Новая загадка старого кладбища. (2023) [MP3, Александр Шаронов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-На месте старого кладбища построили многоэтажный дом. Среди его жильцов есть мальчик Стас Недоспас, которому старый колдун Асмодей Чернопятов, готовящийся к смерти, уготовил роль своего преемника.Жанр: мистика, приключения, ужасыИздательство: Аудиокнига своими рукамиПродолжительность: 09:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375FE93A43818A390E43C56C194B947F3A71FA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692557   (122358) от 17.01.2024
-
-Чингиз Абдуллаев | Дронго (Книга 48). Крах лицедея (2024) [MP3, Маркиза]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Международный преступник Петр Дудник скрывается от правосудия где-то в Европе. За ним тянется такой кровавый след, что его ищут лучшие сыщики Интерпола. Да не могут найти. Дудник сменил фамилию, сделал пластическую операцию на лице и даже изменил отпечатки пальцев. Ни один человек в мире не знает, как он выглядит на самом деле. Чтобы его найти, нужен суперпрофессионал, (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 07:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9332CEB0F87EFAA747AC48DAB17ADBD6FDD054D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457536   (122260) от 18.01.2024
 
 Николай Гоголь | Повести в исполнении мастеров художественного слова (2011) [MP3, Осип Абдулов и др.]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122260.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122191.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122182.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122174.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122173.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122081.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122078.jpg" />
 </div>
 
 
@@ -275,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122035.jpg" />
 </div>
 
 
@@ -301,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122016.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121949.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121935.jpg" />
 </div>
 
 
@@ -381,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121925.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121920.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121917.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121911.jpg" />
 </div>
 
 
@@ -488,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121910.jpg" />
 </div>
 
 
@@ -514,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121903.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121890.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121889.jpg" />
 </div>
 
 
@@ -594,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121886.jpg" />
 </div>
 
 
@@ -622,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121885.jpg" />
 </div>
 
 
@@ -648,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121883.jpg" />
 </div>
 
 
@@ -674,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121873.jpg" />
 </div>
 
 
@@ -687,6 +609,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0E96B759CD205FCBA1D5866C736FE1BA24945D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693551   (121794) от 21.01.2024
+
+Александр Седых | Проект «Надежда» (Книга 3). Неожиданный итог (2023) [MP3, Артём Мрак]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121794.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Неожиданный итог» – фантастический роман Александра Седых, третья книга цикла «Проект „Надежда“», жанр космическая фантастика, попаданцы.
+
+Путь домой оказался не таким быстрым, как хотелось. То и дело приходится решать очередные проблемы, и не только свои. Случайности. Космические сражения. Политические интриги. Чужие тайны. Виктор сам не понял, как и когда оказался (   Читать дальше...   )Жанр: Космическая фантастика, попаданцыИздательство: ИДДКПродолжительность: 14:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935FF1F49CCAA9D00A320372BE58863322C43AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693566   (121775) от 21.01.2024
+
+Сергей Карелин, Евгений Лисицин | Покоритель Звездных врат (Книга 1) (2024) [MP3, Soarer]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кому-то далекое будущее может показаться прекрасным, но это только с дивана. Я же ощутил все прелести попаданчества на собственной шкуре. Уснул на даче, проснулся в теле наследника японского аристократического рода. Казалось бы все классно – денег полно, девчонки на шею вешаются, но это всего-лишь ширма. Враг не дремлет, желающие меня убить выстраиваются в очередь. (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 09:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6307A5A8B50FA41505D27C1446CCDBAFD03621A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693550   (121773) от 21.01.2024
+
+Андрей Ткачёв, Георгий Сомхиев | Младший сын князя (Книга 1) (2024) [MP3, Михаил Алексеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121773.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Младший сын князя» – роман Андрея Ткачева и Георгия Сомхиева, первая книга одноименного цикла, жанр бояръ-аниме, боевое фэнтези, городское фэнтези.
+
+Обладать уникальной силой, направленной на то, чтобы помочь другим, и в итоге всё равно погибнуть, но унести жизни врагов с собой. Казалось бы, на этом конец, но новый мир даёт возможность прожить жизнь иначе, как будто (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-аниме, Городское фэнтезиИздательство: ИДДКПродолжительность: 07:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DFA7705BBFC1F4CE76E4F4C4A17E0A3235E235
 ```
 
 https://mybot314.ru/tekegram_catalog/

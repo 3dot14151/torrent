@@ -1,55 +1,3 @@
-###  Публикация: 24726   (765831) от 29.01.2019
-
-Соучастник / Collateral (2004) HDTV [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Винсент - лощеный, интеллигентный и хладнокровный наемный убийца экстра-класса, прилетевший в Лос-Анджелес, чтобы выполнить крупный заказ. За одну ночь киллеру нужно отправить на тот свет сразу нескольких человек в разных концах огромного города. Для этого он берет в заложники ничего не подозревающего таксиста по имени Макс, который теперь под дулом пистолета будет (   Читать дальше...   )Производство: США / Paramount Pictures, DreamWorks, Parkes+MacDonald Image NationЖанр: триллер, драма, криминалРежиссер: Майкл МаннАктеры: Том Круз, Джеми Фокс, Джада Пинкетт Смит, Марк Раффало, Питер Берг, Брюс МакДжилл, Ирма П. Холл, Барри Шабака ХенлиПеревод: Профессиональный многоголосыйСубтитры: отсутствуютПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CAD71292E1659885F7E1C040B6E57209DC0262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279249   (765828) от 29.01.2019
-
-Хэллфест / Hell Fest (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три подруги встречаются накануне Хэллоуина и вместе со своими парнями решают отметить праздник походом на Хэллфест, популярный фестиваль, главная цель организаторов которого — напугать посетителей до полусмерти. Но для серийного убийцы в маске Хэллфест — это не просто карнавал ужасов, а площадка для смертельных игр. В этот раз он решает преследовать Натали, и теперь (   Читать дальше...   )Производство: США, Tucker Tooley Entertainment, Valhalla Motion PicturesЖанр: УжасыРежиссер: Грегори ПлоткинАктеры: Эми Форсайт, Рейн Эдвардс, Бекс Тейлор-Клаус, Кристиан Балис, Мэтт Меркьюрио, Тони Тодд, Микаэль Турек, Кортни Дитц, Эль Грэхэм, Алисия РосатоПеревод: Дублированный (iTunes)Субтитры: Английские (полные, SDH)Продолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B018FCE5672AF2B4545DC45C0CF3B75F091B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 343191   (765827) от 29.01.2019
 
 Убежище / Shelter / 6 Souls (2010) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765827.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765824.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765802.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765800.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765793.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765785.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765706.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765680.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765676.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765666.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765641.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765639.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765634.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765632.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765631.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765630.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765629.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765628.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765627.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765625.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765411.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765336.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765325.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765318.jpg" />
 </div>
 
 
@@ -669,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B108CEB07817F971F7024EAC112C5EB44A2CE71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126016   (765290) от 18.04.2017
+
+Забирай своё сам / Выбирай свое сам / You Bury Your Own (2015) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилла, Джон и Эйден Райаны - не образцовая семья. Их прошлое покрыто тёмными тайнами. Уилла пытается вырваться из порочного круга, но когда умирает Эйден, она вынуждена объединиться с Джоном, чтобы найти, кому их брат мог перейти дорогу.Производство: СШАЖанр: ТриллерРежиссер: Роберт УилсонАктеры: Дэн Эбельс, Франсуа Баттисте, Пеппер Бинкли, Джереми Дэвидсон, Кристиан Фрэзиер, Джон Гловер, Сальваторе Инзерилло, Джон Манчини, Марк МарголисПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57E40867B9A4CC275B28544ECF8DA40D2051088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393950   (765282) от 03.07.2020
+
+Закон противоположностей / Canone inverso - Making Love (2000) DVDRip [H.264] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765282.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, которая начинается в Праге на аукционе с продажи раритетной скрипки в  1968-ом году, и уводит зрителя в годы, когда никто не знал, что впереди у всего человечества  мировая война.
+В те далекие и пока еще мирные годы Йено Варга был мальчишкой, но уже гениально играл на скрипке. Музыка звучала в его душе. Йено вкладывал в скрипку всю страсть, что кипела в его (   Читать дальше...   )Производство: Италия / Cecchi Gori Group Fin.Ma.Vi.Жанр: драмаРежиссер: Рикки ТоньяцциАктеры: Ханс Мэтисон, Мелани Тьерри, Ли Уильямс, Гэбриел Бирн, Рикки Тоньяцци, Питер Вон, Ниа Робертс, Адриано Паппалардо, Энди Луотто, Маттиа Сбраджа, Домициана Джордано, Рэйчел Шелли, Грегори Харрисон, Андреа Продан, Мартин Фалтин, Дуглас А. Харрисон, Стивен ФишерПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4484947B9DE2828CA1CEE372910FD3FFDF5E9BF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

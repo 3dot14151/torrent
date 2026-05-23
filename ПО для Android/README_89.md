@@ -1,55 +1,3 @@
-###  Публикация: 1470148   (186958) от 18.11.2022
-
-Я ГОВОРЮ:  v95.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Я ГОВОРЮ - это законченный курс онлайн-школы DIALOGO разговорного английского языка со встроенным речевым тренажёром-репетитором. Его фокус – постановка РЕЧИ. Его особенность - активная языковая практика не требующая наличия партнёра или репетитора! Эффект гарантируется за 2-4 месяца самостоятельных занятий по 15-20 минут в день. По эффективности, срокам и стоимости (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.10.2022Разработчик: Intelligent EmoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3569A1CC71D8845142AC66E7081BDA30E265162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591805   (186819) от 19.11.2022
-
-ALTLAS: Trails, Maps & Hike 3.3.9 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте, записывайте и делитесь своими действиями, используйте самый точный высотомер и отслеживайте информацию с помощью альтиметра - трекера активности. Найдите пешеходные маршруты, запишите свои действия с помощью GPS, импортируйте / экспортируйте маршруты GPX.Тип издания: ProРелиз состоялся: 5 нояб. 2022 г.Разработчик: Erol1AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5FFC6F2011CA8DEF538643DBB0F4F0C16167BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591734   (186773) от 19.11.2022
 
 Dictionary 15.2 [Ru/Multi]
@@ -58,7 +6,7 @@ Dictionary 15.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186773.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186730.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186702.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ FineReader Pro: PDF Scanner v15.2.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186627.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186233.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ YouCut - Видеоредактор v1.592.1175 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186224.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185925.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ Battery Alert 40-80 Pro 1.48 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185667.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185222.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184954.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ DNS Changer Fast&Secure Surf 1.2.8 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184486.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ Universal Copy v6.3.5 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183842.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ ImageMeter - photo measure v3.8.8 Mod by KitKat [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182078.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182062.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182017.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181978.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181911.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181564.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181539.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181520.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181442.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181293.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181236.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181156.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:363D4B4A93DF0C4AB5CE3D20DD2500B8BA0AD659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593429   (181058) от 26.11.2022
+
+QuickEdit Text Editor Pro 1.9.7 Mod by Katafrakt [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181058.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickEdit Text Editor Pro - Полноценный и многофункциональный текстовый редактор в котором вы сможете хранить свои записи. Так же он поддерживает функцию автозаполнения, и будет предлагать варианты для вставки. Его скорость работы и время реакции гораздо лучше, чем у имеющихся в настоящее время в Google Play приложений для редактирования текстов. Он может использоваться (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 25.11.2022Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4334B354B1A99B8E83F8D3C78B03F8D9D1187A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593444   (181028) от 26.11.2022
+
+Code Editor Pro 0.7.5 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Code Editor Pro - это оптимизированный текстовый редактор, ориентированный на написание программного кода. Это удобный инструмент для разработки на Android. Он содержит необходимые функции для кодирования, включает подсветку синтаксиса, автоматический отступ, помощь в написании кода, автоматическое завершение и т.д.Тип издания: PremiumРелиз состоялся: 26.08.22Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396B2A1C1B64DF2956D7BEF13C966F6FEB59291A
 ```
 
 https://mybot314.ru/tekegram_catalog/

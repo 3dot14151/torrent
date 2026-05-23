@@ -1,62 +1,3 @@
-###  Публикация: 548888   (466576) от 18.09.2012
-
-Корпорация «Бессмертие» / Беглец / Freejack (1992) [720p] HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Алекс Ферлонг, гонщик, погибает во время ралли. Смерть стала новым стартом. Преодолев 18 лет за доли секунды
-он финишировал в 2009 году. Осмотреться в «дивном, новом мире» некогда. Здесь идут гонки на выживание.
-Охоту на Алекса возглавляет Васендак (Мик Джаггер). «Заказал» Алекса МакКэндлес (Энтони Хопкинс).
-В будущем супербогатыене умирают. Их души имплантируются в тела других людей. Алекс предназначен стать
-биологическим контейнером для души крупного чиновника - шефа корпорации, подчинившей себе весь мир.Жанр: Фантастика, Боевик, ТриллерРежиссер: Джеф МерфиАктеры: Эмилио Эстевез, Мик Джаггер, Рене Руссо, Энтони Хопкинс, Джонатан Бэнкс, Дэвид Джохансен,
-Аманда Пламмер, Гранд Л. Буш, Фрэнки Фэйзон, Джон ШиПеревод: Дублированный, закадровый одноголосый (4 шт.)Язык субтитров: Русские, Английские (SDH)Продолжительность: 01:49:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387035   (466518) от 13.09.2011
-
-Квант милосердия / James Bond: Quantum of Solace (2008) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После предательства Веспер, агент 007 борется с желанием превратить последнее задание в личную вендетту. В поисках истины, Бонд и М допрашивают Мистера Уайта, от которого узнают, что шантажировавшая Веспер Организация намного сложнее и опаснее, чем можно было подумать.
-
-Судмедэксперты Mi6 устанавливают связь Веспер с анонимным банковским счётом на Гаити. Там Бонд (   Читать дальше...   )Жанр: Боевик, триллер, приключенияРежиссер: Марк ФорстерАктеры: Дэниэл Крэйг, Ольга Куриленко, Мэтью Амальрик, Джуди Денч, Джанкарло Джаннини, Джемма Артертон, Джеффри Райт, Дэвид Харбор, Джеспер Кристенсен, Anatole Taubman, Рори Киннер, Тим Пиготт-Смит, Хоакин Косио, Фернандо Гулен Куерво, Иисус Очоа, Lucrezia Lante della Rovere, Гленн Фостер, Пол Риттер, Simon Kassianides, Стана Катич, Нил ДжексонПеревод: ДублированныйСубтитры: Русские, РусскиеПродолжительность: 01:46:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548231   (466459) от 18.09.2012
 
 Тренировочный день / Training Day (2001) [720p] BDRip
@@ -65,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466459.jpg" />
 </div>
 
 
@@ -91,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466412.jpg" />
 </div>
 
 
@@ -117,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466334.jpg" />
 </div>
 
 
@@ -143,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466325.jpg" />
 </div>
 
 
@@ -171,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466277.jpg" />
 </div>
 
 
@@ -197,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466267.jpg" />
 </div>
 
 
@@ -223,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466149.jpg" />
 </div>
 
 
@@ -249,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466146.jpg" />
 </div>
 
 
@@ -275,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466145.jpg" />
 </div>
 
 
@@ -301,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466142.jpg" />
 </div>
 
 
@@ -327,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466132.jpg" />
 </div>
 
 
@@ -353,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466113.jpg" />
 </div>
 
 
@@ -379,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466084.jpg" />
 </div>
 
 
@@ -405,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_466062.jpg" />
 </div>
 
 
@@ -433,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466048.jpg" />
 </div>
 
 
@@ -459,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466020.jpg" />
 </div>
 
 
@@ -485,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466014.jpg" />
 </div>
 
 
@@ -511,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465914.jpg" />
 </div>
 
 
@@ -537,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465901.jpg" />
 </div>
 
 
@@ -563,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465851.jpg" />
 </div>
 
 
@@ -589,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465743.jpg" />
 </div>
 
 
@@ -615,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465741.jpg" />
 </div>
 
 
@@ -641,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465675.jpg" />
 </div>
 
 
@@ -667,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465518.jpg" />
 </div>
 
 
@@ -678,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD29964E519D386461B1E0BE513FD3679A7D1B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246178   (465332) от 09.09.2018
+
+С любовью, Саймон / Love, Simon (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Саймон скрывает от друзей свою гомосексуальность, но его переписка с анонимным возлюбленным попадает в чужие руки. Школьный «клоун» Мартин угрожает разоблачить Саймона, если тот не поможет ему завязать роман с местной красавицей.Производство: США / Fox 2000 PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Грег БерлантиАктеры: Ник Дж. Робинсон, Джош Дюамель, Дженнифер Гарнер, Кэтрин Лэнгфорд, Александра Шипп, Майлс Хейзер, Талита Бейтман, Кейнан Лонсдейл, Логан Миллер, Тони ХейлПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские, украинские, румынские, английские (full, SDH)Продолжительность: 01:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4E58A7B98B6CD17522F8ED4FCEA508E49144C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161540   (465244) от 29.08.2017
+
+Маска Зорро / The Mask of Zorro (1998) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стареющий герой, отдавший все силы борьбе за справедливость, проведший десятилетия в темнице, потерявший жену и дочь, передает свои знания, умения и черную маску молодому отчаянному бойцу, который отныне и будет сражаться с теми, кто вершит зло.Производство: США, ГерманияЖанр: Боевик, Приключения, Комедия, ВестернРежиссер: Мартин КэмпбеллАктеры: Антонио Бандерас, Энтони Хопкинс, Кэтрин Зета-Джонс, Йоланда Орисага, Пако Морайта, Уильям Маркес, Стюарт Уилсон, Тони Амендола, Диего Сирес, Педро АльтамираноПеревод: ДублированныйСубтитры: Русские (Forced), русские (Full), АнглийскиеПродолжительность: 02:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA79F02E5275E06F5E38AA14AEF4159879A210A
 ```
 
 https://mybot314.ru/tekegram_catalog/

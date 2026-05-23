@@ -1,135 +1,3 @@
-###  Публикация: 1587240   (192792) от 30.10.2022
-
-Н.М. Меламедман, К.К. Пономарёв | Курс высшей математики [2 книги] (1974) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Курс высшей математики для программистов
-Первый том посвящён в основном аналитической геометрии
-Второй том посвящён математическому анализуЖанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A76EE74800EF376B2DEB6D4919C0B9E86C73D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587519   (192587) от 31.10.2022
-
-К.К. Пономарёв | Составление и решение дифференциальных уравнений инженерно-технических задач (1962) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для физико-математических факультетов педагогических институтов. Является руководством по составлению и решению дифференциальных уравнений. Цель автора — создание учебного пособия, которое широко охватило бы различные задачи естествознания и техники и способствовало овладению современной методикой составления дифференциальных уравнений прикладных (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095CDCE7F80FF9734D91A01AAEEA85B2C6BC9115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587550   (192579) от 31.10.2022
-
-В.А. Садовничий (ред.) | Задачи и упражения по математическому анализу [2 книги] (1988 - 1991) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие соответсвует программе 1-го и 2-го курсов для студентов-математиков и отражает опыт преподавания математического анализа на механико-математическом факультете МГУ. Большая часть задач отлична от содержащихся в известном задачнике Б.П. ДемидовичаЖанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30D3F89795B3E126C8212FAF1A04CB62BC7B045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587459   (192565) от 31.10.2022
-
-В.А. Ильин и др. | Математический анализ [2 книги] (1985-1987) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Двухтомное совместное издание Московского Государственного Университета и Софийского Университета имени святого Климента Охридского по математическому анализу.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3298A05E08C924B52D8E662AD3F1E0F7A84578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587507   (192563) от 31.10.2022
-
-Александр Боханов | Император Александр III (2019) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Император Александр III еще при жизни заслужил звание Царя-Миротворца, так как за время его правления ни капли русской крови не пролилось на полях сражений. При нем Россия вернула престиж великой мировой державы, значение и влияние которой стали очевидны и общепризнаны. Александр III не восхищался Западом, не поклонялся либеральным идеям, считая, что буквальное насаждение (   Читать дальше...   )Жанр: История РоссииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF97D1F2A2294241BEDC73EA1B48FCABA59104E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587588   (192533) от 31.10.2022
 
 Владимир Зисман | Занимательная музыкология для взрослых (2022) [EPUB]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192533.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192288.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192098.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192056.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192030.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192007.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191984.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191771.jpg" />
 </div>
 
 
@@ -349,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191758.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191754.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191752.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191702.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191595.jpg" />
 </div>
 
 
@@ -480,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191582.jpg" />
 </div>
 
 
@@ -506,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191571.jpg" />
 </div>
 
 
@@ -535,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191553.jpg" />
 </div>
 
 
@@ -562,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191551.jpg" />
 </div>
 
 
@@ -588,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191536.jpg" />
 </div>
 
 
@@ -614,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191346.jpg" />
 </div>
 
 
@@ -641,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191257.jpg" />
 </div>
 
 
@@ -667,7 +535,7 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191230.jpg" />
 </div>
 
 
@@ -679,6 +547,138 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A275C3CD8E46DB74DB79BC1325E98491D87922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588773   (191022) от 06.11.2022
+
+С.Г. Бобков, А.С. Басаев | Методы и средства аппаратного обеспечения высокопроизводительных микропроцессорных систем (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важнейшей характеристикой микропроцессорных систем является производительность. Производительность микропроцессора линейно зависит от трех характеристик – его частоты, средней частоты на выполнение инструкций и количества инструкций в выделенной области программы. В свою очередь, эти характеристики определяются технологией изготовления, архитектурой микропроцессора, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E5EBBE86FCE8368AD3D2949D831F499B1BB111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658759   (190919) от 09.09.2023
+
+А.В. Дятлов | Прикладная математика в социальных науках (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник содержит изложение раздела «Линейная алгебра», входящего в учебную программу курса «Математический анализ», изучаемого студентами специальности «Регионоведение» Института социологии и регионоведения Южного федерального университета. Главная цель этой книги - дать читателю принципы для понимания основных математических методов, использующихся в количественных (   Читать дальше...   )Жанр: МатематикаИздательство: Южный ФУФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C78AEF3C7799152464BAD18D6FC051822BDFAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658853   (190840) от 09.09.2023
+
+Подборка технической литературы и документов по отопительному оборудованию (2015) [PDF, DOC, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка технической литературы и документов по системам отопления и отопительному оборудованию, актуальностью примерно на 2015 год.
+
+Материалы предоставленныеЖанр: ОтоплениеИздательство: РазличныеФормат: PDF, DOC, DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C87DFCE1F16C840B9358F64B34EA677371C810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658746   (190822) от 09.09.2023
+
+Н.Е. Сухов | Радиохобби: Лучшие конструкции аудиотехники и акустических систем своими руками (2012) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190822.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время радиолюбители-практики, любители качественного звука имеют неограниченные возможности для создания своими руками полезных аудиоустройств, а также сабвуферов, акустических систем. Для аудиофилов создана эта самая схемотехническая книга. Особое внимание уделено регуляторам громкости и тембра, предусилителям, устройствам динамической обработки звукового (   Читать дальше...   )Жанр: Электроника, радиотехникаИздательство: Наука и ТехникаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3149E3D983FB6ED4DC4FE43BCA02B9567D8580C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588722   (190786) от 07.11.2022
+
+Е. К. Дулуман | Введение христианства на Руси: легенды, события, факты (1988) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые с материалистических позиций исследуют предпосылки введения христианства на Руси. Привлекая большой круг публикаций, в том числе и древнерусские летописи, литературные памятники, они разоблачают церковные штампы, тенденциозные объяснения причин, обстоятельств и последствий данного явления. В книге освещаются малоисследованные стороны общественной жизни Древнеруссного (   Читать дальше...   )Жанр: научно-популярноеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9D0A05CD54BE81406D373FB4169F0607AB70BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,250 +1,3 @@
-###  Публикация: 1484663   (1005898) от 21.07.2021
-
-Udemy, Andrei Neagoie, Daniel Bourke | TensorFlow Developer Certificate in 2021: Zero to Mastery [Update 07.2021] (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Just launched with all modern best practices for working with TensorFlow and passing the TensorFlow Developer Certificate exam! Join a live online community of over 500,000+ students and a course taught by a TensorFlow certified expert. This course will take you from absolute beginner with TensorFlow, to becoming part of Google's TensorFlow Certification Network. (   Читать дальше...   )Производство: Udemy, ZTMЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 62:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7EA203E70A54D9C6DEACF0555B866D29429157E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485480   (1005414) от 25.07.2021
-
-Udemy, Laurence Svekis | Google Apps Script Complete Course New IDE 100+ Examples (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, что вы можете создать и как реализовать функциональность в своих приложениях G Suite - Помогите повысить продуктивность, объедините службы Google, чтобы ДЕЛАТЬ ЕЩЕ БОЛЬШЕ !!!! Основанный на JavaScript, ES6 + теперь обладает большей мощностью с более простым в использовании редактором, что делает кодирование увлекательным.
-Скрипт приложений Google работает (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 22:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA8670FD478E495358A188EB7CD9D40BE01887A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485459   (1005366) от 25.07.2021
-
-Udemy, Jonas Schmedtmann | Build Responsive Real-World Websites with HTML and CSS (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Что ж, я здесь, чтобы научить вас HTML, CSS и веб-дизайну, шаг за шагом создавая потрясающий веб-сайт, который вы только что видели.
-
-Итак, после прохождения этого курса вы будете точно знать, как создать красивый, профессиональный и готовый к запуску веб-сайт, такой же, как Omnifood, следуя 7-ступенчатому процессу. И он даже будет отлично смотреться на любом компьютере, (   Читать дальше...   )Производство: UdemyЖанр: Программирование, вёрсткаЯзык озвучки: АнглийскийПродолжительность: 49:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CCB3EF50232519DE53B3E678367A8C1D724735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485441   (1005364) от 25.07.2021
-
-Swiftbook, Алексей Ефимов  и др. | Профессия iOS-разработчик с нуля за 20 недель (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Быстро развивающийся рынок смартфонов обеспечивает растущий спрос на iOS-разработчиков. Освойте профессию Swift-разработчика для iOS с нуля до трудоустройства за 4-5 месяцев.
-Этот курс вам подходит, если вы
-Если вы никогда не занимались программированием – этот курс идеален для старта. Под пристальным присмотром кураторов вы освоите азы и прокачаетесь до настоящего (   Читать дальше...   )Производство: SwiftbookЖанр: ПрограммированиеПродолжительность: 103:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C10A0600531781A9597339D29BCCA2AB2699EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486772   (1004524) от 01.08.2021
-
-Udemy, Scott Barrett | JavaScript Algorithms and Data Structures Masterclass (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Быстро подготовьтесь к собеседованию по программированию с помощью анимированных примеров. После каждой строки кода обновляется анимация структуры данных или алгоритма, чтобы точно показать, что именно сделала эта строка кода.
-Анимация дает студентам огромные преимущества:
-    Лучшее понимание концепций;
-    Более высокий уровень удержания посетителей;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62FD3178D9195A74665D6605A80DC5F1432E40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486802   (1004477) от 01.08.2021
-
-Udemy, Apiko Academy | Frontend React JS Web Development Course (2021) PCRec [UKR]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Учебный интенсив посвященный веб-разработке и направления фронтенд используя технологии React. История Apiko берет свое начало в 2014 году. Все начиналось с JSSolutions - небольшого круга единомышленников, которые восхищались JavaScript разработкой. В декабря 2017 года состоялся ребрендинг и название было изменено на "Apiko". За время существования компании (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: УкраинскийПродолжительность: 18:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5EA0B4137BD8919E09973B161CAC943BA39900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486664   (1004464) от 01.08.2021
-
-Udemy, Kati Frantz | Advanced React For Enterprise: React for senior engineers (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс React для опытных разработчиков !! Для этого курса требуется 100% знание React. Я работаю с React.js более 5 лет и очень рад поделиться с вами навыками, необходимыми для преуспевания в качестве старшего разработчика React.
-Мы создадим нашу собственную дизайн-систему с нуля. Это даст нам возможность затронуть такие важные темы, как:
-    Архитектура (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 06:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419F64AD784728A8A9D0A4AADA0AF4D8453F6EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487241   (1003745) от 04.08.2021
-
-Udemy, Jason Cannon | Linux Shell Scripting: A Project-Based Approach to Learning (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Вы пытались самостоятельно изучить сценарии оболочки, но у вас отсутствует структура, необходимая для улучшения ваших навыков?
-Вы устали собирать обрывки информации, которую вы не можете просто собрать воедино?
-Вы лучше всего учитесь на практике?
-Если так, вам понравится этот курс.(   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 11:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E67BBA311807301963DEB911E56A3873BC220E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350066   (1003631) от 04.01.2020
-
-OTUS | Web-разработчик на Python (2019) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для подготовки специалиста, который сможет не только решать рядовые задачи бекенд-разработки, но и сделать с нуля современную фронтенд часть.Жанр: Программироание, PythonПродолжительность: 62:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A316DAD4A4D0A5A93E8EE9FF95D5A70D52C2408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487420   (1003550) от 05.08.2021
 
 Udemy, Zachary Reece | A Complete Guide to the JAMstack and React E-Commerce (2021) PCRec [En / En Sub]
@@ -253,7 +6,7 @@ Udemy, Zachary Reece | A Complete Guide to the JAMstack and React E-Commerce (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003550.jpg" />
 </div>
 
 
@@ -279,7 +32,7 @@ Udemy, Jonas Schmedtmann | Node.js, Express, MongoDB & More: The Complete Bootca
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003477.jpg" />
 </div>
 
 
@@ -307,7 +60,7 @@ Udemy, Dennis Ivy | Python Django 2021 - Complete Course  (2021) PCRec [En / En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003471.jpg" />
 </div>
 
 
@@ -336,7 +89,7 @@ Udemy, Coding Revolution | The complete React Fullstack course (2021 edition) (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003468.jpg" />
 </div>
 
 
@@ -364,7 +117,7 @@ Udemy, Trevoir Williams | Entity Framework Core - A Full Tour (.NET 5 and up) (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003262.jpg" />
 </div>
 
 
@@ -392,7 +145,7 @@ Cybrary | CompTIA Security+ (SY0-601) (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003249.jpg" />
 </div>
 
 
@@ -420,7 +173,7 @@ Udemy, Adnan Waheed | PostgreSQL Bootcamp : Go From Beginner to Advanced, 60+hou
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003214.jpg" />
 </div>
 
 
@@ -448,7 +201,7 @@ Zero To Mastery Academy (ZTM), Andrei Dumitrescu | DevOps Bootcamp: Learn Linux 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003171.jpg" />
 </div>
 
 
@@ -475,7 +228,7 @@ Zero To Mastery Academy (ZTM), Andrei Neagoie, Aleksa Tamburkovski | Web Securit
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003014.jpg" />
 </div>
 
 
@@ -501,7 +254,7 @@ Udemy, Исмаил Усеинов | Unity Bolt - визуальное прог�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002981.jpg" />
 </div>
 
 
@@ -527,7 +280,7 @@ Rebrain, Fevlake | ClickHouse онлайн-практикум (2021) PCRec [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002963.jpg" />
 </div>
 
 
@@ -555,7 +308,7 @@ Udemy, Елизавета Кряжкова | Git и GitHub с нуля до пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002959.jpg" />
 </div>
 
 
@@ -582,7 +335,7 @@ Zero To Mastery Academy (ZTM), Paul Mendes | The Complete Guide to Freelancing i
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002776.jpg" />
 </div>
 
 
@@ -609,7 +362,7 @@ Podlodka Crew | Podlodka iOS Crew [Сезон 1-5] (2020-2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002710.jpg" />
 </div>
 
 
@@ -636,7 +389,7 @@ Stepik, Алексей Голобурдин | Основы компьютерн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002195.jpg" />
 </div>
 
 
@@ -665,7 +418,7 @@ Udemy, Helen Kapatsa | Ускоренный курс PyTorch (2021) PCRec [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001977.jpg" />
 </div>
 
 
@@ -691,7 +444,7 @@ Udemy, Andrei Dumitrescu, Crystal Mind Academy | Master Python Programming: The 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001935.jpg" />
 </div>
 
 
@@ -703,6 +456,251 @@ Udemy, Andrei Dumitrescu, Crystal Mind Academy | Master Python Programming: The 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F824AC8826E695932B6A19E44375B611AF6D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488627   (1001698) от 12.08.2021
+
+ITVDN, Евгений Мыца | Android User Interface (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный видео курс посвящен разработке пользовательского интерфейса под ОС Android. После успешного завершения курса вы будете понимать основные принципы разработки UI для мобильных приложений и сможете использовать полученные знания в собственных проектах.
+Чему вы научитесь с помощью данного видео курса:
+Разбираться в элементах пользовательского интерфейса Android-приложений (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 05:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E900B9749068F98698BFB8F775D3DB2A099252E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488621   (1001673) от 12.08.2021
+
+Студия Миши Рудрастых, Миша Рудрастых | Базовый курс по созданию блока Gutenberg! (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в интернете начали появляться плагины, позволяющие создавать блоки Gutenberg на PHP, я уже не мог больше это игнорировать!
+Итак, ещё раз добро пожаловать на курс и что вас на нём ждёт:
+Что будет на курсе?
+1. Научимся создавать блок с произвольным HTML и стилизовать его в CSS(   Читать дальше...   )Производство: Студия Миши РудрастыхЖанр: Вёрстка сайтовПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D5D17E5BDF73AC21841556C37405EC549ECDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488999   (1001387) от 13.08.2021
+
+Redmadrobot | Практический онлайн-курс «Дизайн мобильных приложений» (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс для тех, кто хочет снимать сливки в профессии дизайнера, занимаясь самой передовой и востребованной отраслью — разработкой дизайна для мобильных приложений. 90 млрд приложений было загружено в 2016 году по всему миру, 5 место по числу загрузок заняла Россия, 33 приложения установлено у среднестатистического пользователя.  Курс идеально подойдет для дизайнеров, (   Читать дальше...   )Производство: RedmadrobotЖанр: Программирование, дизайн приложенийПродолжительность: 16:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9161462D6D39E1334B5C056BEEFB195833A99C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488839   (1001321) от 13.08.2021
+
+Udemy, Andrey Sumin | Android профессиональный уровень (Kotlin) (2021) PCRec [AD]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предназначен для тех, кто уже изучил основы Андроид разработки и умеет писать код на Котлине.
+Здесь мы изучим все, что нужно, чтобы пройти собеседование по части Андроид на должность Junior разработчика в большинстве компаний.
+Перед тем, как приступить непосредственно к изучению андроид разработки, мы пройдем процесс подготовки, где научимся работать как (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 10:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F693B500AB53C6ED79F63B91EED874FD6E84DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275902   (1001196) от 13.01.2020
+
+Udemy | Kali Linux Для Начинающих (2018) PCRec [H.264/720p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас пугает командная строка и вы не знаете, что с ней делать? Если да, то этот курс отлично вам подойдет. В этом обучающем курсе начнем с самых азов, предположим, что вы ничего не знаете о Linux! Мы начнем с самых азов и постепенно будем учиться пользоваться Kali Linux. В итоге вы будете «как рыба в воде» при работе не только в Kali Linux, но и при работе с большинством (   Читать дальше...   )Производство: UdemyЖанр: Операционные системы, LinuxПродолжительность: 07:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACF7E9863E849553E9FE1E12F1E4AFCCC5AB3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489067   (1001112) от 14.08.2021
+
+Udemy, Code Warriors | Learn Flutter and Dart to create Android and IOS apps (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам не нужно изучать Android / Java и iOS / Swift, чтобы создавать настоящие нативные мобильные приложения!
+Flutter - фреймворк, разработанный Google - позволяет выучить один язык (Dart) и быстро создавать красивые нативные мобильные приложения. Flutter - это SDK, предоставляющий инструменты для компиляции кода Dart в собственный код, а также богатый набор предварительно (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CFAA5151EA57C1103C512B3F50CC317B62B08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489094   (1001069) от 14.08.2021
+
+Skypro, Марк Сысоев, Санжар Ессенгараев | Excel для анализа данных (2021) PCRec [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Excel — незаменимый инструмент для бухгалтеров, экономистов, маркетологов, менеджеров, предпринимателей и аналитиков. Но мало кто умеет профессионально им пользоваться. После курса вы поймете, что Excel — это не только таблицы.
+Чему вы научитесь:
+Извлекать инсайты для бизнеса, находить закономерности и делать прогнозы
+Объединять данные из разных выгрузок, делать (   Читать дальше...   )Производство: SkyproЖанр: Анализ данныхПродолжительность: 07:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED912C4855470D448189FB638F96931E0F7E7B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352010   (1001012) от 14.01.2020
+
+Lynda.com | JavaScript: Область видимости / JavaScript: Scope (2018) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Область видимости JavaScript определяет, как переменные могут быть доступны в вашем коде. Есть две области: глобальная и локальная. Глобальные переменные доступны из любого места. Локальные переменные доступны только из функции или блока, в котором объявлены переменные. Область применения может сбивать с толку, особенно когда влияют такие факторы, как подъём и закрытие (   Читать дальше...   )Производство: Lynda.comЖанр: Программирование, JavaScriptПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89919E69D0414FF82A8A409B911DE64B20657310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352011   (1000995) от 14.01.2020
+
+Lynda.com | JavaScript: Классы / JavaScript: Classes (2018) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В выпуске ECMAScript 2015 синтаксис классов был добавлен в JavaScript, что позволило разработчикам использовать наследование классов с помощью некоторых знакомых инструментов. Если вы новичок в этом языке или просто не знаете, как работают классы в ECMAScript 6 (ES6), то этот курс для вас.Производство: Lynda.comЖанр: Программирование, JavaScript, ECMAScript 6Перевод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADB3FDD464688DD50C4447A91E2E03E9B36E1F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

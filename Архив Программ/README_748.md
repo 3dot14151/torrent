@@ -6,7 +6,7 @@ Benvista PhotoZoom Pro 6.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671731.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander Ultima Prime 7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671725.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671570.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Resource Hacker 5.0.41 (beta) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671418.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DVDFab 9.2.0.0 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671392.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Jetico BestCrypt 8.24 [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_671347.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Basilisk 2018.04.27 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671321.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ummy Video Downloader 1.10.1.0 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671315.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Azureus BitTyrant 2.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671311.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TeamViewer 10.0.42650 Free | Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671235.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ R-Studio 7.6 Build 158796 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671131.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ R-Studio 7.6 Build 158796 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671122.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wondershare Filmora 8.7.0.2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671112.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ IObit Driver Booster Pro 5.4.0.832 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671108.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Uninstall Tool 3.5.5 build 5580 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671104.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Wondershare Filmora 8.7.0 + Effects Mega Pack (Repack by Azbukasofta) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671102.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SolveigMM Video Splitter 5.0.1505.20 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671056.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Google Chrome 43.0.2357.65 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671054.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Opera 29.0.1795.60 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671049.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ R-Studio 7.6 Build 158796 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671039.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VidCoder 2.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671036.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Artweaver Free 6.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671031.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ SQL Dynamite 2.1.2.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671024.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Reg Organizer 7.12 DC 19.05.2015 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670959.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ AVG Internet Security 2015 15.0.5961 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670953.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ GPU-Z 2.1.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670948.jpg" />
 </div>
 
 

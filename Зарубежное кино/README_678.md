@@ -1,56 +1,3 @@
-###  Публикация: 1215023   (759363) от 25.03.2018
-
-На глубине 6 футов / 6 Below: Miracle on the Mountain (2017) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После окончания блестящей спортивной карьеры Эрик Лемарк, олимпийский чемпион мира по хоккею, уже не может жить без адреналина. Теперь драйв он находит в наркотиках и сноуборде. Когда лыжный патруль в горах Маммос (Калифорния) закрывает все трассы из-за надвигающейся бури, Лемарк решает сделать последний спуск и оказывается в смертельной снежной западне…
-Фильм основан (   Читать дальше...   )Производство: США / Dune Entertainment, Rockpile Studios, Sonar Entertainment, Tooley ProductionsЖанр: Триллер, драма, приключения, биографияРежиссер: Скотт ВоАктеры: Джош Хартнетт, Мира Сорвино, Сара Дюмон, Кейл Калли, Джейсон Коттл, Остин Р. Грант, Нэйтан Стивенс, Марти МакСорели, Шон Пильц, Ваши НедоманскиПеревод: Дублированный (Лицензия), авторский (В.Дохалов)Субтитры: ОтсутствуютПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AAFD04C649D9180D833CC6D74253211F651ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215210   (759358) от 25.03.2018
-
-Лунатик / Sleepwalker (2017) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сара обращается в клинику для того, чтобы излечиться от бессонницы и ночных кошмаров, но вместо этого начинает чувствовать тревожные изменения каждый раз, когда просыпается. С помощью доктора девушка пытается вернуться к нормальной жизни, постепенно распутывая прочный узел из снов, реальности и даже трагического прошлого.Производство: США / Night and Day PicturesЖанр: ТриллерРежиссер: Эллиотт ЛестерАктеры: Ричард Армитедж, Хейли Джоэл Осмент, Кевин Зегерс, Рэйчел Мелвин, Изабелла Скорупко, Ана О’Райли, Мэттью Дель Негро, Эмма Фитцпатрик, Дэмиен Лик, Хантер ШтибельПеревод: Многоголосый закадровый, профессиональный (Alexfilm)Субтитры: АнглийскиеПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC4B6D4CE14968BE275D9C50983825781F03AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 204809   (759343) от 27.05.2010
 
 Остаться в живых / Fritt vilt (2006) DVDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759343.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759291.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759200.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759196.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759174.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759173.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759084.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759023.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759018.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758964.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758963.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758914.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758904.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758902.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758896.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758864.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758831.jpg" />
 </div>
 
 
@@ -507,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758826.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758777.jpg" />
 </div>
 
 
@@ -561,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758766.jpg" />
 </div>
 
 
@@ -587,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758742.jpg" />
 </div>
 
 
@@ -613,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758713.jpg" />
 </div>
 
 
@@ -639,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758706.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758650.jpg" />
 </div>
 
 
@@ -676,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C71DDC0BBB303540BCFB7E82304EA481DB1124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395067   (758633) от 08.07.2020
+
+Непобедимый дракон (Неуязвимый дракон) / Jiu long bu bai / The Invincible Dragon (2019) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принципиальный и честный гонконгский полицейский по кличке Безумец назначается на расследование убийства женщины-коллеги. Дотошный страж порядка не может найти ни одной зацепки, но, когда внезапно пропадает его невеста, тоже сотрудница полиции, становится ясно, что Безумцу придётся иметь дело с серийным убийцей.Производство: Гонконг, Китай, Pegasus Motion PicturesЖанр: боевик, детектив, криминалРежиссер: Фрут ЧанАктеры: Макс Чжан, Андерсон Силва, Кевин Чэн, Энни Лю, Стефи Тан, Жужу Чан, Энди Чоу, Лам Сует, Ричард Нг, Деон ЧунПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC1F4CCE92C3FF8658E9DA62540F15E657E7BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390524   (758632) от 08.07.2020
+
+Восточный ветер 2 / Ostwind 2 / Windstorm 2 (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступили летние каникулы, и Мика возвращается в Кальтенбах в тревоге за своего вороного друга Оствинда. В поместье бабушки тоже не все гладко: Кальтенбах на грани банкротства, и единственный шанс спасти его от разорения — принять участие в очередном турнире. Также Мике придется выяснить, откуда у Оствинда странные шрамы, узнать, кто такая Тридцать Третья, и пойти (   Читать дальше...   )Производство: Германия / Constantin Film, Sam Film, SamFilm GmbHЖанр: Драма, мелодрама, приключения, семейныйРежиссер: Катя фон ГарньеАктеры: Атила, Ханна Бинке, Амбер Бонгард, Кенци Дисли, Корнелия Фробёсс, Кристиан Фуррер, Джеймс, Герхард Йилька, Нина Кронягер, Марвин ЛинкеПеревод: Дублированный (iTunes)Субтитры: Русские, английские, немецкиеПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094A40F15F6CC53E5358819753A6C3673267F87D
 ```
 
 https://mybot314.ru/tekegram_catalog/

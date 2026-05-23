@@ -1,56 +1,3 @@
-###  Публикация: 971552   (985472) от 03.01.2016
-
-Семь минут / 7 Minutes (2014) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда трое друзей решили совершить дерзкое ограбление, они не ожидали, что все сложится совершенно не так, как они рассчитывали. Они явно выбрали не то место и не то время. Ведь когда одному из них пришлось взять на прицел своего родственника — тот его узнал, и уже через несколько мгновений случилось непоправимое.Производство: США / Whitewater FilmsЖанр: Триллер, Драма, КриминалРежиссер: Джей МартинАктеры: Ливэн Рамбин, Люк Митчелл, Джейсон Риттер, Крис Кристофферсон, Зейн Холц, Расселл Ходжкинсон, Джоэль Мюррей, Кевин Гейдж, Брэндон Хардести, Крис СолдевиллаПеревод: Двухголосый закадровый, любительский (Parovoz Production)Субтитры: Английские (Вшитые, отключаемые)Продолжительность: 01:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C4BB827B8F8C9CE9E2A3A67E4849F2F308E0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932274   (985394) от 03.01.2016
-
-Рэкетир (2007) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Это биографическая история о жизни молодого человека по имени Саян, рассказанная им самим.
-Когда-то, в начале девяностых он - парень, который родился и вырос в Алма-Ате, подающий большие надежды боксёр, решил, что дорогу в жизнь можно пробить своими кулаками. И вроде все складывалось для него неплохо, даже очень… Но наступает момент, когда он начинает понимать, что (   Читать дальше...   )Производство: Казахстан, SataifilmЖанр: Боевик, Драма, КриминалРежиссер: Ахан СатаевАктеры: Саят Исембаев, Мурат Бесембин, Асель Сагатова, Жан Байжанбаев, Сакен Аминов, Ментай Утепбергенов, Владимир Вдовиченков, Болат Калымбетов, Олжас Сулейменов, Саламат Байрамуков, Талгат Сагинтаев, Айдар Мухамеджанов, Самат ЕсмухамбетовПеревод: Не требуетсяЯзык озвучки: РусскийЯзык субтитров: английскийПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370540396180ECB6EA78EA6EF9C8DEF9E25CC870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612557   (985172) от 02.02.2013
 
 Семь психопатов / Seven Psychopaths (2012) [720p] BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985172.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985053.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984613.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984606.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984605.jpg" />
 </div>
 
 
@@ -191,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984313.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984311.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984279.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984135.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984131.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984128.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984127.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984066.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984062.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984059.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984049.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984045.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983901.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983710.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983547.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983247.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983149.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983147.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983132.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB5F3B86EE1531394515B7F512529128346C7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741002   (982969) от 03.01.2014
+
+Риддик / Riddick (2013) BDRip [720p] [Unrated Director's Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преданный своими и брошенный умирать на пустынной планете, Риддик сражается с хищниками за жизнь и становится сильнее и опаснее себя прежнего. Открывшие на него охоту галактические наемники оказываются пешками в грандиозном плане отмщения. С врагами, возникающими на его пути тогда, когда это нужно самому Риддику, он начинает поход во имя мести, чтобы в конечном счете (   Читать дальше...   )Производство: США, Великобритания | One Race Productions, Radar PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Дэвид ТуиАктеры: Вин Дизель, Хорди Молья, Мэтью Нэйбл, Кэти Сакхофф, Дэйв Батиста, Букем Вудбайн, Рауль Трухильо, Конрад Пла, Дэнни Бланко, Карл Урбан, Ной Дэнби ...Перевод: Дублированный (iTunes) + Любительский двухголосый, закадровый (Paradox) на непереведённые местаСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский (SDH, SDH-Colored)Продолжительность: 02:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3844BC72DAF0C6DC466662A1C18850262B57653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740980   (982966) от 03.01.2014
+
+Бойфренд из будущего / About Time (2013) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тиму повезло — он молодой, симпатичный, многообещающий адвокат, а еще он… умеет перемещаться во времени. И чтобы очаровать девушку своей мечты, он готов повторять первое свидание вновь и вновь. Воистину, любовь с первого взгляда не всегда выходит с первого раза…Производство: Великобритания | Translux, Working Title FilmsЖанр: Фантастика, Драма, КомедияРежиссер: Ричард КёртисАктеры: Рэйчел МакАдамс, Донал Глисон, Билл Найи, Том Холландер, Марго Робби, Лидия Уилсон, Линдси Дункан, Ричард Кордери, Джош МакГуайр, Уилл МеррикПеревод: Дублированный (Лицензия)Язык субтитров: Русский, английскийПродолжительность: 02:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF35BDBDDFD5E728E15E86B4CB0C4835C8272813
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Dexpot 1.6.5 Build 2207 Stable + Portable [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000351.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Comfort On-Screen Keyboard Pro 7.0.2.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000347.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Hiren's Boot DVD 15.2 Restored Edition 1.0 (January 2013) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000304.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Total Commander 8.01 InnoV8Pack 1.12.12.01 Beta 9 [Русский/Английс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000298.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000292.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Genarts Sapphire for Adobe After Effects + Presets 6.14 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000290.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ The Loc Chat 2.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000204.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ TapinRadio 1.58.1 PRO [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000190.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ WinUtilities Pro 10.55 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000174.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Meridian 3.0.368.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000162.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ BitTorrent 7.7.3 Build 28706 Stable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000149.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Trillian Pro 5.3.Build 11 Beta [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000144.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Actual Multiple Monitors 5.0.2 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000141.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ DU Meter 6.05 Build 3768 [Eng/Rus] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000137.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nokia Suite 3.7.22 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000112.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Portable Corel PaintShop Pro X5 SP1 Build 15.1.0.10 [русский] by Sanek184
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000110.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.775.0 [MULTi / Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000100.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Aurora 3D Presentation 13.01.04 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999957.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Recuva 1.44.778 Slim [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999946.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Windows Repair (All In One) 1.9.4 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999902.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Serv-U File Server Platinum Enterprise 14.0.1.0 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999880.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Aurora 3D Text & Logo Maker v13.01.04 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999854.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ David Vinson's Particles Vol 1 for Particular 1.0.1 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999827.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WinMetro 2.0 Beta [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999823.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BLOCK 1.8 + Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999822.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Punto Switcher 3.2.8 Build 94 Upd. 23.12.12 RePack by elchupacabra [Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999820.jpg" />
 </div>
 
 

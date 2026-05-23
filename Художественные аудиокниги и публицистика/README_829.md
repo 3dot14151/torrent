@@ -1,86 +1,3 @@
-###  Публикация: 1673455   (165591) от 01.11.2023
-
-Марина Серова | Частный детектив Татьяна Иванова. Неземное создание (2023) [MP3, Анна Суковатая]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Никогда не понимала, кто и зачем придумал устраивать вечера встреч со своими бывшими одноклассниками?
-Ну какой в этом смысл? За те несколько лет, которые проходят после прощального выпускного бала, все недавние школьники умудряются настолько перемениться, что прежнего одноклассника порой бывает сложно даже и узнать.
-И не только внешне, хотя и такое тоже случается. (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7083799A25BFFCB88454C84C4B048E420D7B68D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345804   (165583) от 16.12.2019
-
-Дмитрий Силлов | S.T.A.L.K.E.R.: Закон «Дегтярева» (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Снайпер шел в Кремль, надеясь на то, что его все еще ждет там девушка с глазами цвета чистого неба.
-Он шел в Кремль…
-А попал в Зону. Чернобыльскую Зону, проклятую им многократно.
-Зону, в которой с нетерпением ждут его старые враги, чтобы поквитаться за прошлое, и по которой все еще бродят старые друзья. Те, кто исповедует жестокий, но жизненный закон Зоны – у кого (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 07:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9EB933D4FD4239763138135A0AE54A0E68258F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345801   (165579) от 16.12.2019
-
-Михаил Нестеров | Командарм (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Гвардейская воздушная армия под командованием Северова на острие атаки! Несколько мощнейших ударов по объектам в Германии, в том числе и по ставке Гитлера, приводят к капитуляции Третьего рейха. Долгожданная победа!!! Но для Северова война продолжается – его гвардейская армия обеспечивает десант на Японские острова и наносит поражение Императорскому флоту. Наступивший (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 11:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613AB02A8423D8350D8F3FEE436B5E11FADC3E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 740758   (165570) от 15.12.2020
 
 Всесоюзная студия грамзаписи | Весёлый вечер (1960-1962) [MP3, Аркадий Райкин, Игорь Ильинский и др.]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165570.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165556.jpg" />
 </div>
 
 
@@ -142,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165537.jpg" />
 </div>
 
 
@@ -168,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165532.jpg" />
 </div>
 
 
@@ -194,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165528.jpg" />
 </div>
 
 
@@ -220,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165525.jpg" />
 </div>
 
 
@@ -246,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165511.jpg" />
 </div>
 
 
@@ -272,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165445.jpg" />
 </div>
 
 
@@ -298,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165422.jpg" />
 </div>
 
 
@@ -324,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165401.jpg" />
 </div>
 
 
@@ -350,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165384.jpg" />
 </div>
 
 
@@ -377,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165381.jpg" />
 </div>
 
 
@@ -403,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165375.jpg" />
 </div>
 
 
@@ -431,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165338.jpg" />
 </div>
 
 
@@ -457,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165324.jpg" />
 </div>
 
 
@@ -483,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165299.jpg" />
 </div>
 
 
@@ -509,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165297.jpg" />
 </div>
 
 
@@ -535,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165284.jpg" />
 </div>
 
 
@@ -561,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165283.jpg" />
 </div>
 
 
@@ -587,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165280.jpg" />
 </div>
 
 
@@ -613,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165276.jpg" />
 </div>
 
 
@@ -639,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165270.jpg" />
 </div>
 
 
@@ -665,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165239.jpg" />
 </div>
 
 
@@ -676,6 +593,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F6C44E471F438F970FF5E16A1BA5D4C56F5706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597823   (165218) от 16.12.2022
+
+Джон МакКрэй | Червь (Книга 10). Паразит (2022) [MP3, Adrenalin28]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 03:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6089A229C564563C35397F285B8DC9D14722FCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516648   (165213) от 12.12.2021
+
+Александр Шувалов | Агент ГРУ (Книга 5). Чистодел (2017) [MP3, Максим Доронин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агенту ГРУ Зотову по прозвищу Чистодел поручено найти электронный носитель, на котором злоумышленники, совершившие финансовую аферу государственного масштаба, хранят ценную информацию. Дело усложняется тем, что в число мошенников входят министр и вице-премьер, а у них, как известно, возможности практически безграничны. Выполняя задание, Зотов буквально балансирует (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 08:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A60FE9AA189137750860824AFCB17513A5AD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516789   (165194) от 12.12.2021
+
+Джефф Нун | Вирт (Книга 01). Вирт (2021) [MP3, Сергей Оробчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165194.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вирт» - фантастический роман британского писателя Джеффа Нуна, получивший в 1994 году премию Артура Кларка.
+Роман рассказывает историю Скриббла и его команды «Тайные Райдеры».
+Действие романа происходит в альтернативной версии Манчестера, где общество сформировано «виртом» - общей альтернативной реальностью, доступ в которую можно получить, употребив галлюциногенный (   Читать дальше...   )Жанр: КиберпанкПродолжительность: 08:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169E15ACD9C8FEE55BA3FF243BFE31D707FB0AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

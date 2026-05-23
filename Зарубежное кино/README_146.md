@@ -1,55 +1,3 @@
-###  Публикация: 209833   (1022855) от 03.04.2021
-
-На грани / The Edge (1997) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер Чарльз Морс отправляется со своей молодой женой, супермоделью Микки, на Аляску для фотосъемок. Модный профессиональный фотограф Роберт Грин убедил их, что именно там есть место, которое идеально подходит для съемок. В поисках они улетают намного дальше, чем предполагали.Их маленький самолет терпит крушение при столкновении с птицами и падает в озеро. Пилот (   Читать дальше...   )Жанр: Драма, Триллер, ПриключенияРежиссер: Ли ТамахориАктеры: Энтони Хопкинс, Алек Болдуин, Эль Макферсон, Хэролд Перрино, медведь Барт, Л. К. Джонс, Кэтлин Уилхойт, Марк Кили, Эли ГабэйПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB64AE74BCE3D39AB053E5B436AC70DE3DBD6E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460084   (1022782) от 04.04.2021
-
-Останься / Stay (2018) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодой японец Рю теряет работу из-за своего криминального прошлого. Старые знакомые пытаются снова подтолкнуть его на кривую дорожку, но в этот момент он знакомится с неприкаянной красавицей-американкой Хоуп. История любви на фоне нетуристического Токио от режиссера и сценариста Дэррила Уортона. Ошибки прошлого преследуют Рю, угрожая его настоящему и будущему. Начальник (   Читать дальше...   )Производство: Япония, США, Filmsnoir Motion Pictures, Stay Motion Picture, GKЖанр: Драма, мелодрама, криминалРежиссер: Дэррил УортонАктеры: Сёгэн, Ана Танака, Сима Ониси, Нацухи Уэно, Соити Хонда, Кэндзи ИваяПеревод: Многоголосый профессиональный (Creative Arts Media)Субтитры: Английские - отдельным файлом, английские - хардсабы на японскую речьПродолжительность: 01:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26549876837AB693551ABA96241FFA1C5DA2D85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459754   (1022773) от 04.04.2021
 
 Каждый твой вдох / Every Breath You Take (2020) WEBRip [H.264/1080p-LQ] [EN]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022773.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022770.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022764.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022759.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022756.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022755.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022752.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022748.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022746.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022740.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022723.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022719.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022711.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022706.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022703.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022696.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022695.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022694.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022693.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022689.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022688.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022682.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022681.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022673.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2D373362B3F1209126C8C62A385DBE4C28EDBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334215   (1022662) от 04.04.2021
+
+В тени Луны / In the Shadow of the Moon (2019) WEB-DLRip [H.265/1080p] [HDR, 10-bit] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский из Филадельфии Томас Локхарт хочет дослужиться до звания детектива. Для этого он решает лично найти опасного серийного убийцу, на чьём счету несколько загадочных убийств. Преступницей оказывается молодая женщина, которая погибает под колёсами поезда во время потасовки с Локхартом. Несмотря на это, через девять лет она снова даёт о себе знать, и теперь (   Читать дальше...   )Производство: США / 42, Automatik, Belladonna ProductionsЖанр: Триллер, криминал, детектив, фантастикаРежиссер: Джим МиклАктеры: Бойд Холбрук, Майкл С. Холл, Боким Вудбайн, Клеопатра Коулмэн, Сара Дагдэйл, Руди Дхармалингхам, Габриэль Грэхэм, Джулия Ноуп, Райан Аллен, Билли ОтисПеревод: Дублированный (Пифагор)Субтитры: Русские (форсированные, полные), английские (SDH)Продолжительность: 01:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBFEFDD72BEA017D9F853F66219B5F1F54EEFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460152   (1022661) от 04.04.2021
+
+Поступь хаоса / Chaos Walking (2021) WEB-DL [H.265/2160p] [HDR, 10-bit] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022661.jpg" />
+</div>
+
+
+###  Подробнее
+
+2257 год. Тодд обнаруживает загадочную девушку Виолу, потерпевшую крушение на его родной планете, где женщины давно исчезли, а все мужчины страдают от вируса — существуют в пространстве бесконечных мыслеобразов, которое называют шумом: рядом с другим человеком совершенно невозможно утаить свои воспоминания и мысли. В такой агрессивной реальности Виоле, чьи чувства (   Читать дальше...   )Производство: США, Канада, Гонконг / Lionsgate, Quadrant PicturesЖанр: Фантастика, приключенияРежиссер: Даг ЛайманАктеры: Том Холланд, Дэйзи Ридли, Демиан Бичир, Дэвид Ойелоуо, Курт Саттер, Синтия Эриво, Бетани Энн Линд, Мадс Миккельсен, Ник Джонас, Рэй МаккиннонПеревод: Любительский двухголосый (Pazl Voice)Субтитры: АнглийскиеПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8D7B3D1A4F57351B20DD05AD958CE87180EA37
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ FBackup 9.9.916 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54778.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Shaper Premium / Ultimate 14.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54777.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vivaldi 6.7.3329.39 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54773.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Calibre 7.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54762.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Planet VPN 2.8.26.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54725.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hosts File Editor+ 1.5.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54711.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ HashTools 4.8.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54698.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BalenaEtcher 1.19.21 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54691.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ImgDrive Pro 2.1.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54684.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Google Chrome 125.0.6422.142 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54682.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sumatra PDF 3.6.16318 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54670.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Brave Browser 1.66.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54668.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Duolingo: изучай языки 5.152.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54667.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Google Chrome 125.0.6422.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54654.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MInstAll v.31.05.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54653.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ iTop VPN 5.5.0.5240 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54652.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ MInstAll v.31.05.2024 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54643.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v18 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54629.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v18 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54612.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Jetbrains WebStorm 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54606.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ JetBrains PyCharm Professional 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54600.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54598.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Antivirus Removal Tool 2024.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54593.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ JetBrains PhpStorm 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54589.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ MKVToolNix 85.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54582.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ IPTV Pro v8.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54579.jpg" />
 </div>
 
 

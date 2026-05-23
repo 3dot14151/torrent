@@ -6,7 +6,7 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974283.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974271.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973021.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972947.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972888.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ History Channel: Древние пришельцы (3 сезон: 16 серий 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972671.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ History Channel: Вселенная. Как космос изменял ход �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971957.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ History Channel: Вселенная. Немезида: злобный двойн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971836.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971762.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971749.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971696.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970602.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970584.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970288.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970115.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969968.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969600.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969464.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG: Расследования авиакатастроф: Посадка на �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969430.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968560.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968507.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968440.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ History Channel: Вселенная. Наше место в галактике �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968316.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967003.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965961.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964754.jpg" />
 </div>
 
 

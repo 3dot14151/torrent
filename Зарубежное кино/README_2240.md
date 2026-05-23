@@ -1,55 +1,3 @@
-###  Публикация: 1790163   (22176) от 07.04.2025
-
-Стигматы / Stigmata (1999) BDRip [H.265/1080p] [10-bit] [BQHL Editions]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Фрэнки Пейдж живёт спокойно, свободно и беззаботно. И меньше всего её беспокоят вопросы о Боге. Всё это в одночасье меняется, когда её поражают «стигматы» - кровоточащие раны распятого Христа. Вскоре на неё обращает внимание отец Кернан, уполномоченный следователь из Ватикана. Одновременно и другой священнослужитель, коррумпированный кардинал Хаусмен, понимает, что (   Читать дальше...   )Производство: США, Мексика / Instituto Nacional de Bellas Artes (INBA), Metro-Goldwyn-Mayer (MGM)Жанр: ужасы, триллер, детективРежиссер: Руперт УэйнрайтАктеры: Патриция Аркетт, Гэбриел Бирн, Джонатан Прайс, Ниа Лонг, Томас Копаче, Раде Шербеджия, Энрико Колантони, Дик Латесса, Порша де Росси, Патрик МалдунПеревод: дублированный профессиональный (Ист-Вест), профессиональный многоголосый (Союз Видео, Лазер Видео, Пятый канал Санкт-Петербург / Рен-ТВ, АМС), профессиональный двухголосый (НТВ+), авторский (Андрей Гаврилов, Максим Латышев, Сергей Визгунов)Язык озвучки: русский, украинский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA983064C1FC150890489C61DE4D5A07FB6A963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790045   (22165) от 07.04.2025
-
-Простая история / The Straight Story (1999) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальной истории Элвина Стрейта, который в 1994 году проехал через Айову и Висконсин на газонокосилке... 73-летний Элвин Стрэйт, испытывающий проблемы со здоровьем, живёт с дочерью Роуз в тихом провинциальном городке Лоренс, штат Айова. Однажды он узнаёт, что у его брата Лайла, живущего в штате Висконсин, с которым после ссоры он не общался 10 лет, (   Читать дальше...   )Производство: США, Франция, Великобритания / Asymmetrical Productions, Canal+, Channel Four FilmsЖанр: драма, приключения, биографияРежиссер: Дэвид ЛинчАктеры: Ричард Фарнсуорт, Сисси Спейсек, Гарри Дин Стэнтон, Эверетт МакГилл, Джон Фарли, Кевин П. Фарли, Джейн Гэлловэй Хейтц, Джеймс Кэда, Дональд Вигерт, Трейси МэлоуниПеревод: профессиональный многоголосый (R5 CP Digital; студия Нота), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E308DD77489316C9C339DEAB4449AFF7BB80EDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790233   (22121) от 08.04.2025
 
 Претенденты / Challengers (2024) BDRip [H.265/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22121.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22110.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22102.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22099.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22078.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22068.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22064.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22043.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22039.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22015.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22007.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21979.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21971.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21962.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21949.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21869.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21832.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21831.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ D.O.A.: Живым или мертвым / DOA: Dead or Alive (2006) BDRip [H.26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21798.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21712.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21672.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21671.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21643.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21596.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F365C54D37040E5C010C8BC92472C145D8EA637D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791459   (21556) от 13.04.2025
+
+Наркобарон / Narc (2002) BDRip [H.265/1080p] [10-bit] [AUS Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Ник Тэллис, отстранённый от службы после трагического задержания опасного наркодилера, получает редкий шанс вернуться на прежнюю работу. Расследование жестокого убийства оперативника отдела по борьбе с наркотиками за два месяца не продвинулось ни на шаг, и начальство надеется, что у Ника есть свежие идеи. Вместе с бескомпромиссным лейтенантом Оаком он пытается (   Читать дальше...   )Производство: Германия, Канада, США / Apple Creek Productions, Cruise/Wagner Productions, Cutting Edge Entertainment, Echelon Productions, Inc., Emmett/Furla FilmsЖанр: триллер, драма, криминал, детективРежиссер: Джо КарнаханАктеры: Джейсон Патрик, Рэй Лиотта, Баста Раймс, Дэн Лейс, Ллойд Адамс, Мэган Иса, Лина Фелис, А.С. Петерсон, Карен Робинсон, Чи МакБрайдПеревод: профессиональный многоголосый, профессиональный двухголосый (ACME FILM Литва), авторский (Юрий Живов, Михаил Яроцкий, Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071F2A7F04CC9A208B570A97F1C1EFCB62F8AD38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346894   (21509) от 14.04.2025
+
+Бандитский Йоханнесбург / Jerusalema (2008) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальный фильм, в основе которого – реальные события. Это история гангстера Лаки Кунене, ставшего незаконным путем крупнейшим домовладельцем Йоханнесбурга. Природа наделила Лаки недюжинным умом и сильным характером, нищета толкнула на скользкую дорожку...Производство: ЮАРЖанр: боевик, драма, криминалРежиссер: Ральф ЗиманАктеры: Дэниэл Баклэнд, Роберт Хоббс, Юджин Хумбанйива, Джафта Мамаболо, Шелли Мескин, Рапулана Сейфемо, Джеффри Зекеле, Ронни НиакалеПеревод: Профессиональный многоголосыйСубтитры: русский, английский, английский (hardsub на африканскую речь)Качество: BDRip 720pПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BB16B5CAFB3C4C33029C4CA17999D4C6B162BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

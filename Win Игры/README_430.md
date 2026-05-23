@@ -1,29 +1,3 @@
-###  Публикация: 1501801   (54018) от 08.06.2024
-
-Chef: A Restaurant Tycoon Game (2020) [Ru/Multi] (1.6/dlc) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Хотели бы вы попробовать себя в роли шеф-повара знаменитого ресторана и самостоятельно вникнуть во все тонкости высокой кухни? Теперь у вас есть такая уникальная возможность в игре Chef A Restaurant Tycoon Game. Эта игра позволит вам построить головокружительную карьеру в мире кулинарного искусства. Мелочь в кармане, небольшое помещение и заветная мечта - это все, (   Читать дальше...   )Тип издания: LicenseРазработчик: Inner VoidЖанр: Симулятор, Экономика, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5372A5CA980572E1AD1E2F4EEF02D8FF6FF9E28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538752   (54013) от 08.06.2024
 
 Armored Brigade (2018) [En] (1.068b/dlc) License GOG
@@ -32,7 +6,7 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54013.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54008.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ SOS OPS! (2023) [Ru/Multi] (122/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53999.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Elegy of Fate / Элегия судьбы (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53997.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53994.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Scene FairLight [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53993.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ ALTF42 (2023) [Multi] (2.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53985.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ FUBG: FIGHT UNKNOWN BATTLEGROUND (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53972.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ ALTF42 (2023) [Multi] (2.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53967.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Myth or Reality 3: Snowbound Secrets (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53932.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53918.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53898.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53895.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53887.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53882.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53870.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ I Don't Fall (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53866.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53863.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53859.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53849.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53843.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53821.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Airhead (2024) [Ru/Multi] (13431795) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53818.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Highrise City (2022) [Multi] (20240603/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53813.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53804.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729122   (53802) от 10.06.2024
+
+Mafia III (3) (2020) [Ru/Multi] (1.0.1/dlc) Repack dixen18 [Definitive Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Бордо, 1968 год. Во Вьетнаме Линкольн Клей понял одно: семья - это не те, с кем ты вырос, а те, за кого ты готов умереть. Но когда итальянская мафия наносит удар в спину черной преступной группировке, когда-то заменившей Линкольну семью, он создает новую семью на руинах старой и принимается мстить, жестоко и умело. Если собрать правильных людей и не бояться замарать (   Читать дальше...   )Тип издания: RepackРазработчик: Hangar 13Жанр: Экшны, Приключение, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28377E70CF9D8163B8CE02BAE59A77DDD8BB61F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

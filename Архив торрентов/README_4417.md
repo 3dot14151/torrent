@@ -6,7 +6,7 @@ Emurasoft EmEditor Professional 23.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121000.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pixelmator Pro 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120994.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vivaldi 6.5.3206.57 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120993.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MuseScore 4.2.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120991.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DesktopOK 11.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120990.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ LibreWolf 122.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120984.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ TechTool Pro 18 v.18.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120973.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ NonVisual Desktop Access (NVDA) 2023.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120969.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Easy Data Transform for Mac 1.46.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120966.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Lifespan 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120961.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Final Draft 13 v.13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120957.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120953.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ GarageSale 9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120943.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Keep It 2.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120940.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Musify for Mac 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120927.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ YouTube ReVanced Extended 19.02.39 (RVP v2.215.1) Mod by CaM/7oCe6e + Micro G [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120898.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ KMPlayer 2024.1.25.16 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120883.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Navicat Premium 16.3.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120882.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ AIDA64 Extreme Edition 7.00.6723 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120881.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ IObit Uninstaller Pro 13.3.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120875.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Windows 11 Debloater 2.0.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120872.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Windows 10 Debloater 2.6.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120868.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ JetBrains DataGrip for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120864.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Wise Care 365 Pro 6.6.4.634 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120852.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120847.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ HopToDesk 1.41.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120825.jpg" />
 </div>
 
 

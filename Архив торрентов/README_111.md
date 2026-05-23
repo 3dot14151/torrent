@@ -6,7 +6,7 @@ Valentina Studio Pro 11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028563.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Affinity Publisher 1.9.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028558.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cisdem Video Converter 6.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028553.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Serial Box 03.2021 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028548.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Affinity Designer 1.9.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028539.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ NetSpot PRO – Wi-Fi Reporte‪r‬ 2.13.1010  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028509.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Balabolka 2.15.0.773 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028508.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Complete Internet Repair 6.2.0.5020 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028504.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ WhatsApp 2.2106.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028500.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dashcam Viewer 3.6.5 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028498.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ TweakPower 1.170 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028487.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ FontViewOK 6.77 + Portable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028479.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hard Disk Sentinel PRO 5.70.1 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028468.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Windows 10 Manager 3.4.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028459.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Ditto Clipboard Manager 3.24.184.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028457.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ USB Device Tree Viewer 3.5.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028454.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.6 Build 6000 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028446.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028420.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WireGuard VPN 0.3.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028411.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v5.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028410.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028403.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ iSubtitle 3 v3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028390.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Airtool 2 v2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028389.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ eBookBinder 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028388.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028376.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ iThoughtsX 5.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028374.jpg" />
 </div>
 
 

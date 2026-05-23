@@ -6,7 +6,7 @@ Particulars 34 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184446.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iDatabase 6.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184367.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CrystalMaker X 10.5.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184318.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ JetBrains Full Pack 2020.2.3 - 2020.2.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183695.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SideNotes 1.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183542.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Pixelmator Classic 3.9.11 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182439.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GPG Suite 2020.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182401.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ KeyKey v.2.9.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182236.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PyCharm Community Edition 2022.2.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182175.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ ForkLift 3.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182136.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Native Instruments Kontakt 6 v6.4.2 STANDALONE, VSTi, AU [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182108.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DoublePane 1.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181660.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ PDF Protector 1.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181647.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ QuartzCode 1.66.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181533.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Premium Fonts 7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181383.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Templates for Pages – DesiGN 6.0.5  [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180826.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Big Sur Cache Cleaner 16.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180766.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ CLO - 3D Fashion Design Software 6.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180346.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Duplicate Files Sweeper 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180221.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ NeoFinder Business 7.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180153.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Aimersoft DVD Creator 6.4.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180136.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Alpha Blender PRO for Mac 1.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180015.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Aimersoft Video Converter Ultimate for Mac 11.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179981.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Movavi Academic 2021 v21.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179971.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Smart Zipper - RAR&7Zip Tool 1.90 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179711.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Marvelous Designer 10 Personal 6.0.351.32317 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179622.jpg" />
 </div>
 
 

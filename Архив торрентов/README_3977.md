@@ -6,7 +6,7 @@ PDF-XChange Editor Plus 10.0.0.370 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197055.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197054.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Bandicam 6.2.2.2072 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197053.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Internet Download Manager 6.41 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197051.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AIMP 5.11 Build 2432 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197047.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Modern Tweaker 1.8 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197041.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PortableApps.com Platform 26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197040.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Windows 10 Manager 3.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197038.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ ZD Soft Screen Recorder 11.6.5.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197037.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.3086]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197035.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ AVS Media Player 5.6.1.154 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197032.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Aiseesoft Data Recovery 1.6.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197028.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ f.lux v4.124 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197026.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Topaz Video AI 3.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197020.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Psiphon 3 build 179 (15.06.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197016.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CCleaner 6.13.10517 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197013.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197009.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ WhatsApp (outdated) 2.2325.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196998.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ CPU-Z 2.06.1 (x64) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196997.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Sante DICOM Viewer Pro 12.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196996.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Internet Download Manager 6.41 Build 15 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196986.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.3086]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196968.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 14.06.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196966.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.53.2096, Speccy 1.32.803) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196958.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Winaero Tweaker 1.55 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196954.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Windows 11 (9in1) by Updated Edition (16.06.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196884.jpg" />
 </div>
 
 

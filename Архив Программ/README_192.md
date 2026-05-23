@@ -6,7 +6,7 @@ Symantec Endpoint Protection 14.2.2.1 (14.2 RU2 MP1) build 5569 (14.2.5569.2100)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979628.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Who Is On My Wifi 2.1.4 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979614.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Premiere Pro CC 2020 14.0.1.71 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979597.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BatchPhoto Enterprise 3.5.1 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979592.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Nikon Capture NX2 2.4.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979494.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AntiWinBlock 1.3 LIVE CD/USB [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979490.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Advanced System Optimizer 3.5.1000.14975 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979485.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Acoustica Premium Edition 5.0.0.63 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979478.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Dia 0.97.2 Portable by PortableApps [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979469.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Opera Recheck 12.14 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979466.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AMD Catalyst Software Suite 13.2 beta 5 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979444.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Kaspersky Password Manager 5.0.0.172 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979434.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ SiSoftware Sandra Personal / Enterprise / Tech Support Engineer / Business / Lit
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979432.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AOMEI Partition Assistant Professional Edition 5.1 Portable by Valx [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979405.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Mask My IP 2.3.4.2 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979399.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ SlimBrowser 7.00 Build 135 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979060.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Allavsoft Video Downloader Converter 3.22.1.7334 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979044.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Pale Moon 28.8.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978905.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Loaris Trojan Remover 3.1.11.1400 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978894.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Opera 66.0 Build 3515.60 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978890.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ YoWindow Unlimited Edition 3S Build 141 Final Portable by SamDel [Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978852.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Mozilla Firefox (Aurora) 11.0 Alpha 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978841.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ UC Browser 5.5.9426.1015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978823.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ LibreOffice 4.0.0 Portable by punsh [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978786.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ CoolUtils Total Image Converter 1.5.108 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978784.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ DVDFab 9.0.2.6 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978780.jpg" />
 </div>
 
 

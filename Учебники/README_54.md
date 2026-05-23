@@ -1,136 +1,3 @@
-###  Публикация: 925123   (540987) от 06.08.2015
-
-С.В. Судоплатов, Е.В. Овчинникова | Математическая логика и теория алгоритмов (2004) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются основные исчисления математической логики: исчисления высказываний и исчисления предикатов; основы теории моделей и теории алгоритмов, а также элементы неклассических логик.
-Для студентов младших курсов технических вузов, изучающих математическую логику и теорию алгоритмов.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1B1B9EDE886A01F428AC1926929B6081258CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311508   (539955) от 30.06.2019
-
-И.В. Музылева | Элементная база для построения цифровых систем управления (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие написано в соответствии с программой дисциплины "Элементы систем автоматики" для направления "Электротехника, электромеханика и электротехнологии".
-В учебном пособии изложены основы принципов построения вычислительной части цифровых систем управления и работы функциональных блоков, входящих в её состав. В частности, рассмотрены (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A5545AF740C5A57C75264BD91728905491C004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531803   (539724) от 06.08.2012
-
-1С-Паблишинг | Комплект вопросов сертификационного экзамена по программе "1С:Бухгалтерия 8 для Украины" (ред. 1.2) [2011] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Комплект вопросов для подготовки к сертификации "1С:Профессионал" по программе "1С:Бухгалтерия 8 для Украины". На сегодняшний день - последняя актуальная версия, октябрь 2011.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D695C09C3CF408442CF97D4FE2AED08E386E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557517   (539060) от 16.06.2022
-
-О.В. Мантуров и др. | Курс высшей математики [3 книги] (1986 - 1991) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Трёхтомный курс для студентов-заочников инженерно-технических специальностей вузов.
-Изложение ведётся на двух уровнях - основном и повышенном. Большое внимание уделено разбору примеров и задач. Имеются задачи для самостоятельного решения.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC33B858FD0D783A312D3507F24B801011D476E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239331   (538703) от 05.08.2018
-
-Э.И. Старовойтов | Сопротивление материалов (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Учебник соответствует традиционной программе курса сопротивления материалов в технических вузах. Кроме теоретического курса в учебнике приведены задачи и тестовые задания по всем разделам курса, соответствующие расчетно-графическим и курсовым работам. В отличие от известных изданий рассмотрено влияние температуры и нейтронного облучения на упругие постоянные, описаны (   Читать дальше...   )Жанр: МеханикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD20053DF2204AE980D06FD2871FD934C580447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239312   (538702) от 05.08.2018
 
 Ю.В. Аникин и др. | Насосы и насосные станции (2018) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538702.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536643.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535362.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533422.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533412.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533203.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532580.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532461.jpg" />
 </div>
 
 
@@ -348,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532369.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532128.jpg" />
 </div>
 
 
@@ -401,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531623.jpg" />
 </div>
 
 
@@ -427,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531618.jpg" />
 </div>
 
 
@@ -453,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531369.jpg" />
 </div>
 
 
@@ -479,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528162.jpg" />
 </div>
 
 
@@ -505,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528116.jpg" />
 </div>
 
 
@@ -531,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528032.jpg" />
 </div>
 
 
@@ -558,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528016.jpg" />
 </div>
 
 
@@ -584,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527310.jpg" />
 </div>
 
 
@@ -611,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527264.jpg" />
 </div>
 
 
@@ -637,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526959.jpg" />
 </div>
 
 
@@ -663,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526947.jpg" />
 </div>
 
 
@@ -675,6 +542,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6DCEBE27F30BF93CE709AA90F4751E34461F33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053384   (525901) от 17.09.2016
+
+Т.И. Трофимова | Курс физики (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие (9-е издание, переработанное и дополненное, — 2004 г.) состоит из семи частей, в которых изложены физические основы механики, молекулярной физики и термодинамики, электричества и магнетизма, оптики, квантовой физики атомов, молекул и твердых тел, физики атомного ядра и элементарных частиц. Рационально решен вопрос об объединении механических и электромагнитных (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0524603DBE10F6C4A3D962C12EE48603831A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156900   (524644) от 13.08.2017
+
+И.И. Шагурин, М.О. Мокрецов | Микроконтроллеры и их применение в электронной аппаратуре (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются номенклатура и основные характеристики 8-, 16- и 32-разрядных микроконтроллеров, указываются области их применения. В качестве типичных представителей 8-разрядных микроконтроллеров рассматривается микроконтроллеры семейства 68HC08 компании Freescale Semiconductor. Приводится их общая структура, описывается работа процессорного ядра, система команд, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F435B83C66A93B26E4220B7B37BCB40416FC377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157151   (524605) от 13.08.2017
+
+Ю.Ф. Мартемьянов и др. | Операционные системы. Концепции построения и обеспечения  безопасности (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524605.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены базовые концепции, методы и средства, составляющие архитектуру современных операционных систем (ОС), а также способы и механизмы реализации принципов защиты информации в существующих операционных системах. Изложен теоретический материал о концепциях и принципах построения операционных систем и их компонентах. Рассмотрены методы и алгоритмы (   Читать дальше...   )Жанр: Операционные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9FE8B053D747288AA7BC499BEDF083BA4206B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157153   (524603) от 13.08.2017
+
+В.Г. Проскурин | Защита в операционных системах (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробно рассмотрены основные средства и методы обеспечения информационной безопасности в современных операционных системах: управление доступом, аутентификация, аудит и обнаружение вторжений. Кроме того, отдельно рассматриваются некоторые специфические вопросы, косвенно связанные с обеспечением безопасности операционных систем: централизованное управление политиками (   Читать дальше...   )Жанр: Операционные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41FE2B6EC45F1E74E63682D5C60D55653BDF899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053562   (524193) от 18.09.2016
+
+Н.В. Короновский и др. | Геоэкология (2011) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие создано в соответствии с Федеральным государственным образовательным стандартом по направлению подготовки «Экология и природопользование» (квалификация «бакалавр»).
+В книге изложены основы геоэкологических знаний; приведены методы геоэкологических исследований, изучающих взаимосвязанные и взаимозависимые геосферы в интеграции с социальной сферой; (   Читать дальше...   )Жанр: ЭкологияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9F15F7F549516D0053F5A27D398B54466937AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

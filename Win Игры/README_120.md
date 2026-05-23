@@ -1,29 +1,3 @@
-###  Публикация: 1199464   (800818) от 16.01.2018
-
-DYING: Reborn (2018) [Multi] (1.0) Repack MAXSEM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-DYING: Reborn - это игра-головоломка в жанре «Эскейп-рум» от первого лица, в которой игроки должны решать всевозможные загадки в серии темных и жутких комнат. В первой из шести глав главный герой Мэтью просыпается в незнакомом отеле, лишь смутно припоминая о том, что привело его туда. В это время с ним связывается таинственный персонаж, утверждая, что он подготовил (   Читать дальше...   )Тип издания: RePackРазработчик: NEKCOM EntertainmentЖанр: Adventure, Horror, Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939A9D8CA32988CE6E340366F7C0CA7A962D7949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199547   (800815) от 16.01.2018
 
 Bike Rush (2018) [Ru/Multi] (1.0) License HI2U
@@ -32,7 +6,7 @@ Bike Rush (2018) [Ru/Multi] (1.0) License HI2U
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800815.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800808.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Observation (2019) [Ru/Multi] (1.16) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800780.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Indicted (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800772.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Franchise Hockey Manager 8 (2021) [En] (8.1) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800767.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ MX vs ATV All Out (2018) [Ru/Multi] (2.9.6hf/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800752.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Alien Shooter 2: Realoaded (2016) [Ru] (1.0) Unofficial [Русификатор]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800743.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Avenging Angel (2018) [En] (1.0.5) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800742.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Death's Gambit (2018) [Ru/En] (1.2/dlc) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800739.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Persistence (2020) [Ru/Multi] (1.0HF) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800736.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ George (2021) [En] (1.0rls) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800729.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Horror Story: Hallowseed (2021) [Ru/Multi] (1.0.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800721.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Bassmaster Fishing 2022 (2021) [Ru/Multi] (1.0rls) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800720.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800698.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ The Persistence (2020) [Ru/Multi] (1.0/HotFix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800694.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Super Lucky's Tale (2018) [Ru/En] (5.6.2.35228/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800560.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Repack R.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800536.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dreamfall Chapters (2014) [Multi] (5.4.1.1) License PROPHET [Complete]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800160.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Pure (2008) [Ru/Multi] (1.0) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800086.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Styx: Shards of Darkness (2017) [Ru] (1.02/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800074.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800021.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fairy Godmother Stories 5: Miraculous Dream in Taleville / Сказки Феи-�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799994.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Snake Pass (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799964.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Halloween Chronicles 4: Behind the Door / Хроники Хэллоуина 4: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799887.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Ziggurat (2014) [Ru/Multi] (2018-05-08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799877.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Ziggurat (2014) [Ru/Multi] (2018-05-08) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2206F7D47C03E02C6EFDBF2231D4E729B9B55D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506440   (799871) от 31.10.2021
+
+Grotto (2021) [En] (1.1.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grotto - это игра с таинственной атмосферой и фокусом на сюжете. Вы Прорицатель. Вы способны читать по звёздам и расшифровывать их послания. Настали неспокойные времена. Племя долины обращается к Вашим силам предсказывать будущее и просит совета. Судьба племени зависит от Ваших пророчеств. Поразмыслите над каждым созвездием или позвольте звёздам войти в Ваше сознание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Brainwash GangЖанр: Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF17FEAC78E500F35FCA5A78A019DCE82D01AB98
 ```
 
 https://mybot314.ru/tekegram_catalog/

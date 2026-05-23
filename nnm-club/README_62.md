@@ -1,136 +1,3 @@
-###  Публикация: 1869972   (1068554) от 
-
-Lazesoft Recovery Suite Pro / Server / Tech / Unlimited 5.2.0.1 [Multi]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Программа Lazesoft Recovery Suite полезна, когда вам нужно восстановить данные, файлы или операционную систему Windows, или когда ваш компьютер не загружается в обычном режиме.
-
-Большинство компьютерных проблем можно легко и быстро устранить, создав загрузочный аварийный CD или USB-диск Lazesoft, а затем перезагрузив компьютер с его помощью.Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89904EBE60B1330C6FCB195FB26DFC2BFB685FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869974   (1068553) от 
-
-Duplicate Cleaner Pro 5.27.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Cleaner - инструмент, который поможет вам систематизировать содержимое домашнего жесткого диска или корпоративной сети. Вы будете удивлены, узнав, сколько лишних или повторяющихся файлов вы можете найти забытыми в непонятной папке с документами.
-Duplicate Cleaner выполнит глубокое сканирование всех типов файлов — фотографий, музыки, фильмов, видео, документов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E945A884F8038415F2DF0D24D51869171D6506F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869963   (1068552) от 
-
-Зеркальце (1967) 35mm Film Scan [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм о девочке, которая любила смотреться в зеркальце и слушать, как её хвалят. Однажды она пришла в лес и объявила, что тому, кто её лучше похвалит, она даст конфету. Но лесные звери решили её проучить ...Производство: СССР / СоюзмультфильмЖанр: рисованная анимацияРежиссер: Петр НосовАктеры: Александра Панова, Георгий Вицин, Юлия Юльская, Михаил Яншин, Тамара ДмитриеваСубтитры: отсутствуютПродолжительность: 00:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E415BF9A80C9F420F45BBE8B5CC593D66A2F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869940   (1068551) от 
-
-Семь верст до рассвета (2026) TS [H.264/1080p] [Звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Великая Отечественная война. Города и села Псковской области оккупированы фашистской армией. Враги мучают и истязают местных жителей, морят их голодом и расстреливают. С августа 1941 года захвачено и село Куракино. Комендант поселяется в самом респектабельном доме крестьянина Матвея Кузьмина, а хозяева вынуждены ютиться в холодном сарае. Снежной и морозной зимой (   Читать дальше...   )Производство: Россия / РекаЖанр: драма, военный, историяРежиссер: Александр АндреевАктеры: Фёдор Добронравов, Мария Шукшина, Виктор Добронравов, Тимофей Кочнев, Артём Быстров, Олег Гаас, Вячеслав Чепурченко, Сергей Кемпо, Наталья Суркова, Юлия ШубареваПеревод: Не требуется (Русский, звук с TS)Субтитры: ОтсутствуютПродолжительность: 01:36:54Реклама: Присутствуют аудио и видео вставки рекламы, баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9A8C6DAF94C851C11D735B9068A9FEFC78895D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869980   (1068549) от 
-
-Неоспоримый 4 / Boyka: Undisputed IV (2016) BDRip [H.265/1080p] [10-bit] [hand made AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Бойка пробует свои силы в высшей лиге, но случайная смерть на ринге заставляет его подвергнуть сомнению всё, во что он верит.Производство: Болгария, США / Millennium Films, Nu Boyana ViburnoЖанр: боевик, драма, спортРежиссер: Тодор ЧапкановАктеры: Скотт Эдкинс, Теодора Духовникова, Алон Абутбул, Юлиан Вергов, Брахим Чаб, Пол Чахиди, Петио Петков, Валентин Ганев, Владимир Михайлов, Мартин ФордПеревод: Многоголосый (iTunes, Sevimli)Язык озвучки: Русский, узбекский, английскийСубтитры: отсутствуютПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80330AF2224822C4A64977ABBD8F4CD8772EF80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869975   (1068548) от 
 
 VA - Music News For Forum vol.167 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -139,7 +6,7 @@ VA - Music News For Forum vol.167 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068548.jpg" />
 </div>
 
 
@@ -168,7 +35,7 @@ Boris FX SynthEyes Pro 2026.0.2 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068547.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ PhotoScape X Pro 4.3.0 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068546.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ High-Logic FontCreator 16.0.0.3062 Portable by 7997 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068545.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068544.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068543.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068542.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068541.jpg" />
 </div>
 
 
@@ -351,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068540.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068539.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ VA - Мелодии и ритмы отечественной эстрады вы
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068538.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ Darkthrone - Pre-Historic Metal (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068537.jpg" />
 </div>
 
 
@@ -461,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068536.jpg" />
 </div>
 
 
@@ -488,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068535.jpg" />
 </div>
 
 
@@ -514,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068534.jpg" />
 </div>
 
 
@@ -540,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068533.jpg" />
 </div>
 
 
@@ -567,7 +434,7 @@ Teramaze - The Silent Architect (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068532.jpg" />
 </div>
 
 
@@ -596,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068531.jpg" />
 </div>
 
 
@@ -622,7 +489,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068530.jpg" />
 </div>
 
 
@@ -648,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068529.jpg" />
 </div>
 
 
@@ -674,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068528.jpg" />
 </div>
 
 
@@ -685,6 +552,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451E0030E27E9F4E51B605B0D46B6346D1506476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869688   (1068527) от 
+
+VA - A State of Trance 2026 (Mixed by Armin van Buuren) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia - As We Become One (Mixed) (Intro Mix) [3:53]
+02. Max Styler x Three Drives & Three Drives On A Vinyl - Greece 2000 (Mixed) (Max Styler Rework) [2:45]
+03. Ginchy feat. Sultan + Shepard - The Way (Mixed) (Ginchy Remix) [3:00]
+04. Ruben De Ronde & Amber Revival - River In Me (Mixed) [3:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101066AB2AFBB89E5CB3B6167533FD2653B63E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869704   (1068526) от 
+
+AnyDesk 9.7.3 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158534FEEEBAE513E8073AE7649BB23D9C56E628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869706   (1068525) от 
+
+Трудная мишень 2 / Hard Target 2 (2016) BDRip [H.265/1080p] [10-bit] [hand made AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боец смешанных боевых искусств Уэс Бейлор по прозвищу Тюремщик, не рассчитав силу удара во время боя, случайно убивает на ринге своего друга Джонни, у которого остались жена и маленький сын. Терзаемый муками совести за содеянное, Уэс уезжает в Таиланд. Теперь он живёт в хибаре, участвует в нелегальных боях без правил, а вечером глушит боль спиртным...Производство: США, Таиланд / Universal 1440 EntertainmentЖанр: боевик, триллерРежиссер: Роэль РейнАктеры: Скотт Эдкинс, Роберт Неппер, Рона Митра, Анн Чуонг, Темуэра Моррисон, Адам Саундерс, Питер Харди, Шон Кинэн, Джейми Тимони, Амарин ЧолвибулПеревод: Дублированный (Blu-ray CEE), многоголосый (''Favvora Film'')Язык озвучки: Русский, узбекский, английскийСубтитры: Русские, английскиеПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33206DD7F6D4C21C63EDD6F48AB624E40EE7107F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 106030   (1068524) от 
+
+Прожекторперисхилтон. Выпуски с 1 по 100 + Прожекторевровижн. Выпуск 1 и 2 [2008, SATRip, XviD] Мегараздача от knvforall
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные заседания самых остроумных и едких телеведущих перед полуфиналами и финалом конкурса "Евровидение-2009" на Первом!
+Самые лучшие обсуждения свежих новостей "Евровидения" только в программе "Прожекторевровижн"!
+"Прожекторперисхилтон" - новая программа Первого канала, премьера которой многих рассмешила, кого-то удивила, (   Читать дальше...   )Продолжительность: ~00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5696BA55E46E928FCADBAB4E7C765B78AAED9840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869709   (1068523) от 
+
+Total Commander 11.57 Final [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E478DA6C88E2158E81C46DEEF1F0D7C90D89A62
 ```
 
 https://mybot314.ru/tekegram_catalog/

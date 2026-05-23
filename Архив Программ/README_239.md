@@ -6,7 +6,7 @@ IObit Driver Booster Pro 7.3.0.665 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946567.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SQL Dynamite 2.5.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946564.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adguard Премиум 6.0.185.962 (онлайн-установка) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946563.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CCleaner 5.14.5493 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946550.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GoodSync Enterprise 10.10.25.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946545.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946544.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ O&O Defrag Professional 23.0 Build 3569 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946543.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Stop SMS Uni Boot (Win 8.1 PE) v.6.02.05 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946531.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Avidemux 2.6.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946529.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Iridium Browser 2020.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946524.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Chromium 50.0.2640.0 Portable by PortableAppZ [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946523.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WinRAR 5.31 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946514.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ JetBrains Rider 2019.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946511.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Google Chrome 80.0.3987.122 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946509.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wise Care 365 Pro 5.4.9.545 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946508.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ HDCleaner 1.288 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946507.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Google Chrome 80.0.3987.122 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946506.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ TurbulenceFD C4D v1.0 Build 1401 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946499.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Avast Internet Security 2016 11.1.2253 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946497.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ CrystalDiskMark 5.1.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946478.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Wise Program Uninstaller 2.3.7.141 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946461.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ O&O ShutUp10 1.7.1408 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946460.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Overloud - Gem Comp76 2.0.1 STANDALONE, VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946457.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Loaris Trojan Remover 3.1.15.1410 (25.02.2020) RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946453.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ GIMP 2.10.18 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946450.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ IObit Malware Fighter RC 4.0.2.17 Pro [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946422.jpg" />
 </div>
 
 

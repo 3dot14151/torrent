@@ -6,7 +6,7 @@ Bitdefender Total Security 2015 19.1.0.114 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564535.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ R-Studio 7.7 Build 159222 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564534.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mozilla Firefox 40.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564502.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ K-Lite Codec Pack Update 11.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564498.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Uniblue SpeedUpMyPC 2013 Build 5.3.1.2 RuS + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564464.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RarmaRadio Pro 2.70 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564445.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Skype 7.7.0.103 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564435.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ TeamViewer 10.0.45471 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564402.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Norton Security with Backup 22.5.2.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564401.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Avast Clear 10.3.2225.1172 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564398.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Opera AC 3.7.9 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564369.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Norton AntiVirus 22.5.2.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564345.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AkelPad 4.9.4 + Plugins (х86 & х64) RePack + Portable by San_dr (31.07.15) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564343.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ IObit Malware Fighter Pro 3.3.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564339.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Scanitto Pro 3.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564336.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Start Menu X 5.50 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564329.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Player Parom.TV v1.1 Final + Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564307.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ IOBit Advanced Systemcare 9.0.0.599 beta 1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564267.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Norton 360 22.5.2.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564264.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ DAEMON Tools Pro Advanced 6.1.0.0485 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564262.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Norton Security 22.5.2.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564261.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Mozilla Thunderbird 52.9.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564202.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Norton Internet Security 22.5.2.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564165.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ BootPass 4.0.7 Full Update 30.07.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564162.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MSActBackUp 1.0.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564157.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Hide All IP 2015.07.17.150717 Portable by Proper [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564155.jpg" />
 </div>
 
 

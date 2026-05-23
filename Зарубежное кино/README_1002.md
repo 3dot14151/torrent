@@ -1,56 +1,3 @@
-###  Публикация: 528104   (574122) от 27.07.2012
-
-Лето. Одноклассники. Любовь / LOL (2012) [H.264] HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лола или Лол, как ее зовут друзья, живет в пригороде Чикаго, как и все, прогуливает занятия, чатится с подругами, устраивает вечеринки и мечтает о настоящей любви. Поездка в Париж — это шанс для Лолы и ее одноклассников оторваться по полной. Безудержный шопинг, бесконтрольные ночные вылазки и первое романтическое свидание — все это оказывается под угрозой. Ведь мать Лолы, мягко говоря, не обрадована результатами ее экзаменов.Жанр: Драма, Мелодрама, КомедияРежиссер: Лиза АзуэлосАктеры: Майли Сайрус, Деми Мур, Эшли Грин, Адам Дж. Севани, Жан-Люк Билодо, Дуглас Бут, Джина Гершон, Томас Джейн, Эшли Хиншоу, Остин НиколсПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6808D711F9654819B0D7FD1264C1CBC9EF65746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043239   (574111) от 15.08.2016
-
-Хрупкость / Frаgiles (2005) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Старинная детская больница «Мерси Фолз» закрывается. Но больничные стены хранят свои секреты. Нечто страшное, полное боли и ненависти, пробуждается к жизни. Дети нервничают и очень напуганы чем-то неосязаемым, невообразимым...
-Они называют это «механической девочкой» и уверяют, что она живет наверху, на 3 м этаже. На том самом, который был заперт и отделен от остальной (   Читать дальше...   )Производство: Испания, Великобритания / Castelao Producciones S.A., Future Films Ltd., Just FilmsЖанр: Ужасы, ТриллерРежиссер: Жауме БалагуэроАктеры: Калиста Флокхарт, Ричард Роксбург, Елена Анайя, Джемма Джонс, Ясмин Мерфи, Колин МакФарлэйн, Майкл Пеннингтон, Даниэль Ортис, Сьюзи Трейлинг, Ллойд Ф. Бут Шенкли, Майкл Гатуард, Скарлет КэриПеревод: Многоголосый закадровый, профессиональный (НТВ)Язык субтитров: АнглийскийПродолжительность: 01:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A850F619723073FB818486348BA6B436F308EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043357   (574108) от 15.08.2016
 
 Крутые меры / Bastille Day (2016) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574108.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574104.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574098.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574084.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574080.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574078.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574074.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574056.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574055.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573996.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_573984.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573980.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573975.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573952.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573932.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573927.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573904.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573901.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573897.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573874.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573822.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573769.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573761.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573753.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DBBCEE2F6D22B9BBFF2490E3C329EB453B29DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921794   (573738) от 26.07.2015
+
+Немая жертва / Silent Victim (1993) IPTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонни Джексон и Джед Джексон живут в небольшом городке Ньюнан в штате Джорджия. Джед нередко избивает жену. После очередной ссоры Бонни принимает смертельную дозу таблеток. Её саму удалось спасти, однако выясняется, что Бонни была беременна и ребёнок погиб. Узнав об этом, Джед подаёт на жену в суд за предумышленное убийство.Производство: США, 21st Century Film Corporation, Wells CompanyЖанр: Драма, ТриллерРежиссер: Менахем ГоланАктеры: Мишель Грин, Эли Пугет, Донна Биско, Кайл Сикор, Дори Бреннер, Ральф Уилкокс, Лиэнн Ханли, Элизабет ОмиламиПеревод: Двуголосый закадровыйПродолжительность: 01:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0B6EC883E4DF0D3ACB36AD222F7D8EE0E63EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554905   (573712) от 01.06.2022
+
+Хеллбой / Hellboy (2019) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Близится час битвы Хеллбоя с Кровавой королевой, буквально собирающей себя по частям и жаждущей отомстить всему человечеству за века в заточении. Оказавшись в эпицентре столкновения миров людей и монстров, Хеллбой будет вынужден пройти через ад, чтобы предотвратить надвигающийся апокалипсис.Производство: США, Великобритания, Болгария, Канада, Португалия, Франция / Summit Entertainment, Millennium Films, Lawrence Gordon ProductionsЖанр: Фэнтези, боевик, приключенияРежиссер: Нил МаршаллАктеры: Дэвид Харбор, Иэн МакШейн, Милла Йовович, Саша Лэйн, Дэниэл Дэ Ким, Алистэр Петри, Софи Оконедо, Брин Глисон, Томас Хейден Чёрч, Стивен ГрэмПеревод: Дублированный (Blu-Ray), Многоголосый профессиональный (СВ Студия), Авторский (А. Дольский)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D80BD0DED476571FB33A4B83FC4A1CF76E03D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Glary Utilities Pro 5.164.0.190 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021444.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 8.1.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021442.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JRiver Media Center 27.0.81 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021439.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ jv16 PowerTools 6.0.0.1133 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021433.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GIMP 2.10.24 Update 2 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021427.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UnHackMe 12.30.2021.03010 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021417.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Wondershare UniConverter 12.6.1.3 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021400.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Core Temp 1.17.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021389.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ uTorrent 3.5.5 Build 45966 Stable RePack by SanLex [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021381.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Opera GX 73.0.3856.431 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021331.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sultan + Shepard - Live @ The Peak Of Topanga California, United States (2021-04
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021329.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ DiveMate (Логбук дайвера) v5.5 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021314.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Opera 75.0.3969.171 Portable by JolyAnderson [Multi/Ru] (авторская ра
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021302.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ WhatsApp 2.2112.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021301.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Opera 75.0.3969.171 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021296.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Process Lasso Pro 10.0.2.24 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021290.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Whale Browser 2.9.116.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021289.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ DP Animation Maker 3.4.37 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021281.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Hard Disk Sentinel PRO 5.70.3 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021272.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Casse-o-player v3.0.16 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021263.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ WinRAR 6.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021241.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ WinRAR 6.01 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021236.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Affinity Publisher 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021230.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chromium 89.0.4389.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021223.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Ocenaudio 3.10.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021219.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Exposure Software Eye Candy 7 v7.2.3.172 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021213.jpg" />
 </div>
 
 

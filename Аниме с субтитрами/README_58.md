@@ -6,7 +6,7 @@ Ani Tore! EX / Anitore! EX / Тренировки с аниме! [2015, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626387.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Happy World! | Счастливый мир! [2002, OVA, 3 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625825.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Shin SOS Dai Tokyo Tankentai | SOS! Tokyo Metro Explorers: The Next | SOS! Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625567.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625125.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] WEB-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625006.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wakako-zake / Саке для Вакако [2015, TV, 12 из 12] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624584.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kimi to Boku / You and I / Ты и я [2011, TV, 13] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624520.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kaze no Na wa Amnesia / A Wind Named Amnesia / Ветер амнезии [1990, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624394.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Zoku Owarimonogatari | Финальные истории: Продолжение
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623866.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mob Psycho 100 II / Моб Психо 100 II [2019, TV, 13] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622182.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! / Пока есть любовь,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621935.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Double Decker! Doug & Kirill | Двойной удар: Даг и Кирилл [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621853.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Gabriel DropOut / Gabriel Dropout / Габриэль бросает школу [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621422.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Idolmaster: Cinderella Girls | Идолмастер: Золушки [2015, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621413.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621409.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Berserk (Season 2) | Берсерк [ТВ-3] [2017, ТВ, 12 эп.] HDTV 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621228.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620658.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Ultraman Season 2 | Ультрамен: новый герой [ТВ-2] [2022, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620205.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Shinmai Maou no Testament Departures | Завет Дьявольских Сес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618881.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Oushitsu Kyoushi Haine / Королевский наставник [2017, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617632.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617348.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tantei Gakuen Q / Detective School Q / Школа детективов Кью [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616954.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Chiisana Eiyuu: Kani to Tamago to Toumei Ningen | Modest Heroes | Скромны
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616915.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616905.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616750.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Mad Bull 34 / Бешеный бык 34 [1990, OVA, 4 ep.] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616124.jpg" />
 </div>
 
 

@@ -1,86 +1,3 @@
-###  Публикация: 1702888   (115527) от 26.02.2024
-
-Гай Юлий Орловский | Михаил, Меч Господа (Книга 1). Просьба Азазеля (2024) [MP3, Александр Чернов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет аудиокнигу знаменитого современного российского писателя-фантаста Гай Юлия Орловского «Просьба Азазеля» – первую в серии «Михаил, Меч Господа».
-
-Демоны и раньше ускользали из ада, но из чужих тел их изгоняли экзорцисты. Затем чья-то могучая воля пробила в мир людей узкую щель, и демоны начали протискиваться в своих телах. Но, занятые (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: МедиаКнигаПродолжительность: 09:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F374BD6171BC757A62565883CB95A7F22EC2E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702865   (115521) от 26.02.2024
-
-Фёдор Достоевский | Село Степанчиково и его обитатели (2022) [MP3, Олег Исаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика (АСТ). Книги, изменившие мир.
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей.
-Достоевский не только (и не столько) трагический, но  ироничный, весёлый, трогательный и даже сентиментальный. Достоевский «малой формы»  мастер злободневных сюжетов, комических ситуаций (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 12:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E7AE8E76FFD61AAAA42E446D47235ADE00EF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702857   (115516) от 26.02.2024
-
-Фёдор Достоевский | Подросток (2022) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-«Я взял душу безгрешную, но уже загаженную страшною возможностью разврата, раннею ненавистью за ничтожность и “случайность” свою…» В 1875 году в первых (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ЭксмоПродолжительность: 27:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702803   (115508) от 26.02.2024
 
 Фёдор Достоевский | Бедные люди (2006) [MP3, Иннокентий Смоктуновский]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115508.jpg" />
 </div>
 
 
@@ -117,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115498.jpg" />
 </div>
 
 
@@ -145,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115496.jpg" />
 </div>
 
 
@@ -173,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115495.jpg" />
 </div>
 
 
@@ -201,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115494.jpg" />
 </div>
 
 
@@ -229,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115493.jpg" />
 </div>
 
 
@@ -255,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115492.jpg" />
 </div>
 
 
@@ -281,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115490.jpg" />
 </div>
 
 
@@ -308,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115430.jpg" />
 </div>
 
 
@@ -334,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115422.jpg" />
 </div>
 
 
@@ -361,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115420.jpg" />
 </div>
 
 
@@ -390,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115410.jpg" />
 </div>
 
 
@@ -418,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115405.jpg" />
 </div>
 
 
@@ -446,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115398.jpg" />
 </div>
 
 
@@ -473,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115395.jpg" />
 </div>
 
 
@@ -499,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115393.jpg" />
 </div>
 
 
@@ -525,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115374.jpg" />
 </div>
 
 
@@ -553,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115359.jpg" />
 </div>
 
 
@@ -579,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115356.jpg" />
 </div>
 
 
@@ -605,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115351.jpg" />
 </div>
 
 
@@ -633,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115348.jpg" />
 </div>
 
 
@@ -659,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115343.jpg" />
 </div>
 
 
@@ -686,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115339.jpg" />
 </div>
 
 
@@ -697,6 +614,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D47C54A96A411E9D86779266CDD1A331010F69A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703056   (115333) от 27.02.2024
+
+Питер Филлипс | Сон дело святое (2022) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115333.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Главный герой с самого детства усвоил урок от отца — твой сон — твои правила. И однажды ему довелось стать участником эксперимента по проникновению в чужие сны, для того, чтобы вернуть пациента в настоящую реальность. Когда эксперимент успешно завершился, оказалось, что существуют некоторые побочные эффекты…" (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1C411DC36555E43B2F62546F41658EA122BF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703113   (115331) от 27.02.2024
+
+Зозо Кат | Гордость злодеев (2023) [MP3, Ксения Большакова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый любовно-фантастический роман в серии «Как злодейке остаться в живых»! История, в которой «зло» побеждает…
+
+Трогательная сказка о любви и мести в сеттинге ренессансного королевства!
+Меня заставили принять кровь мертвого дракона, заговоренную на запретной темной магии…(   Читать дальше...   )Жанр: Магическое фэнтези, Романтическое фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 18:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B35F7EF637A3F9907EB265368A754B4D727D307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702984   (115323) от 27.02.2024
+
+Стивен Кинг | Долгий джонт (1981) [MP3, Слепое кино / Orekhov Nikita Ivanovich]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонт-рейсы позволяют мгновенно телепортировать грузы и пассажиров на самые дальние расстояния. Есть только одно условие: живой объект должен находиться в бессознательном, либо в крепко спящем состоянии, иначе...Жанр: научная фантастика, драма, триллер, хоррорИздательство: Аудиокнига своими руками (KreDo)Продолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0942F657B52FA9497FE7710DBAF209E37AF6F502
 ```
 
 https://mybot314.ru/tekegram_catalog/

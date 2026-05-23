@@ -1,55 +1,3 @@
-###  Публикация: 1689529   (124753) от 02.01.2024
-
-Вампир в Бруклине / Vampire in Brooklyn (1995) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Импозантный карибский вампир Максимилиан решает нанести визит в город Нью-Йорк, чтобы исполнить свою давнюю мечту - обзавестись обворожительной спутницей, которая поможет ему скрасить многовековое вампирское одиночество. Причём подругой кровососа может стать только женщина, в роду которой есть вампиры. И чёрному вампиру посчастливилось найти в Бруклине подходящую (   Читать дальше...   )Производство: США / Eddie Murphy Productions, Paramount PicturesЖанр: ужасы, фэнтези, мелодрама, комедияРежиссер: Уэс КрэйвенАктеры: Эдди Мёрфи, Анджела Бассетт, Аллен Пэйн, Кадим Хардисон, Джон Уизерспун, Закес Мокае, Джоанна Кэссиди, Симби Хали, Мессири Фриман, Келли СиннантПеревод: профессиональный многоголосый (Paramount Channel, СЕС), профессиональный двухголосый (Премьер Видео Фильм), авторский (Гаврилов, Визгунов, Сонькин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBED1CCD3F151A435099C3425A2A38721261282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689294   (124752) от 02.01.2024
-
-Шоссе смерти / Highwaymen (2003) WEB-DLRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Ренни Крею терять нечего: после того, как извращённый садист безжалостно отнял жизнь у его жены, он бросил всё и посвятил годы поискам убийцы. Опасный психопат, который расправился с женой Крея, продолжает совершать зверские преступления: он разъезжает на своём потрепанном «Эль Дорадо» 72-го года выпуска по безлюдным ночным дорогам и убивает молодых женщин. Ренни, (   Читать дальше...   )Производство: США, Канада / Cornice Entertainment, Millenium Films, New Line CinemaЖанр: ужасы, боевик, триллер, криминалРежиссер: Роберт ХармонАктеры: Джеймс Кэвизел, Рона Митра, Фрэнки Фэйзон, Колм Фиор, Гордон Карри, Андреа Рот, Ноам Дженкинс, Тоби Проктор, Джеймс Ки, Гилейн Сент-ОнджПеревод: Двуголосый профессиональный (Премьер Видео Фильм, Universal Pictures Rus, НТВ+), Одноголосый любительский (Переводман)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2CE4790B4DED20DC47275A4BA4B4743159753ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689441   (124750) от 02.01.2024
 
 Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124750.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124749.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124744.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124743.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124742.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124729.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124638.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124637.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124636.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124634.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124633.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124632.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124630.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124628.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124625.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124624.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124612.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124586.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124489.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124479.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124477.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124461.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124453.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124415.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC7C0D0D4375B1F3600F21003FDA069959B923E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823376   (124392) от 11.10.2025
+
+Голливудский финал / Hollywood Ending (2002) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для съемок нового суперхита боссы крупной киностудии нанимают капризного и непредсказуемого Вэла Ваксмана. Это подарок судьбы для всеми забытого обладателя двух «Оскаров», докатившегося до съемок рекламы. Вэл не хочет упустить шанс напомнить Голливуду о себе. Но вскоре из-за перенапряжения его поражает редкий недуг - истерическая слепота. Теперь несчастному гению (   Читать дальше...   )Производство: США / DreamWorks SKG, Gravier Productions, Perdido ProductionsЖанр: мелодрама, комедияРежиссер: Вуди АлленАктеры: Вуди Аллен, Теа Леони, Трит Уильямс, Джордж Хэмилтон, Дебра Мессинг, Айзек Мизрахи, Мэриэн Селдес, Тиффани Тиссен, Марк Веббер, Боб Дориан, Иван МартинПеревод: Многоголосый профессиональный (Парадиз 2000, R5)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B9A179F5DEBBB9221250248BE0D4392543B0BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689785   (124387) от 04.01.2024
+
+Предатель / Il traditore / The Traitor (2019) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124387.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 1980-х между боссами сицилийской мафии разгорается война за героиновый рынок. Один из мафиози, Томмазо Бушетта, пытается скрыться в Бразилии. В то время как на его родине начинается бойня, Бушетта вынужден издалека наблюдать, как его сыновей и братьев убивают в Палермо. Он понимает, что может стать следующим. Бразильская полиция арестовывает Бушетту и экстрадирует (   Читать дальше...   )Производство: Италия, Франция, Германия, Бразилия / Ad Vitam Production, arte, BRDE, Canal+ (fr), FSA, Gullane Filmes, Kavac Film, Match Factory Productions, ZDFЖанр: биография, криминал, драмаРежиссер: Марко БеллоккьоАктеры: Пьерфранческо Фавино, Луиджи Ло Кашио, Фаусто Руссо Алези, Мария Фернанда Кандиду, Фабрицио Ферракане, Никола Кали, Джованни Калканьо, Бруно Карьелло, Бебо Сторти, Винченцо ПирроттаПеревод: Дублированный, АвторскийЯзык озвучки: русский, итальянский, французскийСубтитры: русские (Forced), итальянские (Full),французские (Forced, Full), английские (Full)Продолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E339CFE73E9B8B9BF95EDA450629DDB918B27A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

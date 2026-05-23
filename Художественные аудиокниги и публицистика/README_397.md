@@ -1,84 +1,3 @@
-###  Публикация: 509971   (672399) от 13.06.2012
-
-Джек Вэнс | Последний Замок [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Люди, наслаждаясь плодами многих веков прогресса, окружили себя роскошью. Одна из составляющих этой роскоши - слуги, искусственно выведенные на базе специально подобранных внеземных существ. И эти слуги внезапно и непостижимо взбунтовались против своих хозяев. Смогут ли изнеженные и погрязшие в абстракциях и увеселениях обитатели замков противостоять суровой реальности?
-Удивительно, как великому маэстро удалось уместить многогранность на удивление проработанного и самобытного мира, увлекательные приключения и глубокомысленные философские беседы в столь тоненькой книжке, не забыв приправить ее парой щепоток своего фирменного юмора. С другой стороны, не спроста же он был награжден за нее аж двумя престижнейшими литературными премиями.Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530A6AFAE15221025EF496BC3D57787335D4C848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030435   (672284) от 01.07.2016
-
-Аше Гарридо | Видимо-невидимо (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Аше Гарридо создал мир, в котором отворяется закрытое и проявляется невидимое. «Видимо-невидимо» – зримая магия мира, который никогда не заканчивается и начинается вот сейчас. Дойти до конца, чтобы вернуться к началу… Торопись, пока открыто.
-Страну Семиозерье населяет множество персонажей, обладающих различными магическими знаниями и умениями, некоторые из которых (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 13:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5713AE31DD6495AAA077BF1C4E58FCEF7BF25B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289133   (672145) от 23.03.2019
-
-Дана Арнаутова и др. | Литературный аудиопроект «Глубина» [выпуск 13] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!
-________________________________________Жанр: Рассказы, разноеПродолжительность: 06:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234CFAF28E6B1603A6B41CCFB9FB352D3BE14183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 677516   (672042) от 10.07.2013
 
 Герберт Уэллс | Дверь в стене (1991) [MP3, Александр Хочинский]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672042.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671961.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671836.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671537.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671517.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671428.jpg" />
 </div>
 
 
@@ -245,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671308.jpg" />
 </div>
 
 
@@ -271,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671236.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671234.jpg" />
 </div>
 
 
@@ -323,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671213.jpg" />
 </div>
 
 
@@ -349,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671209.jpg" />
 </div>
 
 
@@ -375,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671143.jpg" />
 </div>
 
 
@@ -401,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671061.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671037.jpg" />
 </div>
 
 
@@ -457,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671032.jpg" />
 </div>
 
 
@@ -484,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671030.jpg" />
 </div>
 
 
@@ -510,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670969.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670964.jpg" />
 </div>
 
 
@@ -565,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670924.jpg" />
 </div>
 
 
@@ -591,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670923.jpg" />
 </div>
 
 
@@ -617,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670870.jpg" />
 </div>
 
 
@@ -643,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670776.jpg" />
 </div>
 
 
@@ -669,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670637.jpg" />
 </div>
 
 
@@ -680,6 +599,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF15278846BB5E2F02629A840851F296FD1C1EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136926   (670634) от 24.05.2017
+
+Ларс Кеплер | Йона Линна (Книга 1). Гипнотизер (2017) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литературный дебют супружеской пары, пишущей под псевдонимом Ларс Кеплер, произвел ошеломляющее впечатление на читателей и слушателей, критиков и издателей. Это первый шведский роман, с колоссальным успехом проданный за рубеж еще до публикации в Швеции.
+Роман «Гипнотизер» – только начало захватывающей детективной серии. В пригороде Стокгольма в раздевалке спортивного (   Читать дальше...   )Жанр: криминальный детектив, триллерИздательство: АудиокнигаПродолжительность: 17:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B6BBC386C3275D83CE1FB41ADECBE5292CA1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136720   (670631) от 24.05.2017
+
+Виктор Суворов | Аквариум (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга впервые приоткрыла секреты самой таинственной разведки мира – ГРУ. Книга выдержала более 70 изданий на 27 языках. «Аквариум» послужил основой для создания кинофильма, телесериала и многочисленных литературных подражаний. Старший лейтенант, командир танковой роты Виктор Суворов попадает в разведывательный отдел штаба 13-й армии, на подполковничье место. (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 13:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B7897B990F54707B819D29E9B92F41E9E20F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537023   (670592) от 14.03.2022
+
+Вадим Панов | Герметикон (Книга 9). Трио неизвестности (2022) [MP3, Александр Аравушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хитрость против подлости, доблесть против ярости. Противники сошлись в прямом бою, исход которого непредсказуем. Загадочная Мартина позади, гибель Тринадцатой Астрологической экспедиции раскрыта, впереди – таинственная Близняшка, неизвестная Урия и тщательно охраняемые секреты Консула: несомненно – гения, несомненно – злодея. Помпилио Чезаре Фаха дер Даген Тур оказался (   Читать дальше...   )Жанр: Героическая фантастика, СтимпанкПродолжительность: 12:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F951A696F457AA3A4B9D72D8F67F101E418DCF21
 ```
 
 https://mybot314.ru/tekegram_catalog/

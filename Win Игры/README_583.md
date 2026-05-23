@@ -1,29 +1,3 @@
-###  Публикация: 1811869   (8294) от 12.08.2025
-
-Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Scene Rune
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Deadzone: Rogue - это roguelite-шутер от первого лица, действие которого разворачивается в космосе. Прорывайтесь сквозь орды враждебных машин, комбинируйте мощные улучшения и элементы, чтобы создать свой билд, и становитесь сильнее с каждым забегом - в одиночку или в кооперативе. Вы просыпаетесь на борту ISS-X, не помня, кто вы. Там легион бродячих машин, и они быстро (   Читать дальше...   )Тип издания: SceneРазработчик: Prophecy GamesЖанр: ЭкшеныЯзык озвучки: Английский, Японский, Китайский (традиционный, упрощенный)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C92ED27821DC4B166152B1E968642BA5C64764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811560   (8293) от 12.08.2025
 
 Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
@@ -32,7 +6,7 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8293.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Detectives United 8: Vengeance from the Past / Лига детективов 8: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8275.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8188.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8187.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132/dlc) Repack Let'sРlay [Supporter Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8185.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8179.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8176.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/Multi] (9.7/9.40) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8173.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8161.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8160.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8156.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8155.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8151.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Rise Of The White Sun (2023) [Multi] (1.86) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8137.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8134.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8132.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack seleZen [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8125.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8118.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.5) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8115.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8105.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7967.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7964.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Cabernet (2025) [Multi] (1.1.19) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7961.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7960.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Scouring (2025) [Ru/Multi] (11.08.2025) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7950.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Scouring - это стратегия в реальном времени, в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4312A8095A31DAE73C376118BBEF19D3838F56E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762206   (7947) от 14.08.2025
+
+Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7947.jpg" />
+</div>
+
+
+###  Подробнее
+
+До четырех игроков могут принять участие в игре создавая свою кебабную империю. Неважно, вы играете как шеф-повар-одиночка или в команде грильщиков, главное - строить свой бизнес шаг за шагом. Помимо обычного приготовления блюд, вы также можете стать владельцем ресторана, составив меню с экзотическими блюдами со всего мира, которые соседствуют с классическим донером.Тип издания: RepackРазработчик: Biotech GameworksЖанр: СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5630FD01809B22047AA5FD96ED651A7BBEAA1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

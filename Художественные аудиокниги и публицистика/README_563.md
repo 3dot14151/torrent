@@ -1,82 +1,3 @@
-###  Публикация: 1411423   (427230) от 25.09.2020
-
-Алексей Свадковский | Время перемен (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Владыка Хаоса уже избрал новые миры для участия в своей Игре, и скоро их смертным обитателям придется доказывать свое право на жизнь и свободу. Безжалостный маховик еще только навис над новыми, ничего не подозревающими жертвами, а потому нужно успеть завершить незаконченные дела, отдать старые долги и взять плату за ранее пролитую кровь. Новые миры и старые враги (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 11:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9499838BCAFC671F47CD67C8FD21EFDCE2DE1F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411273   (427133) от 25.09.2020
-
-Евгений Щепетнов | Мусорщик. Мечта (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Заброшенная на краю Галактики несчастная планета Сирус давно уже стала вселенским кладбищем отвоевавших свое, списанных зведолетов. Впрочем, есть на Сирусе и вполне благополучный Город, вот только обитателям Внешки, пристанища мусорщиков, живущих лишь тем, что удастся отыскать в мертвых кораблях, от этого не легче. Ведь их судьба – до конца дней своих рыться в старом (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 08:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3531E85DA7BE372746BD6E993D726DAB7067DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250209   (427097) от 27.09.2018
-
-Лиза Марклунд | Анника Бенгтзон (Книга 9). Громкое дело (2018) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В разгар шведской зимы молодая мать найдена убитой в сугробе среди деревьев за детским садом, куда утром отвела сына... Почти на экваторе, в изнуряющей жаре Кении, похищен правительственный чиновник...
- По роду деятельности журналист Анника Бенгтзон не впервые сталкивается с запутанными преступлениями, порожденными самыми темными сторонами человеческой души. На ее (   Читать дальше...   )Жанр: Политический детектив, ТриллерИздательство: Нигде не купишьПродолжительность: 11:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B15BF9B061A6DAF7FA92E6C1A8E529CB5013C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250183   (426986) от 27.09.2018
 
 Алёна Медведева | Иллюзия превращений (2018) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426986.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426914.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426819.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426801.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426789.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426766.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426649.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426637.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425962.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425598.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425592.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425585.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425566.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425565.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425512.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425503.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425415.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425409.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425391.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425387.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425386.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425174.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425173.jpg" />
 </div>
 
 
@@ -675,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:276A973BAFCA991FED9F4F74A106BA57EA7C6ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411452   (425065) от 26.09.2020
+
+Евгений Щепетнов | Корпорация. Чумная планета (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь беорийца Слая Донгара, менеджера по продажам, однообразна и уныла. Суть его профессии не поменялась спустя тысячелетия звездной эры. Грезы о полетах давно покрылись пылью. Даже получение неожиданного наследства не вызывает радости, ведь он унаследовал не миллионы кредитов, а лишь старый космический грузовик и кучу долгов. А может, это шанс все изменить? Нужно (   Читать дальше...   )Жанр: Космическая фантастикаПродолжительность: 10:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975060A740208BDE563736BDFCD64EE5B0B227E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946078   (424713) от 14.10.2015
+
+Кирилл Партыка | Эпицентр (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ему выпало жить в земном аду, в зачумленной Зоне, где большинство людей вымерло от неведомого недуга, а животные и растения превратились в монстров.
+Он был офицером-разведчиком. Но избыток опасностей и ненависти внутри изолированного периметра сделал из него волка-одиночку по кличке Серый. У него почти нет друзей, но слишком много врагов. Чтобы выжить, он вынужден (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 15:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6374A1F3EF21BE558B073A19960DED9E757E61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166540   (424437) от 17.09.2017
+
+Анатолий Курчаткин | Победитель (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественно-документальное повествование о советском разведчике Г.И. Мордвинове (1896-1966), имя которого стоит в одном ряду с именами Зорге, Абеля, Эйтингона и других выдающихся разведчиков. Он начал действовать как разведчик еще в годы Гражданской войны, став участником нескольких важнейших операций. Впоследствии работал в Монголии и Китае, сыграл важную роль (   Читать дальше...   )Жанр: Историческая повестьПродолжительность: 08:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8915F1A04328EA2792516FBB3F6941E1F6468B
 ```
 
 https://mybot314.ru/tekegram_catalog/

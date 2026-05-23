@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130198.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Photoshop 2021 22.5.5.691 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130195.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PowerCMD Pro 2011 2.2 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130194.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Anthropics Portrait Professional Studio v10.9.3 RePack by wadimus [2012,ENG\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130186.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Ashampoo UnInstaller 11.00.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130171.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ashampoo WinOptimizer 19.00.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130170.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VMware Workstation Player 16.2.2 build 19200509 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130167.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ UnHackMe 13.30.2022.0111 RePack by Umbrella Corporation [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130158.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Opera 83.0.4254.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130142.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MediaHuman YouTube Downloader 3.9.9.66 (1601) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130136.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CrystalDiskInfo 8.14.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130129.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130121.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sandboxie 5.55.8 / Sandboxie Plus 1.0.8 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130118.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Windows and Office Genuine ISO Verifier 11.10.24.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130117.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ RadioBOSS Advanced 6.1.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130111.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ TreeSize Professional v5.5.5.816 Final Portable x32/x64 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130106.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ SUMo Pro 5.14.9.516 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130100.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Nomad Factory - 80s Spaces 1.0.2 VST, VST3, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130092.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ PSPaudioware - PSP Plugins Bundle 01.2022 VST, VST3, AAX (x64) RePack by R2R [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130087.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Pale Moon 29.4.4 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130080.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ WonderFox HD Video Converter Factory Pro 24.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130078.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ ByClick Downloader Premium 2.3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130074.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sandboxie 5.55.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130043.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ableton - Live 12 12.0b.21 (x64) Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130005.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Skype 8.110.0.212 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129866.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129857.jpg" />
 </div>
 
 

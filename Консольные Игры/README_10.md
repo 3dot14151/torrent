@@ -6,7 +6,7 @@ The Godfather: Blackhand Edition [Wii] [PAL] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901743.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SaGa Frontier 2 (2000) [PS3] [USA] 4.85 [HEN / CFW] [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901174.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Angry Birds Star Wars (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900887.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ZombiU (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900877.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tales of Berseria (2016) [PS3] [ASIA] 4.80 [Cobra ODE / E3 ODE PRO ISO] [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899595.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Cel Damage HD (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898625.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Maplestory 3DS: The Girl of Destiny (2014) [3DS] [JPN] [CIA] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897275.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Hyperdimension Neptunia Re;Birth1 / Hyperdimension Neptunia Re Birth 1  (2014) [
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897265.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ The Legend of Zelda: Ocarina of Time 3D (2011) [3DS] [EUR] [Gateway] [Unofficial
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897186.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Legend of Zelda: Ocarina of Time 3D (2011) [3DS] [EUR] [CIA] [Unofficial] [R
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897126.jpg" />
 </div>
 
 
@@ -266,34 +266,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 637508   (896152) от 02.04.2013
-
-Bigfoot - King of Crush [Wii] [NTSC] [Multi 3] (2011)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Укроти монстра и стань королём разрушений, находясь за рулём популярного транспортного средства именуемого Бигфутом.
-Дави машины, ломай всё, что попадается на пути и побей грудью себе дорогу к победе.
-Выбери себе авто по вкусу и докажи, что ты лучший из лучших (   Читать дальше...   )Разработчик: Zoo GamesЖанр: RacingЯзык интерфейса: Multi 3Формат: WBFS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B21E1748972899C6CF43D805DCB1DC72189DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100627   (895852) от 06.02.2017
 
 Beyond the Labyrinth (2012) [3DS] [JPN] [Gateway] [Unofficial] [En]
@@ -302,7 +274,7 @@ Beyond the Labyrinth (2012) [3DS] [JPN] [Gateway] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895852.jpg" />
 </div>
 
 
@@ -328,7 +300,7 @@ Dragon Quest Monsters: Terry's Wonderland 3D (2012) [3DS] [JPN] [Gateway] [Unoff
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895694.jpg" />
 </div>
 
 
@@ -354,7 +326,7 @@ Maplestory 3DS: The Girl of Destiny (2014) [3DS] [JPN] [Gateway] [Unofficial] [E
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895692.jpg" />
 </div>
 
 
@@ -380,7 +352,7 @@ Dragon Quest Monsters: Terry's Wonderland 3D (2012) [3DS] [JPN] [CIA] [Unofficia
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895565.jpg" />
 </div>
 
 
@@ -406,7 +378,7 @@ Beyond the Labyrinth (2012) [3DS] [JPN] [CIA] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895546.jpg" />
 </div>
 
 
@@ -432,7 +404,7 @@ The Legend of Zelda: A Link Beetween Worlds (2013) [3DS] [EUR] [CIA] [Unofficial
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895541.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ The Legend of Zelda: A Link Beetween Worlds (2013) [3DS] [EUR] [Gateway] [Unoffi
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895498.jpg" />
 </div>
 
 
@@ -484,7 +456,7 @@ Star Wars Pinball (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895154.jpg" />
 </div>
 
 
@@ -510,7 +482,7 @@ Kane & Lynch 2: Dog Days (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894611.jpg" />
 </div>
 
 
@@ -536,7 +508,7 @@ DANCE! It's your Stage [Wii] [PAL] [English] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894415.jpg" />
 </div>
 
 
@@ -563,7 +535,7 @@ Luftrausers  (2014) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893218.jpg" />
 </div>
 
 
@@ -589,7 +561,7 @@ Initial D: Extreme Stage (2008) [PS3] [ASIA] 2.30 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893085.jpg" />
 </div>
 
 
@@ -615,7 +587,7 @@ F.E.A.R. 3 (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889759.jpg" />
 </div>
 
 
@@ -641,7 +613,7 @@ We Love Golf [Wii] [NTSC] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888536.jpg" />
 </div>
 
 
@@ -667,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888320.jpg" />
 </div>
 
 
@@ -678,6 +650,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68FFE6E309A95DE6A4F79D3BDF4E33D690F0E906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994830   (887380) от 09.03.2016
+
+Call of Duty: Modern Warfare 2 (2009) [Xbox360] [PAL] 8498 [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть серии Modern Warfare снова вернет вас на современное поле боя. Modern Warfare 2 продолжает захватывающий дух экшен, в котором вам снова придется противостоять новой угрозе. Безопасность всего мира снова находится на волоске, так что вам предстоит в лице сержанта Гэри Сандерсона (Sgt. Gary "Roach" Sanderson) повести элитный отряд через множество (   Читать дальше...   )Тип издания: LicenseРазработчик: Infinity WardЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7763FA65CCB940A2F17F99E2AAD79440F85EB3BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

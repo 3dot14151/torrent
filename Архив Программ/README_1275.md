@@ -6,7 +6,7 @@ HDDlife 4.0.189 for Notebooks [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391588.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ArcSoft MediaConverter 8.0.0.16 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391580.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pointstone System Cleaner 6.7.3.200 + Portable by -=SV=- [Eng+Rus(русифик
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391574.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sony Movie Studio Platinum 12.0 v 12.0.575 Portable by punsh 12.0.575 [Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391534.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zoner Photo Studio Professional 15 Build 3 [Английский + Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391502.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SolveigMM HyperCam 3.5.1210.30 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391459.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Avira Internet Security 2013 13.0.0.2735 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391454.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wise Game Booster 1.09.18 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391450.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ HDDlife Pro 4.0.0.189 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391441.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sony Vegas Movie Studio Platinum 12.0.575/576 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391406.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sony Vegas Movie Studio Platinum Suite 12.0.575/576 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391387.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Waterfox 55.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391361.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Comodo Dragon 58.0.3029.115 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391238.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ GoodSync Enterprise 10.6.2.4 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391235.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Wise Care 365 Pro 4.7.3.456 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391092.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Pale Moon 27.5.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391088.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Adobe Flash Player 27.0.0.159 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391036.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Opera 48.0.2685.39 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391032.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Adobe Flash Player 27.0.0.159 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391031.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Stellar Phoenix Windows Data Recovery Pro 7.0.0.3 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390965.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.1 Build 2985 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390958.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mail.RU Agent 6.0.5998 RePack by elchupacabra [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390724.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Total Commander 8.01 Final [MAX-Pack 2012.11.1] AiO-Smart-SFX [RUS|ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390641.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ HDD Observer 5.2.1 Pro [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390633.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Norton Utilities 16.0.0.126 [Мульти\Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390631.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Take Command 21.01.55  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390518.jpg" />
 </div>
 
 

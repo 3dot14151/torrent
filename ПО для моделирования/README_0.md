@@ -1,55 +1,3 @@
-###  Публикация: 1851970   (1055535) от 05.02.2026
-
-Room Arranger 10.3.4.743 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F956EA2ABFCE4E6EFD4FECA1923482D18D53F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849241   (1053426) от 21.01.2026
-
-Room Arranger 10.3.3.741 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82188DD12B5436DD1BF000D19DF9875E22484982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846187   (1051123) от 06.01.2026
 
 Room Arranger 10.3.2.739 [Multi/Ru]
@@ -58,7 +6,7 @@ Room Arranger 10.3.2.739 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051123.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ SketchUp Pro 2026 26.1.189 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050540.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ AMS Дизайн Интерьера 3D 14.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050243.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050177.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Luxion KeyShot Enteprise 2025.3 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049590.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ SketchUp Pro 2026 26.1.185 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048144.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Room Arranger 10.3.1.736 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047556.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Autodesk FBX Review 1.5.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045146.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ MeshBoolean v1.8 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041405.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ Nitro4D NitroSolo v1.07 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040069.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ Nitro4D NitroVertex v1.04 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040065.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040062.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Nitro4D NitroMoFracture v1.06 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040061.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ Nitro4D NitroDraw v1.25 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040059.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ Nitro4D NitroBoxTool v1.07 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040058.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ Nitro4D NitroBake3 v3.02  for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040052.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ Nitro4D NitroEdgeDeformerTool v1.05 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040050.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ C4DZone QuadCaps v1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040040.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ Laubwerk SurfaceSPREAD v2.0.4 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040037.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ Sitni Sati FumeFX 5.0.4 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040003.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ Ornatrix v2 2.0.10.26200 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039999.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ TurbulenceFD v1.0 build 1465 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039995.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ Transform v1.231S for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038421.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ Reallusion Cartoon Animator 4.41.2431.1 RePack by PooShock [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037046.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ Cartoon Animator 4 (ранее известный как CrazyTalk Animator) - �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9777EC89126D57ECA37FC2F67B9C1AE7490409D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443312   (1035650) от 28.01.2021
+
+Realbook v3.1 For Cinema 4d [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realbook - это предустановка для Cinema 4D, с помощью которой вы можете создать свою персонализированную и анимируемую 3D-книгу всего за несколько шагов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4162778E6D87FB9FDEB41AFD5AE2E17E7E32DA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444618   (1034321) от 02.02.2021
+
+HB MODELLINGBUNDLE v2.31 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034321.jpg" />
+</div>
+
+
+###  Подробнее
+
+HB ModellingBundle - это набор из более чем 70 скриптов для CINEMA 4D, предназначенных для 3D-моделирования. Цель этих скриптов - улучшить рабочие процессы и значительно ускорить выполнение многих операций. Это означает меньше щелчков и меньше движений мыши.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C538ED0B0F53DCBFD08DA5B7A01741F145048B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Slimjet 5.0.1.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500622.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500619.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Process Lasso Pro 6.0.0.98 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500598.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Citrio 44.0.2403.263 (4920.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500553.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Transcend SSD Scope 4.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500512.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ SlimBrowser 17.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500511.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Macrorit Partition Expert 6.1.0 Unlimited Edition RePack (& Portable) by 9649 [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500506.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ NIUBI Partition Editor 7.9.0 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500504.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Spotify 1.1.89.862 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500498.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Symantec Virus Definitions от 2015.09.06 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500458.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Internet Download Manager 6.12 Build 12 Final Retail [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500442.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500423.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Java SE Runtime Environment 7.0 Update 7 | 6.0 Update 35 [MULTi / Русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500421.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ IObit Smart Defrag Pro 6.3.0.229 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500414.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Process Lasso 9.3.0.22 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500410.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ YouTube By Click Premium 2.2.108 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500401.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ PhotoFiltre Studio X 10.7.0 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500389.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Xrecode II 1.0.0.194 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500383.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ DFX Audio Enhancer 11.016 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500374.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ AdwCleaner 5.006 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500373.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Mac Blu-ray Player 2.5.1.0973 Portable by Invictus [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500372.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500369.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Xrecode II 1.0.0.194 + xrecode2 shell 1.0.0.7 + xrecodeII portable build 1.0.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500318.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ ReviverSoft Driver Reviver 5.2.1.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500294.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Windows 10 Manager 3.1.2.1 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500282.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Internet Download Manager 6.12.12 Final RePack by KpoJIuK [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500229.jpg" />
 </div>
 
 

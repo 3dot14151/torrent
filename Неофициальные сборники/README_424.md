@@ -1,32 +1,3 @@
-###  Публикация: 940948   (464760) от 26.09.2015
-
-VA - Ultimate Sexy Beats Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Vantigo - Empty Dreams (Original Mix) (4:05)
-02. Alex Weedster - Hold For You (Original Mix) (5:45)
-03. BQ - To The Storm (Original Mix) (5:25)
-04. Centaurus B - Assassins Never Miss (Original Mix) (4:03)(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1C3123C9B1B01D0BC62A27CB7B21A722E6207F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940879   (464757) от 26.09.2015
 
 VA - Dream Hits vol.13 (2005) [MP3|256 кб/с]<Pop/Dance>
@@ -35,7 +6,7 @@ VA - Dream Hits vol.13 (2005) [MP3|256 кб/с]<Pop/Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464757.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464694.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ VA - Инструментальная музыка (2012) vol. № 76 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464685.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ VA - Инструментальная музыка (2012) vol. № 77 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464684.jpg" />
 </div>
 
 
@@ -142,7 +113,7 @@ VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464679.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ VA - 98 Хитов В Дорогу Клубный (2015) [MP3|256 кб/с]<Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464612.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ VA - Beatport Trance Pack (02.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464471.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ VA - LUXEmusic: Dance Super Chart Vol.88 (2016) [MP3|320 Kbps] <House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464469.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - 2016 EDM Underground (2016) [MP3|320 Kbps] <House, Funky, Tropical, Indie D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464467.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ VA - Фитнес - Хит (2015) [MP3|320 кб/с]<Dance, EDM, House, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464459.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ VA - Summer House Sessions Desire (2016) [MP3|224-320 Kbps] <Funky, Tropical, Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464292.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ VA - After Office: Clubbing Techno Set (2020) [MP3|320 Kbps] <Techno, Tech House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464263.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ VA - Sunset Chillout Party (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464261.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ VA - Попсовый бум. Часть 9 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464142.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ VA - Beatport Electro House: Sound Pack #171 (2020) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464122.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Kofie Anon & United Nations - Best Of In The Mix (2022) Mixed by aQuaLuna [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464102.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ The Beatles - Good Songs (2015) [MP3|128 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464055.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ VA - Зайцев нет. Музыка для машины (2015) [MP3|320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464016.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464014.jpg" />
 </div>
 
 
@@ -589,7 +560,7 @@ VA - Лучшие новинки сезона Vol.3 (осень 2020) (2020) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463993.jpg" />
 </div>
 
 
@@ -618,7 +589,7 @@ VA - I'm Listening Now 2 (2022) [MP3|320 Kbps] <Club, House, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463958.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ Kelly Clarkson - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463952.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ VA - 50 Golden Stars Songs (2016) [MP3|192-320 Kbps] <Disco, R&B, Classic Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463902.jpg" />
 </div>
 
 
@@ -705,7 +676,7 @@ VA - 80s Euro Disco Collection (2016) [MP3|320 Kbps] <Space Disco, Italo Disco, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463891.jpg" />
 </div>
 
 
@@ -734,7 +705,7 @@ VA - Лучшая 200ка Блатного радио 2 (2011) [MP3|128 kbps]<Ш
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463470.jpg" />
 </div>
 
 
@@ -754,6 +725,41 @@ VA - Лучшая 200ка Блатного радио 2 (2011) [MP3|128 kbps]<Ш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0055BBE73871848AE3223F681ACF9C53BC3092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549443   (463337) от 20.09.2012
+
+VA - Avto Club September Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Neumark - IPMBF (Original Mix)
+02. Anton Neumark - Sochi Olympics (Sly Dewars Vocal Mix)
+03. Anton Neumark ft Yana Fortep - Pride (INCOGNET Rmx)
+04. Anton Neumark, P. Mauriat - Mamy Blue Star (Original Mix)
+05. Chunks - Get Down To Miami (Nuff Remix)
+06. Daddys Groove - Power 2 The People (Club Mix) Test Pressing
+07. Der Cube - BoneFish (Original
+08. Diego Poblets, Vanessa Da Matta - Ai Cross (Anton Neumark Btl Mix)
+09. Dirty South, Thomas Gold, Kate Elsworth - Alive (Phillip Cue Remix)
+10. Ever Chee - Im Your DJ (Original Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7194828588BE1E5CEC15F48549124D4C0B32744
 ```
 
 https://mybot314.ru/tekegram_catalog/

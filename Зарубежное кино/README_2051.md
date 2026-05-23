@@ -1,58 +1,3 @@
-###  Публикация: 478187   (86613) от 05.04.2012
-
-«Старый» Новый год / New Year's Eve (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма — жители города, который никогда не спит. Нью-Йорк накануне Нового года переплетет жизни нескольких героев: умирающего в больнице пожилого человека, секретаршу, решившую осуществить данные себе обещания, продюсера знаменитого новогоднего шоу на Таймс Сквер, человека, который вообще ненавидит этот праздник.Жанр: Мелодрама, КомедияРежиссер: Гэрри МаршаллАктеры: Холли Берри, Джессика Бил, Джон Бон Джови, Эбигейл Бреслин, Лудакрис, Роберт Де Ниро, Джош Дюамель, Зак Эфрон, Гектор Элизондо, Кэтрин Хайгл, Мишель Пфайффер, Сара Джессика Паркер, Тиль Швайгер, Хилари Суэнк, Алисса Милано, Джеймс БелушиПеревод: ДублированныйПродолжительность: 01:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A10C069407A2D322A1DE78ED5CB14E5CE0F38B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478436   (86607) от 05.04.2012
-
-Смерть в горах / Into Thin Air: Death on Everest (1997) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по книге Джона Кракауэра "В разреженном воздухе"
-Подлинная история одного из самых драматических восхождений на Эверест в мае 1996 года, когда на высочайшую вершину мира пытались подняться сразу две группы альпинистов, возглавляемые Скоттом Фишером и Робом Холлом.
-Скотт и Роб вели богатых клиентов, заплативших немыслимые деньги за то, чтобы почувствовать себя настоящими альпинистами, хотя никто из них не имел ни малейшего представления, что такое горы. Проводники были вынуждены выполнять все прихоти и капризы своих подопечных, и это привело к тому, что, несмотря на весь свой опыт, Скотт и Роб начинают совершать одну ошибку за другой.
-В результате амбиции, бессердечие, невезение и плохая погода загнали обе группы в смертельную ловушку…Жанр: Драма, ПриключенияРежиссер: Роберт МарковицАктеры: Питер Хортон, Натаниель Паркер, Ричард Дженкинс, Кристофер МакДональд, Тим Даттон, Питер Дж. Лукас, Лонг Нгуйен, Джефф Перри, Нед ВонПеревод: Двуголосый закадровыйПродолжительность: 01:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A218F2AEA20DB638CFB9760EA7B1A28093F4B27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478242   (86595) от 05.04.2012
 
 Мулен Руж / Moulin Rouge (2001) [1080p] Blu-Ray
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86595.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86589.jpg" />
 </div>
 
 
@@ -115,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86588.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86542.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86459.jpg" />
 </div>
 
 
@@ -195,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86445.jpg" />
 </div>
 
 
@@ -221,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86442.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86432.jpg" />
 </div>
 
 
@@ -273,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86424.jpg" />
 </div>
 
 
@@ -299,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86422.jpg" />
 </div>
 
 
@@ -327,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86420.jpg" />
 </div>
 
 
@@ -353,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86408.jpg" />
 </div>
 
 
@@ -379,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86404.jpg" />
 </div>
 
 
@@ -405,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86403.jpg" />
 </div>
 
 
@@ -432,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86397.jpg" />
 </div>
 
 
@@ -458,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86391.jpg" />
 </div>
 
 
@@ -484,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86385.jpg" />
 </div>
 
 
@@ -510,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86375.jpg" />
 </div>
 
 
@@ -536,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86371.jpg" />
 </div>
 
 
@@ -564,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86370.jpg" />
 </div>
 
 
@@ -592,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86367.jpg" />
 </div>
 
 
@@ -620,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86360.jpg" />
 </div>
 
 
@@ -646,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86354.jpg" />
 </div>
 
 
@@ -673,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86352.jpg" />
 </div>
 
 
@@ -684,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49862E42FA7768A135293225B2B633D7A408A420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477067   (86332) от 04.04.2012
+
+Амели / Le Fabuleux destin d'Amélie Poulain (2001) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на людей, которые живут рядом с вами: соседей в подъезде, приятелей во дворе, знакомых, которые стоят с вами в очереди за овощами. Каждый по-своему мил, у каждого есть свои проблемы, странности, ну и ... комплексы, конечно же. Они не похожи на супергероев и не обладают сверхспособностями. Хотя, если постараться, каждый из нас может обнаружить в себе немного (   Читать дальше...   )Жанр: КомедияРежиссер: Жан-Пьерр ЖенеАктеры: Одри Тоту, Матьё Кассовиц, Рюфюс, Лорелла Кравотта, Серж Мерлен, Жамель Деббуз, Клотильд Молле, Клер Морье, Изабель Нанти, Доминик ПинонПродолжительность: 01:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5628A7666D06B9BED23B092BBF3D037DF13329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477773   (86327) от 04.04.2012
+
+Распутник / The Libertine (2004) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86327.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о поэте, придворном льстеце, пресловутом распутнике Джоне Уилмоте, графе Рочестере. После возвращения на трон Карла II Британия пребывает в упадке, и Уилмот умело этим пользуется. Он любит женщин и любит вино, он лишен каких бы то ни было нравственных ориентиров, он кутит и пишет стихи. Но постепенно он начинает раздражать многих: от собственной жены до самого короля…Жанр: ДрамаРежиссер: Лоуренс ДанморАктеры: Джонни Депп, Саманта Мортон, Пол Риттер, Джон Малкович, Стэнли Таунсенд, Франческа Аннис, Розамунд Пайк, Том Холландер, Джонни Вегас, Ричард Койл, Том БуркПеревод: Многоголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 01:49:35
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

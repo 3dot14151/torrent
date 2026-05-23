@@ -6,7 +6,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783731.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781170.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Athens 2004 / Летние игры. Афины 2004 (2004) [Ru] (1.0) Repack Co
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780488.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780475.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780468.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780359.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776298.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775892.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775565.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774028.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774022.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773971.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772900.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770034.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769425.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768562.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768226.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767716.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766730.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765991.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765987.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764148.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763123.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762462.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761032.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757076.jpg" />
 </div>
 
 

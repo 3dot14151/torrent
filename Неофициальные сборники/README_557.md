@@ -1,38 +1,3 @@
-###  Публикация: 496861   (253145) от 15.05.2012
-
-VA - 200 Самых Сочных Хитов (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-001 Michel Telo - Ai se te ue pego (Sagi Abitbul rmx)
-002 Дискотека Авария - Россия Победит!
-003 Far East Movement feat. Justin Bieber - Live my life
-004 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov remix)
-005 Sunrise Inc - Mysterious girl
-006 Стас Шуринс - Останься
-007 Inna - Alright
-008 Elvira T - Все решено (Fresh Tunes remix)
-009 Leventina - Freak it out
-010 Диверсанты - Мама Люба Дала Бы2012Жанр: PopПродолжительность: 11:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CB04CFFA3DB36977B55E47B75E3A0518E0E427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496920   (253143) от 15.05.2012
 
 VA - Дискотека Record Выпуск 6 50/50 (2012) [MP3|256 кб/с]<Club, Dance>
@@ -41,7 +6,7 @@ VA - Дискотека Record Выпуск 6 50/50 (2012) [MP3|256 кб/с]<Clu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253143.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ VA - Клубный Танцпол Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253123.jpg" />
 </div>
 
 
@@ -111,7 +76,7 @@ VA - Русский рок - Баллады (2012) [MP3|192-320 кб/с]<Heavy, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252951.jpg" />
 </div>
 
 
@@ -146,7 +111,7 @@ VA - В Машину! с DFM 50\50 (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252910.jpg" />
 </div>
 
 
@@ -181,7 +146,7 @@ VA - The Official UK Top 40 Singles Chart (13-05-2012) [MP3|320 кб/с]<Pop, Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252874.jpg" />
 </div>
 
 
@@ -207,7 +172,7 @@ VA - Радужный молодежный хит (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252846.jpg" />
 </div>
 
 
@@ -242,7 +207,7 @@ VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252842.jpg" />
 </div>
 
 
@@ -277,7 +242,7 @@ VA - Early Girls, Vol.1-5 (1995-2008) [MP3|320 кб/с]<Pop, Rock & Roll, Oldies
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252831.jpg" />
 </div>
 
 
@@ -312,7 +277,7 @@ VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252676.jpg" />
 </div>
 
 
@@ -347,7 +312,7 @@ VA - Инструментальная музыка (2012) vol. № 37 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252658.jpg" />
 </div>
 
 
@@ -373,7 +338,7 @@ VA - Hot Summer Hits (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252624.jpg" />
 </div>
 
 
@@ -408,7 +373,7 @@ VA - Autumn Mix (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252584.jpg" />
 </div>
 
 
@@ -437,7 +402,7 @@ VA - #003 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252554.jpg" />
 </div>
 
 
@@ -466,7 +431,7 @@ VA - #004 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252553.jpg" />
 </div>
 
 
@@ -495,7 +460,7 @@ VA - #005 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252550.jpg" />
 </div>
 
 
@@ -524,7 +489,7 @@ VA - #006 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252548.jpg" />
 </div>
 
 
@@ -553,7 +518,7 @@ VA - Music News For Forum vol.146 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252472.jpg" />
 </div>
 
 
@@ -582,7 +547,7 @@ VA - No name Sultry & Soulful Jazz  compilation (2025) [MP3|320 Kbps] <Sultry & 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252428.jpg" />
 </div>
 
 
@@ -611,7 +576,7 @@ Chicago Blues Radio - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252426.jpg" />
 </div>
 
 
@@ -640,7 +605,7 @@ VA - 60 minutes. Old School Dance Music vol.30 (Special 90's) (mixed by Dj V) (2
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252412.jpg" />
 </div>
 
 
@@ -669,7 +634,7 @@ VA - Time Life - Sounds of the Eighties (1980-1989)(10CD) [MP3|~245 кб/с (V0)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252378.jpg" />
 </div>
 
 
@@ -704,7 +669,7 @@ VA - Понемногу отовсюду by Yuridar #M-N (1958-2020) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252118.jpg" />
 </div>
 
 
@@ -733,7 +698,7 @@ VA - Не спи за баранкой 7 (Музыка в машину) (2023) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251834.jpg" />
 </div>
 
 
@@ -762,7 +727,7 @@ VA - Music News For Forum vol.145 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251685.jpg" />
 </div>
 
 
@@ -791,7 +756,7 @@ VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251674.jpg" />
 </div>
 
 
@@ -805,6 +770,35 @@ VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3508D047E0CCD0971FFCD5DA72356935F08C9107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835716   (251672) от 07.11.2025
+
+Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, Other, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Lie to Me
+ 02 - Got Your Heart in a Headlock
+ 03 - I Gotta Get Someone to Call My Lover
+ 04 - If I'm the Problem(   Читать дальше...   )Жанр: Vocal,  Easy listening, Other, AIПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
 ```
 
 https://mybot314.ru/tekegram_catalog/

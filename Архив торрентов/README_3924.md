@@ -6,7 +6,7 @@ LibreOffice 7.6.0.3 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204847.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream PDF Editor Pro 2.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204845.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FX Player Pro 3.6.4 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204844.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204839.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ YouTube ReVanced Extended 18.33.35 (RVP v2.188.1) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204838.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Qalculate! 4.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204835.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VPN Inf - Security Fast VPN 7.5.722 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204829.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DVDFab 12.1.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204827.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ uTorrent Pro 3.5.5 Build 46552 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204826.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ OCCT 12.0.13 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204824.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 23.10.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204821.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Red Button 5.94 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204816.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ EZ CD Audio Converter 10.2.1.1 (25.10.2022) RePack (& Portable) by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204814.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Lucky Patcher 10.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204811.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ PDF Extra: сканер и редактор 10.5.2108 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204809.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Google Chrome 116.0.5845.111 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204795.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Battery HD Pro 1.99.01 (Google Play) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204794.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Sigil 2.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204789.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ O&O ShutUp10++ 1.9.1434 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204785.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Ventoy 1.0.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204782.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Perfectly Clear WorkBench 4.6.0.2594 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204780.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Wondershare UniConverter for Mac 15.0.2 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204777.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.80.6200 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204770.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ ZEDGE 8.15.8-beta Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204765.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ FireAlpaca 2.11.7 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204763.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ WinRAR 6.20 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204762.jpg" />
 </div>
 
 

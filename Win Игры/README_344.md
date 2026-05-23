@@ -1,29 +1,3 @@
-###  Публикация: 1828305   (193563) от 24.10.2025
-
-Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-По Лос-Анджелесу разносится смертоносный вирус, превращающий носителей в зомби. Укус, заражение и больше чем просто иммунитет: узнайте правду об эпидемии и выясните, кем - или чем - вы стали. Выживание и эволюция - таков путь истребителя зомби!Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDA3369800275F9440988ED928081B992AEDA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656194   (193527) от 29.08.2023
 
 Charrua Soccer (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Charrua Soccer (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193527.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Apartament 1406: Horror (2023) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193519.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193494.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193470.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193468.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193462.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Metal Eden (2025) [Ru/Multi] (85667) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193461.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ It's a Wrap! (2023) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193460.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193400.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193394.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack sele
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193388.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193387.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193386.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wante
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193385.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193368.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Knightica (2025) [Ru/Multi] (1.1.1a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193367.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193366.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack Wanterlude [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193365.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193364.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Forgotten Seas (2024) [Ru/Multi] (1.0) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193363.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (0.1.26.2.46023.12/dlc)
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193362.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack seleZen [Digital Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193361.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Scene Rune [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193360.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Double Dragon Revive (2025) [Ru/Multi] (1.1.0.0/dlc) Repack Let'sРlay [Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193356.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193348.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Dispatch - это комедия о рабочем месте супергеро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C68A36C2A226AD9C8CB41C8A9C34482AF1578BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827756   (193347) от 23.10.2025
+
+Absolum (2025) [Ru/Multi] (02 r34045) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Absolum создана с любовью командой мечты, которая переосмысливает жанр классических сайд-скроллеров beat ‘em up. Игра сочетает боевой экшен высшего класса с современными roguelite-элементами, привнося дух легендарных фэнтезийных аркад прошлого в это захватывающее приключение в оригинальном мире Талам.Тип издания: RepackРазработчик: Dotemu, Guard Crush Games, SupamonksЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48EEF111D25EF3D5CA09EBC0B8F9094A0FC7B0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

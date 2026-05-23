@@ -6,7 +6,7 @@ Wise Care 365 Pro 4.7.3.456  Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390516.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RadioMaximus 2.20 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390478.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Waterfox 55.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390415.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 8.01 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390357.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MediaMonkey Gold 4.1.18.1853 RePack (& portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390349.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 5.0.3.393 Final RePack (& Portable) by TryRooM  [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390300.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ StartIsBack++ 2.5.2 Final RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390236.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Reg Organizer 8.01 Final RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390176.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ StartIsBack++ 2.5.2  StartIsBack+ 1.7.6 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390171.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VueScan Pro 9.1.18 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390096.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Data Flow Accelerator 4.5.3.35 Alpha [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_390060.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wise Care 365 Pro 2.08.155 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389991.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Photo Print Pilot 1.6.0 RePack (& portable) by AlekseyPopovv [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389925.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389894.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Opera Hybrid 12.02 Build 1578 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389853.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Need Soft 2012.10 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389803.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.11 Final + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389798.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ TuneUp Utilities 2013 13.0.2020.14 Final RePack (& portable) by KpoJIuK [Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389740.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Glarysoft Malware Hunter PRO 1.45.0.422 RePack (& Portable) by TryRooM  [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389687.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ SlimBrowser 8.00 Build 005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389684.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sony Sound Forge Professional Portable by DJ VAdim  10.0.474b [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389680.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Stardock Start8 1.01 repack by PainteR [eng / рус]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389678.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ TuneUp Utilities 2013 13.0.2020.115 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389674.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ AMD Radeon Software Crimson ReLive Edition 17.10.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389639.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389596.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Cumulative Update KB4041691 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389595.jpg" />
 </div>
 
 

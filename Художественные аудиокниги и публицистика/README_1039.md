@@ -1,84 +1,3 @@
-###  Публикация: 1756617   (39582) от 22.10.2024
-
-Кнут Гамсун | Плоды земли (2023) [MP3, Сергей Дидок]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист.
-«Плоды земли» – роман, за который он получил Нобелевскую премию по литературе в 1920 году. Роман начинается с того, что в лес приходит человек по имени Исаак, который начинает обустраивать в нём своё новое жильё. Вскоре к нему присоединяется девушка Ингер. Вместе с Исааком они занимаются хозяйством, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ксения ЖихареваИздательство: ИДДКПродолжительность: 15:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597F9474F8D95537A8834EE130E076A84A768A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756626   (39580) от 22.10.2024
-
-Кнут Гамсун | Соки земли (2023) [MP3, Андрей Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Зарубежная проза.
-Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе за 1920 год.
-Аудиостудия «Ардис» предлагает вашему вниманию роман норвежского писателя Кнута Гамсуна «Соки земли» (переводившийся также под названием «Плоды земли»), принесший в 1920 году автору Нобелевскую премию (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ксения ЖихареваИздательство: Студия «АРДИС»Продолжительность: 14:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F063FE4FEB2A85BF5BA4CEA019026829D012D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756584   (39575) от 22.10.2024
-
-Мэлори Блэкмен | Крестики и нолики (Книга 1) (2024) [MP3, Алина Гольденберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сеффи и Каллум влюблены почти с самого детства, но их союз под запретом, потому что общество, в котором они живут, поделено на два класса. Сеффи принадлежит высшему классу темнокожих Крестов, а Каллум – белый парень из низшей касты нулей. Поддерживать отношения становится еще сложнее, когда вскрывается связь Каллума с Освободительным Ополчением, пытающимся свергнуть (   Читать дальше...   )Жанр: ФантастикаИздательство: Popcorn BooksПродолжительность: 11:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFD539D056DDD522B2F2FABEDEE4C07D97AC61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756625   (39548) от 22.10.2024
 
 Кнут Гамсун | Роза (2024) [MP3, Александр Бордуков]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39548.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39542.jpg" />
 </div>
 
 
@@ -143,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39497.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39427.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39426.jpg" />
 </div>
 
 
@@ -225,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39396.jpg" />
 </div>
 
 
@@ -253,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39383.jpg" />
 </div>
 
 
@@ -279,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39376.jpg" />
 </div>
 
 
@@ -306,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39373.jpg" />
 </div>
 
 
@@ -332,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39323.jpg" />
 </div>
 
 
@@ -361,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39321.jpg" />
 </div>
 
 
@@ -387,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39309.jpg" />
 </div>
 
 
@@ -413,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39294.jpg" />
 </div>
 
 
@@ -439,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39272.jpg" />
 </div>
 
 
@@ -465,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39190.jpg" />
 </div>
 
 
@@ -491,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39185.jpg" />
 </div>
 
 
@@ -517,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39178.jpg" />
 </div>
 
 
@@ -544,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39165.jpg" />
 </div>
 
 
@@ -570,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39082.jpg" />
 </div>
 
 
@@ -596,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39063.jpg" />
 </div>
 
 
@@ -624,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39033.jpg" />
 </div>
 
 
@@ -652,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39024.jpg" />
 </div>
 
 
@@ -680,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39021.jpg" />
 </div>
 
 
@@ -692,6 +611,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A92687B709E2C28180E0170DB7D2A6D99856A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367592   (39020) от 28.10.2024
+
+Софья Ковалевская | Нигилистка (2009) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию слушателя предлагается аудиокнига, в которую вошла повесть «Нигилистка», выдающегося российского математика Софьи Ковалевской (1850–1891). Повесть «Нигилистка» является своеобразным продолжением повести «Воспоминаний детства», ставшая подлинным историческим памятником своего времени – настолько правдивое и достоверное освещение получила в ней жизнь молодой (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 08:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12238230B7BAAD2DDA4A18CAF2519E96F0996AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757612   (39010) от 28.10.2024
+
+Вячеслав Киселев | Викинг (Книга 3). Северный Альянс (2024) [MP3, Олег Лобанов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они попали в Россию на переломном этапе истории и смогли пробиться в элиту. Помогли выиграть войну и запустили промышленную революцию. Но впереди их ждут еще более важные свершения, которые изменят карту мира.Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 06:49;26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC6A49EEBF09C951DC6FFB48C7E8C5BA6597C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757642   (38985) от 28.10.2024
+
+Майкл Кэндел | Собаки, кошки, попугаи и другие (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38985.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Уже год ученые допрашивают инопланетянина. Об этом знает весь мир, и к охраняемому объекту едут тысячи туристов, просто чтобы посмотреть на недостроенную атомную станцию на острове, где развернули лабораторию. Но мало кто знает, что контакт наладить с инопланетянином не удается. Возможно потому, что он ищет конкретного человека, такого как мистер Богати, болтающего (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD590BC1FFCF86972C9D211D0BBD01BDA4C24A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

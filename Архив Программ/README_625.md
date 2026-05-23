@@ -6,7 +6,7 @@ PreSonus Studio One 5 Professional 5.5.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735355.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinTools.net Premium 22.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735351.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sandboxie 5.55.9 / Sandboxie Plus 1.0.9 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735341.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.1 Build 6845 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735338.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ USB Image Tool 1.82 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735337.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wallpaper Engine 2.0.98 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735291.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ FL Studio Producer Edition 20.8.3.2304 + FLEX Extensions RePack by Zom [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735290.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ V-Ray 5.20.02 for 3ds Max 2016-2022 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735283.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Slimjet 27.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735262.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ XYplorer 20.90.0800 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735260.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Glary Utilities Pro 5.147.0.173 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735257.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Freemake Video Converter 4.1.11.53 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735219.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Wonderfox HD Video Converter Factory Pro 19.0 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735218.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ R-Drive Image 6.3.Build.6306 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735215.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ TweakPower 1.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735208.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735193.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Opera 69.0.3686.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735191.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Nitro4D NitroVertex v1.04 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735187.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Firefox Browser 79.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735181.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PIDKey Lite 1.64.4 Beta 3 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735173.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Cockos REAPER 6.13 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735172.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AIMP 4.70 Build 2224 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735171.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Movavi Video Suite 20.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735078.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735054.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Xilisoft Video Converter Ultimate 7.8.25.20200718 RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735052.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Windows 10 Pro 1909 b18363.959 x64 ru by SanLex (edition 2020-07-27) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735047.jpg" />
 </div>
 
 

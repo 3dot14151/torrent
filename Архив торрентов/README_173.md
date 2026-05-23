@@ -6,7 +6,7 @@ WhatsApp 2.2117.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017078.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Visual Studio Code 1.56.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017051.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ UltraISO Premium Edition 9.7.6.3810 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017048.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LibreOffice 7.1.3.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017018.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ UltraISO Premium Edition 9.7.6.3812 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017007.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Speccy 1.32.774 Professional | Business | Technician Edition RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016976.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ COMSS Boot USB 2021-05 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016960.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ TeamViewer 15.16.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016951.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Valentina Studio Pro 11.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016946.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Carbon Copy Cloner 5 v5.1.27-b1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016938.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yoink 3.5.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016935.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Numi 3.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016926.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ L'Orange & Namir Blade - Imaginary Everything (2021) [FLAC|Lossless|Web-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016921.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ RAR Extractor Max - WinRAR 6.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016917.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ AudKit Spotify Music Converter for Mac 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016905.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Comedy Баттл (07.05.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016901.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Udemy, ZTM, Andrei Neagoie и др. | TensorFlow Developer Certificate in 2021: 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016889.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ IK Multimedia - AmpliTube 5 Complete 5.0.3 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016886.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ NetLimiter Pro 4.1.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016864.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ ON1 HDR 2021.5 15.5.0.10403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016863.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Marmoset Toolbag 4.02 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016851.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ uTorrent 3.5.5 Build 46010 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016843.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Midway - Надо кричать (2009) [MP3|320] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016832.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ UltraISO Premium Edition 9.7.6.3812 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016824.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Sublime Text 4.0 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016789.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Sketch 72.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016784.jpg" />
 </div>
 
 

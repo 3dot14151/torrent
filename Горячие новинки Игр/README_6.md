@@ -6,7 +6,7 @@ Project Castaway (2024) [Ru/Multi] (1.0.1) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062432.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ No Vacation for an Executioner (2026) [Ru/Multi] (1.21) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062323.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Caribbean Legend: Age of Pirates (2026) [Ru/Multi] (1.0.1/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062320.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Runeborn (2025) [Ru/Multi] (1.0.10) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062294.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ iRacing Arcade (2026) [Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062293.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dragonkin: The Banished (2025) [Ru/Multi] (1.2.64.53721/dlc) Repack FitGirl [Blo
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062262.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dragonkin: The Banished (2025) [Ru/Multi] (1.2.64.53721/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062261.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dragonkin: The Banished (2025) [Ru/Multi] (1.2.64.53721/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062259.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Screamer (2026) [Multi] (1.0/dlc) Repack Let'sРlay [Digital Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062221.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sunbreak War (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062157.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Caribbean Legend: Age of Pirates (2026) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062150.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Legacy of Kain Defiance Remastered (2026) [Ru/Multi] (2.0/dlc) Repack FitGirl [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062138.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fall of an Empire (2026) [Ru/Multi] (1.243) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062123.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Going Medieval (2021) [Ru/Multi] (1.0.52/dlc) Repack Let'sРlay [Fortified Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062122.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ GreedFall: The Dying World (2024) [Ru/Multi] (1.1/dlc) Repack Let'sРlay [Deluxe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062121.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tales of Berseria Remastered (2026) [Ru/Multi] (1.0.2/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062096.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.49.0/dlc) Repack Hardware
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062094.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Bloodgrounds (2025) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062093.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Timberborn (2021) [Ru/Multi] (1.0.12.3) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062065.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062011.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Going Medieval (2021) [Ru/Multi] (1.0.43/dlc) Repack FitGirl [Fortified Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062010.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ghost Master Resurrection (2024) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062009.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Fall of an Empire (2026) [Ru/Multi] (1.240-7c39cc81d) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061994.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Fall of an Empire (2026) [Ru/Multi] (1.240-7c39cc81d) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061993.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Heroes of Science and Fiction (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061986.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Ghost Master Resurrection (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061937.jpg" />
 </div>
 
 

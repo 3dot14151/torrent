@@ -6,7 +6,7 @@ Tsugumi - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin On
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228049.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Stygian Riverside - 6 альбомов (2008-2011) [FLAC|Lossless] <Touhou, Voca
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227453.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Galneryus - Under The Force Of Courage (2015) [MP3|320 кб/с] <Neo-Classical M
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227414.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ AncientChronicle - 7 альбомов (2008-2010) Touhou Instrumental /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227312.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ EGOIST (chelly) - 1 альбом, 3 сингла (2011-2012) [MP3|320 кб/с]<J
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222708.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ EXILE - 18 альбомов, 41 сингл (2001-2012) [MP3|128-320 кб/с]<J-P
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222559.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dame AGE inc. — Touhou Kouma Ginyuuroku (2010) Touhou Instrumental /Doujin/ [F
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222444.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ D.N.A. Softwares - 2 альбома (2009-2010) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222013.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Sun Flower Field - 4 альбомa (2009-2011) [FLAC|Lossless] <Touhou, Vocal, I
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221978.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Bloody Sword - 3 альбома (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221668.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ LiSA - Lover"S"Mile (2012) [MP3|320 Kbps] <J-Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221152.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ LiSA - Little Devil Parade (2017) [MP3|320 Kbps] <J-Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219422.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ petit milady - 3 сингла (2014-2015) [FLAC|Lossless|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217749.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Gong Yue - Buddhist Music (2011) [MP3|320 кб/с]<Folk, Mantras>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217081.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Fear, and Loathing in Las Vegas - Cocoon for the Golden Future (2022) [FLAC|Loss
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215670.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Sigh - The Eastern Forces of Evil 2022 (Live) (2023) [FLAC|Lossless|image + .cue
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208318.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sangatsu no Phantasia - Дискография (2016 - 2020) [FLAC|Lossless|WEB-
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206978.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Onmyo-Za - Fuujin Kaikou (2014) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206404.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Galneryus - Between Dread And Valor (2023) [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206147.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Lovebites - Knockin' At Heaven's Gate - Live In Tokyo (2023) [FLAC|Lossless|WEB-
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203906.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197753.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Life Awaits - Call Me Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190583.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Hagane - Code ; 9021 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189990.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Dark Mirror ov Tragedy - The Lord ov Shadows (2018) [FLAC|Lossless|image + .cue]
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189125.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ D-Mad Devil - One With the Darkness (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188522.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Chaos Control - The Legacy Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186785.jpg" />
 </div>
 
 

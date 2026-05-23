@@ -6,7 +6,7 @@ Dew-Scented - Intermination (2015) [MP3|320 кб/с]<Death/Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628580.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dagoba - Tales Of The Black Dawn (2015) [MP3|320 кб/с]<Groove, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628476.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Darker By Design - Sinister At Last (2015) [MP3|320 кб/с]<Melodic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628475.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Whispered - Sakura Omen (2015) Single [MP3|320 кб/с]<Melodic Death Metal, Fol
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628473.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Voices Of Grief - Verses About Sin And The Guise Of Sorrow (2022) [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627903.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Power Theory - An Axe To Grind (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627216.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Despised Icon - Beast (2016) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626644.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ In Cauda Venenum - In Cauda Venenum (2015) [MP3|320 кб/с]<Post-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626521.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Amrinan - Songs To Son (2015) [MP3|320 кб/с]<Power / Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626520.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sadman Institute - Revival (2015) [MP3|320 кб/с]<Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626411.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Antagoniste - The Myth of Mankind (2015) [MP3|320 кб/с]<Avant-Garde Black / S
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626410.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Bone Gnawer - Cannibal Crematorium (2015) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626409.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Deadly Circus Fire - The Hydra’s Tailor (2015) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626394.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Darkest Hour - The Mark Of The Judas[Remastered] (2015) [MP3|320 кб/с]<Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626282.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Periphery - 4 Альбома, 8 Демо, 1 Сингл и 2 EP (2004-2016) [MP3|
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626223.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Anfel - Icy World (2015) [MP3|320 кб/с]<Gothic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626135.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Silence Lies Fear - Future-The Return (2015) [MP3|128 кб/с]<Modern Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626121.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sworn Enemy - Gamechanger (2019) [MP3|320 kbps] <Hardcore, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626113.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Luca Turilli's Rhapsody - Prometheus, Symphonia Ignis Divinus (Limited Edition) 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626001.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nuiterra - ...In the Dark (2022) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625549.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Neurotech - The Catalyst (2017) [MP3|320 Kbps] <Industrial Metal, Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625528.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Tremonti - A Dying Machine (2018) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624367.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Rosetta - Quintessential Ephemera (2015) [MP3|256 кб/с]<Post-Metal, Sludge Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624333.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Krayenzeit - Auf Dunklen Schwingen (2015) [MP3|320 кб/с]<Medieval Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624326.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Demon Lung - A Dracula (2015) [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624322.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Telergy - Hypatia (2015) [MP3|320 кб/с]<Epic / Symphonic / Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624213.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Navicat Charts Creator for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Navicat for MySQL for Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114463.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Navicat for SQL Server on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114461.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Navicat Charts Viewer for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114459.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PullTube 1.8.5.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114458.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Text Workflow 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114457.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Malwarebytes AdwCleaner 8.4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114451.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Tenorshare 4uKey - Password Manager 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114442.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ WinRAR 7.00 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114441.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 04.03.2024) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114420.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Topaz Video AI 4.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114413.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AIMP 5.30 Build 2540 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114411.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ EZ CD Audio Converter 11.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114410.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ nthLink 6.2.6.0 x86 / 6.3.1.0 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114398.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ uJAM - Beatmaker BUNDLE 2.3.1 (03.2024) VSTi, VSTi 3, AAX (x64) RePack by TCD [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114389.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Malwarebytes Windows Firewall Control 6.9.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114385.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Windows 10 Manager 3.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114381.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Topaz Photo AI 2.4.0 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114379.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NirLauncher Package 1.30.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114378.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Topaz Gigapixel AI 7.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114377.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FinePrint Software (FinePrint 11.42 / pdfFactory Pro 8.42) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114373.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ OneCommander Pro 3.70.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114370.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ LibreOffice 7.6.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114366.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Viber 22.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114359.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ FinePrint 11.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114342.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ EarthView 7.9.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114340.jpg" />
 </div>
 
 

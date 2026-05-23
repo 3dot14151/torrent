@@ -6,7 +6,7 @@ MediaInfo 0.7.81 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138755.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 20.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138737.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138729.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PowerISO 7.8 [DC 29.12.2020] RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138710.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Skype 8.67.0.99 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138700.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ K-Lite Codec Pack Update 11.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138690.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Paint.NET 4.0.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138671.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Notepad3 5.20.915.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138670.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Slimjet 17.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138666.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BELOFF [dp] 2019
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138665.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wise Folder Hider Pro 3.30.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138638.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sidify Spotify Music Converter 2.2.0 RePack by F4CG [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138634.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Arturia - FX Collection 2020.12 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138618.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Bandicam 1.8.5.301 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138616.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138608.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VSO DVD Converter Ultimate 3.6.0.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138602.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Any DVD Converter Professional 5.8.7 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138578.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ EagleGet 2.0.4.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138566.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Display Driver Uninstaller 15.7.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138555.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ WYSIWYG Web Builder 8.5.3 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_138549.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Ummy Video Downloader 1.5.0.5 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138548.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Advanced Renamer 3.87 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138544.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Movavi Photo Editor 5.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138538.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VSO ConvertXtoDVD 6.0.0.12 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138536.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Bat! Professional 8.7.0 (Рождественская версия) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138508.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Aiseesoft DVD Creator 5.2.38 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138502.jpg" />
 </div>
 
 

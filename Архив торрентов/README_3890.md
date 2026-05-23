@@ -6,7 +6,7 @@ Topaz Video AI 3.3.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StaxRip 2.22.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209085.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kate 23.04.3 Build 2090 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209075.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Auslogics Duplicate File Finder 10.0.0.3 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209070.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wireshark 4.0.7 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209057.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NetTraffic 1.68.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209051.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Viber 20.5.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209041.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Pale Moon 32.3.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209038.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wise Disk Cleaner 11.0.3.817 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209033.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PortableApps.com Platform 24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209028.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Opera One 100.0.4815.54 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209023.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ZWCAD MFG 2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209022.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Inkscape 1.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209020.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ HWiNFO 7.51 Build 5160 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209019.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Ocenaudio 3.12.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209007.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Topaz Video AI 3.1.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209004.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208993.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Valhalla DSP - Valhalla VintageVerb 3.0.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208989.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ JetBrains CLion 2022.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208988.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ TweakNow WinSecret Plus! 4.9.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208984.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Viber 20.5.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208980.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ JetBrains DataGrip 2022.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208974.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ JetBrains GoLand 2022.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208970.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Plexim Plecs 4.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208968.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ AIMP для Android v 3.30.1241 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208967.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Total Commander 10.52 (23.01.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208965.jpg" />
 </div>
 
 

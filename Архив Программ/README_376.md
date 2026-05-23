@@ -6,7 +6,7 @@ Windows 7 Manager 5.1.8 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854993.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WonderFox HD Video Converter Factory Pro 18.9 (20.04.2020) RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854925.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MediaHuman YouTube Downloader 3.9.9.36 (1704) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854923.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Foxit Reader 8.2.1.6871 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854849.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SamDrivers 17.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854838.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DriverPack Solution 16.17.3 + Драйвер-Паки 17.02.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854835.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DAEMON Tools Ultra 5.0.1.0551 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854833.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ XnConvert 1.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854806.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 45 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854801.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ LDPlayer 4.0.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854790.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Hard Link Shell Extension 3.9.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854695.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 45 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854694.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ JetBrains RubyMine 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854689.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Kerish Doctor 2020 4.80 DC 15.04.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854585.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kaspersky Small Office Security 7 20.0.14.1085 (j) (SharewareOnSale) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854481.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ JetBrains Rider 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854478.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ JetBrains CLion 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854477.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ JetBrains GoLand 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854475.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ JetBrains DataGrip 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854473.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Open Server 5.3.7 (Базовый, Полный) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854459.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Vivaldi 4.2.2406.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854412.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ AIR Music Technology - Hybrid 3.0.10 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854406.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PDF24 Creator 10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854404.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Baby Audio - TAIP 1.0.0 VST, VST3, AAX (x86/x64) RePack by FLARE [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854402.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Process Audio - Sugar 1.2.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854294.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Wise Disk Cleaner 10.6.2.798 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854290.jpg" />
 </div>
 
 

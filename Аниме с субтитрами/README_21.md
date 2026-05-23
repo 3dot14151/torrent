@@ -6,7 +6,7 @@ Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970555.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Tatakae! Iczer-1 / Bouken! Iczer 3 / Sen-shoujo Iczelion [1985,1990,1995, OVA] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970545.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схва�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968456.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatteiru / Труп под ногам�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967398.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Tonari no Seki-kun / Сэки, мой сосед по парте [2014, OAD, 2 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960050.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957273.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957260.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dirty Pair no Ooshoubu: Nolandia no Nazo | Dirty Pair: Affair of Nolandia | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955733.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955637.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Dirty Pair: Lovely Angels Yori Ai o Komete | Dirty Pair: With Love From the Love
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955632.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dirty Pair: Project Eden | Грязная парочка: Проект Эдем 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955613.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dirty Pair Flash | Ослепительная грязная парочка [199
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955606.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dirty Pair: Bouryaku no 005-bin | Dirty Pair: Flight 005 Conspiracy | Грязн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955513.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Dirty Pair | Грязная парочка [1985, TV, 24 из 24] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955491.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, ТВ, 12 сер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955086.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Gekijouban Trigun: Badlands Rumble / Триган: Переполох в пус�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955001.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Shin Kyoto Hen / Бродяга Кэн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954928.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Mirai Shonen Conan / Future Boy Conan / Конан - мальчик из буд�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954926.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Okusama ga Seitokaichou! Plus! / My Wife Is the Student Council President! + / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954921.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Quiz Magic Academy: The Original Animation | Загадки Магической
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954865.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Hikaru no Go / Hikaru's Go / Хикару и го [2001, TV, 75] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954572.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Choushin Hime Dangaizer 3 | Дангайзер 3 [1999, OVA, 4 эп.] DVDRip 527
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951778.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Bastard!! Ankoku no Hakai Shin | Bastard! Destroyer of Darkness | Ублюдок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951466.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Hikaru no Go | Hikaru's Go | Хикару и го [2001, TV, 75 + 1] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950902.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Shirobako / Белая коробка [2014, TV, 24] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950841.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Shijou Saikyou no Deshi Kenichi OVA / Kenichi: The Mightiest Disciple OVA / Си
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950293.jpg" />
 </div>
 
 

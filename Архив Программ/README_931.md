@@ -6,7 +6,7 @@ Global Mapper 12.02 x86 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579718.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dr.Web Security Space 10.0.1.7200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579711.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Office Tab Enterprise 10.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579708.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UltraISO Premium Edition 9.6.5.3237 RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579702.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RuntimePack 15.7.22 (Full/Lite) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579632.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adguard 5.10.2051.6368 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579627.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Acoustica Mixcraft Pro Studio 7.1.279 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579624.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ UltraISO Premium Edition 9.6.5.3237 DC 22.07.2015 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579622.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Corel WinDVD Pro 2010 10.0.5.819 [ML/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579493.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Native Instruments Traktor Pro 2 2.0.3 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579491.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Soft Organizer 5.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579484.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Soft Organizer 5.12 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579479.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mozilla Firefox 49.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579477.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The KMPlayer 3.0.0.1441 R2 Final DXVA [ML/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579444.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Emsisoft Emergency Kit 11.9.0.6508 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579405.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ LibreOffice 5.2.0.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579375.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Panda Free Antivirus 2017 17.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579367.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Auto Shutdowner + portable 1.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579320.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579316.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ CrystalDiskInfo 7.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579302.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The KMPlayer 4.2.2.27 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579270.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wise Care 365 Pro 5.3.1.528 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579263.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ PDF Shaper Professional 9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579216.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ GoodSync Enterprise 10.9.33.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579203.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ T-Clock Redux 2.4.1 build 419 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579186.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Wolfram Mathematica 11.0.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579185.jpg" />
 </div>
 
 

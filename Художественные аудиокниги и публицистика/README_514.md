@@ -1,81 +1,3 @@
-###  Публикация: 1316242   (506830) от 25.07.2019
-
-Надежда Попова | Конгрегация 4 | Ведущий в погибель (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Судьба переменчива и непредсказуема. Откомандированный в Аусбург следователь первого ранга Курт Гессе даже предположить не мог, что вместо этого окажется в Ульме. В городе, где не любят Конгрегацию. В городе, где страх потерять прибыль куда сильнее, чем страх Божий. В городе, где ночные улицы смертельно опасны. И именно здесь Курта ждет новое расследование, к которому (   Читать дальше...   )Жанр: Фэнтези, Детективная фантастикаПродолжительность: 29:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC77D3BABBC3AF625FF872CA3B9B98CF171DFBE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316306   (506828) от 25.07.2019
-
-Иар Эльтеррус | Гнев императора. Дальний путь (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Элианская империя мало что могла противопоставить высокоразвитым цивилизациям, которые вышли в Большой Космос много веков назад, разве что – свою магию. Но именно магия настораживала тех, кто привык полагаться исключительно на технологии. А если потенциального противника нельзя понять, его следует уничтожить. Просто так, на всякий случай. Правда, большая политика (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 12:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EF40123F2F1931E5659C957D53D2411E3E105B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316408   (506817) от 25.07.2019
-
-Вячеслав Шалыгин | Странствия безногого. Космос! [Книга 1] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сверхсекретное задание майора разведки Федора Сбондина и финансовый кризис космического «волка» капитана Зигфрида Безногого настолько сближают этих разных людей, что в дальнейшей жизни им уже друг без друга не обойтись. Теперь они вместе будут мешать олигарху Злюхину разорять Родину, вместе готовиться к отражению бастурман-бастманчского нашествия, вместе спасать (   Читать дальше...   )Жанр: Юмористическое фэнтезиПродолжительность: 05:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45287CA751A3FCB1CE2C081A638CE0974BC11909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316324   (506760) от 25.07.2019
 
 Григорий Шаргородский | Видок 3 | Неживая легенда (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506760.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506467.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506308.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506122.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506120.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506116.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505905.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505902.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505389.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505382.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505379.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505377.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505127.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_505113.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505084.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505063.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504809.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504572.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504568.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504566.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504565.jpg" />
 </div>
 
 
@@ -638,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504561.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504498.jpg" />
 </div>
 
 
@@ -679,6 +601,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7001AC54F77D7C6261EB673B5D78B22FE7CB7680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540100   (504481) от 28.08.2012
+
+Павел Шумилов | Последний Повелитель [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероятно, многие читатели романа «Слово о Драконе», наравне с главным героем задавались вопросом: кто же такой Дракон, откуда он взялся, какую цель преследовали неведомые Повелители древних времён?…
+Эта книга призвана ответить на большинство вопросов. Читатели наконец узнают, кто и с какой целью создал Дракона, познакомятся с таинственным пришельцем из иного мира, и найдут объяснение многим чертам характера главного героя. Роман некоторым образом перекликается с произведениями А. и Б. Стругацких, в нём упоминаются события книги «Возвращение: полдень, XXII век».
+
+Первая книга Павел Шумилов | Одинокий дракон [2012]Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1A3319DB8E33CECA35AAA4AE31C5AD0D90167A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563443   (504474) от 14.07.2022
+
+Алексей Толстой | Аэлита (2022) [MP3, Никита Степаненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504474.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Аэлита» – фантастический роман Алексея Николаевича Толстого о путешествии землян на Марс и о любви.
+Основой сюжета является полёт инженера Мстислава Лося и Алексея Гусева на Марс, где они обнаруживают высокоразвитую цивилизацию. Правители марсиан являются потомками древних атлантов, перелетевших двадцать тысяч лет назад на красную планету.Жанр: ФантастикаПродолжительность: 05:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E244B1DE33BBE52D443E8C8A05A1160B993F555E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563417   (504471) от 14.07.2022
+
+Юлиан Семенов | Искренность (2022) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя писателя и сценариста Юлиана Семеновича Семенова широкому кругу читателей известно в первую очередь благодаря литературным циклам «Исаев-Штирлиц» и «Полковник милиции Владислав Костенко». Мы же хотели бы познакомить вас с аудиоверсиями менее известных произведений Юлиана Семенова, рассказывающих о людях, оказавшихся в различных, часто неожиданных жизненных ситуациях (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 05:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B6DDFFCF80B75158CF8DE39C44046F6D8A16A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

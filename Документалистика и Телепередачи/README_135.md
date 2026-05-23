@@ -1,33 +1,3 @@
-###  Публикация: 871558   (879475) от 22.02.2015
-
-Чудо техники (2015.02.22) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых изобретениях. Теперь обо всем, что происходит на передовой научно-технического прогресса, узнают и зрители НТВ. Новинки и открытия со всего (   Читать дальше...   )В выпуске: Старый автомобиль? Выбросить жалко, потому что на ходу и нет достаточно средств, чтобы купить новый? Бюджетный тюнинг: добавим гаджетов и современных устройств к вашему авто, и вы свою машину не узнаете!
-
-Что вручить охотнику, рыболову, спортсмену и дачнику? Самые нужные и проверенные гаджеты в подарок на 23 февраля.
-
-Какие приборы лучше купить, если заложен нос или воспалились миндалины? Рекомендуем лучшие для физиотерапевтических процедур дома.(   Читать дальше...   )Телекомпания: Жанр: ТелепередачаПродолжительность: ~ 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C6FD61BFB7D211686B2C08D95F468F657476D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996645   (879291) от 14.03.2016
 
 С миру по нитке. Байкальские приключения (2016) HDTVRip [720p-LQ]
@@ -36,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879291.jpg" />
 </div>
 
 
@@ -62,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879207.jpg" />
 </div>
 
 
@@ -88,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879164.jpg" />
 </div>
 
 
@@ -114,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878940.jpg" />
 </div>
 
 
@@ -143,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878936.jpg" />
 </div>
 
 
@@ -169,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878924.jpg" />
 </div>
 
 
@@ -195,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878820.jpg" />
 </div>
 
 
@@ -221,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878694.jpg" />
 </div>
 
 
@@ -247,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878585.jpg" />
 </div>
 
 
@@ -273,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878377.jpg" />
 </div>
 
 
@@ -299,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878332.jpg" />
 </div>
 
 
@@ -325,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878294.jpg" />
 </div>
 
 
@@ -351,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878290.jpg" />
 </div>
 
 
@@ -377,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878210.jpg" />
 </div>
 
 
@@ -403,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878128.jpg" />
 </div>
 
 
@@ -429,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878017.jpg" />
 </div>
 
 
@@ -455,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877891.jpg" />
 </div>
 
 
@@ -481,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877837.jpg" />
 </div>
 
 
@@ -508,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877694.jpg" />
 </div>
 
 
@@ -534,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877687.jpg" />
 </div>
 
 
@@ -560,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877668.jpg" />
 </div>
 
 
@@ -586,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877576.jpg" />
 </div>
 
 
@@ -612,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877565.jpg" />
 </div>
 
 
@@ -638,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877563.jpg" />
 </div>
 
 
@@ -664,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877438.jpg" />
 </div>
 
 
@@ -676,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B67BEFDCBB872B81AC409AF003EC5E53135C2CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495744   (877430) от 14.09.2021
+
+Праздничные фильмы, на которых мы выросли / The Holiday Movies That Made Us (2020) WEB-DL [H.264/1080p] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877430.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Holiday Movies That Made Us – двухсерийный документальный сериал, созданный Брайаном Фолк-Вейссом, который по совместительству является и автором документального сериала «Игрушки, которые сделали нас» / The Toys That Made Us (2017) и «Фильмы, на которых мы выросли» / The Movies That Made Us (2019). Серии строятся по по схожей схеме, но только вместо разбора игрушек (   Читать дальше...   )Производство: США, The Nacelle Company, NetflixЖанр: Документальный, история киноРежиссер: Брайан Фолк-ВейссПеревод: Многоголосый профессиональный (HDrezka Studio)Субтитры: Русские (Netflix), английскиеПродолжительность: 2x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BD2B14BE2AE00083A70B35823DCA9E098A88D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

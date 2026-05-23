@@ -6,7 +6,7 @@ A Band Named Trevor - Smoke Dog Music (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638201.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rusty Apollo - Oh Yeah! (2015) [MP3|320 кб/с]<Blues, Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638199.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Marco Pandolfi - No Dog In This Hunt (2015) [MP3|320 кб/с]<Harmonica Blues, M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638197.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sugaray Rayford - Southside (2015) [MP3|320 кб/с]<Blues, Soul, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638195.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Katy Guillen & The Girls - Katy Guillen & The Girls (2014) [MP3|320 кб/с]<Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638194.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Martin Lang - Chicago Harp Blues Sesssions (2015) [MP3|320 кб/с]<Chicago Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638089.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lazer Lloyd - Lazer Lloyd (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638088.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Albert Collins - The Complete Imperial Recordings (1991) [WavPack|image+.cue]<Te
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638083.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ronnie Earl & The Broadcasters - Father's Day (2015) [MP3|320 кб/с]<Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638081.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ B.B.King – Live At San Quentin (1990) [WavPack|image+.cue]<Blues, Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638075.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ D Man - Blues... Off The Neck (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638073.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sade - Lovers Rock (2000) [FLAC|Lossless|image + .cue] <Electronic, Reggae, Funk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637944.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Peter Green's Fleetwood Mac - The Original Fleetwood Mac (1971) /2004, Columbia/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637820.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eric Le Lann & Paul Lay - Thanks a Million (2018) Gazebo [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637784.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Snorre Kirk - Beat (2018) Stunt Records [FLAC|Lossless|tracks + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637783.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Wrong Object - Into The Herd (2019) [FLAC|Lossless|tracks + .cue] <Fusion, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637677.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dewa Budjana - Mahandini (2018) [FLAC|Lossless|tracks + .cue] <World Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637674.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fugu Quintet (Fugu Quartet) - Sisyphus (2016) EP [FLAC|Lossless|Web-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637673.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Fugu Quintet - Circus (2017) Single [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637672.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dizzy Gillespie All Star Sessions - Three Classic Albums Plus (1955 - 1957) 2CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637669.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637664.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Merline Johnson - The Yas Yas Girl (1937-1940) 3CD /1994/ [MP3|320 кб/с]<Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637586.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637576.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Lee Fields & The Expressions - It Rains Love (2019) [FLAC|Lossless|tracks + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637574.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637529.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Zoot Sims - Down Home (1960) 2005, Charly [FLAC|Lossless|image + .cue] <Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637483.jpg" />
 </div>
 
 

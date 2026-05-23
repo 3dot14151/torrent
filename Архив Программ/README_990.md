@@ -6,7 +6,7 @@ FastStone Image Viewer v7.3 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548479.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MiniTool Power Data Recovery 8.5 Business Technician RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548414.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548401.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tor Browser Bundle 8.5.3 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548399.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discord 0.0.305-1 Portable by CrazyMax [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548382.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Duplicate Cleaner Pro 4.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548375.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548312.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Process Lasso Pro 8.9.8.44 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548202.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Google Earth Pro 7.1.7.2600 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548190.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AIMP 4.10 Build 1831 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548148.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Balabolka 2.11.0.608 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548116.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Rufus 2.11 (Build 993) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548108.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BitTorrent Pro 7.9.8 Build 42549 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548077.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FL Studio 11.0.3 Producer Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548046.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Beyond Compare Pro 4.1.8.21575 Portable by dev2null [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548030.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AIMP 4.10 Build 1831 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548018.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Google Earth Pro 7.1.7.2600 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548014.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Movavi Video Suite 15.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548013.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Google Earth Pro 7.1.7.2600 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548007.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NVIDIA GeForce Desktop 372.70 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548000.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.42 (8/29/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547996.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547961.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ AdminPE10 1.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547953.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adguard Премиум 6.1.258.1302 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547950.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ AdminPE 3.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547941.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Acronis True Image 20.0.5534 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547938.jpg" />
 </div>
 
 

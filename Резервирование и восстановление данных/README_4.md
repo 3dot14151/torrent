@@ -6,7 +6,7 @@ FonePaw Android Data Recovery 2.6.0 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789701.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tenorshare Any Data Recovery Pro 5.8.0.0 RePack by tolyan76 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785724.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iBeesoft Data Recovery 3.4 (Repack & Portable) by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785281.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Erelive Data Recovery 5.2.0 RePack by вовава [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780745.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TestDisk & PhotoRec 7.1 Beta Portable [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776599.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776380.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Disk Drill 1.0.0.187 Pro [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773210.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hetman Software Pack 16.04.2015 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750910.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Starus Recovery Collection 19.02.13 [8in1] RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743286.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ FonePaw Android Data Recovery 3.7.0 RePack (& Portable) by elchupacabra [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742392.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AOMEI WinfrGUI 1.0.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734401.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Acronis True Image 19.0.6571 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721490.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Recuva 1.53.1087 Free [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717239.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Raid Reconstructor 4.40 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709636.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ RS Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702996.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Starus Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701170.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Aiseesoft Data Recovery 1.0.12 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700438.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Magic Photo Recovery 4.7 (Commercial Edition) RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700316.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ DAEMON iTools 1.0.0.36 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696847.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Amazing Any Data Recovery 8.8.8.9 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696639.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ iCare Data Recovery Pro 8.1.4 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691049.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Magic Photo Recovery 4.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690326.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Magic FAT Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688314.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Magic Word Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686182.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Magic Excel Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686174.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Magic NTFS Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686044.jpg" />
 </div>
 
 

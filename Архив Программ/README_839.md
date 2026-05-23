@@ -6,7 +6,7 @@ Junkware Removal Tool 7.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622118.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sandboxie 3.72 Final (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622100.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Overloud - BREVERB 2 2.1.15 Standalone, VST, VST 3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622070.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SoftMaker Office Professional 2018 rev 960.0408 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622066.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Foxit PhantomPDF Business 9.5.0.20721 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622064.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NVIDIA GeForce Desktop 425.31 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622054.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622049.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ IObit Driver Booster Pro 6.4.0.392 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622045.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Icecream Media Converter 1.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622008.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Uninstall Tool 3.6.0 Build 5681 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621992.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Vivaldi 5.2.2623.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621989.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621985.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Nvidia DriverPack v.425.31 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621955.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621947.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AnyMP4 DVD Toolkit 6.0.50 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621912.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AnyDVD & AnyDVD HD 7.6.1.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621911.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Light Image Resizer 4.7.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621899.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ IObit Driver Booster Pro 9.3.0.207 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621892.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ AVG TuneUp 19.1 Build 831 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621842.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7232.5000 (2019.04) RePack by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621840.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ SketchUp Pro 2019 19.1.174 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621837.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Intel® Processor Identification Utility 5.25 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621769.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Allavsoft Video Downloader Converter 3.14.6.6384 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621753.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ ZW3D 2023 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621744.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Topaz Gigapixel AI 6.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621734.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ AnyMP4 Video Converter Ultimate 6.3.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621660.jpg" />
 </div>
 
 

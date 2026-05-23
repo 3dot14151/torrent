@@ -1,29 +1,3 @@
-###  Публикация: 1762413   (36165) от 25.11.2024
-
-Wilmot's Warehouse (2019) [En] (1.0) License GOG
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Wilmot's Warehouse – довольно сложная игра-головоломка, созданная для того, чтобы игрок применил интеллект и тренировал его, пытаясь преодолеть все трудности, оставленные разработчиками на пути к финальной сцене. Особого интереса добавляет тот факт, что игра поддерживает локальный мультиплеер для совместного времяпрепровождения двух друзей (как минимум один должен (   Читать дальше...   )Тип издания: LicenseРазработчик: Hollow Ponds, Richard HoggЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4CE7EC35ECC1E18363570FA8087C6D9F6B3D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762380   (36164) от 25.11.2024
 
 It's Only Money (2023) [En] (1.0.0-9254/dlc) Scene Rune
@@ -32,7 +6,7 @@ It's Only Money (2023) [En] (1.0.0-9254/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36164.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Bug Fables: The Everlasting Sapling (2019) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36159.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36133.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Beyond Hanwell (2024) [En] (1.1) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36126.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36123.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.2.32791/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36116.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.11.21.01) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36094.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Endless Sky (2015) [En] (0.10.10/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36093.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36082.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack Other s [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36079.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36073.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36070.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36061.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36059.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36036.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36013.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36009.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36001.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16538909) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35991.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35957.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35914.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.2/dlc) Repack dixen18 [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35895.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0.0.15) Repack Let'sР
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35892.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack Other s [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35887.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack dixen18 [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35882.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C35115AF82BEF109EC0C3B636C3EDF31F0F20C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762875   (35876) от 28.11.2024
+
+THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в 2032 году. Вы — Гарри Герман, сотрудник научной компании Delta Laboratories, которая занималась изучением путешествий между мирами. Вы участвовали в проекте, который должен был принести пользу всему человечеству, но что-то пошло не так. Все, что вы помните, это слова "Принцип Мюллер-Пауэлла". Вам нужно разгадать значение этих (   Читать дальше...   )Тип издания: RepackРазработчик: Three Dots GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

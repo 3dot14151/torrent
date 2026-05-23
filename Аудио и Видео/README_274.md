@@ -1,353 +1,3 @@
-###  Публикация: 1195494   (141940) от 29.12.2017
-
-Скайлайн 2 / Beyond Skyline (2017) WEB-DL [1080p] AMAZON Version ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придется проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъяренных тварей и… попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, СШАЖанр: Ужасы, фантастика, боевик, триллер, приключенияРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’Доннелл, Крис Т. Адамс, Тони БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F34BF4DE8D81FB1B750786FAC90397534B4679D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520270   (141923) от 28.12.2021
-
-VA - Christmas Jazz Night 2022 (Finest X-Mas Jazz Music) (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Giacomo Bondi, Roberto Angelelli - Imagine (3:29)
-02. Gabrielle Chiararo - Holding Back the Years (4:23)
-03. La Boquita, Javier Nuñez - Come Away with Me (3:10)
-04. Sergio Coppotelli - Summer Dream (5:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56667F39943A46FF13B928FD149C60CCE1A52C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520440   (141914) от 28.12.2021
-
-Разыскивается Санта! / Io sono Babbo Natale (2020) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Накануне Рождества не слишком удачливый вор Этторе влезает в дом к одинокому старику, в надежде поправить свое незавидное материальное положение. Однако в его огромной вилле он не находит ничего сколь-нибудь ценного, кроме залежей детских игрушек. Сам же старик уверяет его, что он не кто иной, как настоящий Санта Клаус.Производство: Италия / 3 Marys Entertainment, Lucky Red, Rai CinemaЖанр: КомедияРежиссер: Эдоардо Мария ФальконеАктеры: Марко Джаллини, Джиджи Пройетти, Барбара Рончи, Антонио Жерарди, Симона Коломбари, Даниэле Печчи, Алис Адаму, Лоренцо Джоиелли, Джорджия Салари, Фабрицио ДжанниниПеревод: Любительский многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C7E47FF64F44CD33B02E2EA57D930E3F0090FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520457   (141606) от 28.12.2021
-
-CODA: Ребёнок глухих родителей / CODA (2021) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Глостер, штат Массачусетс. Семья глухих ведет рыболовный бизнес. 17-летняя Руби — единственный слышащий член семьи — помогает глухим родителям и брату в рыбной ловле. В школе она присоединяется к местному хору, где понимает, что любит петь. Руководитель хора убеждает её подумать о музыкальной школе, и теперь девушка вынуждена выбирать между семьей и новой мечтой. (   Читать дальше...   )Производство: США, Франция, / Vendome Pictures, Pathé Films, Picture Perfect FederationЖанр: Драма, музыкаРежиссер: Сиан ХедерАктеры: Эмилия Джонс, Марли Мэтлин, Трой Коцур, Дэниел Дюрант, Эухенио Дербес, Фердия Уолш-Пило, Кевин Чэпмэн, Джон Фиоре, Армен Гаро, Лонни Фармер, Эми ФорсайтПеревод: ДублированныйСубтитры: Русские, английские, немецкие, французские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04456451E58A5F449A579BE57D392C97BF9F2381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272866   (141128) от 29.12.2018
-
-Очень специальный репортаж / Envoyes tres speciaux (2009) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вся Франция поднята на уши, и всё потому, что в Ираке похищены два французских журналиста… Однако только эти двое и знают, что данное похищение — не более чем их собственная выдумка.Производство: ФранцияЖанр: КомедияРежиссер: Фредерик ОбюртенАктеры: Жерар Жюньо, Жерар Ланвен, Омар Си, Валери Каприски, Энн Маривин, Серж Хазанавичус, Лоран Жерра, Эрик Наггар, Фредерик Тирмон, Гийом ДюранПеревод: Двухголосый закадровый (Владислав Данилов, Алёна Соколова)Субтитры: НетПродолжительность: 01:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248496685D1498862E77C6BCF80237B238EEAFAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435674   (140977) от 29.12.2020
-
-Ведьмы / The Witches (2020) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В конце 1967 года после гибели родителей мальчик переезжает жить к бабушке. Та вскоре замечает, что в их городке отираются ведьмы, которые не прочь превратить её внука в какое-нибудь животное, поэтому решает спрятаться в самом шикарном отеле Алабамы, где работает её кузен. Бабуля думала, что там они встретят только скучающих богатых постояльцев, но именно в этом (   Читать дальше...   )Производство: США, Мексика, Великобритания / Warner Bros., ImageMovers, Canadian Film or Video Production Tax Credit (CPTC)Жанр: Фэнтези, комедия, семейныйРежиссер: Роберт ЗемекисАктеры: Джазир Бруно, Октавия Спенсер, Энн Хэтэуэй, Стэнли Туччи, Коди-Лей Истик, Крис Рок, Брайан Бовелл, Джозеф Зиньемба, Джозетт Саймон, Джонатан ЛивингстоунПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4AE601251466A5D9870698DC048C2473EF6D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520735   (140867) от 29.12.2021
-
-Above & Beyond - 10 Years of Group Therapy (2021) [AAC|~322 Kbps] <Progressive House, Trance, Melodic House & Techno, Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1.01. Filmic (CRi Remix) (5:06)
-1.02. Above & Beyond, Richard Bedford - Sun & Moon (ilan Bluestone Remix) (4:41)
-1.03. Prelude (Above & Beyond Future Summer Mix) (3:05)
-1.04. Above & Beyond, Zoë Johnston - Love Is Not Enough (Hybrid Minds Remix) (5:03)(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic House & Techno, Drum & BassПродолжительность: 01:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB2B9D41625AE36154FBBAE96D167CDCFB45360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348861   (140784) от 29.12.2019
-
-Маяк / The Lighthouse (2019) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1890-е годы. Молодой Ифраим Уинслоу приезжает на отдалённый остров работать новым ассистентом смотрителя маяка. Его начальник — хромоногий и бородатый Томас Уэйк. Он обращается с помощником как с личным рабом и запрещает ему подниматься на сам маяк и управлять светом. Ифраиму предстоит провести в компании Уэйка четыре тяжёлые недели, в течение которых спокойный парень (   Читать дальше...   )Производство: Канада, США / A24, New Regency Pictures, RT FeaturesЖанр: Ужасы, фэнтези, драмаРежиссер: Роберт ЭггерсАктеры: Уиллем Дефо, Роберт Паттинсон, Валерия КараманПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (fullx2), английские (full, SDH)Продолжительность: 01:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764F37600518FCC70AA4971A156C5DAC2C88EB29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348889   (140723) от 29.12.2019
-
-Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65818C06F297B38D0D83AAD07C246AD317F266D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348895   (140657) от 29.12.2019
-
-Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D392641950C15610135143120BAF734CA5631EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520675   (140615) от 29.12.2021
-
-Greta Van Fleet - From The Fires (2017) [AAC|~330 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Safari Song (3:55)
-02. Edge Of Darkness (4:28)
-03. Flower Power (5:13)
-04. A Change Is Gonna Come (3:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600198FE5B0022E8A13462B038025DCB604183B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520677   (140605) от 29.12.2021
-
-Greta Van Fleet - Anthem Of The Peaceful Army (2018) [AAC|~340 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Man (6:06)
-02. The Cold Wind (3:17)
-03. When The Curtain Falls (3:43)
-04. Watching Over (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CFEB181EF0B88FA615E896C80F9B9BCC6C151F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520680   (140562) от 29.12.2021
-
-Greta Van Fleet - Always There (2019) [AAC|~344 Kbps] <Rock, Score>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-01. Always There (5:22)Жанр: Rock, ScoreПродолжительность: 00:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70779C5227023E33944EEE7F66ED7D05AD7D07BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272606   (140478) от 29.12.2018
 
 Добрый вечер  (2018) WEB-DLRip [576p] iPad
@@ -356,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140478.jpg" />
 </div>
 
 
@@ -382,7 +32,7 @@ Greta Van Fleet - The Battle at Garden’s Gate (2021) [AAC|~332 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140474.jpg" />
 </div>
 
 
@@ -411,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140461.jpg" />
 </div>
 
 
@@ -437,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140386.jpg" />
 </div>
 
 
@@ -463,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140282.jpg" />
 </div>
 
 
@@ -489,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140120.jpg" />
 </div>
 
 
@@ -518,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139682.jpg" />
 </div>
 
 
@@ -544,7 +194,7 @@ VA - Sharam Jey pres. BEST OF BUNNY TIGER 2021 (2021) [AAC|~328 Kbps] <Dep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139349.jpg" />
 </div>
 
 
@@ -573,7 +223,7 @@ VA - Gateways, Vol. 2 (2021) [AAC|~335 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139332.jpg" />
 </div>
 
 
@@ -602,7 +252,7 @@ VA - UNDERGROUND VIBES Compilation (2021) [AAC|~313 Kbps] <Tech House, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139320.jpg" />
 </div>
 
 
@@ -631,7 +281,7 @@ VA - Gateways, Vol. 1 (2020) [AAC|~318 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139312.jpg" />
 </div>
 
 
@@ -660,7 +310,7 @@ VA - Best of 2021 Desert Hearts Black (2021) [AAC|~327 Kbps] <Melodic House & Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139309.jpg" />
 </div>
 
 
@@ -689,7 +339,7 @@ Faderhead - Years Of The Serpent (2021) [AAC|~330 Kbps] <EBM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139301.jpg" />
 </div>
 
 
@@ -703,6 +353,369 @@ Faderhead - Years Of The Serpent (2021) [AAC|~330 Kbps] <EBM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B998C5135D5B315A759A681B0E51DE6E1EAB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520856   (139283) от 30.12.2021
+
+VA - Best of 2020 Desert Hearts Black (2021) [AAC|~312 Kbps] <Melodic House & Techno, Progressive House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marbs, Rinzen, Evan Casey - Ark (8:07)
+02. Tim Engelhardt - Transmission 27 (6:42)
+03. Anakim - Poseidon's Revenge (7:16)
+04. Marbs - Something for Nothing (8:21)(   Читать дальше...   )Жанр: Melodic House & Techno, Progressive House, Deep HouseПродолжительность: 02:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB9924DF35BD441A0558F66E17C83F9F68EF2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520917   (139259) от 30.12.2021
+
+VA - The Collection 2021 Electronic Tree (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audio Noir - Life (Celebrate) (7:27)
+02. Flux Flow Project - On a Trip (7:13)
+03. Alter Alex - Solar Asia (7:54)
+04. Nir Yooz - Vayu (8:22)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 06:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DF07A852E28991A7121E103B2E602C5FE25EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349107   (139087) от 30.12.2019
+
+Джокер / Joker (2019) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / Warner Bros., Village Roadshow Pictures, DC Entertainment, DC Comics, 22 & Indiana PicturesЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Фрэнсис Конрой, Бретт Каллен, Шей Уигэм, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Forced x2, full x2), английские (full, SDH)Продолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0662433D8402040DB5A2E023C2A8353D4719F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520846   (139042) от 30.12.2021
+
+Зятёк / Son in Law (1993) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Худший кошмар всякой тёщи? Определенно, её зять. Но даже в страшном сне мадам Уоррен не предполагала, насколько худо всё обернется, пока впервые не увидела жениха своей дочери Ребекки. Существо, прибывшее в дом Уорренов на День Благодарения и представленное дочкой, как её жених Кроул, мгновенно произвело на потенциальных родичей неизгладимое впечатление. Средоточие (   Читать дальше...   )Производство: США / Hollywood Pictures, Touchwood Pacific Partners 1Жанр: Драма, мелодрама, комедияРежиссер: Стив РэшАктеры: Поли Шор, Карла Гуджино, Лейн Смит, Синди Пикетт, Мейсон Эдамс, Патрик Ренна, Деннис Бёркли, Тиффани Тиссен, Дэн Готье, Риа ПавиаПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67D144A8B55CF52BC7DC12B3D279A1B048B23AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520742   (139000) от 30.12.2021
+
+Армейские приключения / In the Army Now (1994) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закадычные друзья Боунз и Джек вовсе не думали становиться героями. Они записались в резервисты американской армии, чтобы заработать денег и открыть собственный магазин. Но тихой службы в тылу не получилось. Свободный мир опять в опасности, и вот уже бравые вояки отправляются сражаться в Африку.
+Это совсем не входило в планы Боунза и Джека, которых по уровню героизма (   Читать дальше...   )Производство: США / Hollywood PicturesЖанр: Комедия, военныйРежиссер: Дэниел Питри мл.Актеры: Поли Шор, Энди Дик, Лори Петти, Дэвид Алан Грир, Эсай Моралес, Линн Уитфилд, Арт ЛаФлёр, Фабиана Уденио, Гленн Моршауэр, Биу БиллингслиПеревод: Профессиональный многоголосый, авторский одноголосый, профессиональный двухголосыйСубтитры: АнглийскиеПродолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A8D63D10C2B26A8382D1A215EE36FAA98E30C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273072   (138791) от 30.12.2018
+
+Черное зеркало: Брандашмыг / Black Mirror: Bandersnatch (2018) WEB-DL [1080p] ATV [MVO]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138791.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 год. Молодой программист Стефан с многолетним чувством вины за смерть матери пытается написать компьютерную игру по фантастическому роману. Вскоре реальность искажается, создавая невообразимую путаницу в и без того нездоровом сознании парня.Производство: США / House Of Tomorrow, NetflixЖанр: Фантастика, Триллер, Драма, ДетективРежиссер: Дэвид СлэйдАктеры: Финн Уайтхед, Крэйг Паркинсон, Элис Лоу, Азим Чаудхри, Уилл Поултер, Таллула Роуз Хэддон, Катриона Нокс, Пол Брэдли, Джонатан Арис, А.Дж. ХотонПеревод: Любительский многоголосый (ColdFilm)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95551E02621C3208271D4D5DBE3DB64EFF15442D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196029   (138193) от 31.12.2017
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C2C27B984B299124EDF639CFDE4A3A74A8C981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520994   (138183) от 31.12.2021
+
+VA - New Day: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Kisses in the Rain (4:00)
+02. Chris le Blanc, Alison Degbe - Moon over Paradise (3:22)
+03. Digby Jones, Lushlo - Shimmer (Original Mix) (3:31)
+04. Schwarz & Funk - Only Tears (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD0BCAFCA98FAC54FB4B775C01E5BE2E1A9F676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521047   (138174) от 31.12.2021
+
+VA - Steyoyoke Gems Nocturnal 10 (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Devon, Monarke - Obscure (Original Mix) (7:57)
+02. Soul Button - Incendiary (Original Mix) (7:11)
+03. Monarke - Rival (Original Mix) (6:52)
+04. Nick Devon, Grammik - Câlin (Original Mix) (7:17)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 02:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280CDBECB95EA92386BF4ABC12717F744AA571A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521043   (138123) от 31.12.2021
+
+VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mikaere - What We Lost in the Winter (6:58)
+02. Schulz Audio - Eff Yeah Brutalism (6:51)
+03. Volunteer - Project Alpha (8:01)
+04. Tender H - Under Rain (Groofeo Remix) (5:29)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 03:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF355571D710DFE6DF8A8DAB370B87434464582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968576   (138120) от 31.12.2015
+
+Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Symphonic Prog>
+
+>>Аудио и Видео
+>>Музыка Lossless (ALAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roundabout (8:36)
+02. Cans and Brahms (1:43)
+03. We Have Heaven (1:39)
+04. South Side of the Sky (7:56)(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600456F21BCD987F88FD85BE8BAA97C2C76C6900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521044   (138114) от 31.12.2021
+
+VA - Steyoyoke Gems Solar 10 (2021) [AAC|~337 Kbps] <Progressive House, Deep House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Devon, Grammik - Wanderlust (Original Mix) (6:54)
+02. Soul Button, Clawz SG, Monarke - Implicit Bias (Monarke Remix) (7:03)
+03. Clawz SG - Bloom (Extended Mix) (7:00)
+04. Dahu, Soul Button - Sentient (Original Mix) (6:14)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 02:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CF50D0CE81941FA437F0F48B04E2C261B1D8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521048   (138105) от 31.12.2021
+
+VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ChubaChiki - Jazz Improvisation (Marcus Raute Mallets Mix) (6:29)
+02. kamosoul - Shine (BNinjas Basement Mix) (7:12)
+03. Toni Young - Impossible To Imagine (5:49)
+04. JOFF. - Sunday Picture (5:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C346221D00658F6C8378B8ABEB79765E59AFB61
 ```
 
 https://mybot314.ru/tekegram_catalog/

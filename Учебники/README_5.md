@@ -1,135 +1,3 @@
-###  Публикация: 1442825   (1035969) от 27.01.2021
-
-К.И. Дебу  (сост.) | Хлебопекарное производство. Практическое руководство по хлебопечению (1912) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В книге затронуты все аспекты хлебопечения от строения зерна до технологии изготовления хлеба, дан обзор хлебопекарного оборудования.  Многочисленные иллюстрации приведут вас в восторг, если вы хлебопек,  инженер, или просто любознательный человек.Жанр: учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5C002E5AF88EF9AE2748B25B5F30B0A976B7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443370   (1035719) от 28.01.2021
-
-А.А. Арутюнов, А.В. Ершов | Дополнительные задачи по линейной алгебре (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит задачи с решениями и теоретическим пояснениями по курсам Линейная алгебра и Алгебра и геометрия, изучаемым на 1 курсе МФТИ. Многие задачи снабжены комментариями, содержащими дополнительный материал, объясняющий их связи с современной математикой и ее приложениями в физике.
-Предназначено для студентов МФТИ, а также для студентов физико-математических (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF4E26E4948897E2FCAC7C2B97E4A54106A73E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443573   (1035439) от 29.01.2021
-
-Г.И. Кручкович | Сборник задач по курсу высшей математики (1973) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Это учебное пособие по практической части вузовского курса высшей математики. В него входят все разделы основного курса — аналитическая геометрия, векторная алгебра и матрицы, дифференциальное и интегральное исчисление функций одного и многих аргументов, дифференциальные уравнения, ряды, векторный анализ, теория функций комплексного переменного.
-Предполагается последовательное (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D8C5C09CFF2B40CB96BC3AB3E6EE2C6650496F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443576   (1035431) от 29.01.2021
-
-Г.И. Кручкович | Сборник задач и упражнений по специальным главам высшей математики (1970) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник включает в себя теоретические сведения, задачи и упражнения по следующим спецглавам курса высшей математики: "Матричное исчисление", "Скалярные и векторные поля", "Функции комплексного переменного", "Специальные функции", "Преобразование Фурье", "Операционное исчисление", "Уравнения математической (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45CD5350058B77066DF0CD276937EB4A2FAF8EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617370   (1035290) от 06.03.2023
-
-Б.С. Ишханов | Радиоактивность (2011) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Радиоактивность — фундаментальное явление физики атомного ядра. Учебное пособие «Радиоактивность» написано на основе лекций, которые автор читал на физическом факультете МГУ. В учебном пособии описаны основные характеристики атомных ядер, каналы распада радиоактивных изотопов, содержится богатый иллюстративный и справочный материал. Для студентов-физиков, аспирантов (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF8E4F518231ECFD0D09983A596BCBC2AFEEAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617288   (1035283) от 06.03.2023
 
 С.А. Соколов | Волоконно-оптические линии связи и их защита от внешних влияний (2019) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035283.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035281.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035272.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035143.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034856.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034768.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034396.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034304.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034158.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034152.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034079.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033627.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033624.jpg" />
 </div>
 
 
@@ -480,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033487.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033016.jpg" />
 </div>
 
 
@@ -534,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033013.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032944.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032912.jpg" />
 </div>
 
 
@@ -612,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032697.jpg" />
 </div>
 
 
@@ -638,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032687.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032215.jpg" />
 </div>
 
 
@@ -676,6 +544,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:709537756C157A04603AB1226E327FBDC8ED258C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447118   (1032060) от 12.02.2021
+
+С.М. Аполлонский | Дифференциальные уравнения математической физики в электротехнике (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032060.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены методы математической физики, связанные с изучением электротехнических дисциплин. Возникающие при этом математические задачи содержат много общих элементов и составляют предмет математической физики.
+Предлагаемая книга не претендует на всеобъемлющий охват методов математической физики. В ней рассмотрены лишь методы решения тех задач математической (   Читать дальше...   )Жанр: Электротехника, МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE16F85B581B289BD3F018C6B697311D34F7DA3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447712   (1031586) от 14.02.2021
+
+В.А. Дайнеко | Технология ремонта и обслуживания электрооборудования (2017) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технология ремонта и обслуживания электрооборудования - Учебное пособие содержит сведения по устройству, правилам технической эксплуатации и ремонту оборудования трансформаторных подстанций, силового электрооборудования, контрольно-измерительных приборов, осветительных установок, пускозащитной аппаратуры, фотоэлектрических и ветроэнергетических электростанций, частотно-регулируемых (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C942128AC4C2496B625C62083AE31660A3B2F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447639   (1031562) от 14.02.2021
+
+С.М. Аполлонский | Основы электротехники. Практикум (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое читателям пособие является практическим руководством по курсу электротехники, содержащим набор задач с решениями для студентов средних специальных заведений. Автор использовал в пособии ранее опубликованные источники (отмеченные в библиографии) и собственные разработки, которые были накоплены в течение преподавания данной дисциплины в разных вузах России. (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BC5AF49E3A24C64F2CEE9A84B84ABE13C77353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447673   (1031542) от 14.02.2021
+
+В.А. Скорняков, В.Я. Фролов | Общая электротехника и электроника (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031542.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложены основы теории электрических цепей, рассмотрены конструкции, принцип действия, основные характеристики электрических машин и полупроводниковых приборов и устройств.Жанр: Электротехника, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152E954E3FB175D510FCFB99C202042792D1D286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448012   (1031109) от 16.02.2021
+
+П.А. Ионкин | Теоретические основы электротехники [2 тома] (1976) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный и проверенный временем двухтомный учебник по теоретическим основам электротехники. В первом томе рассматриваются линейные электрические цепи, а во втором - нелинейные электрические цепи и основы теории электромагнитного поля.Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0074FE1E09F3DE4029E3EC79A4B8FF62A7B38274
 ```
 
 https://mybot314.ru/tekegram_catalog/

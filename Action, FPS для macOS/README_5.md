@@ -6,7 +6,7 @@ Alien: Isolation v.1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354922.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Serial Cleaner (2017) [Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353176.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Medal Of Honor: Pacific Assault [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339384.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Medal Of Honor: Airborne [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339371.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fallout: A Soul of Fallen Worlds v. Pre3.0 U21 (2015) [Ru] [OS X WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338943.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Blasphemous v2.0.27 (2019) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335209.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Tomb Raider v1.2 GOTY Edition (2013) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321531.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Deus Ex: Human Revolution Ultimate Edition [Native]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319287.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ The Saboteur (2009) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318461.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Pyre  v1.50476 (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310503.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ BULLSHOT (2016) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299993.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299683.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Duke Nukem: Manhattan Project (2002) [En/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299580.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vaporum: Lockdown patch 4 (42308) (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299528.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Dishonored - Game of the Year Edition (2012) [En/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297561.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Max Payne (2001) [En/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291595.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Bulletstorm (2011) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289962.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Max Payne 2: The Fall of Max Payne (2006) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289793.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Alien Rage (2013) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287975.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Объединенный Пак 2 (2014) [
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281835.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ S.T.A.L.K.E.R.: Call of Pripyat (Mod AtmosFear 3) (2009) [Multi/Ru] [macOS WineS
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278175.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Call of Duty 2 (2005) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278109.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl (License GOG) (2007) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276673.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ S.T.A.L.K.E.R.: Call of Pripyat (License GOG) (2009) [Multi/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276667.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Sniper Elite (2005) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275476.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Aliens: Colonial Marines (2013) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274490.jpg" />
 </div>
 
 

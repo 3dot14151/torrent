@@ -1,29 +1,3 @@
-###  Публикация: 1081967   (151091) от 24.12.2016
-
-Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Disney Infinity — приключенческий боевик и песочница «toys to life», разработанная Avalanche Software и изданная Disney Interactive Studios. Была анонсирована 15 января 2013 года. Аналогична франшизе Skylanders от Activision, игра использует коллекционные фигурки, которые затем синхронизируются с игрой и открывают новых персонажей вселенных Disney и Pixar.Тип издания: LicenseРазработчик: Avalanche Software, Heavy Iron StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CE63753E04AD3090F68EEF8195209E2CD8B30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825845   (151076) от 18.10.2025
 
 StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
@@ -32,7 +6,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151076.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151070.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.1024
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151020.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150945.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150886.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150884.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Christmas Carol / Рождественская песнь (2018) [Ru/Multi] (1.0
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150881.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack Let'sРlay [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150822.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150809.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/Multi] (rc2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150805.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150756.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Royal Romances 5: Cursed Hearts (2023) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150755.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717/dlc) Repack Wanterlude [Gold Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150730.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150706.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150705.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Tomb Raider I-III Remastered (2024) [Ru/Multi] (Build 19617537) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150700.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150681.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dead Island Retro Revenge (2016) [Ru/Multi] (build 1160760) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150680.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Last Faith (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150588.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Christmas Spirit 4: Journey Before Christmas / Дух Рождества 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150478.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150229.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150152.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Tooth and Tail (2017) [Ru/Multi] (1.8.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150054.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149935.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Straya (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149840.jpg" />
 </div>
 
 
@@ -667,6 +641,33 @@ Straya (2023) [En] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA0051378FF5B3516AFE1A7FA09A9CCF83D0264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546111   (149753) от 14.12.2012
+
+Mass Effect 3 Digital Deluxe Edition [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 | R.G. Shift
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не всем суждено выжить. Древняя инопланетная раса, известная как Жнецы, начала глобальное вторжение, оставляя за собой руины цивилизаций. Земля захвачена, галактика стоит на грани полного уничтожения, и только ты можешь исправить положение. Цена ошибки - небытие. Твоя роль - капитан Шепард, персонаж, которого создаешь ты сам. Только ты решаешь, как будут разворачиваться события, какие планеты будут исследованы, и кто станет участником альянса, который ты соберешь, чтобы раз и навсегда ликвидировать угрозу со стороны Жнецов. Ты поведешь эту войну на свое усмотрение: можешь атаковать в лоб, поливая врага огнем или составить хитрый план внезапного нападения. Собери универсальный отряд профессионалов или выбери путь одинокого волка. Атакуй противника с расстояния или сойдись с ним в жестокой рукопашной.
+Mass Effect 3 будет реагировать на каждое принятое тобой решение - эту историю предстоит написать тебе самому. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1847FC9C37436AFA53D3D0DB63069A263398BDF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

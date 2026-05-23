@@ -6,7 +6,7 @@ Navier HUD 3 v3.4.16 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204066.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cookie 6.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204054.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ YT Saver Video Downloader & Converter for Mac 7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204049.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Luminar Neo 1.6.2.10871 (Repack & Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204045.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Magic Disk Cleaner 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204037.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Musify for Mac 3.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204034.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204030.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Boxy SVG 4.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204014.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Display Driver Uninstaller 18.0.6.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203982.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ SanDisk (Western Digital) SSD Dashboard 4.0.2.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203981.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FurMark 1.36.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203979.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 13.01.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203967.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 11 Debloater 1.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203962.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TechSmith Snagit 2023.0.3 Build 25088 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203960.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.0.0 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203955.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinTools.net Premium 23.9.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203954.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VPN Inf - Security Fast VPN 7.5.815 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203948.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ QuickMemoryTestOK 4.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203945.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Phase One Capture One 23 Enterprise 16.0.2.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203943.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Aiseesoft Video Converter Ultimate 10.7.26 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203942.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Firefox Browser 117.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203939.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ MSI Kombustor 4.1.27.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203932.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Acrobat Pro 2022.003.20310 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203926.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Auslogics BoostSpeed 13.0.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203916.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ GPU Caps Viewer 1.61.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203911.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VirtualBox 7.0.6 Build 155176 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203910.jpg" />
 </div>
 
 

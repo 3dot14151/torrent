@@ -6,7 +6,7 @@ Wise Data Recovery Pro 5.1.3.331 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992566.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 79.0.3945.130 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992564.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ABViewer Enterprise 14.1.0.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992562.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Google Chrome 79.0.3945.130 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992517.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nikon Capture NX-D 1.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992511.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Connectify Dispatch 4.2.0.26.088 (Includes Connectify Hotspot PRO) [Англий
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992493.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992452.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Auslogics Driver Updater 1.22.0.2 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992444.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ummy Video Downloader 1.10.7.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992437.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Foxit Reader 9.7.1 Build 29511 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992325.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SeaMonkey 2.15.1 Final Portable by PortableApps [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992217.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ace Video Converter 3.5 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992169.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Reg Organizer 6.0 Final RePack (& Portable) by elchupacabra [Русский | А
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992076.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ xrecode II + portable Build 1.0.0.199 + xrecode2 shell 1.0.0.7 [Multi/Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992025.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Advanced Uninstaller PRO 11.15 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992002.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Norman Malware Cleaner 2.07.06 DC 26.01.2013 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991970.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ SuperCopier 3.0.0.1 + Portable [Multi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991945.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Product Key Explorer 3.2.6.0 RePack [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991937.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ XUS Launcher 2.2.0 Professional Edition [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991920.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Opera 66.0.3515.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991913.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991760.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Microsoft Visual Studio 2019 Community 16.4.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991759.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Microsoft Visual Studio 2019 Professional 16.4.2 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991757.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Chromium 79.0.3945.130 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991756.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Advanced SystemCare Pro (акция comss) 13.2.0.218 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991689.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Realtek High Definition Audio Driver R2.70 (6.01.6818 + 6.01.6813 XP) [Multi/Р�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991672.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Arslan Senki / The Heroic Legend of Arslan - Age of Heroes / Сказание о
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252712.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Iria: Zeiram the Animation / Ирия: Зейрам [1994, OVA, 6 ep.] Remastere
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252687.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Muu no Hakugei | The White Whale of Mu | Белый кит континента 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252528.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251790.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ HEAVEN IS A PLACE ON EARTH / Gekijouban Hayate no Gotoku! Heaven is a Place on E
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250658.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250472.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dr. Stone: Ryuusui | Доктор Стоун (спэшл) [2022, Special, 1 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250330.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250050.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249703.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249647.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249404.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249305.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ My My Mai / Интимная консультантка Май [1993, OVA, 4 ep.
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249283.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kujakuou / Peacock King / Spirit Warrior / Заклинатель Кудзяку
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249228.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247494.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Герой сдох! [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247416.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Golden Kamuy (2022) | Золотой Камуй | Золотое божеств�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247334.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Marginal Service | Отдел «Рубеж» [2023, TV, 12 эп.] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247314.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245268.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245224.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Gensou Sangokushi: Tengen Reishinki | Fantasia Sango: Realm of Legends | Фан�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245141.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243833.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Eiga Bakuten!! | Сальто назад! (фильм) [2022, Movie] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243789.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243756.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243076.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Black Fox | Чёрная лиса [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243008.jpg" />
 </div>
 
 

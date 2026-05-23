@@ -6,7 +6,7 @@ ICQ 10.0 build 12080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711954.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Freemake Video Converter 4.1.9.16 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711949.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ USDownloader 1.3.5.9 Portable ( 14.04.2018 ) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711909.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Infix PDF Editor Pro 7.2.5 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Advanced Installer Architect 8.1.3 Build 35117 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_711904.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Videomizer 2.0.16.504 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711873.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ pdfFactory Pro 5.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711865.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ WinUtilities Pro 15.22  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711826.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Windows 10 Manager 1.1.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711803.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Ummy Video Downloader 1.7.0.0 portable by DRON[Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711782.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Foundry NUKE STUDIO 10.0v2 + HIERO 10.0v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711776.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Maxthon Browser 5.2.1.3000 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711720.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_711699.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Auslogics BoostSpeed 5.0.6.250 (от 27.04.2011) [RU/EN] | REPACK от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_711694.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ExperienceIndexOK 1.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711674.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ReNamer Pro 6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711664.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Windows 10 Manager 1.1.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711614.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Infix PDF Editor Pro 7.2.5 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711572.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711561.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WinUtilities Professional Edition 11.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711515.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VSO ConvertXtoDVD 5.3.0.1 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711499.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ TechSmith Snagit 13.0.0 Build 6248 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711474.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ ICE Book Reader Professional 9.5.0 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711458.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ FinePrint 8.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711457.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ummy Video Downloader 1.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711449.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Hetman Office Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711430.jpg" />
 </div>
 
 

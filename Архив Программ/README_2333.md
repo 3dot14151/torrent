@@ -6,7 +6,7 @@ YT Downloader 9.12.18 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11725.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser ESR 128.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11721.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ dBpoweramp Music Converter 2025.07.07 Reference (x64) Portable by FC Portable [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11720.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser 140.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11717.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Firefox Browser ESR 115.25.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11716.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Image Uploader 1.4.3 Build 5352 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11636.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Calibre 8.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11625.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ OCCT 14.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11624.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11623.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Krita 5.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11619.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11575.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows 11 PRO 24H2 26100.4652 Update 17 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11572.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Aiseesoft Video Converter Ultimate 10.9.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11563.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ SIV (System Information Viewer) 5.82 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11557.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cent Browser 5.2.1168.57 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11552.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ CyberLink PowerDVD Ultra 24.0.0623.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11545.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Aiseesoft Screen Recorder 3.1.26 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11541.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Imagine 2.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11538.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ MediaHuman YouTube Downloader 3.9.14 (1407) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11534.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ FireAlpaca 2.13.20 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11513.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ MAGIX Vegas Pro 22.0 Build 250 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11455.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Driver Easy Pro 7.0.1.19430 RePack (& Portable) by elchupacabra (14.07.2025) [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11442.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (15.07.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11437.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ OBS Studio 31.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11435.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VirtualBox 7.1.12 Build 169651 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11434.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Cent Browser 5.2.1168.57 Beta Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11432.jpg" />
 </div>
 
 

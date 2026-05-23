@@ -6,7 +6,7 @@ Ocenaudio 3.7.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791306.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Smart Defrag Pro 6.5.5.107 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791304.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Software Updater Pro 3.1.0.1571 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791297.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Process Lasso Pro 9.8.0.54 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791296.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IObit Driver Booster Pro 7.5.0.742 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791292.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AnyDesk 7.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791287.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Windows 10 (v21h1) x64 HSL/PRO by KulHunter v6.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791286.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ FurMark 1.29.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791275.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CCleaner 5.87.9306 Free / Professional / Business / Technician_Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791274.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Allavsoft Video Downloader Converter 3.22.6.7457 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791267.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ CCleaner 5.87.9306 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791246.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WinRAR 6.10 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791239.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe After Effects 2022 (22.0.1.2) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791234.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ReviverSoft Driver Reviver 5.34.0.36 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791222.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ OCCT 6.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791221.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ LDPlayer 4.0.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791218.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AIMP 4.70 build 2217 RC 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791206.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ R-Drive Image 6.3 Build 6303 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791197.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Brackets 1.14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791192.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BELOFF [dp] 2020.05.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791191.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Google Earth Pro 7.3.3.7721 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791188.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Macrium Reflect v 7.2.4952 x64 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791187.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ WinRAR 5.91 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791180.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ IconTo Pro 6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791177.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Advego Plagiatus 3.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791176.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Macrium Reflect v 7.2.4952 x64 Home [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791169.jpg" />
 </div>
 
 

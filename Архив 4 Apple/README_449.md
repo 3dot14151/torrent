@@ -6,7 +6,7 @@ Serial Box 12-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312366.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Shapes 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312342.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ ExactScan Pro 17.10.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312333.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ iSubtitle 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312318.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ MacX Video Converter Pro 5.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312265.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Disk Drill Entreprise 2.4.435 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312254.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Disk Diet - Clean your drive 5.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312202.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ DropDMG 3.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312174.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Sublime Text 3 (3154) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312078.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ PhoneClean Pro 4.0.0 (20151126) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311928.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ MetaMovie 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311850.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ DMG Canvas 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311826.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Stacks (RapidWeaver plugin) 3.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311818.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Squash — Web Image Compression 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311736.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Blackmagic Design Fusion Studio 16.1 (build 18) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311305.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Paragon NTFS for Mac 15.5.65 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311141.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Logic Pro X (with Additional Content) 10.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310594.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Forecast Bar 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310204.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Amadeus Pro 2.6.2 (2219) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309879.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Paste 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309876.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ FigrCollage 2 Home Edition v2.5.16 (22) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309875.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Swinsian 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309872.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ iA Writer 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309871.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Kodak Preps 7.1.5 (118) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309824.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ iReal Pro 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309790.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ JixiPix Pastello Pro 1.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309721.jpg" />
 </div>
 
 

@@ -7,7 +7,7 @@ https://t.me/izofen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064189.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downte
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045311.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Deep Forest - Deep Forest / Comparsa (1998) Reissue, 2001, Epic Records Group [O
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044437.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044228.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Oota Dabun - Ani Kuni (2011) [MP3|320 Kbps] <Native American, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041646.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041359.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036112.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Enigma-Forest-Transit 1 (1998) [OGG Vorbis|480 Kbps] <Electronic, Folk, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036092.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - meditation mix (2023) [MP3|320 Kbps] <Meditation, Piano, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036089.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034731.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034538.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034536.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032497.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Mystera IX (2002) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030509.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Mystera V (2000) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030508.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - The Best Of Mystera (2001) 2 CD [OGG Vorbis|480 Kbps] <New Age, Synth-pop, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030497.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029595.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Romantic Melodies: Enigmatic (2008) [MP3|320 Kbps] <New Age, Folk, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023669.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Nativ
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021609.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019312.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019280.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015292.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Throne Room Company - 4  альбома (2011-2013) Discography [MP3|320 кб/с
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003686.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Modern Spirit - Infinite Wisdom (2019) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002942.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000880.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997585.jpg" />
 </div>
 
 

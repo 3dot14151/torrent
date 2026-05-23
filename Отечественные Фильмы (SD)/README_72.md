@@ -1,111 +1,3 @@
-###  Публикация: 534529   (520232) от 13.08.2012
-
-Бедные родственники (2005) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в наши дни в маленьком южном городке на территории бывшего СССР. Главный герой — Эдик Летов — помогает людям разыскивать родственников. Находит он их в Канаде, Израиле, Швейцарии… Для Эдика это — бизнес, и бизнес безотказный.
-
-Если настоящие родственники не находятся, Эдик организует замену. И вроде всё в его маленькой фирме идет хорошо. (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Павел ЛунгинАктеры: Константин Хабенский, Сергей Гармаш, Леонид Каневский, Даниил Спиваковский, Наталья Коляканова, Мария ГолубПродолжительность: 01:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43397D3EEB341044C94313FC7C10D3B33BE49AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534555   (520109) от 13.08.2012
-
-Кружовник (2006) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в день завершения Олимпийских игр, 3 августа 1980 года. Накануне и во время Олимпиады власти Москвы проводят «отлов» и высылку за 101-й километр асоциальных элементов. Художник-авангардист Борис попадает под эту категорию, его забирают в милицию, откуда ему удаётся сбежать. Борис скрывается в деревенском сарае, где его обнаруживает 10-летний (   Читать дальше...   )Жанр: МелодрамаРежиссер: Арво ИхоАктеры: Дмитрий Певцов, Ульяна Лаптева, Сергей Гармаш, Василий Прокопьев, Тимофей ТрибунцевПродолжительность: 01:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EC23BDABFC792EBBA4396F79BC9A02AE7CA96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534504   (520017) от 13.08.2012
-
-Китайский сервиз (1999) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Янковский со товарищи встречаются на пароходе, следующем по Волге, дабы обчистить богатея Меньшова в покер. Приманкой служит драгоценное ожерелье, подаренное самим царем певице Волошиной, которое ставит на кон один из партнеров Янковского, выдающий себя за нефтяного магната Максуда Хундамова, проигравшегося до копейки.
-
-По фильму певица, имеющая контракт на пение (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Виталий МоскаленкоАктеры: Олег Янковский, Сергей Безруков, Владимир Меньшов, Сергей Никоненко, Анна Самохина, Богдан Ступка, Сергей Габриэлян, Александр Резалин, Ирина Безрукова, Михаил Булатов, Юрий Думчев, Сергей РубекоПродолжительность: 01:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459247DE9133399FF9AEB65B7E3233651C9FF11A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314257   (520012) от 13.07.2019
-
-Гайлер (2017) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий возвращается в родной город после 15-тилетнего отсутствия. Здесь мало что осталось прежним: изменились и люди, и дома, и улицы, а, главное, он не застает в живых родителей.Производство: Россия / ООО Продюсерский центр «1 февраля»Жанр: Драма, криминалРежиссер: Петр Дикарев, Михаил МеньшихАктеры: Захар Прилепин, Артур Согоян, Сергей Пускепалис, Зоя Терехова, Игорь Новиков, Константин Телегин, Владимир Казанцев, Екатерина Жирова, Владимир Дербенцев, Татьяна ЖуляноваСубтитры: ОтсутствуютПродолжительность: 01:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F72AB2F6D2C77CC9B7D4D1C92E349E86A68006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314317   (520001) от 13.07.2019
 
 Гайлер (2017) WEB-DLRip [H.264]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520001.jpg" />
 </div>
 
 
@@ -140,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519977.jpg" />
 </div>
 
 
@@ -166,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519920.jpg" />
 </div>
 
 
@@ -192,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519355.jpg" />
 </div>
 
 
@@ -218,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519347.jpg" />
 </div>
 
 
@@ -244,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519258.jpg" />
 </div>
 
 
@@ -270,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518973.jpg" />
 </div>
 
 
@@ -296,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518969.jpg" />
 </div>
 
 
@@ -324,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518097.jpg" />
 </div>
 
 
@@ -350,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517252.jpg" />
 </div>
 
 
@@ -377,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517065.jpg" />
 </div>
 
 
@@ -403,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516923.jpg" />
 </div>
 
 
@@ -429,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516761.jpg" />
 </div>
 
 
@@ -455,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516483.jpg" />
 </div>
 
 
@@ -481,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515907.jpg" />
 </div>
 
 
@@ -507,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515817.jpg" />
 </div>
 
 
@@ -533,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515770.jpg" />
 </div>
 
 
@@ -559,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515694.jpg" />
 </div>
 
 
@@ -585,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514943.jpg" />
 </div>
 
 
@@ -611,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514451.jpg" />
 </div>
 
 
@@ -637,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514365.jpg" />
 </div>
 
 
@@ -665,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513653.jpg" />
 </div>
 
 
@@ -676,6 +568,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC49B635FC06C7171694078765EE15CAA491622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931189   (512664) от 25.08.2015
+
+Нинкина любовь (2015) HDTVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нина всю себя посвятила младшей сестре. На собственную любовь и счастье времени не хватило. Жизнь ее скучна и однообразна. Но судьба приготовила на Нинкину долю много приключений и переживаний. Совсем скоро в ее жизни появятся двое мужчин, и далеко не сразу Нина поймет, кто из них ее настоящая любовь…Производство: Россия, Кинокомпания РусскоеЖанр: МелодрамаРежиссер: Игорь ПеринАктеры: Любовь Баханкова, Илья Алексеев, Илья Соколовский, Людмила Гаврилова, Василий Кортуков, Андрей БулатовПродолжительность: 01:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CF9BEE3D1FCA9B7E505242C4A39881330B13A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315546   (512618) от 20.07.2019
+
+Один день лета (2018) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся жизнь недавней провинциалки, а теперь москвички Кати — одно сплошное селфи с чередой знаменитостей. Любые интриги ради лайка, любые подвиги во имя статуса «звезды инстаграм». Но количества подписчиков по-прежнему недостаточно, и ради заветной цели она отправляется в Санкт-Петербург, чтобы сделать селфи с загадочным художником, скрывающим свою личность, и тем (   Читать дальше...   )Производство: Россия, ЛенфильмЖанр: Комедия, музыка, мелодрамаРежиссер: Александр ИгудинАктеры: Татьяна Бабенкова, Алекс Коморовски, Степан Ледков, Андрей Носков, Юрий Гальцев, Максим Леонидов, Иван Краско, Эра Зиганшина, Анастасия Лазо, Алексей КопыловСубтитры: ОтсутствуютПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4117DBD2500572F2468CC350C43F31C9B65074EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931222   (512583) от 25.08.2015
+
+Охотник (2014) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт — профессиональный киллер, один из лучших в этом опасном деле. Но иногда даже самые лучшие допускают ошибки. Одна ошибка Роберта, оборачивает все вокруг против него, увлекая в опасную игру всех, кто встречается ему на пути.Производство: Молдова, Shepherd Company & Patria ProductionЖанр: Боевик, ТриллерРежиссер: Иван НаниевАктеры: Паша Парфений, Борис Кулибаба, Лусия Андриуца, Иван Банару, Владимир Гончаров, Михаил Цуркан, Анжела ЧиобануПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC72ACD4EE698D4FA5C1774D6894E042FB9BFFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535804   (512330) от 20.08.2012
+
+Взбунтуйте город, граф! (1992) VHSRip2DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксцентрическая мистико-фантастическая комедия. Нечистая сила осуществляет грандиозный проект по установлению дьявольского порядка во всем мире. Центром эксперимента избран город П...Жанр: Фантастика, Приключения, КомедияРежиссер: Сергей ГурьяновАктеры: Игорь Гладнев, Лариса Каменских, Валерий Серегин, Владимир Шульга, Владимир Семеновых, Олег Исаев, Рамис Ибрагимов, Александр Донец, Татьяна Хорошева, Татьяна Облогина, Ирина Сахно, Татьяна Жаркова, Левон Исаакян, Татьяна Новикова (II), Сергей АраповПродолжительность: 01:28:41
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,690 +1,3 @@
-###  Публикация: 1865969   (1066004) от 20.04.2026
-
-Пастбища богов (2025) WEBRip [H.264/1080p]
-
->>Горячие новинки
->>Отечественные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Успешный москвич Олег, переживший личную утрату, погружается в депрессию. Его друг и деловой партнёр Игорь решает действовать радикально и везёт Олега на Памир подальше от проблем и воспоминаний. По официальной версии приятели собираются поохотиться на диких козерогов, но на самом деле их желанный трофей — снежный барс, находящийся под угрозой уничтожения. Проводник (   Читать дальше...   )Производство: Россия / Синема Концепт Продакшн, Продюсерский центр ПарадизЖанр: триллерРежиссер: Анар АббасовАктеры: Антон Филипенко, Данила Якушев, Анна Виллер, Надежда Иванова, Сухраб Хайлобеков, Влад Канопка, Милана БруПеревод: Не требуется (Русский)Субтитры: Русские (Hardsub - на иностранную речь)Продолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AA6E8AFD61072AF27D18E905F4A4DDC9532F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865976   (1066003) от 
-
-VA - Whispering in Paradise (Lounge and Chill out Serenades), Vol. 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01.  Jennifer James - Balearic Nights (Deep Sunset Mix) (02:58)
- 02.  Thawn Kez - Silent Whispers (02:56)
- 03.  Eric Cherez - Night Lights of Ibiza (03:48)
- 04.  Miria Stella Biscozi - Lights Are Low (Silk Vocal Mix) (03:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F080EFA1BF9C183D277AD892E5AB82B8F372CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865984   (1066002) от 
-
-28 лет спустя: Часть II. Храм костей / 28 Years Later: The Bone Temple (2026) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Спайк вступает в банду сэра Джимми Кристала, однако его ужасают новые спутники, которые намеренно убивают выживших людей по приказу лидера группы. Тем временем доктор Иэн Келсон в своём «Храме костей» продолжает самостоятельную работу над лекарством от вируса ярости и делает открытие, которое может изменить мир.Производство: Великобритания, США / Columbia Pictures Corporation, Decibel FilmsЖанр: ужасыРежиссер: Ниа ДаКостаАктеры: Рэйф Файнс, Джек О’Коннелл, Элфи Уильямс, Эрин Келлиман, Чи Льюис-Парри, Эмма Лейрд, Сэм Лок, Роберт Родс, Гази Аль Руффаи, Маура БёрдПеревод: Дублированный (MovieDalen, Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBE1856983D587269FF9E580EAD059622C235CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865975   (1066001) от 
-
-Kenny Rogers - Kenny Rogers (1983) Reissue, 1986, RCA [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1		This Woman 3:55
-2		You And I 4:34
-3		Buried Treasure 4:08
-4		Islands In The Stream 4:08(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4683B7222AD0258941D24EDEB89AC952EFDF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865859   (1066000) от 
-
-Alexia - The Party Alexia (1998) [FLAC|Lossless|image + .cue] <Euro House, Italodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1		Uh La La La (Almighty Edit) 3:42
-2		Gimme Love (Pump Friction Vs Precious Paul Edit) 3:39
-3		Music I Like (Metro Club Edit) 3:20
-4		Keep On Movin'	3:38(   Читать дальше...   )Жанр: Euro House, ItalodanceПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD286E2D0B6BC2813D0D1FB7E315A533DFFC4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865985   (1065999) от 
-
-Ravdina (СЛОТ) - Комната (2026) [MP3|320 Kbps] <Alternative, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1. Демон [00:03:05]
-2. Мёртвый бонсай [00:04:05]
-3. В сентябре [00:03:26]
-4. Обезьянка ноль [00:03:45](   Читать дальше...   )Жанр: Alternative, Nu-MetalПродолжительность: 00:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C583A94C7400FD65247F604E21B11718D9F10ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865993   (1065998) от 
-
-Шахерезада / Sheherazade (1963) BDRip [H.264/720p] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Авантюрная драма снятая по мотивам знаменитых персидских сказок «Тысячи и одной ночи»... Шахерезада приносит дары багдадскому халифу Гаруну Аль-Рашиду в обмен на разрешение поехать в Святую Землю. В пути легендарная красавица подвергается смертельной опасности. Спасённая от верной гибели отважным Рено де Виллекруа, она влюбляется в своего героя. Правитель, поверив (   Читать дальше...   )Производство: Франция, Италия, Испания / Cine-Alliance, Dear Film Produzione, FilmsonorЖанр: драма, приключенияРежиссер: Пьер Гаспар-ЮиАктеры: Анна Карина, Жерар Баррэ, Антониу Вилар, Джулиано Джемма, Марилу Толо, Фаусто Тоцци, Джил Видал, Хорхе Мистраль, Фернандо РейПеревод: любительский двухголосый (DVO Студия Райдо)Язык озвучки: русский, французскийСубтитры: русские (Igor2138), английскиеПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DFF945E27925E60B31CC7A9F991466FAD1E01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865994   (1065997) от 
-
-Affinity Studio 3.2.0.4351 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Affinity — полностью бесплатный с недавнего времени (29.10.2025) профессиональный графический редактор для Windows, к которому стоит присмотреться, если вам требуется профессиональное ПО для работы с растровой или векторной графикой.
-
-Те, кто работает с графикой, могли быть знакомы с приложениями Affinity уже давно:Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E041CA82389A3CC070BDAE5F72FF47FB6B19114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865983   (1065996) от 
-
-Møl - Dreamcrush (2026) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Blackgaze>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Dream (03:13)
-02. Små Forlis (03:45)
-03. Young	(04:18)
-04. Hud (04:46)(   Читать дальше...   )Жанр: Atmospheric Black Metal, BlackgazeПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6A9FCBC537FFC6A0D07937661835B6E08041AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865971   (1065995) от 
-
-Mylie Taylor - parasite (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. parasite [00:02:37]
-02. chokehold [00:02:15]
-03. slip [00:02:56]
-04. homicide [00:02:35](   Читать дальше...   )Жанр: Alternative-Rock, Pop-RockПродолжительность: 00:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C414B40E19584E97C80ABFB627AE9EE8E27D1F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865999   (1065994) от 
-
-Артем Март | Пограничник (Книга 7). Призраки Пянджа (2026) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Я был офицером ВДВ и старость решил встретить простым егерем. Но погиб на спасательной операции и попал в... СССР! В день, когда уходил в армию, в год, когда потерял младшего брата.
-На дворе октябрь 80-го. Советская армия воюет в Афгане.
-Я снова молод и полон сил, а мой брат пока жив. И чтобы спасти его, я должен стать пограничником на афганской границе.Жанр: фантастика, боевик, попаданцыИздательство: ЛитРесПродолжительность: 08:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FECF2665E9DB028165B642B700311F7E72C183E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866000   (1065993) от 
-
-Кстати (2026) WEBRip [H.264/1080p] (сезон 1, выпуск 103)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Сто третий выпуск шоу «Кстати» с Азаматом Харламовым. Дорох, возможно, скоро займёт место основного ведущего, пока придержим его. Гостями сто третьего выпуска стали: легендар – Ефим Шифрин; снова объединившиеся – Виталий Гогунский, Мария Кожевникова и Настасья Самбурская; первый ковбой из Самары – Игнатий Винтуров.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Ефим Шифрин, Виталий Гогунский, Мария Кожевникова и Настасья Самбурская, Игнатий ВинтуровЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739180BF5B86E70483A2E14DEFAAAA1908684B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865998   (1065992) от 
-
-22 минуты (2014) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Морпех — первогодок Саня Ежов оказывается среди пиратов на захваченном танкере. Он знает — товарищи не бросят. Ему нужно выжить и помочь своим, когда начнется штурм.Производство: Россия / Централ ПартнершипЖанр: боевикРежиссер: Василий СериковАктеры: Макар Запорожский, Денис Никифоров, Гаэль Камилинди, Ибра Туре, Виктор Сухоруков, Александр Галибин, Игорь Тарадайкин, Владислав Демин, Иван Породнов, Владислав Погиба и др.Перевод: Не требуетсяСубтитры: отсутствуютПродолжительность: 01:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306D971369D447A0E25D29EE9AC903A4DE4942B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865988   (1065991) от 
-
-Дёргать! - Мир станет лучше (2026) [MP3|320 Kbps] <Рок, Панк Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1. Мир станет лучше [00:03:52]
-2. Разрушитель границ [00:03:26]
-3. Верь в себя [00:03:49]
-4. Бабочки [00:03:19](   Читать дальше...   )Жанр: Рок, Панк РокПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9178F289890B326870E8350AFA250EEFE31A37E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865997   (1065990) от 
-
-Братья под огнём / Brothers Under Fire (2026) WEBRip [H.264] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Эскадрилья под командованием капитана Джордана Райта отправилась в отпуск на свадьбу одного из своих товарищей в Мексику. Празднование внезапно прерывается нападением жестокого картеля. Пока Райту удаётся эвакуировать выживших в безопасное место, его отряд вступает в ожесточённое противостояние с бандитами. Джордану приходится мобилизовать все свои силы, чтобы не (   Читать дальше...   )Производство: Колумбия, США, Великобритания / BFI Film Fund, Highland Film Group (HFG)Жанр: боевик, драма, детектив, триллерРежиссер: Джастин ЧадвикАктеры: Кифер Сазерленд, Эштон Сандерс, Солли Маклауд, Томми Мартинес, Омар Чапарро, Лаура Осма, Флора Мартинез, Лэйрд Акео, Фреди Йэт, Орландо ПинедаПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: РусскийСубтитры: Английские (forced hardsub)Продолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F6C2DB19752D7DE677A4CDB4619C0D7B2F4C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865953   (1065989) от 02.05.2026
-
-Как дома, как дела? (1987) TVRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-С началом Великой Отечественной Войны, шумный, веселый тбилисский двор опустел. Мужчины ушли на фронт, и на плечи женщин легло много забот. У Мики - одного из городских ребят - появился на свет младший брат. Позже пришло в их семью и горе - погиб на войне отец. Но жизнь продолжалась... Мика с друзьями решают сами разносить письма и помогать родственникам погибших. (   Читать дальше...   )Производство: СССР / Киностудия им. М. ГорькогоЖанр: драма, семейныйРежиссер: Самвел ГаспаровАктеры: Микаел Джанибекян, Рамаз Чхиквадзе, Ия Нинидзе, Абессалом Лория, Мзия Квирикашвили, Лия Элиава, Занда Иоселиани, Павел Казарян, Лия Гудадзе, Сосо Джачвлиани и другиеСубтитры: отсутствуютПродолжительность: 01:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12AC5EC7A61D5078C3FDF07B15024CEBB2749E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866002   (1065988) от 
-
-28 лет спустя: Часть II. Храм костей / 28 Years Later: The Bone Temple (2026) UHD BDRemux [H.265/2160p] [4K, HDR10, DV 7.6, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Спайк вступает в банду сэра Джимми Кристала, однако его ужасают новые спутники, которые намеренно убивают выживших людей по приказу лидера группы. Тем временем доктор Иэн Келсон в своём «Храме костей» продолжает самостоятельную работу над лекарством от вируса ярости и делает открытие, которое может изменить мир.Производство: Великобритания, США / Columbia Pictures Corporation, Decibel FilmsЖанр: ужасыРежиссер: Ниа ДаКостаАктеры: Рэйф Файнс, Джек О’Коннелл, Элфи Уильямс, Эрин Келлиман, Чи Льюис-Парри, Эмма Лейрд, Сэм Лок, Роберт Родс, Гази Аль Руффаи, Маура БёрдПеревод: Дублированный (MovieDalen, Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6102C0D06331CA35967B70CBD0F6B9B8BB9CD3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865920   (1065987) от 
-
-Мать Мария / Mother Mary (2026) Telecine [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Давно затаенные раны выходят на поверхность, когда культовая поп-звезда Мать Мария воссоединяется со своей бывшей лучшей подругой и художницей по костюмам Сэм Ансельм накануне своего возвращения на сцену.Производство: Великобритания, Финляндия, Германия, США / A24, Topic Studios, Access EntertainmentЖанр: ужасы, музыкаРежиссер: Дэвид ЛоуриАктеры: Энн Хэтэуэй, Микейла Коул, Хантер Шафер, Афина Фриззелл, Кайя Гербер, Джессика Браун-Финдли, Алба Баптишта, Шан Клиффорд, FKA Twigs, Изаура Барб-БраунПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Русский (на песни)Продолжительность: 01:45:24Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E5D33EA003EE031D387A176503EC303B5FD7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865919   (1065986) от 
-
-Мать Мария / Mother Mary (2026) Telecine [H.264/1080p] [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Давно затаенные раны выходят на поверхность, когда культовая поп-звезда Мать Мария воссоединяется со своей бывшей лучшей подругой и художницей по костюмам Сэм Ансельм накануне своего возвращения на сцену.Производство: Великобритания, Финляндия, Германия, США / A24, Topic Studios, Access EntertainmentЖанр: ужасы, музыкаРежиссер: Дэвид ЛоуриАктеры: Энн Хэтэуэй, Микейла Коул, Хантер Шафер, Афина Фриззелл, Кайя Гербер, Джессика Браун-Финдли, Алба Баптишта, Шан Клиффорд, FKA Twigs, Изаура Барб-БраунПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Русский (на песни)Продолжительность: 01:45:24Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94ECB52833AEB8C6C77B2705850CE216006696DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866004   (1065985) от 
-
-Общество / Society (1989) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Билл Уитни - сынок богатых родителей из Беверли Хиллз. Однако у него серьёзно прогрессирует паранойя, и мама с папой прописали Билли ходить к психоаналитику, доктору Кливленду. На психоаналитических сеансах Билли рассказывает доктору про свои страхи и подозрения относительно своей семьи - ему кажется, что его родственники совсем не те, за кого себя выдают, и что, (   Читать дальше...   )Производство: США / Society Productions Inc., Wild Street PicturesЖанр: ужасы, комедияРежиссер: Брайан ЮзнаВ ролях: Билли Уорлок, Девин ДеВаскес, Эван Ричардс, Бен Мейерсон, Чарльз Люсия, Конни Данезе, Пэтрис Дженнингс, Хайди Козак, Бен СлэкПеревод: профессиональный многоголосый (5 канал), профессиональный двухголосый (R5), авторский (Гаврилов; Живов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1667A0DDF86FA029D76A8D6B35B5FEB475AAE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865291   (1065984) от 
-
-Carl Doy - Piano by Candlelight (1987) [FLAC|Lossless|image + .cue] <Pop, Music Hall, Light Music>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1		Memory
-2		Cavatina (Theme From The 'Deerhunter')
-3		Endless Love
-4		Theme From 'The Summer Of '42'(   Читать дальше...   )Жанр: Pop, Music Hall, Light MusicПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9FF898546C269A6B52E82D28C7C0949A1CE344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866005   (1065983) от 
-
-Thomas Anders - ZEITLOS (2026) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. When Will I See You Again (Extended)
-02. How Deep Is Your Love (Extended Version)
-03. Dance In Heaven
-04. I'll Love You Forever(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59833AC1D57CC5108D80AECB37388A1628A00477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866003   (1065982) от 
-
-Д. Васильева | Заработок с ИИ: 500 готовых решений и промтов (2026) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Заработок с ИИ: 500 готовых решений и промтов - книга, которую удобно держать под рукой каждый день. Здесь собраны промпты для реальной работы: чтобы писать тексты, оформлять услуги, продавать, собирать продукты, вести соцсети, работать с клиентами и делать сильные материалы быстрее. Заработок с помощью искусственного интеллекта (ИИ) стал доступным способом получения (   Читать дальше...   )Жанр: Нон-фикшн. Учебное пособие. Саморазвитие / личностный ростИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D98B6125242CD9629FCEDF677080F0E4E9E095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865996   (1065981) от 
-
-Nervosa - Slave Machine (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash-Metal, Death-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Impending Doom [00:04:25]
-02. Slave Machine [00:03:53]
-03. Ghost Notes [00:04:27]
-04. Beast of Burden [00:03:23](   Читать дальше...   )Жанр: Thrash-Metal, Death-MetalПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C974C22F41488E4A98D5D2267C00D00C6E61750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865992   (1065980) от 
-
-Ravdina (СЛОТ) - Иди За Мной (2023) [FLAC|Lossless|image + .cue] <Alternative, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Время не лечит 4:11
-02. Сон 4:30
-03. Иди за мной 3:53
-04. Измеряя шагами небо 4:19(   Читать дальше...   )Жанр: Alternative, Nu-MetalПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5063A2197E3F1FA3B5492B8106D31FFC8E7780C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866007   (1065978) от 
 
 Adobe Animate 2024 24.0.13.5 Portable by 7997
@@ -693,7 +6,7 @@ Adobe Animate 2024 24.0.13.5 Portable by 7997
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065978.jpg" />
 </div>
 
 
@@ -704,6 +17,681 @@ Adobe Animate, пришедший на смену Flash Professional - это с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4917342A63DA4BA233B56CEA3148C90E706A7D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866009   (1065977) от 
+
+Журнал | Тайны ХХ века №15 (1212) (апрель 2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065977.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FE9169F30C4674B4F26DE59AEBA7653913B6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865977   (1065976) от 
+
+Barely Alive - Feel The Panic EP (2022) [FLAC|Lossless|tracks] <Dubstep, EDM>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuck Around
+02. Let It Spin
+03. Hopped Out
+04. Crash Landing (ft. Drew Seeley)Жанр: Dubstep, EDMПродолжительность: 00:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B835D53D725D9A3F9CF2A7F11E42842B797040E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865970   (1065975) от 
+
+Deary - Birding (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <dream pop, ethereal, shoegaze>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile [00:05:09]
+02. Seabird [00:04:38]
+03. Baby's Breath [00:03:55]
+04. Gypsophila [00:02:17](   Читать дальше...   )Жанр: dream pop, ethereal, shoegazeПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78F0C443CC4C8A8B8E1A514EEDF2CF5DE48D125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865959   (1065974) от 
+
+Гарри Б. Джозеф | Книга мудрости | Путеводитель по здоровью и питанию [3 книги] (2024, 2025) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065974.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Книга мудрости» Гарри Б. Джозефа — это глубокое и всестороннее исследование знаний и философии, направленное на раскрытие истинной природы реальности. Издание представлено в двух томах —  это уникальное жизненное пособие для всех, кто ищет духовное пробуждение, стремится освободить разум от иллюзий и понять единство мира. Первый том раскрывает основы духовного пробуждения (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Философия. Эзотерика. Популярная психология и здоровье.Перевод: АнтонИздательство: Самиздат, PublishDrive, Lulu.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B69BF66516B24C11A61C1BCDE2F41692B15230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865931   (1065973) от 
+
+Aurélien Géron | Hands-On Machine Learning with Scikit-Learn and PyTorch. Concepts, Tools, and Techniques to Build Intelligent Systems (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065973.jpg" />
+</div>
+
+
+###  Подробнее
+
+The potential of machine learning today is extraordinary, yet many aspiring developers and tech professionals find themselves daunted by its complexity. Whether you're looking to enhance your skill set and apply machine learning to real-world projects or are simply curious about how AI systems function, this book is your jumping-off place.
+
+With an approachable yet (   Читать дальше...   )Жанр: Computer Vision & Pattern Recognition, Machine Theory, Computer Neural NetworksЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF15071C503E6D66D3B27E94586EBD5D2FBE4F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866011   (1065972) от 
+
+Удачи, веселья, не сдохни / Good Luck, Have Fun, Don't Die (2025) BDRip [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним вечером в обычной закусочной появляется странного вида мужчина. Он утверждает, что прибыл из будущего, и пытается привлечь посетителей к борьбе с неуправляемым искусственным интеллектом, который скоро поработит человечество. А поскольку присутствующие ему не верят, считая психом, незнакомец, угрожая взорвать себя вместе с остальными, сам набирает отряд «добровольцев» (   Читать дальше...   )Производство: Германия, США / 3 Arts Entertainment, Blind Wink Productions, Constantin FilmЖанр: фантастика, комедия, драма, боевикРежиссер: Гор ВербинскиАктеры: Сэм Рокуэлл, Джуно Темпл, Хейли Лу Ричардсон, Майкл Пенья, Зази Битц, Азим Чодри, Том Тейлор, Джорджия Гудман, Дэниэл Барнетт, Арти Уилкинсон-ХантПеревод: Дублированный (WinMedia, Неофициальный), Многоголосый (HDrezka Studio), Авторский (Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05074B261F63A53DD2482E679F8EDDD3813779E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865928   (1065971) от 
+
+Nicole Koenigstein | Transformers. The Definitive Guide. Applications Beyond NLP. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065971.jpg" />
+</div>
+
+
+###  Подробнее
+
+The vast potential of AI technology remains untapped in areas like audio, video, and complex data analysis. In fact, many of today's professionals find it challenging to apply AI innovations across these diverse domains due to a lack of guidance and practical implementations.
+
+This comprehensive guide, tailored especially for intermediate to advanced ML engineers, (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Natural Language Processing, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81FA753C8AC8B8AF6C1BE9906AE23794EBA1E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865926   (1065970) от 
+
+Аманда Берлин, Ли Бразерстон, Уильям Ф. Рейор | Defensive Security: лучшие практики обеспечения безопасности инфраструктур. 2-е изд. (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то что рекордные утечки данных, резонансные взломы и атаки вымогателей происходят с пугающей частотой, многие компании не спешат выделить бюджет на информационную безопасность.
+Если ваша работа состоит в том, чтобы импровизировать, защищая активы работодателя это прагматичное руководство обеспечит вас инструментами и идеями, которые позволят максимально (   Читать дальше...   )Жанр: Intranets & Extranets, Computer Viruses, Viruses & MalwareИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4438E3882DBA25873450C8B4A2FE18A1159F57A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865923   (1065969) от 
+
+Mohit Mishra | Executable Files for Linux. Under the Hood of ELFs for Flexible and Secure Low-Level Coding. First Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Focusing on the Executable and Linkable Format (ELF) used in Linux and Unix systems, this book explores how code is compiled, linked, and loaded into memory, and how the operating system executes it. You’ll learn to analyse ELF files, debug and optimize programs at the binary level, write custom linker scripts, and understand dynamic linking and symbol resolution. (   Читать дальше...   )Жанр: Linux Programming, Linux Networking & System Administration, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5531B4660555842E4523F343C2A9ADF970B5BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865921   (1065968) от 
+
+Kerem Tomak | Learning AutoML. Automating ML Pipelines with AutoGluon, Leading Frameworks, and Real-World Integration (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learning AutoML is your practical guide to applying automated machine learning in real-world environments. Whether you're a data scientist, ML engineer, or AI researcher, this book helps you move beyond experimentation to build and deploy high-performing models with less manual tuning and more automation. Using AutoGluon as a primary toolkit, you'll learn how to (   Читать дальше...   )Жанр: Software Engineering, Software Design Tools, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A738F6E0F87437744E828F8CDAC55BA22E01BC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865918   (1065967) от 
+
+Dhivya Nagasubramanian | Agentic AI for Engineers. Architecting Goal-Driven Systems (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065967.jpg" />
+</div>
+
+
+###  Подробнее
+
+As AI rapidly evolves from passive models to autonomous systems capable of setting goals, reasoning, and acting independently, engineers find themselves at the threshold of a new technological era. This book serves as a bridge—connecting the world of traditional engineering to the emerging domain of Agentic AI. It is crafted for hands-on professionals who may not (   Читать дальше...   )Жанр: Artificial Intelligence, Statistics, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAC0D71E2B1C212C7E2F9988C034EB6139C0052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865916   (1065966) от 
+
+Nitin Borwankar | Vector Databases. A Practical Introduction. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065966.jpg" />
+</div>
+
+
+###  Подробнее
+
+The AI revolution is here, and at its core lies a game-changing technology that most developers haven’t fully explored: vector databases. From powering semantic search to enabling large language models (LLMs) and generative AI, vector databases are reshaping how we build applications with unstructured data like text, images, and audio. But how do you go from curious (   Читать дальше...   )Жанр: Natural Language Processing, Data Processing, Data WarehousingЯзык: АнглийскийИздательство: O’Reilly Media, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4933680EAFC84E6A863D7520157C713CC8145FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865915   (1065965) от 
+
+Александр Гинько | Анализ и визуализация данных в Yandex DataLens. 2-е изд. (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга представляет собой обновленное и дополненное издание руководства, опубликованного в 2023 году. Она посвящена стремительно развивающемуся отечественному инструменту для бизнес-аналитики Yandex DataLens, который со времени выхода первого издания очень сильно изменился. Автор не останавливается на описании функционала DataLens и погружает читателя в полноценные (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9C9E3F7F3AAED41EDC71357B99EEE079C3E6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865913   (1065964) от 
+
+Steve Klabnik, Carol Nichols, Chris Krycho | The Rust Programming Language. 3rd Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Build stable, production-grade systems with Rust.
+
+The Rust Programming Language, 3rd Edition, teaches you to write code that the compiler can verify, teams can maintain, and systems can evolve safely over time. Written by longtime Rust community members, this book shows you how to work effectively with Rust’s type system, concurrency model, and tooling, using patterns (   Читать дальше...   )Жанр: Object-Oriented Software Design, Programming Languages, Software DevelopmentЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F99495864637D72F08DE182F0B7D21CD56D1615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865911   (1065963) от 
+
+Дишан Фрэнсис | Active Directory. Проектирование, развертывание и защита (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами исчерпывающее руководство для специалистов по информационным технологиям, стремящихся расширить свои знания об Active Directory. Книга научит вас эффективно использовать элементы идентификации и безопасно и эффективно управлять инфраструктурой вашей организации. Это издание было полностью обновлено: в нем подчеркивается важность строгой аутентификации (   Читать дальше...   )Жанр: Email Administration, Network Disaster & Recovery Administration, Windows Server GuidesИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3FE834710652FB68BECA1C45825DA59B4EB97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865905   (1065962) от 
+
+Михаил Шардин | Excel, Python и API. Автоматизация данных и управление офисом, домом, финансами... (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не просто абстрактная документация по изучению Excel, Python или API, и программирование в ней выступает не как профессия, а как бытовой навык, такой как умение пользоваться таблицами или Интернетом.
+Книга объясняет, как совмещать вместе код, таблицы и нейросети так, чтобы они усиливали работу друг друга: генерировали сотни документов за пару минут, создавали (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НиТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C53DF6D249FF13B61531BF513A60C9818E88C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865901   (1065961) от 
+
+Ц.  Хао, М. Цикердекис | Грокаем проектирование реляционных баз данных (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реляционные базы данных используются практически в каждой компании. И разбираться в том, как они работают, приходится и разработчикам, и аналитикам, создающим дашборды и отчеты, и специалистам, которым просто нужна актуальная информация. Это увлекательное руководство по миру баз данных и SQL написано в доступной и юмористической манере. Авторы, опытные преподаватели (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24708A23649622129EE4694F17E3B589A7F69AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865899   (1065960) от 
+
+Джеймс Серра | Архитектуры данных: современные решения для любых задач (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ткань данных, озеро данных и сетка данных появились относительно недавно и стали рассматриваться как конкурентные альтернативы современному хранилищу данных. У новых архитектур действительно есть весомые преимущества, но, помимо этого, они окружены ореолом предубеждений и мифов. Книга содержит практический обзор архитектур данных, который поможет специалистам в области (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C78CB8EB3241F83C0031F95CD9DB645F88B062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865898   (1065959) от 
+
+James Serra | Deciphering Data Architectures. Choosing Between a Modern Data Warehouse, Data Fabric, Data Lakehouse, and Data Mesh. 1st Edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data fabric, data lakehouse, and data mesh have recently appeared as viable alternatives to the modern data warehouse. These new architectures have solid benefits, but they're also surrounded by a lot of hyperbole and confusion. This practical book provides a guided tour of these architectures to help data professionals understand the pros and cons of each.
+
+James (   Читать дальше...   )Жанр: Data Modeling & Design, Data Processing, Computer ScienceЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C15627754CB1E3B57747D2419300F50B7A8A10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865894   (1065958) от 
+
+Badr Nasslahsen | Spring Security. Effectively secure your web apps, RESTful services, cloud apps, and microservice architectures. 4th ed. Edition (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Knowing that experienced hackers are constantly on the prowl to attack your apps can make security one of the most challenging concerns of creating an app. The complexity of properly securing an app is compounded when you must also integrate this factor with legacy code, new technologies, and other frameworks. This book will help you easily secure your Java apps (   Читать дальше...   )Жанр: LDAP Networking, Enterprise Applications, Computer Security & EncryptionЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280291B5D693419236ED60F53388884850F33EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865841   (1065957) от 
+
+Стивен Браст | Влад Талтош (Том 3). Орка. Дракон. Иссола (2026) [MP3, Данила Глухов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительные приключения наемного убийцы Влада Талтоша и его драконоподобного компаньона, наполненные иронией и приключениями – седьмой, восьмой и девятый романы в одном томе!
+Драгейра – мир, где древняя магия соседствует с острой сталью, интриги плетутся в покоях роскошных дворцов и мрачных замков, а деньги, как ни странно, решают почти всё. Особенно если ты знаешь, (   Читать дальше...   )Жанр: фэнтези, приключенияИздательство: Fanzon (Эксмо)Продолжительность: 28:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2108D42B136B7FD14A9BA5FF7185C98E7E24F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865843   (1065956) от 
+
+Стивен Браст | Влад Талтош (Том 4). Дзур. Джагала. Иорич (2026) [MP3, Данила Глухов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывших наемных убийц не бывает. Особенно, если у них талант находить проблемы.
+Новые приключения наемного убийцы Влада Талтоша и его язвительного дракончика- джарега – десятый, одиннадцатый и двенадцатый романы цикла в одном томе! Еще больше интриг, магии, остроумных диалогов и опасных ситуаций.
+Владу Талтошу всегда приходилось полагаться на ум и хитрость. Когда-то (   Читать дальше...   )Жанр: фэнтези, приключенияИздательство: Fanzon (Эксмо)Продолжительность: 26:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051E77067224BCDC818538F0808DD611693A7AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866001   (1065955) от 
+
+Rain Diary - Night Church (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Gothic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Church [00:04:04]
+02. Dark Flowers [00:03:21]
+03. Naive [00:03:47]
+04. Run & Shout [00:06:00](   Читать дальше...   )Жанр: Darkwave, Gothic-RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F5E4E8578D05DD1FC5E7BA939DD0C77A3CD2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865892   (1065954) от 
+
+Бадр Насслахсен | Spring Security. Эффективная защита веб-приложений, RESTful-сервисов, облачных приложений и микросервисных архитектур. 4-е изд. (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опытные хакеры постоянно охотятся за уязвимыми приложениями, поэтому никогда не переставайте беспокоиться о безопасности. Задача становится особенно сложной, если приходится работать с унаследованным кодом, новыми технологиями и сторонними фреймворками. Научитесь защищать Java-приложения с помощью Spring Security — проверенного и гибко настраиваемого фреймворка для (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: SPRINT bookФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120161E4092702F68DD49B12C7F8D23D29EB06E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865891   (1065953) от 
+
+VA - Future Favorites Top 25 - A State of Trance 25 Years (Extended Versions) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - This Is What It Feels Like feat Trevor Guthrie (W&W Extended Remix) 06:16
+02. Shogun - Zanarkand (Extended Mix) 06:31
+03. Aly & Fila - We Control The Sunlight feat Jwaydan (Extended Mix) 08:29
+04. John O'Callaghan - Big Sky feat Audrey Gallagher (Extended Mix) 09:32(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8916AE580B4FBD77E3785BA3164512037EE75405
 ```
 
 https://mybot314.ru/tekegram_catalog/

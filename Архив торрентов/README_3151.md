@@ -6,7 +6,7 @@ Mozilla Thunderbird 78.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353410.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner Browser 85.1.6386.124 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353405.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Slender Man Origins 1 HD v1.03 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353404.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Process Lasso 9.8.5.37 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353403.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Slender Man Saga v0.7.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353402.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sexy Girls Pack Wallpapers (20.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353399.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adversam - 2 альбома, 2 демо (1997-2008) [MP3|320 кб/с]<Black Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_353398.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Wallpapers Sexy Girls Pack (20.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353396.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Greenwitch - Greenwitch (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353395.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Wallpapers Sexy Girls (20.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353393.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Meldrum - Lifer (2012) [MP3|320 кб/с]<Heavy/Groove Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353392.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ HQ Wallpapers Perfect Women (20.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353389.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Sexy Girls Wallpapers (20.11.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353387.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Slender Man! Chapter 1: Alone / Тонкий человек Эпизод 1 v7.04
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353326.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353317.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Tixati 2.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353308.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mozilla Firefox 42.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353306.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Slender Man Origins 2 Saga v1.0.5+Mod Money [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353304.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Prune v1.0.33 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353301.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Gtopala SIW (System Information for Windows) 2015 5.4.1030 Technician Portable [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353294.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ SolidAngle C4DtoA 2.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353291.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ S.U.N. - Something Unto Nothing (2012) [MP3|320 кб/с]<Hard Rock (Female Vocal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353283.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353282.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Best of Yucatan Sunset Beach Vol.1: Seaside Lounge & Downtempo Moods (2012)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353276.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353274.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Freedom & Bobby Harrison - 7 Альбомов (1968-1987) [FLAC|Lossless]<Hard R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_353272.jpg" />
 </div>
 
 

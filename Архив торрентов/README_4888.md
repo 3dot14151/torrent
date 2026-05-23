@@ -6,7 +6,7 @@ Word Learn Languages v5.11 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23857.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare PDFelement 11.4.11.3379 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23854.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Double Commander 1.1.23 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23853.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Multi Commander Full Edition 15.2 Build 3077 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23852.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FBReader Premium v3.8.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23849.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Gigapixel AI 8.3.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23841.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Balabolka 2.15.0.890 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23839.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AirBrush: ИИ Фоторедактор v7.6.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23838.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Tablacus Explorer 25.3.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23837.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Electrical Calculations Pro / Электрические расчеты v10.3.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23836.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ GIMP 3.0.0 revision 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23831.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23827.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Acrobat Pro 2025.001.20435 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23810.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.4 Build 11 (x64) Portable by 7997 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23798.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Coolmuster Android Assistant 5.2.60 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23795.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.1 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23780.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Capture One 23 Enterprise 16.5.9.2795 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23773.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ K-Lite Codec Pack 18.8.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23768.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Cockos REAPER 7.35 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23758.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23752.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.4.5 Gold 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23745.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Paint.NET 5.1.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23742.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ FanControl V218 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23735.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Google Chrome 134.0.6998.166 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23731.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Google Chrome 134.0.6998.166 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23727.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ MediaInfo 25.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23726.jpg" />
 </div>
 
 

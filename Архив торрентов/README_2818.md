@@ -6,7 +6,7 @@ ISO Workshop Free Edition 10.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427350.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IK Multimedia - MixBox 1.0.0 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427347.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Remote Desktop Manager Enterprise 2020.2.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427346.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chromium 85.0.4183.121 UNGOOGLED Portable by henrypp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427344.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ jv16 PowerTools 5.0.0.798 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427341.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427339.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DiskTrix UltimateDefrag 6.0.28.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427324.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Дельфины скрытой камерой (Дельфины. Шпио�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427322.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TT PRO MSK - С.О.Н.: Слог Особого Назначения (2015) [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427311.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Mozilla Firefox 42.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427310.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe AIR 19.0.0.213 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427308.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ FontViewOK 4.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427306.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ BlueHarvest 6.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427302.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Benjamin Francis Leftwich - Last Smoke Before The Snowstorm (2011) [FLAC|tracks+
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427299.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ CoolUtils Total CAD Converter 3.1.0.178 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427294.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ IObit Uninstaller Pro 10.0.2.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427293.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Brave Browser 1.14.84 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427292.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Bandicam 4.6.4.1728 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427288.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ CCleaner 5.72.7994 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427286.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ O&O ShutUp10 1.8.1414.283 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427283.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Topaz DeNoise AI 2.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427282.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ YouTube By Click Premium 2.2.140 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427281.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427264.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Low Frequencies (Drum & Bass, Dubstep & Break Beat Grooves) (2015) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427255.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Unibox 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427254.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Bartender 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427251.jpg" />
 </div>
 
 

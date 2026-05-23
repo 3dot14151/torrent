@@ -6,7 +6,7 @@ Opera 36.0.2130.32 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876839.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser 75.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876825.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BurnAware Professional 13.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876822.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Complete Internet Repair 5.2.3.4063 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876816.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ XPLife 4.0 - Изменения интерфейса Windows XP 32-bit / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876809.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 10 Login Changer 0.0.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876764.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PDF24 Creator 9.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876699.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Aiseesoft Video Converter Ultimate 10.0.8 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876697.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Internet Download Manager 6.25 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876658.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BurnAware Professional 13.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876616.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ QownNotes 20.4.2 Build 5509 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876608.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ OCCT 5.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876605.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mozilla Firefox Quantum ESR 68.7.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876599.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mozilla Thunderbird 68.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876595.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Google Chrome 81.0.4044.92 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876589.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Privacy Eraser Free 4.21.3 Build 2271 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876548.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Google Chrome 81.0.4044.92 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876495.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Bat! Professional 9.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876493.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Opera 67.0.3575.137 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876491.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ MetaProducts Offline Explorer Enterprise 7.7.4648 SR 2 RePack (& Portable) by Tr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876490.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ OBS Studio 25.0.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876488.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ YouTube By Click Premium 2.2.126 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876485.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ OBS Studio 25.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876432.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ PortableApps.com Platform 16.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876431.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ AIDA64 Extreme / Engineer / Business Edition / Network Audit 6.25.5400 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876422.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Cent Browser 4.2.9.152 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876421.jpg" />
 </div>
 
 

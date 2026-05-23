@@ -1,29 +1,3 @@
-###  Публикация: 1700454   (117321) от 16.02.2024
-
-Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Lysfanga: The Time Shift Warrior бросает вас в битву, которую можно выиграть, только переписав время. В роли Имэ, защитницы королевства, вы обладаете временной силой, которой нет ни у одной другой Лисфанги: перематывать время в бою.Но это не кнопка "отмотать назад".Считайте, что вы вызываете армию своих прошлых сущностей - так их называют.Каждая перемотка (   Читать дальше...   )Тип издания: RepackРазработчик: Sand Door StudioЖанр: Экшены, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6C8DF721637CF41C7AF004CC4748365F7F8F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700203   (117254) от 16.02.2024
 
 Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Гнев океана (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117254.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117125.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117097.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116989.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hearts of Iron / День Победы (2002-2009) [Ru] (1.06c/1.3b/1.3a/1.2/1.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116975.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116968.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116959.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Siberian Village (2024) [Ru/Multi] (0.97) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116955.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7.2369) Repack Other s [Part 2]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116949.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608/dlc) Repack Other s [Par
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116944.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.0.1/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116943.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116934.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116819.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116808.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116799.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116793.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Spirit Hunter: Death Mark II (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116779.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116776.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116769.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116743.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Decepti
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116636.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116631.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116623.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Trinity Fusion (2023) [Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116621.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116464.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15163AD1096912CF4420197429722925B253895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536398   (116460) от 21.02.2024
+
+ELEX II (2022) [Ru/Multi] (1.05c) Repack Decepticon
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116460.jpg" />
+</div>
+
+
+###  Подробнее
+
+ELEX II – продолжение ELEX, винтажной ролевой игры с открытым миром от знаменитой студии Piranha Bytes, разработчиков Gothic и Risen. В ней вам предстоит вернуться в постапокалиптический мир Магалана – благодаря реактивному ранцу вам откроется небывалая свобода в исследовании его многоликих просторов.Тип издания: RepackРазработчик: Piranha BytesЖанр: Экшны, Ролевая игра, ФантастикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E132C45968AD34400421D344DD13ACB8561C234
 ```
 
 https://mybot314.ru/tekegram_catalog/

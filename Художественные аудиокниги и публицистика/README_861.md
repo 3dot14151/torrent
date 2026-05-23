@@ -1,83 +1,3 @@
-###  Публикация: 1271387   (150107) от 23.12.2018
-
-Константин Паустовский | Кара-Бугаз (2018) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Кара-Бугаз», вышедшая в 1932 году в издательстве «Молодая гвардия» сразу же, по мнению критиков, выдвинула Паустовского в первые ряды советских писателей того времени. Кара-Бугаз, залив-лагуна Каспийского моря на западе Туркмении. В представлении людей он был заливом смерти и ядовитой воды. На тюркских языках его название означает «черное горло». Это место (   Читать дальше...   )Жанр: Повести, Советская прозаИздательство: ИД СОЮЗПродолжительность: 04:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE931AFD69CC4F44E2AA71A1D60A7C6E5BC1EE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302057   (149975) от 18.11.2023
-
-Бернард Шоу | Пигмалион (2006) [MP3, Юрий Лазарев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Школьная библиотека».
-Джордж Бернард Шоу (1856–1950) – английский писатель, романист, драматург, лауреат Нобелевской премии в области литературы 1925 года. Общественный деятель. Второй (после Шекспира) по популярности драматург в английском театре.
-Неповторимый, язвительный, мудрый знаток человеческой природы, блистательный, афористичный – таким Джордж Бернард (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: АудиокнигаПродолжительность: 03:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63354B47A1050DF64EABE2E4554D606FFF6CADDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271532   (149960) от 23.12.2018
-
-Ксения Букша | Inside Out (Наизнанку) (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Не очень отдаленное будущее. Русский монарх продал шестую часть суши китайцам, а деньги поровну разделил между своими подданными. В деловых кругах одной из западных стран появляется слух, что неизвестный русский физик сумел получить топливо из воды. Леви Штейнман, начальник информационного отдела банка, получает задание найти физика и выкупить у него изобретение.Жанр: ФантастикаПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32580A18B60138ECD2E0AF841F2472A204FB0C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 343803   (149937) от 18.11.2023
 
 Валентин Гафт | Уже от мыслей никуда не деться... (2010) [MP3, Валентин Гафт]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149937.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149928.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149917.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149793.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149354.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149285.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149253.jpg" />
 </div>
 
 
@@ -275,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149217.jpg" />
 </div>
 
 
@@ -302,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149200.jpg" />
 </div>
 
 
@@ -330,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149190.jpg" />
 </div>
 
 
@@ -356,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149136.jpg" />
 </div>
 
 
@@ -383,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149117.jpg" />
 </div>
 
 
@@ -411,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148965.jpg" />
 </div>
 
 
@@ -438,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148918.jpg" />
 </div>
 
 
@@ -465,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148911.jpg" />
 </div>
 
 
@@ -491,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148889.jpg" />
 </div>
 
 
@@ -517,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148776.jpg" />
 </div>
 
 
@@ -546,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148745.jpg" />
 </div>
 
 
@@ -572,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148727.jpg" />
 </div>
 
 
@@ -599,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148723.jpg" />
 </div>
 
 
@@ -626,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148718.jpg" />
 </div>
 
 
@@ -652,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148712.jpg" />
 </div>
 
 
@@ -679,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148698.jpg" />
 </div>
 
 
@@ -692,6 +612,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:206DC035353094BE1DF0DEE9FBC2F71B91D60B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086390   (148694) от 26.12.2016
+
+Геннадий и Василий Бойцовы | Одиночество матёрого волка (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Г. Бойцова посвящена благородному служению в уголовном розыске. На этот раз он написал ее в соавторстве с сыном Василием, который получил блестящее образование, но, несмотря на различные альтернативные варианты, посчитал для себя за Честь служить в органах внутренних дел МВД России, идя дорогой отца.
+Книга написана как на основе личного жизненного и профессионального (   Читать дальше...   )Жанр: повестьПродолжительность: 08:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D542B99F5BF55411167882DC26517B4A278327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086495   (148681) от 26.12.2016
+
+Эстер Браун | Агентство «Маленькая леди» (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелиссе катастрофически не везет. Недавно ее бросил очередной бойфренд, родственники и сослуживцы ее ни в грош не ставят, а о внешности и говорить не хочется: вроде бы все при ней, но в фотомодели с такими габаритами не возьмут. В довершение всего ее увольняют с работы. Где же выход? Ответ прост: нужно открыть свое собственное дело! И Мелисса открывает агентство (   Читать дальше...   )Жанр: РоманПродолжительность: 17:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DED8E24D07E36B8C8E60E058209931C8E16507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086545   (148673) от 26.12.2016
+
+Дороти Сэйерс | Рожденный на Царство (1999) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие знают Дороти Л. Сэйерс как автора детективов. Действительно, она их писала, хотя и не так уж много, всего десятка два рассказов и двенадцать с половиной романов. С половиной - потому что роман о браке «Престолы и господства» она начала и бросила. Хотя Дороти Сэйерс всегда верила в Бога, лет с сорока она все больше и больше говорила и писала о христианстве. (   Читать дальше...   )Жанр: Радиоспектакль, зарубежная проза, религияПродолжительность: 11:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB1AC7F17AAAAFF79BF326F9102173312B735F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Multitouch 1.24.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015655.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Commander One PRO - FTP client 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015639.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PhoneRescue for Android 3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015627.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Commander One PRO Pack 3 v3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015623.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tixati 2.82 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015612.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ MediaHuman Youtube Downloader 3.9.9.55 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015608.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Motanka - Motanka (2019) [FLAC|Lossless|tracks + .cue] <Folk Metal, Ethno Folk R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015607.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tixati 2.83 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015606.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ SIV (System Information Viewer) 5.58 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015603.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VueScan Pro 9.7.55 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015602.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Total Commander 9.51 MAX-Pack 2021.05.14 Final by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015552.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015548.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Meta 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015524.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Swinsian 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015521.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Blocs 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015520.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ BlueHarvest 8 v8.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015516.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ FBackup 9.0.279 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015514.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Privacy Eraser Free 5.11.2 Build 3891 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015511.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ocenaudio 3.10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015510.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Opera GX 75.0.3969.267 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015505.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015498.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Adobe Character Animator 2021 v4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015491.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mozilla Thunderbird 78.10.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015486.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Spotify 1.1.59.712 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015477.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ PDFsam Basic 4.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015473.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Adobe Animate 2021 v21.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015470.jpg" />
 </div>
 
 

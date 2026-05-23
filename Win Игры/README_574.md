@@ -1,29 +1,3 @@
-###  Публикация: 1807424   (10991) от 19.07.2025
-
-DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-DOOMER SIMULATOR погружает игрока в жизнь человека, проживающего в постсоветской хрущевке на рубеже веков. Быт персонажа представляет собой круговорот из работы на заводе, заваривания лапши и употребления крепкого чая. Этот распорядок дня дополняется периодами глубокого самокопания и определенными вредными привычками. В квартире ветхие советские вещи соседствуют (   Читать дальше...   )Тип издания: RepackРазработчик: Sebasa Games TaganrogЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A010F4E4557CD4C0202BB87235434B59777507DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777436   (10989) от 19.07.2025
 
 Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
@@ -32,7 +6,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.21.0.3/dlc) Repack Pioneer
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10989.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10987.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Loophole (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10965.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Zombie Graveyard Simulator (2025) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10964.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.4/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10953.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Factorio (2020) [Ru/Multi] (2.0.60/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10952.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ ICARUS (2021) [Ru/Multi] (2.3.0.140074/dlc) Repack FitGirl [Complete the Set Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10946.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10943.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10935.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Danger Zone (2025) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10934.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10930.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10926.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10922.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Kingdom Ascension (2025) [Ru/Multi] (1.0.0.4) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10921.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10919.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Submersed 2 - The Hive (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10900.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.17.30088/dlc) Repack Le
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10849.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/En] (1.053.0/dlc) Repack Let's
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10840.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10837.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10830.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.3/dlc) Repack FitGirl [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10821.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) License GOG [Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10736.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10727.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3P2_85055/dlc) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10724.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10722.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Bloodshed - это захватывающий сплав элементов уп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:301FA0770A1D1A497127820F2E2E4E30903996A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772842   (10715) от 22.07.2025
+
+The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10715.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Rangers in the South - это пиксельный экшн-рогалик, действие которого происходит в прекрасном мире 2.5D, вдохновленном классикой SNES. Сражайтесь и разрабатывайте уникальную стратегию с сотнями вариантов, чтобы исследовать разные биомы и испытания! Исследуйте нарисованный от руки мир, полный деталей, открывайте секреты и интересные места в игре, которая вознаграждает (   Читать дальше...   )Тип издания: SceneРазработчик: DPA StudiosЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C7228845C99BF5AA434C7784DE1BE9C9F06BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

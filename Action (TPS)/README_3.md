@@ -6,7 +6,7 @@ Dynasty Warriors 8 Empires (2015) [Multi] (1.0) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049412.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack dixen18 [XXL Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049315.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Double Dragon Revive (2025) [Ru/Multi] (1.1.0.0/dlc) Repack Other s [Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049234.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack Let'sРlay [XL Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048990.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hatred (2015) [Ru/Multi] (24112025_135232_rev.20802) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047912.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (47139 build 20790748/d
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047489.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hi-Fi Rush (2023) [Ru/Multi] (Build 20567064/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047261.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Onimusha 2: Samurai's Destiny (2025) [Ru/Multi] (Build 16840726/dlc) Repack FitG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046920.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ASTRONEER (2016) [Ru/Multi] (1.36.31.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046572.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ X-Blades HD (2022) [Ru/Multi] (1.0) License GOG [Gold]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045784.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Lara Croft Tomb Raider Trilogy (2006-2008) [Ru/Multi] Repack R.G Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045617.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CRISIS CORE –FINAL FANTASY VII– REUNION (2022) [Multi] (1.0) License FLT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043196.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Devil May Cry 5 (2019) [Ru/En] (1.0.0.1.05962864/dlc) Repack xatab [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041245.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Rise of the Tomb Raide (2016) [Ru/Multi] (1.0.668.1/dlc) License CONSPIR4CY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040710.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040698.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Sinking City (2021) [Ru/Multi] (4.20.1.0/dlc) License DARKSiDERS [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040684.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Batman: Arkham City (2012) [Ru/En] (1.1) Repack xatab [Game of the Year Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040418.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tomb Raider (2013) [Ru/Multi] (1.1.748.0/26DLC) Repack z10yded [Game of the Year
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040405.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Rogue Trooper Redux (2017) [Multi] (5592) License GOG [Collectors Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040006.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Returnal (2023) [Ru/Multi] (1.0 Build 10547147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039714.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Returnal (2023) [Ru/Multi] (1.0/dlc) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039212.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Wanted: Dead (2023) [En] (9935321) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038699.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ HITMAN (2016) [Ru/Multi] (1.15.0/dlc) SteamRip =nemos= [Game of The Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038637.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (1.0.10/dlc) Repack =nemos= [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037618.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (1.4.651.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036085.jpg" />
 </div>
 
 

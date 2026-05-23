@@ -6,7 +6,7 @@ VA - Capital Gold Rock 'n' Roll Legends (2003) Box Set, 2CD [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686977.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Neal Morse - Life & Times (2018) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686746.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Elvis Presley - In Memory Volume 3 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686630.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Play Station (приложение Audio CD к журналу Play #06'07) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686589.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Happy Acoustic (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686585.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dukes Of The Orient ‎ - Freakshow (2020) [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686583.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ V.A. - Romantic Classic Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686577.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Elvis Presley - In Memory Volume 4 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686479.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Beatles - Grand Collection (2003) Compilation [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686089.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Robin George - Dangerous Music II (1986) [FLAC|Lossless]<Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685812.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Roy Orbison - The Real... Roy Orbison (2015) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684709.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mudcrutch - 2 Альбома (2008, 2016) [FLAC|Lossless|tracks] <Rock, Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684635.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Truce - A Hope Within Chaos (2007) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684429.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Play Station (приложение Audio CD к журналу Play #09'07) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684403.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Play Station (приложение Audio CD к журналу Play #07'07) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684397.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Beth Hart - A Tribute To Led Zeppelin (2022) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682373.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Deluge Grander - The Form Of The Good (2009) [FLAC|Lossless|image + .cue]<Sympho
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682020.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fleetwood Mac - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681973.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Doors - Transmission Impossible (2019) 3CD, Remastered, Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681970.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Deluge Grander - August In The Urals (1996) [FLAC|Lossless|image + .cue]<Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681928.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Beth Hart - 37 Days (2007) 2011, Smartfeller and David Wolff [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681711.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Diezel - Classic Album Collection (2011) 5 CD [FLAC|Lossless]<Rock, Soul, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681610.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Charles Manson - Lie: The Love and Terror Cult (1968) 1987, Awareness Records [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681092.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Neil Young - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680308.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Paul McCartney And Wings - Wild Life (1971) 3CD, Super Deluxe Box Set Universal 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680222.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ It Bites - The Big Lad In The Windmill (1986) [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679403.jpg" />
 </div>
 
 

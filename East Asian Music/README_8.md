@@ -6,7 +6,7 @@ Infinity of Sound - Girls on the Moon (2016) [MP3|320 Kbps] <K-Pop, Traditional,
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549881.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ MISTY RAIN — 10 альбомов (2010-2017) Touhou Vocal /Doujin/ [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546830.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ TUMENECO — 33 альбома (2008-2019) Touhou Vocal, Instrumental /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546769.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ NoisyCell - Your Hands (2014) [MP3|320kbps]<J-Rock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545868.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ NEUTRAL | =NeutraL= [FRONTIER CREATE] - 29 альбомов (2008-2010) [FLAC|Lo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545043.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Akatsuki Records - 7 альбомов (2012-2014) [MP3|320 kbps] <Touhou, Vocal,
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542844.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crossfaith - EX_MACHINA (2018) [MP3|320 Kbps] <Metalcore, Alternative Metal, Ele
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540347.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Konpeki Studio — 11 альбомов (2016-2019) Touhou Vocal /Doujin/ [FLAC|L
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539746.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ IZMIZM — 14 альбомов (2007-2018) Touhou Instrumental /Doujin/ [FLAC|Lo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539631.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ kairo — 11 альбомов (2010-2013) Touhou Vocal /Doujin/ [FLAC|Lossless|t
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539626.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Unknown-Dimension — 15 альбомов (2009-2019) /Doujin/ [FLAC|Lossless|tr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539618.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ R-note — 37 альбомов (2012-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539494.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ ShibayanRecords — 23 альбома (2008-2019) Touhou Vocal, Instrumental /Do
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539485.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Dir En Grey - Phalaris (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539183.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Godzilla Snacks - There Be Monsters (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539178.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ fromadistance - 4 альбома (2009-2013) [FLAC|Lossless] <Touhou, Instrument
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536062.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Hate Beyond - Perpetual Pain (2003) [FLAC|Lossless|image + .cue] <Thrash, Death 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524324.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Hate Beyond - Ruthless Aggression (2018) [FLAC|Lossless|image + .cue] <Thrash, D
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523379.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Remember - Route back home (2015) [FLAC|Lossless|WEB-DL]<Ambient, Cyberpunk, Dre
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521465.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Huang Jiang Qin - 12 albums (2004-2009) [MP3|320 кб/с]<Instrumental, Ethnic, 
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514223.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ coldrain - Nonnegative (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, P
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513620.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Nemophila - Revive (U.S. Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcor
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511524.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Sojiro - Дискография /20 альбомов/ (1987 - 2009) [MP3|256,320
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510738.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Four Get Me A Nots - Astrea (2015) [OGG| 488-540 кб/с]<JPop, Pop Punk Rock>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509885.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Xiao Ping - GOD Of Guitar (2009) [MP3|160 кб/с]<Instrumental, Guitar>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509695.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Meiko Kaji - Aitsu no Suki Sona Blues (2011) [MP3|320 кб/с]<J-POP, Blues, Blu
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507451.jpg" />
 </div>
 
 

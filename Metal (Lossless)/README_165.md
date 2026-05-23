@@ -6,7 +6,7 @@ Iron Maiden - Greatest Hits (2CD) (2008) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422732.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ FireForce - March On (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421903.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Herman Frank - Loyal To None (2009) 2016 reissue [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421896.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eden's Curse - Cardinal (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421641.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chaos Divine - Africa (2012) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421503.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Inner Visions - Control The Past (2004) [APE|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421502.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Echoes of Eternity - The Forgotten Goddess (2007) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421500.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Domine - Dragonlord (Tales Of The Noble Steel) (1999) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421497.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Enslaved - Vikingligr Veldi & Hordanes Land (2004) 2CD [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421496.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Domine - Stormbringer Ruler - The Legend Of The Power Supreme (2001) Japan [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421495.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Domine - Ancient Spirit Rising (2007) Japan [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421494.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Cavalera Conspiracy - Сollection (2008-2017) 4CD [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421376.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Belphegor - Collection (1993 - 2017) 13CD [FLAC|Lossless|image + .cue] <Death, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421208.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Neurogenic - Ouroboric Stagnation (2016) [WavPack|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420797.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Raven - ExtermiNation (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420796.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Shaman - Reason (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420788.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Shaman - Origins (2010) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420786.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Shaman - RituAlive (2004) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420776.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Memoira - 3 Albums (2008-2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420774.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Shaman - Immortal (2007) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420643.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Frigoris - ...in Stille (2020) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420637.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Shaman - Ritual (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420634.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Black Mark Tribute (1997) [FLAC|Lossless|image + .cue] <Thrash Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420402.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Blackend - The Black Metal Compilation Vol. 2 (1996) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420401.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Blackend - The Black Metal Compilation Vol. 3 (1997) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420282.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Black Mark Tribute Vol. II (1998) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420279.jpg" />
 </div>
 
 

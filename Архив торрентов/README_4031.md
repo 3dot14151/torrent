@@ -6,7 +6,7 @@ Opera 93.0.4585.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187453.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YT Downloader 7.17.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187449.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adguard 7.11.2 (7.11.4104.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187445.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Simple Sticky Notes 6.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187443.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ LibreOffice 7.6.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187441.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Glarysoft Malware Hunter PRO 1.172.0.790 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187435.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NVCleanstall 1.14.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187429.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NetLimiter 5.3.3.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187427.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Viber 18.9.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187426.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Insofta Cover Commander 7.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187424.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Topaz Video AI 3.4.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187421.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Universal USB Installer 2.0.1.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187420.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CpuFrequenz 4.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187413.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Nox App Player 7.0.5.0001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187409.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ YT Downloader 9.3.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187403.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ RogueKiller Anti-Malware 15.12.1.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187399.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Listen Audiobook Player v5.1.1 (957) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187397.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Uninstall Tool 3.7.3 Build 5719 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187394.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.3 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187383.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ ProfiCAD 12.2.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187380.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ WinToUSB Technician 8.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187379.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Rufus 3.21 (Build 1947) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187374.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Office 2013-2021 C2R Install  7.4.8 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187372.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ WinToUSB Free / Pro / Technician 7.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187366.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ KMPlayer 4.2.3.4 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187365.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ SD Maid v5.6.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187364.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Total Commander v3.20 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037365.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Psiphon 3 build 160 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037348.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Revo Uninstaller Pro 5.1.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037290.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ RadioMaximus 2.31.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037284.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Aiseesoft Screen Recorder 2.7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037283.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ TapinRadio 2.15.96.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037282.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ RadioMaximus 2.31.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037280.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Revo Uninstaller Pro 5.1.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037278.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MusicBrainz Picard 2.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037275.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Process Lasso Pro 12.0.4.4 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037274.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Strawberry 1.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037272.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ darktable 4.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037268.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ FastFlix 5.1.0 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037267.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ashampoo Photo Optimizer 9.0.4.28 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037261.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Aiseesoft Video Converter Ultimate 10.6.20 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037260.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ digiKam 7.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037259.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ FileZilla Server 1.6.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037258.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ PDFsam Basic 5.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037255.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Revo Uninstaller Pro 5.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037254.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ WidsMob HDR 2.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037252.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ BluePlum Home Inventory 4 v4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037251.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ NCH WavePad Masters Edition 12.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037250.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ WiFiSpoof 3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037249.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ TunePat Amazon Video Downloader 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037248.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ EdgeView 2 v2.912 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037247.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ URL Manager Pro 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037243.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SRWare Iron 92.0.4700.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920857.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LibreOffice 5.2.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920856.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PowerArchiver 2016 16.00.67 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920815.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Advanced Renamer 3.71 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920810.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ashampoo Snap 8.0.8 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920805.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Process Lasso Pro 8.9.6.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920803.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Firefox Browser 91.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920780.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Pale Moon 29.4.0.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920778.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ USDownloader 1.3.5.9 Portable (16.01.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920775.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wise Disk Cleaner 9.42.656 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920765.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ XnViewMP 0.84 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920756.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Ashampoo Snap 9.0.5 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920750.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ pdfFactory Pro 5.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920702.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Product Key Explorer 3.9.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920669.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Punto Switcher 4.2.2 Build 1030 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920668.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Punto Switcher 4.3.4 Build 1753 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920647.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ TreeSize Professional 6.3.6.1211 RePack by Kopejkin [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920629.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mozilla Firefox ESR 45.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920628.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Orbit Downloader Portable by paskits 4.0.0.6 [multi/rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920592.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ eM Client Pro 7.2.38711.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920585.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ XYplorer 20.80.0400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920579.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ GoodSync Enterprise 10.11.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920573.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Mozilla Firefox Quantum ESR 68.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920571.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ ByClick Downloader Premium 2.3.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920555.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Cakewalk SONAR Platinum 23.1.0 Build 22 (2017.01) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920552.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ WinExt Pro 20.1 b.082 (ключ COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920551.jpg" />
 </div>
 
 

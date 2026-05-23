@@ -1,56 +1,3 @@
-###  Публикация: 1044542   (564912) от 20.08.2016
-
-Просто праздник какой-то! / Winter Break (2003) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Закончив колледж, Питер получил работу в престижной фирме на Уолл-Стрит с большими карьерными перспективами. Его родители счастливы, наконец-то оправдаются денежки, вложенные ими в образование.
-А пока Питер еще не начал «пахать» по 120 часов в неделю, трое лучших друзей уговорили его развлечься на горном курорте в Колорадо: покататься на лыжах и сноубордах, а заодно (   Читать дальше...   )Производство: США / Candlelight PicturesЖанр: Драма, КомедияРежиссер: Марни БэнэкАктеры: Майло Вентимилья, Эдди Кэй Томас, Джастин Урих, Эдди Миллс, Шон Смит, Анна Фэрис, Трего, Рэйчел Уилсон, Виктор Альфьери, Мэгги ЛосонПеревод: Многоголосый закадровый (Екатеринбург Арт)Продолжительность: 01:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D554280472C46D2FC9024852B2876F9614FED71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044642   (564896) от 20.08.2016
-
-Эдди «Орел» / Eddie The Eagle (2015) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о трамплинисте Эдди, по прозвищу «Орел». Он прославился благодаря своим неудачам, ибо на всех соревнованиях он занимал последние места.Производство: Великобритания, США, Германия / Marv Films, Saville Productions, Studio BabelsbergЖанр: драма, комедия, биография, спортРежиссер: Декстер ФлетчерАктеры: Тэрон Эджертон, Хью Джекман, Кристофер Уокен, Джо Хартли, Том Костелло, Кит Аллен, Дикон Толсон, Джек Костелло, Марк Бентон, Тим МакИннерниПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, английский, болгарский, китайский, хорватский, чешский, эстонский, греческий, иврит, венгерский, исландский, итальянский, корейский, латышский, литовский, польский, португальский, румынский, сербский, словацкий, словенский, испанский, турецкий, украинскийПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883064B409F51D4E67CBB9C7E2306DBC3E1F82D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152122   (564893) от 23.07.2017
 
 Темное прикосновение / Поцелуй мамочку на ночь / Dark Touch (2013) BDRip [H.264/1080p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564893.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564891.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564871.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564852.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564839.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564752.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564750.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564745.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564741.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564737.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564727.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2015) 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564726.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564723.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564708.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564679.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564678.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564674.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564666.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564662.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564660.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564656.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564650.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564639.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564637.jpg" />
 </div>
 
 
@@ -675,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B279763BA71F0433F1CC45D403E4755E7AF1F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530104   (564580) от 01.08.2012
+
+Поэзия / Shi / Poetry (2010) [H.264] HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564580.jpg" />
+</div>
+
+
+###  Подробнее
+
+В маленьком городе провинции Кенгидо, где протекает река Хан, живет Миджа со своим внуком-школьником. Эксцентричная и любопытная женщина очень любит заботиться о своей внешности и носит шляпы, расписанные цветами, и яркую одежду. Случайно она попадает на курсы обучения стихосложению в местном доме культуры.
+Впервые в жизни Миджа пишет стихотворение. Она ищет красоту в своем обычном окружении, на которое никогда не обращала особого внимания. Ей кажется, что теперь она наконец заметила то, что раньше просто видела, и приходит в восторг. Однако неожиданные события заставляют женщину осознать, что жизнь не так прекрасна, как ей представлялось.Жанр: драмаРежиссер: Ли Чан ДонАктеры: Юн Чжон Хи, Да-вит Ли, Хира Ким, Нэ Сэн Ан, Минг-Шин Парк, Ёонг-тэк КимПеревод: многоголосый закадровый (профессиональный)Язык субтитров: русский, английскийПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E8D48EC34C953D339ABECEDC15BC04E2B740CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044491   (564573) от 20.08.2016
+
+Крутые меры / Bastille Day (2016) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ловкий карманник Майкл Мэйсон привлекает внимание полиции и спецслужб, когда крадет сумку, содержащую гораздо больше, чем просто бумажник. На его след выходит дерзкий и резкий спецагент ЦРУ Шон Брайар. Вдвоем они становятся мишенью тайной преступной организации и в течение суток должны вывести злоумышленников на чистую воду.Производство: Великобритания, Франция, СШАЖанр: Боевик, ДрамаРежиссер: Джеймс УоткинсАктеры: Идрис Эльба, Ричард Мэдден, Келли Райлли, Шарлотта Ле Бон, Анатол Юсеф, Хорхе Леон Мартинес, Карл Фаррер, Хосе Гарсия, Александр Купер, Эрик Эбони и др.Перевод: Одноголосый закадровый, любительскийОзвучка: Хихикающий докторЯзык субтитров: Английский (полные, форсированые)Продолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AAA3E161137A56B98D563BF5333DA940822A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,135 +1,3 @@
-###  Публикация: 1734833   (50956) от 05.07.2024
-
-А.Ф. Никифоров, В.Б. Уваров | Специальные функции математической физики (1984) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Классические ортогональные полиномы, сферические и гипергеометрические функции, а также функции Бесселя рассматриваются с единой точки зрения как частные решения возникающего во многих задачах математической физики и квантовой механики дифференциального уравнения определенного тина. Для решений этого уравнения с помощью обобщения формулы Родрига найдено интегральное (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAC5CD41B4D84DFF674F8CFF609175657B419FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735182   (50888) от 06.07.2024
-
-А.Б. Власов | Электроника. Аналоговые элементы и узлы электронной аппаратуры (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Представлены материалы, связанные с проблемами строения, принципами работы аналоговых элементов и узлов разнообразной электронной аппаратуры. Включены начальные сведения о силовой преобразовательной технике, в которой используются узлы аналоговой электроники.
-Для учащихся технических специальностей вузов, колледжей, в учебных планах которых предусмотрено изучение (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E72E810906D090570751A125766A67AB4122878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735138   (50879) от 06.07.2024
-
-В.Г. Захахатнов, В.М. Попов, В.А. Афонькина | Технические средства автоматизации (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит материал, предназначенный для первичного ознакомления с техническими средствами автоматизации, такими как датчики, регулирующие и исполнительные устройства. В пособии изложены физические принципы работы чувствительных элементов датчиков (сенсоров) и общие вопросы их применения. Рассматриваются принципы работы исполнительных механизмов и регуляторов. (   Читать дальше...   )Жанр: Электроника
-b]Формат:Издательство: ЛаньКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF15F662911844641F6D8D7E17D393E610C9F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735287   (50775) от 07.07.2024
-
-Е.А. Рубцов, О.М. Шикавко | Авиационные радиоэлектронные системы и комплексы и основы их применения (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Приведены основные характеристики бортовых радиоэлектронных систем и комплексов: радиовысотомеров, самолетных ответчиков систем вторичной радиолокации, бортовых радиолокационных станций, бортовых систем предупреждения близости земли, бортового навигационно-посадочного оборудования, доплеровских измерителей скорости и угла сноса, спутниковых навигационных систем, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289626737EE1FF7F88C8C583716D26BDEE3B4351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735475   (50689) от 08.07.2024
-
-J.W. Rohen, C. Yokochi | Anatomy: A Photographic Atlas. Еighth edition (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Featuring outstanding full-color photographs of actual cadaver dissections with accompanying schematic drawings and diagnostic images, this proven Atlas depicts anatomic structures more realistically than illustrations in traditional atlases. Chapters are organized by region in the order of a typical dissection with each chapter presenting topographical anatomical (   Читать дальше...   )Жанр: учебное пособие, атласЯзык: английскийИздательство: Wolters KluwerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88420B462F1436CF8E2EBC1DB8C1C721FAC3C4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735549   (50643) от 08.07.2024
 
 В.О. Ключевский | Сказания иностранцев о Московском государстве [3 книги] (1866, 1916, 1918) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50643.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50595.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50593.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50590.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50574.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50555.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50549.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50542.jpg" />
 </div>
 
 
@@ -348,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50458.jpg" />
 </div>
 
 
@@ -374,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50434.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50406.jpg" />
 </div>
 
 
@@ -427,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50385.jpg" />
 </div>
 
 
@@ -453,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50350.jpg" />
 </div>
 
 
@@ -479,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50334.jpg" />
 </div>
 
 
@@ -506,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50333.jpg" />
 </div>
 
 
@@ -532,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50293.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50263.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50245.jpg" />
 </div>
 
 
@@ -615,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50061.jpg" />
 </div>
 
 
@@ -641,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50043.jpg" />
 </div>
 
 
@@ -668,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50028.jpg" />
 </div>
 
 
@@ -679,6 +547,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E41CD02CC45D9CF06517B9A6382E1CF23F3DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736817   (50010) от 14.07.2024
+
+В. М. Кульчицкий | Кодекс чести русского офицера или Советы молодому офицеру (3-е изд.) (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарное подарочное мини-издание настоящего «русского бусидо», написанного ротмистром Кульчицким в 1904 году.
+
+Выпуск приурочен к годовщине Первой мировой войны 1914–1918 года и состоит наполовину из текста, наполовину из фотографий забытых русских героев с небольшими биографическими справками, подготовленными Кириллом Каминцем.Жанр: История, Военное делоИздательство: Черная СотняФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A558BC5DE59D23BCEA0851D89AE76FD6B8CA2AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736818   (50009) от 14.07.2024
+
+АНО «Ветер» | Сбор (2023) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Методическое пособие инструкторам для проведения краткосрочных сборов по огневой подготовке, в специализациях: пулемёт, автомат, пистолет.
+В соответствующих разделах представлены поэтапные программы обучения личного состава, с обоснованным назначением приоритетов, последовательностей и контрольных точек.Жанр: Военное делоИздательство: ООО «Митра»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81138616DF5619729769F6B8CED30528B0A3B07A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737039   (49939) от 15.07.2024
+
+А.Ф. Филиппов | Сборник задач по дифференциальным уравнениям (1992) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит задачи по курсу дифференциальных уравнений, составленные и подобранные автором в процессе многолетней преподавательской работы в Московском государственном университете.
+Для студентов университетов и технических вузов с повышенной математической программой.Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AB40B462FC9C33AE4CAB171CD552633B80BDC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737486   (49759) от 17.07.2024
+
+К. Уокер | Рисуем фантастических героев. Ночные оборотни, морские чудовища, болотные твари, ледяные драконы (2012) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фэнтези - один из жанров, любимых всеми, кто умеет или только учится рисовать. Он позволяет дать полную волю воображению и создать яркие и загадочные миры, где обитают диковинные существа. Эта книга послужит вам хорошим практическим пособием и поможет подобрать особые инструменты и принадлежности для работы в жанре фэнтези; освоить специальные приемы и техники, необходимые (   Читать дальше...   )Жанр: Учебник, РисованиеИздательство: БертельсманнФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A942452E5D1E5B6B57EE2321EF1783E99E00073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737832   (49589) от 19.07.2024
+
+Р. Аллуш | Печень против болезней. Научите этот орган справляться с любыми заболеваниями, выводить токсины и сжигать жиры (2024) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49589.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Не можете похудеть с помощью диет и голодания? Забудьте о них навсегда! Лишний вес — это прямой результат сбоев в работе внутренних органов, среди которых печень занимает особое место. Ведь все, что мы поглощаем, проходит именно через нее. Печень не только избавляет нас от шлаков, токсинов, остатков лекарств и алкоголя, но и помогает иммунитету, регулирует сахар (   Читать дальше...   )Жанр: МедицинаИздательство: БомбораФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144907E4F31BEC010053DF46B52536908307C3FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

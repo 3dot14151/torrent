@@ -1,83 +1,3 @@
-###  Публикация: 1771557   (31667) от 07.01.2025
-
-Иван Тайга | Земля Тунгусского метеорита. Крысогон и Ко.  (Книга 1). Янтарь. Вирус бессмертия (2024) [MP3, Роман Ефимов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вот это попал. Мало того, что очутился на параллельной Земле, непонятно где, да еще окружающие постоянно троллят, хохмят и дружески подкалывают. А еще какой-то странный своенравный питомец привязался. Параллельная Земля возникшая из-за Тунгусского метеорита, слышали о таком? В 1908 году в районе Подкаменной Тунгусски в землю врезался неопознанный объект, но ни кратера (   Читать дальше...   )Жанр: Постапокалипсис, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 09:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A7E5218D71C04979745985266156A00C144B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771934   (31623) от 08.01.2025
-
-Александр Прозоров, Алексей Живой | Легион (Книги 2-5) (2024) [MP3, Сергей Гладков и др.]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-2. Не колеблясь, Ганнибал бросает свои войска в поход на Рим. Вторая Пуническая война началась. Федор Чайка и Леха Ларин, морские пехотинцы из России, занесенные в эту эпоху волею судьбы, отвоевывают себе место под солнцем в новом для них мире. Один среди солдат Карфагена, другой среди скифских воинов.
-
-Очутившись после морского сражения с римскими кораблями на испанском (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыИздательство: ЛитРес: чтец,  АвторПродолжительность: 51:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47780BE64FFBC6E2C94965105D8B26CED326DBD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771952   (31596) от 08.01.2025
-
-Ascold Flow | Вторжение (Книга 3). Академия магоубийц-3 (2024) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Они идут. Они грядут.Но они не знают, против кого им предстоит вести битву. Иван теперь не один. Иван теперь не никому неизвестный сирота. Он воин. Он маг. Он убийца. И ему есть что терять. А подобные риски – недопустимы. А значит, бойся, враг – тебе не скрыться от возмездия.Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 07:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808932726AA97B2B0DCF8B59332E38E4F016CD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771909   (31559) от 08.01.2025
 
 Алекс Ключевской (Лёха) | РОС: Граф Рысев (Книга 6) (2024) [MP3, Игорь Демидов]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31559.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31557.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31555.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31550.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31537.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31519.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31506.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31487.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31482.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31480.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31469.jpg" />
 </div>
 
 
@@ -377,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31397.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31376.jpg" />
 </div>
 
 
@@ -432,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31367.jpg" />
 </div>
 
 
@@ -461,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31366.jpg" />
 </div>
 
 
@@ -488,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31358.jpg" />
 </div>
 
 
@@ -514,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31175.jpg" />
 </div>
 
 
@@ -540,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31170.jpg" />
 </div>
 
 
@@ -566,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31166.jpg" />
 </div>
 
 
@@ -592,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31160.jpg" />
 </div>
 
 
@@ -620,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31152.jpg" />
 </div>
 
 
@@ -646,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31147.jpg" />
 </div>
 
 
@@ -675,7 +595,7 @@ Ascold Flow | Граф Берестьев (Книга 1). Законы Рода 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31063.jpg" />
 </div>
 
 
@@ -686,6 +606,88 @@ Ascold Flow | Граф Берестьев (Книга 1). Законы Рода 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA12605CFE731EDDDD4A3D14708D442165C7DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773065   (31040) от 13.01.2025
+
+Андрей Шляхов | Зеркало памяти. Фаина Раневская. Я – выкидыш Станиславского (2020) [MP3, Игорь Пронин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зеркало памяти.
+Фаина Георгиевна (Григорьевна) Раневская (1896–1984) – советская актриса театра и кино, народная артистка СССР (1961), трижды лауреат Сталинской премии (1949, 1951, 1951).
+«Чтобы получить признание – надо, даже необходимо, умереть» – говорила Фаина Георгиевна Раневская. Надо, но не ей. Она никогда не стеснялась в выражениях. Остроумие (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 12:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D556CD61368D6CFF59714E608B668B3FBA0089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773060   (31038) от 13.01.2025
+
+Евгений Леонов | Зеркало памяти. Письма сыну (2021) [MP3, Семён Янишевский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зеркало памяти.
+При упоминании имени Евгения Павловича Леонова (1926–1994) перед глазами сразу появляется его доброе, улыбающееся лицо и возникают герои, которых он сыграл в фильмах «Полосатый рейс», «Зигзаг удачи», «Белорусский вокзал», «Старший сын», «Джентльмены удачи», «Обыкновенное чудо», «Осенний марафон», «Кин-дза-дза» и других.
+Необычайно весёлый, (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 07:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A8A0CCC4A63286DD4AA7F1A58B9ACFAA1F5B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773096   (31035) от 13.01.2025
+
+Алекс Ключевской (Лёха) | РОС: Граф Рысев (Книга 7) (2024) [MP3, Игорь Демидов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бал завершился. Пора Жене Рысеву заканчивать дела в столице и возвращаться в Академию.Жанр: Бояръ-Аниме, Попаданцы, Боевое фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 08:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBE2502ACD22E98A37BA2D88E311E842A6D2EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

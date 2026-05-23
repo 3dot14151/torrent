@@ -6,7 +6,7 @@ Rename Expert 5.29.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241494.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nevercenter CameraBag Photo 2022.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241489.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Text Analyzer Pro 7.3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241484.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ QR Factory 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241483.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Omni Toolbox 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241481.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WPS Office (Kingsoft Office) v17.5.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241479.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe After Effects 2022 22.3.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241477.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Screegle - Clean Screen Sharing 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241469.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Scrutiny 9 v9.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241451.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ USDownloader 1.3.5.9 Portable (15.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241450.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Omni Recover 3 v3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241445.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Xliff Editor 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241443.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Uplifting Only Top: 15 March (2017) [FLAC|Lossless|WEB|tracks] <Uplifting T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241442.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Topaz Video AI 3.2.0 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241437.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ KCNcrew Pack 03-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241434.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ AnyMP4 Mac Blu-ray Player 6.3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241427.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.7 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241426.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Icecream Screen Recorder PRO 7.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241421.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Paste 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241414.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Zoner Photo Studio X19.2303.2.445 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241407.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ GeoGebra 6.0.772.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241400.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Photo Image Editor Pixelstyle 3.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241395.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Windows Update Viewer 0.5.8.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241394.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ HitPaw Watermark Remover 1.4.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241393.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ FireAlpaca 2.10.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241390.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Capture One 23 Pro 16.2.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241381.jpg" />
 </div>
 
 

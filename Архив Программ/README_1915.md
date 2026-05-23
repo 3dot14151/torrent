@@ -6,7 +6,7 @@ IObit Driver Booster Pro 3.1.1.457 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157935.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wondershare Filmora 10.0.10.20 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157934.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ummy Video Downloader 1.5.0.4 RePack (& Portable) by Killer000 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Gigapixel AI 5.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157902.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Privacy Eraser Free 4.57.5 Build 3336 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157850.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CrystalDiskInfo 8.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157805.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WindowsPlayer 3.5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157777.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Animate CC 2017 (v16.0.1) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157756.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Q-Dir 10.4.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157752.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157742.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Revo Uninstaller Pro 3.1.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157741.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ R-Wipe & Clean 20.0.2340 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157720.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Cumulative Update KB3213522 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157718.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Calibre 5.34.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157707.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ K-Lite Codec Pack 12.7.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157648.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CorelDRAW Technical Suite 2020 22.2.0.532 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157616.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ IrfanView 4.44 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157593.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Wise Care 365 Pro 2.14.164 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_157591.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 19.12.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157579.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ GeoGebra 6.0.811.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157577.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ HDCleaner 2.041 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157576.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.1 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157573.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Visual Studio 2019 Community 16.3.10 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157563.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Slimjet 17.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157557.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Aiseesoft Video Converter Ultimate 10.6.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157546.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Zoner Photo Studio X 19.2309.2.506 Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157520.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Duke Ellington And His Orchestra - Such Sweet Thunder (1957) 1991, Columbia[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432854.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Janet Klein And Her Parlor Boys - Oh! (2006) Not On Label[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432703.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Grassella Oliphant Quartette - The Grass Roots (1965) Remaster, 2013, Warner
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432699.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Joanna Connor - Big Girl Blues (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432523.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Larry Miller - Larry Miller (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432384.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Made in Cuba (2000) 2CD [WavPack|Lossless|image + .cue] <Latin, Afro-Cuban 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432260.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Evan Christopher - The Remembering Song (2010) Arbors Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431992.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ New York Jazz Quartet - Surge (1977) 1992, Enja Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431990.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Karel Roessingh Trio - Cat Fud (1995) Self-Released [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431986.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Joe Gordon - Social Call (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431983.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431982.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431979.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nat King Cole - Spotlight on Nat King Cole (1944 - 1960) 1995, Capitol Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431933.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Louis Armstrong - Highlights from His Decca Years (1924 - 1958) 1994, 2CD, GRP [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431931.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431926.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431909.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431908.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jaco Pastorius, Kenwood Dennard, Hiram Bullock - PDB (1989) Live / DIW Records /
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_431869.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Australian Jazz Quintet - At The Varsity Drag (1956) /2014, Solid Records/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431865.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Omar Sosa - A New Life (Solo Piano) (2003) [FLAC|image+.cue]<Afro-Cuban Jazz, La
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431861.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Omara Portuondo - Magia Negra The Beginning (2014) [FLAC|tracks|WEB-DL]<Vocal, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431850.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Omar Sosa - Eggun (2013) [FLAC|Lossless]<World Fusion, Contemporary Jazz, Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431848.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Angelo Debarre, Serge Camps, Frank Anastasio - Gypsy Guitars (1989) Hot Club Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431844.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_431795.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Al Jarreau - Tomorrow Today (1999) Verve Music [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431775.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Omar Hakim - Rhythm Deep (1989) [FLAC|tracks+cue]<Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431745.jpg" />
 </div>
 
 

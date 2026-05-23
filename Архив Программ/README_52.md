@@ -6,7 +6,7 @@ Glary Disk Cleaner 5.0.1.288 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035361.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sumatra PDF 3.5.15336 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035360.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ RJ TextEd 15.82.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035359.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AOMEI Backupper Pro 6.4.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035351.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Lively Wallpaper 1.1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035343.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Symantec Endpoint Protection 14.3 RU1 (refresh) (14.3.3385.1000) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035342.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Glary Utilities Pro 5.202.0.231 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035333.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ R-Drive Image Technician 7.1 Build 7102 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035331.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DesktopOK 10.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035330.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NetLimiter 5.2.2.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035327.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Glary Tracks Eraser 5.0.1.253 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035324.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ EZ CD Audio Converter 10.3.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035323.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Fort Firewall 3.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035322.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7102 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035319.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ThunderSoft Video to GIF Converter 4.2.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035286.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VueScan Pro 9.7.99 + OCR Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035276.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ISO Workshop 11.9 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035270.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Glarysoft Malware Hunter PRO 1.163.0.780 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035267.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Notepad++ 8.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035264.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Absolute Uninstaller 5.3.1.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035261.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ MEmu 8.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035258.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ StartAllBack 3.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035254.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Acronis True Image WD Edition 25.0.1.39230 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035249.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ JRiver Media Center 27.0.57 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035185.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft Visual Studio 2019 Community 16.8.3 (Offline Cache, Unofficial) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035177.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Visual Studio 2019 Professional 16.8.3 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035171.jpg" />
 </div>
 
 

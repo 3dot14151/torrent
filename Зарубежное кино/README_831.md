@@ -1,56 +1,3 @@
-###  Публикация: 510069   (671878) от 13.06.2012
-
-Альфа Дог / Alpha Dog (2006) HD-DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Одно преступление. 3 дня. 38 свидетелей. Фильм основан на реальных событиях. Для подростков элитных районов Лос-Анджелеса, у которых слишком много времени и слишком много денег, унылые дни тянутся один за другим. Они развлекаются тем, что играют в головорезов и поклоняются рэпу, видеоиграм и кинофильмам. Когда не несешь ни за что ответственности, случиться может все что угодно. Наркоторговец Шон Майклс, более известный под кличкой Джесси Джеймс Голливуд, — самый молодой преступник, оказавшийся у ФБР в поискном списке номер один. Одно неправильно принятое решение, роковая ошибка, неудачный ход, и жизнь преуспевающего драг-диллера летит под откос. По законам круговой поруки один за другим гибнут все его друзья. Менее чем за сутки Шон становится легендой криминального мира.Жанр: Драма, криминал, биографияРежиссер: Ник КассаветисАктеры: Брюс Уиллис, Джастин Тимберлэйк, Шэрон Стоун, Кортни Кокс, Эмиль Хирш, Антон Ельчин, Шон Хэтоси, Бен Фостер, Доминик Суэйн, Фернандо Варгас, Пол Йоханссон, Оливия Уайлд, Лукас Хаас, Хезер Уолкуист, Аманда Сейфрид, Винсент Картайзер, Гарри Дин Стэнтон, Крис Маркетт, Дэвид ТорнтонПеревод: ДублированныйПродолжительность: 01:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B9CA102DDEBC50A2AFE3F40A0518CDC971575D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510123   (671874) от 13.06.2012
-
-Ультиматум Борна / The Bourne Ultimatum (2007) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Он хотел одного — исчезнуть. Вместо этого за Борном теперь охотятся люди, которые сделали его таким, какой он есть. Он потерял память и человека, которого он любил. Но его не удается сдержать даже новому поколению профессиональных убийц. У него только одна цель: вернуться к началу и узнать кем он был, Джейсон Борн.
-Он мечется от Москвы к Парижу, через Мадрид и Лондон (   Читать дальше...   )Производство: ГерманияЖанр: Боевик, Триллер, КриминалРежиссер: Пол ГринграссАктеры: Мэтт Дэймон, Джулия Стайлз, Дэвид Стрэтэйрн, Скотт Гленн, Пэдди Консидайн, Эдгар Рамирез, Альберт Финни, Джоан Аллен, Том Гэллоп, Кори Джонсон, Даниэль Брюль, Джои Анса, Колин СтинтонПеревод: Дублированный, Двухголосый (Гланц и Королёва), Одноголосый (Гаврилов, Живов)Субтитры: Русские, АнглийскиеПродолжительность: 01:55:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510023   (671871) от 13.06.2012
 
 Проповедник с пулеметом / Machine Gun Preacher (2011) BDRip [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671871.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671842.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671823.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671785.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671773.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671724.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671723.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_671679.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671548.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_671535.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_671445.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_671346.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671345.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671233.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671231.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671223.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671206.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671182.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671105.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671103.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_671082.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670956.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670928.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670894.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13CF31FD3D749596AFF3E4167C2C34944D76E0BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796564   (670890) от 21.06.2014
+
+Варшавская битва 1920 года / 1920 Bitwa Warszawska (2011) BDRip [H.264/1080p] 3D [Вертикальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670890.jpg" />
+</div>
+
+
+###  Подробнее
+
+О знаменитом сражении, в котором конная армия красного командарма Тухачевского была разгромлена войсками независимой буржуазной Польши под командованием ПилсудскогоПроизводство: ПольшаЖанр: Мюзикл, Драма, Мелодрама, Военный, ИсторияРежиссер: Ежи ГоффманАктеры: Борис Шиц,  Наташа Урбаньска,  Даниэль Ольбрыхский,  Адам Ференцы,  Иржи Бончак,  Богуслав Линда,  Эва Висьневска,  Александр Домогаров,  Ольга Кабо,  Адам СтшелецкийПеревод: Одноголосый закадровый (Сергей Синица)Субтитры: ОтсутствуютПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CD8BFB92C6213762B3A701905F2B3602FC5117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798452   (670885) от 21.06.2014
+
+Вулкан страстей / Eyjafjallajokull (2013) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда исландский вулкан с заковыристым названием начал извергать целые тучи пепла, воздушное движение над всей Европой оказалось парализованным. Столкнувшись с непредвиденными трудностями и желая во что бы то ни стало попасть на свадьбу дочери в Греции, разведенной паре придется совершить путешествие на всевозможных видах транспорта. Ситуация осложняется тем, что (   Читать дальше...   )Производство: Франция, БельгияЖанр: Комедия, ПриключенияРежиссер: Александр Коффре / Alexandre CoffreАктеры: Валери Боннетон, Дани Бун, Дени Меноше, Альберт Дельпи, Беранжер МакНис, Малик Бенталха, Констанс Долле, Мириам Азенкот, Арно Анриет, Ян СортонПеревод: Дублированный (Лицензия R5)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6B9B570E02EEA78FA9583BD19B7266B0DBECF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

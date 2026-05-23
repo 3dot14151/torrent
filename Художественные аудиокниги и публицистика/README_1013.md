@@ -1,84 +1,3 @@
-###  Публикация: 1729758   (53563) от 12.06.2024
-
-Юрий Мироненко | Адаптация (Книга 1). Семя (2024) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-У меня была карьера успешного программиста, а променял её на мордобой. У меня была очаровательная, сексуальная подруга, и её променял на многоножку (только друзья!). Моё существование текло неспешно и размеренно, я лишь иногда лениво подгребал в нужном направлении. Сейчас же живу так, что еле хватает сил удерживать за гриву крокодило-льва, что бешено несёт меня через (   Читать дальше...   )Жанр: Боевое фэнтезиИздательство: Аудио от автора, АвторПродолжительность: 08:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAF894F51C7BD63EF53EF695E58D430B2DD33BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379375   (53539) от 12.06.2024
-
-Александр Блок | Незнакомка (1977) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль Анатолия Эфроса по одноименной лирической драме А.Блока "Незнакомка". Композитор - Никита Богословский. Спектакль артистов Московского драматического театра на Малой Бронной 1977 года.Жанр: Драма, радиоспектакльВ ролях: Анатолий Эфрос и др.Продолжительность: 01:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66FB1C500D06F22153978E2E8D0DBAAC5C05EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729745   (53520) от 12.06.2024
-
-Роман Путилов | Оболочка цвета маренго (Книга 1). Постовой (2024) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Первая аудиокнига в серии «Оболочка цвета маренго»!
-
-Как главный герой воспользуется шансом снова прожить свою юность?
-Грядёт закат великой страны…(   Читать дальше...   )Жанр: Альтернативная история, Историческая фантастикаИздательство: Aудиокнига (АСТ)Продолжительность: 09:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AEF9F3021E2325585F0D1D2CDB7A585D3B8075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729626   (53510) от 12.06.2024
 
 Дмитрий Ромов | Цеховик (Книга 3). Вершина мира (2024) [MP3, Григорий Андрианов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53510.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53507.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53495.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53471.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53458.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53442.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53439.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53432.jpg" />
 </div>
 
 
@@ -297,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53431.jpg" />
 </div>
 
 
@@ -323,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53426.jpg" />
 </div>
 
 
@@ -349,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53423.jpg" />
 </div>
 
 
@@ -375,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53422.jpg" />
 </div>
 
 
@@ -401,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53414.jpg" />
 </div>
 
 
@@ -427,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53411.jpg" />
 </div>
 
 
@@ -453,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53408.jpg" />
 </div>
 
 
@@ -479,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53403.jpg" />
 </div>
 
 
@@ -505,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53401.jpg" />
 </div>
 
 
@@ -531,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53395.jpg" />
 </div>
 
 
@@ -559,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53356.jpg" />
 </div>
 
 
@@ -585,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53354.jpg" />
 </div>
 
 
@@ -611,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53326.jpg" />
 </div>
 
 
@@ -637,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53322.jpg" />
 </div>
 
 
@@ -663,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53319.jpg" />
 </div>
 
 
@@ -674,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C315569A08C6BC6A42D2DC6A182902D93D172A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729991   (53305) от 14.06.2024
+
+Александр Афанасьев | Бремя империи (Книга 3). Сожженные мосты (Том 7). На краю бездны (2024) [MP3, Сергей Ларионов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53305.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате двойной игры, которую затеял шеф британской разведки Джеффри Ровен, могли погибнуть миллионы. Но финал ее для старого лиса стал совершенно неожиданным и трагичным. Именно Англия поддерживала безудержный фанатизм исламских экстремистов, стремящихся к созданию всемирного Халифата и заливших кровью врагов Персию. Подстрекаемая британцами, полыхнула пожаром (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 14:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E73448C482CF5262917AEF156FEBFA9B94D1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729987   (53298) от 14.06.2024
+
+Александр Афанасьев | Бремя империи (Книга 3). Сожженные мосты (Том 6). В огне (2024) [MP3, Сергей Ларионов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53298.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой реальности Российская Империя была могущественной и богатейшей страной. Но так же, как в нашем мире, ее враги ни на секунду не ослабляли подрывную деятельность против нее. Бессмысленный мятеж в Польше, чудовищное восстание исламистов в Персии, залившее кровью всю эту древнюю страну, – происходили при их вмешательстве и поддержке. Цель фанатиков – установить (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 13:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F40D71883F68F7DACC014C0E249EF65D6A3B37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730065   (53293) от 14.06.2024
+
+Тана Френч | Кел Хупер (Книга 2). Охотник (2024) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой ирландский детектив на лето — новый роман о тихом омуте маленькой деревни. Напряжение натянутой струны и перехватывающий дыхание саспенс — долгожданная новинка от королевы ирландского детектива! В продолжении «Искателя» Тана Френч возвращает нас в прекрасную и таинственную глубинку Западной Ирландии. Бывший детектив из Чикаго Кэл Купер бросил все и переехал (   Читать дальше...   )Жанр: детектив, триллерИздательство: ВИМБОПродолжительность: 18:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB15743957ACED46CFDD871625808BE9FDBB6485
 ```
 
 https://mybot314.ru/tekegram_catalog/

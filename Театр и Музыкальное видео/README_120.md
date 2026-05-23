@@ -1,117 +1,3 @@
-###  Публикация: 1662273   (188038) от 17.09.2023
-
-Квартирник у Маргулиса. «Лётная школа» (17.09.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-«Лётная школа» — это не просто группа, сочетающая в себе остроту поэзии нового времени с рокерским драйвом, но и воспитанники Академии современной музыки Александра Белова и Ольги Кормухиной. Автор всех песен «Лётной школы» — фронтмен коллектива Дмитрий Вагин00:00:05 Лётная школа
-00:04:48 Маленький принц
-00:09:55 Электросталь
-00:15:33 Капитан(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: РокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B216750EB91A3FF6784EEFC8B2190626EB3065C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663927   (186202) от 24.09.2023
-
-Квартирник у Маргулиса. «Калинов мост» (24.09.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-«Калинов мост» — советская и российская рок-группа из Новосибирска. Основана в середине восьмидесятых Дмитрием Ревякиным. Вот уже более 35 лет группа находится в прекрасной творческой форме. Стиль группы довольно самобытен и узнаваем — на протяжении многих лет он менялся00:00:08 Азиатская
-00:07:49 Четыре стороны
-00:15:07 Мед
-00:20:44 Камушек(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Фолк-рок, арт-рок, блюз-рокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553E760D8C23CD6A6CBA0CFD11180703A241F8F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427409   (183057) от 28.11.2020
-
-T.Rex - Wembley Empire Pool (18th March 1972, Evening Concert) (2020) WEB-DLRip [H.264/720p-LQ] [PR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-В этом году T. Rex были включены в Зал славы рок-н-ролла. Отметить это событие можно просмотром концерта легендарного коллектива на площадке Wembley Empire Pool 18 марта 1972 года. T.Rex отыграл два аншлаговых концерта в Empire Pool на Уэмбли (вместимость 10 000 человек на шоу). Они были лишь второй группой, которая играла там - первой из них была Led Zeppelin в (   Читать дальше...   )01. Chariot Choogle
-02. Cadillac
-03. Jeepster
-04. Baby Strange(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F5DC791493A10E8115B3BE17EB2B0C7AF3C99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445550   (182168) от 24.11.2022
-
-Эзоп (1981) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Гильерме Фигейредо "Лиса и виноград". История о греческом рабе Эзопе, подарившем мировой литературе свои гениальные произведения и о его глупом хозяине, обладающим деньгами и властью, но лишенном доброты и порядочности.
-Философ Ксанф возвращается домой из путешествия. По дороге он нашёл уродливого человека по имени Эзоп с кольцом шее. Эзоп становится (   Читать дальше...   )Производство: СССР, ЛентелефильмЖанр: драма, история, телеспектакльРежиссер: Олег РябоконьАктеры: Александр Калягин, Олег Табаков, Любовь Полищук, Валентин Гафт, Наталья Каресли, Юрий Мальцев, Владислав ПазиСубтитры: отсутствуютПродолжительность: 01:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACAEE91896C585BA1E4B01DDF90928D15A85694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427730   (182145) от 29.11.2020
 
 Квартирник НТВ у Маргулиса. Группа Отава Ё (28.11.2020) WEBRip [H.264/1080p-LQ]
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182145.jpg" />
 </div>
 
 
@@ -146,7 +32,7 @@ Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182012.jpg" />
 </div>
 
 
@@ -177,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181307.jpg" />
 </div>
 
 
@@ -206,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180393.jpg" />
 </div>
 
 
@@ -235,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179238.jpg" />
 </div>
 
 
@@ -262,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178058.jpg" />
 </div>
 
 
@@ -291,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176707.jpg" />
 </div>
 
 
@@ -321,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176685.jpg" />
 </div>
 
 
@@ -347,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176070.jpg" />
 </div>
 
 
@@ -374,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176062.jpg" />
 </div>
 
 
@@ -401,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175818.jpg" />
 </div>
 
 
@@ -427,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175293.jpg" />
 </div>
 
 
@@ -456,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175268.jpg" />
 </div>
 
 
@@ -485,7 +371,7 @@ Metallica: Fan Can Six - Live in Copenhagen (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174924.jpg" />
 </div>
 
 
@@ -511,7 +397,7 @@ Korn: Live at Montreux 2004 (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174368.jpg" />
 </div>
 
 
@@ -538,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173634.jpg" />
 </div>
 
 
@@ -568,7 +454,7 @@ SHAMAN – «До самого неба» (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173349.jpg" />
 </div>
 
 
@@ -595,7 +481,7 @@ NO/НЕТ – «Не со мной» (ЧАЙФ Cover) 2022 [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173177.jpg" />
 </div>
 
 
@@ -622,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172964.jpg" />
 </div>
 
 
@@ -651,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171713.jpg" />
 </div>
 
 
@@ -680,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171282.jpg" />
 </div>
 
 
@@ -710,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169851.jpg" />
 </div>
 
 
@@ -724,6 +610,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B1409A8EE8DE863CC51733E135B149910035432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344559   (169627) от 11.12.2019
+
+The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два исторических шоу The Cure в 2018 году в честь их 40-летия.
+Первый фильм «CURÆTION-25: From There To Here | From Here To There» - был запечатлен на десятом и последнем вечере 25-го фестиваля Meltdown (куратор вокалист Роберт Смит) в лондонском Royal Festival Hall в июне 2018 года. Группа исполнила песню с каждого из своих 13 студийных альбомов с новыми и (   Читать дальше...   )Жанр: New Wave, Indie RockПеревод: Не требуетсяПродолжительность: 02:24:12 + 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343545   (169408) от 11.12.2019
+
+Сборник клипов (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за декабрь 201901_C-BooL - Silesia
+02_Haart feat. Люся Чеботина, Palagin - Испорть мне ночь
+03_Lindsey Stirling - We Three Gentlemen (Medley)
+04_Kid Ink - Rich(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9F2B7D71C480C0AD1ECC397D5714D87717BF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672613   (167858) от 29.10.2023
+
+Квартирник у Маргулиса. Эрика Лундмоен (28.10.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт российской исполнительницы норвежского происхождения Эрики Лундмоен. Разноплановая певица является своего рода феноменом на отечественной эстраде. Она наглядный пример того, что, обладая талантом и будучи трудолюбивым, можно уверенно разместиться на первых строчках хит-парадов. Ее творчество невозможно вместить в рамки одного жанра — певица использует в своей (   Читать дальше...   )00:00:05  Кариба
+00:07:04  Этна
+00:15:05  Придется молчать
+00:20:49  Репликант(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FF43290627A8F2B4B512036801000B1B1CACF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431325   (167745) от 13.12.2020
+
+Квартирник НТВ у Маргулиса. Группа SHOO (12.12.2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гостями нового выпуска «Квартирника» Евгения Маргулиса стали участники группы SHOO. Певица Шуня Мещерякова собрала коллектив в 2010 году: вот уже 10 лет их музыкальный почерк самобытен и неповторим. Сами музыканты определяют свой стиль как absolute soul, тем самым называя свою музыку такой, которая стирает границы между странами и культурами, объединяя традиции всего (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9447314D6AF93529458B18B703742221E2ED4FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

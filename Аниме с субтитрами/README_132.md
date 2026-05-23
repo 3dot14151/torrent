@@ -6,7 +6,7 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1738.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1716.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1687.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1542.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1530.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1520.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Nyaight of the Living Cat / Night of the Living Cat / Ночь живых кош
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1518.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1506.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 (2025) | �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1496.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1381.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённы�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1364.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Turkey! / Turkey! Time to Strike / Tёpки! [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1240.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Osomatsu-san (2025) | Осомацу-сан [ТВ-4] [2025, TV, 12 из 13 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1218.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Dr. Stone: Science Future | Доктор Стоун [ТВ-4] [2025, TV, 24 эп.
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1066.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ CITY the Animation | Город [2025, TV, 12 из 13] WebRip 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1048.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Mizu Zokusei no Mahou Tsukai / The Water Magician / Маг воды [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_923.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Bad Girl / Плохая девочка [2025, TV, 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_896.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Mushoku no Eiyuu: Betsu ni Skill Nanka Iranakattanda ga / Hero Without a Class: 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_821.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Silent Witch: Chinmoku no Majo no Kakushigoto / Secrets of the Silent Witch / М
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_694.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Anne Shirley | Энн Ширли [2025, TV, 24 эп.] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_693.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_669.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_664.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_434.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_414.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Game Center Shoujo to Ibunka Kouryuu / Cultural Exchange with Game Center Girl /
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_385.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_378.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stacy Sullivan - Stranger In A Dream (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686911.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Buddy Rich - Swingin' New Big Band (1966) 1995, Pacific Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686840.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Corduroy - Return Of The Fabric Four (2018) [FLAC|Lossless|tracks + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686748.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Siril Malmedal Hauge - Uncharted Territory (2019) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686642.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Memory Motel: Inside the World of Keith Richards (2019) [FLAC|Lossless|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686636.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Maynard Ferguson - Verve Jazz Masters 52 (1994) Verve Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686597.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Neal Black And The Healers - A Little Boom Boom Boom (2020) [FLAC|Lossless|image
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686580.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - I Wanna Sex You Up - R'n'B For Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686474.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ CeeBee - Hopes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686420.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dedicated Men of Zion - The Devil Don't Like It (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686165.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kenny 'Blues Boss' Wayne - Blues From Chicago To Paris (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686150.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Smooth Jazz - Sweet Love (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685998.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Duke Ellington - Rockin' in Rhythm (1958, 1959) 1989, LaserLight Digital [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685333.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Duke Ellington - 2 Great Concerts 1952/1965 (1987) Accord [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685332.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Duke Ellington - Orchestral Works (1970) 1989, MCA Classics [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685331.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Fats Navarro - Fat Girl (1946) 1989, Vogue [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685310.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Art Pepper - Tokyo Encore (1979) 1991, Disques Dreyfus [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685307.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Duke Ellington - Play 22 Original Big Band Hits (1946 - 1947) 1987, Hindsight Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685231.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685230.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685228.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685226.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Duke Ellington - The Jazz Collector Edition: Historic Recording (1989) LaserLigh
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685223.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Duke Ellington - The 1954 Los Angeles Concert (1988) GNP Crescendo Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685222.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Duke Ellington - 40 Great Jazz Performances (1990) 3CD, That's Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685221.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Duke Ellington - The Essential Duke Ellington (1990) CBS Disques SA [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685220.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Duke Ellington - The English Concert (1971) 1999, BGO Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685219.jpg" />
 </div>
 
 

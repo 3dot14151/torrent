@@ -6,7 +6,7 @@ Monty Alexander - Rass! (1974) 2014, MPS Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717070.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dale Cooper Quartet & The Dictaphones - Quatorze Pièces De Menace (2013) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716952.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dale Cooper Quartet & The Dictaphones - Astrild Astrild (2017) [FLAC|Lossless|We
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716950.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Summit Jazz Orchestra featuring Clark Terry - The Knight's Golden Trumpet (2000)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716890.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716809.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Rob Tognoni Band - Headstrong (1997) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716801.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716799.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gaslight Street - Two Years Gone (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716797.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Josh White - The Blues: Blues, Spirituals & Folk Songs (1932-1945) 2CD, 2000, Fr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716795.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Wille And The Bandits - Steal (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716789.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ W.C. Clark - 2 Альбома (1994, 1998) [FLAC|APE|Lossless|image + .cue] <Mod
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716786.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ruthie Foster - Joy Comes Back (2017) [FLAC|Lossless|image + .cue] <Blues, Gospe
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716785.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716767.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Julian Siegel Jazz Orchestra - Tales From The Jacquard (2017) 2021, Whirlwind Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716763.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Innes Sibun - Blues Transfusion (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716665.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716659.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716633.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Big George And The Business - The Alleged Album (1989) Reissue, 2005, SPM Record
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716543.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nicki Parrott - Unforgettable ~The Nat King Cole Songbook (2017) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716328.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Masabumi Kikuchi - Black Orpheus (2012) Remaster, 2016, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716215.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Uphill - Uphill (2009) [MP3|320 кб/с] <Swamp Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716213.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Art Blakey And The Jazz Messengers - In My Prime Vol. 2 (1977) Remaster, 2015, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716210.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Shirley Bassey - That's What Friends Are For (1993) Re-Recordings [APE|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716134.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tyler Dow Bryant - Born In Texas (2007) [MP3|~170 кб/с] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716132.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Tony Levin (King Crimson) & Pete Levin - Levin Brothers (2014) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715947.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Beth Hart - Front And Center (Live From New York) (2018) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715359.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ NonVisual Desktop Access (NVDA) 2023.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123127.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WizTree Enterprise 4.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123117.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4581 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123104.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Emurasoft EmEditor Professional 23.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123102.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RSS Guard 4.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123098.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ KMS Tools Portable Lite by Ratiborus 14.01.2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123026.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ KMS Tools Portable by Ratiborus Lite 13.01.2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123002.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122969.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ R-Studio Network 9.3 Build 191269 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122870.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ KMSAuto++ Portable 1.8.7 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122854.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WinToUSB Technician 8.5 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122832.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Notepad++ 8.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122829.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122828.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Total Commander 11.02 (15.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122824.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Topaz Video AI 4.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122822.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ALLPlayer 9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122821.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ DefenderKiller 11.1.2 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122818.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Topaz Photo AI 2.3.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122816.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ CrystalDiskInfo 9.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122815.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Imagine 1.3.9 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122805.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ KMPlayer 4.2.3.8 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122802.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ IObit Driver Booster Pro 11.2.0.46 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122797.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Macrorit Partition Expert 8.1.3 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122796.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ IObit Driver Booster Pro 11.2.0.46 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122795.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VidCoder 9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122788.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Draw.io 22.1.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122782.jpg" />
 </div>
 
 

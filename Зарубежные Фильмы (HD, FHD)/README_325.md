@@ -1,56 +1,3 @@
-###  Публикация: 403343   (775549) от 21.01.2019
-
-Наркоз / Awake (2007) [1080p] BDRemux
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Необычный криминальный триллер «Наркоз» местами напоминает видео-пособие по тому, как проводить операции, и что возможно чувствует при этом пациент на столе. Но только до того момента, пока не становится ясно, в чем вообще дело и почему так вышло, что главный герой лег под нож.
-Казалась бы, обыденная история, — сын (Хайден Кристенсен), мама и девушка. Все ж ясно, (   Читать дальше...   )Жанр: Триллер, Драма, Мелодрама, КриминалРежиссер: Джоби ХарольдАктеры: Хайден Кристенсен, Джессика Альба, Терренс Хауард, Лина Олин, Стивен Хинкл, Алекса Картер, Кристофер Мэгги, Кристофер МакДоналд, Сэм Робардс, Стюарт Саммерс, Ли ВонгПеревод: Профессиональный (дублированный)Формат: MPEG-4 AVC/H.264Продолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB28299028B8E5452DF1EF736464F3A3F4164B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621997   (775495) от 21.01.2019
-
-Экипаж / Flight (2012) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Опытный пилот Уип Вайтекер чудом избегает крушения самолета, и, совершив аварийную посадку, сохраняет жизни практически всех пассажиров. Уипа чествуют, как героя, но чем больше появляется подробностей о катастрофе, тем больше вопросов возникает: что же на самом деле произошло на борту самолёта…Производство: США |  ImageMovers, Paramount Pictures, Parkes/MacDonald ProductionsЖанр: ДрамаРежиссер: Роберт ЗемекисАктеры: Дензел Вашингтон, Келли Райлли, Брюс Гринвуд, Дон Чидл, Джон Гудмен, Тамара Тюни, Брайан Джерати, Мелисса Лео, Надин Веласкес, Майкл Бисли ...Перевод: Дублированный (Лицензия) + многоголосый (Omikron) + авторский одноголосый (А. Дасевич) + оригинал (английский)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (R5, Forced, Janetta-SDH, Groby, Voronine), Украинский (Full, Forced), Английский (Full, SDH)Продолжительность: 02:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1E4FEA0F49F605232F820D585C9FE40C561D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277488   (775490) от 21.01.2019
 
 Братья Систерс / The Sisters Brothers (2018) BDRip [H.264/1080p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775490.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775484.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775453.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775022.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774974.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774962.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774960.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774956.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774955.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774949.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774947.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774940.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774885.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774882.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774806.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774795.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_774738.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774733.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774724.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774701.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774696.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774210.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774082.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774076.jpg" />
 </div>
 
 
@@ -675,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18875491534D6D9EF3172A8C605BE57A84D9351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212899   (774063) от 14.03.2018
+
+Сладкий яд скорпиона / Bruna Surfistinha (2011) Blu-ray [H.264/1080p] [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка Ракель, живущая в семье среднего класса, в свои 17 лет протестует против такого образа жизни, и оставляет свою семью и обучение в традиционном колледже в Сан-Паулу, становясь девушкой по вызову. Поднабравшись "опыта", она создает свой блог в интернете и начинает описывать свои похождения. Блог за короткое время становится сверхпопулярным. Её приглашают (   Читать дальше...   )Производство: Бразилия, Damasco Filmes, Rio Filmes, TeleimageЖанр: Драма, ЭротикаРежиссер: Маркус БальдиниАктеры: Дебора Секку, Кассио Габус Мендес, Дрика Мораэс, Fabiula Nascimento, Кристина Лаго, Гута Руис, Клариссе Абужамра, Luciano Chirolli, Sergio Guize, Симона ИлиескуПеревод: Профессиональный (многоголосый закадровый, НТВ+)Субтитры: РусскиеПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B614C942EA97A569257BAEE269E1020339C6E195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277969   (774018) от 23.01.2019
+
+Человек, который убил Дон Кихота / The Man Who Killed Don Quixote (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссер Тобиас Граммет, мучаясь в Испании над очередным рекламным шедевром, в поисках вдохновения отправился в деревню, где 10 лет назад снимал свой дипломный фильм — про Дон Кихота. И нашел там исполнителя главной роли — спятившего старого сапожника, уверовавшего, что он… и есть настоящий Рыцарь печального образа! Старик принял Тоби за своего верного оруженосца (   Читать дальше...   )Производство: Испания, Бельгия, Франция, Португалия, Великобритания, Alacran Pictures, Tornasol Films, Entre Chien et LoupЖанр: Фэнтези, Драма, Комедия, ПриключенияРежиссер: Терри ГиллиамАктеры: Адам Драйвер, Джонатан Прайс, Стеллан Скарсгард, Ольга Куриленко, Жуана Рибейру, Оскар Хаенада, Джейсон Уоткинс, Серхи Лопес, Хорди Молья, Диого АндрадеПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D47435F344C2C90AFDB2EDE1159EA788A029079
 ```
 
 https://mybot314.ru/tekegram_catalog/

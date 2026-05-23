@@ -1,59 +1,3 @@
-###  Публикация: 546574   (478133) от 13.09.2012
-
-Шесть пуль / 6 Bullets (2012) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о бывшем наёмнике,
-занимавшимся розыском пропавших детей,
-которому предстоит отыскать дочь бывшего бойца смешанных единоборств.Жанр: Боевик, Триллер, КриминалРежиссер: Эрни БарбарашПродюсер: Джастин Бёрш, Брэд Кревой, Патрик Ньюэлл, ...Актеры: Жан-Клод Ван Дамм, Джо Флениган, Бьянка Бри, Анна-Луиза Плауман, Кристофер Ван Варенберг, Луис Демпси, Уриель Эмиль Поллак, Шарлотта Бомонт, Джимми ТаунсендПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850201C0B6A335F3FA19271F63D58368D0488670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546573   (478127) от 13.09.2012
-
-Желание / L'ennui (1998) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Преподаватель философии Мартин переживает острый кризис среднего возраста. Он уже давно не испытывает никаких чувств к своей жене и все чаще переживает приступы безудержной ярости. Ему крайне необходима встряска, и он получает ее, познакомившись с Сесилией. По слухам, она настолько ненасытна в любви, что это стоило жизни ее предыдущему любовнику.
-
-Роман «Скука» Альберто (   Читать дальше...   )Производство: Франция, Португалия / Canal+ (fr), Centre National de la Cinématographie (CNC), Gemini Films, Ima Films, Madragoa FilmesЖанр: Драма, Мелодрама, ЭротикаРежиссер: Седрик КанАктеры: Шарль Берлинг, Софи Гиймен, Ариель Домбаль, Роберт Крамер, Алиса Грей, Морис Антони, Том Уэдраого, Патрик Аррашкен, Мирта Капути Медейруш, Пьер ШевальеПеревод: Многоголосый закадровыйПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B895545B5301630310712FBAE05A1FBD3613CB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566763   (478076) от 31.07.2022
 
 Один выстрел / One Shot (2021) BDRemux [H.264/1080p]
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478076.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478050.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478040.jpg" />
 </div>
 
 
@@ -140,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477939.jpg" />
 </div>
 
 
@@ -169,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477936.jpg" />
 </div>
 
 
@@ -195,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477818.jpg" />
 </div>
 
 
@@ -221,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477812.jpg" />
 </div>
 
 
@@ -247,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477811.jpg" />
 </div>
 
 
@@ -275,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477735.jpg" />
 </div>
 
 
@@ -301,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477704.jpg" />
 </div>
 
 
@@ -327,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477690.jpg" />
 </div>
 
 
@@ -353,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477687.jpg" />
 </div>
 
 
@@ -379,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477685.jpg" />
 </div>
 
 
@@ -405,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477645.jpg" />
 </div>
 
 
@@ -431,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477638.jpg" />
 </div>
 
 
@@ -457,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477627.jpg" />
 </div>
 
 
@@ -483,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477580.jpg" />
 </div>
 
 
@@ -509,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477577.jpg" />
 </div>
 
 
@@ -535,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477571.jpg" />
 </div>
 
 
@@ -561,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477551.jpg" />
 </div>
 
 
@@ -587,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477549.jpg" />
 </div>
 
 
@@ -613,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477543.jpg" />
 </div>
 
 
@@ -639,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477403.jpg" />
 </div>
 
 
@@ -665,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477348.jpg" />
 </div>
 
 
@@ -676,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34ADF9A1E3A15CD5C7F9765276F6CF6BDFF5C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406241   (477347) от 02.09.2020
+
+Товарищ Ким отправляется в полет / Comrade Kim Goes Flying (2012) WEBRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцативосьмилетняя Ким Ен Мин работает на шахте и живет в северокорейской деревушке вместе с отцом и бабушкой. Она с самого детства мечтала стать воздушной акробаткой, однако после смерти матери отец убедил ее сосредоточиться на работе в шахте и забыть о своих мечтах. Однако она решила не сдаваться и доказать всем, что может летать.Производство: Бельгия, Великобритания, Корея Северная, Another Dimension of an Idea, Korea Film Export and Import, Koryo GroupЖанр: Комедия, мелодрамаРежиссер: Николас Боннер, Аня Делеман, Ким Гван ХунАктеры: Джонг-сим Хан, Чанг-гук Пак, Ли Ён-хо, Ким Сон-нам, Ан Чанг-Сун, Ри Ик-Сунг, Ким Ун-Юнг, Рю Гонг-ок, Хан Ми-Рюнг, Ким ЧхольПеревод: Многоголосый любительский (Amazing Dubbing)Субтитры: Английские - hardsub (неотключаемые)Продолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0381FD72BEF021D2DB9E01BE167FEC60501F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938984   (477269) от 20.09.2015
+
+Проси меня о чём угодно / Ask Me Anything (2014) WEB-DL [H.264/720p-LQ] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэти Кэмпенфелт берет годичный перерыв перед колледжем, чтобы найти себя. Все свои приключения и сокровенные тайны она публикует в анонимном блоге. Но в итоге из-под ее бесстрашного повествования начинают проявляться части ее мрачного прошлого…Производство: СШАЖанр: Триллер, драмаРежиссер: Эллисон БернеттАктеры: Бритт Робертсон, Джастин Лонг, Кристиан Слэйтер, Роберт Патрик, Мартин Шин, Молли Хэйгэн, Зулейха Робинсон, Кимберли Уильямс, Макс Карвер, Джиа Мантенья, Шэрон Оми, Макс Хоффман, Беатрис Розен, Кэтрин де Прюм, Лоррэйн ТуссэйнтПеревод: Любительский одноголосый (Алексей Толмачев)Продолжительность: 01:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1C3786CDD916B132AE3CA0BCE3C762A30D7E10
 ```
 
 https://mybot314.ru/tekegram_catalog/

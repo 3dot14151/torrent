@@ -6,7 +6,7 @@ The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604049.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603910.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Hillbilly Moon Explosion - The Sparky Sessions (2019) [MP3|320 Kbps] <Rockab
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603588.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Very Best of Legends II (2019) 3CD, Box Set [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603548.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Frank Zappa - Dancin' Fool (2019) (Live) [MP3|320 Kbps] <Avantgarde, Psychedelic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603084.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Cranberries - In The End (2019) [MP3|320 Kbps] <Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603064.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Boss Tweeds - Hot Rods To Hell (2019) [MP3|320 Kbps] <Rockabilly, Rock & Rol
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602656.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Ramble On (2017) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602542.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601159.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Unitopia - More Than A Dream – The Dream Complete (3CD) (2017) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600958.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Archive - Call To Arms And Angels (2022) 2CD [MP3|320 Kbps] <Progressive Rock, T
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600266.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tito & Tarantula - Lost Tarantism (2015) [MP3|320 кб/с]<Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600076.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jagannatha - 3 Albums (2016-2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599880.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599747.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Anders Osborne - American patchwork (2010) [MP3|256 kbps]<Electric Blues, Blues-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_599516.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Streetmark - 4 Albums (1976-1981) Reissue CD [MP3|320 Kbps] <Electronic, Krautro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598529.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Taal - Skymind (2003) [MP3|320 кб/с]<Art Rock/Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597438.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Blackfoot Sue - 2 Albums (1973, 1974) Reissue CD, Repertoire Records, 1995 [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596354.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Terry Reid - Bang, Bang You're Terry Reid (1968) 2000, Repertoire Records [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596065.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Glowsun - Beyond The Wall Of Time (2015) [MP3|320 кб/с]<Stoner Psychedelic Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595192.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Status Quo - The Last Night of the Electrics (2017) [MP3|320 Kbps] <Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595151.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Josie & The Outlaw - Wrong Turn (2018) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595014.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ The Last Days - When The Tomorrow Is A Grey Day (2010) [MP3|320 kbps]<Shoegaze, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594651.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Mystic Braves - Mystic Braves (2013) [MP3|320 Kbps] <60's Psychedelic Rock, Gara
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594565.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Gipsy Love - Gipsy Love (1971) Reissue, 2011, Genschman Soundroom [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593951.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Santiano - Haithabu - Im Auge des Sturms (2018) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593627.jpg" />
 </div>
 
 

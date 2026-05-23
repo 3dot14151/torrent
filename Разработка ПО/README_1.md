@@ -1,29 +1,3 @@
-###  Публикация: 1853174   (1056413) от 11.02.2026
-
-Microsoft Visual Studio 2022 Enterprise 17.14.26 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D781A6F5B841637FE8886BBB12621364759E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852923   (1056176) от 10.02.2026
 
 JetBrains GoLand 2025.3.2 (x64-arm64) Repack by IDE`a [En]
@@ -32,7 +6,7 @@ JetBrains GoLand 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056176.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Open Server Panel 6.5.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055664.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ JetBrains PyCharm Professional 2025.3.2.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055267.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ JetBrains Rider 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055266.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ JetBrains DataSpell 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055265.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ JetBrains CLion 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054409.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Microsoft Visual Studio 2022 Professional 17.14.25 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053525.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.25 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053442.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ Microsoft Visual Studio 2026 Enterprise 18.2.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053428.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ Microsoft Visual Studio 2026 Enterprise 18.2.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052482.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.24 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052480.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Microsoft Visual Studio 2026 Professional 18.2.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052479.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ JetBrains RustRover 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052390.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ JetBrains RubyMine 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052321.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ JetBrains PyCharm Professional 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052319.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ JetBrains DataGrip 2025.3.3 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051915.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Jetbrains WebStorm 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051914.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051913.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ JetBrains GoLand 2025.3.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051912.jpg" />
 </div>
 
 
@@ -535,7 +509,7 @@ JetBrains PhpStorm 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051903.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ SQL Dynamite 2.5.3.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051347.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ JetBrains DataGrip 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049995.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ Microsoft Visual Studio 2026 Enterprise 18.1.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049161.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.23 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049159.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ Microsoft Visual Studio 2026 Enterprise 18.1.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047926.jpg" />
 </div>
 
 
@@ -678,6 +652,32 @@ Visual Studio 2026 - это один из самых амбициозных ша
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16F059C1FB7E15C68709251B3D2A282D8A5B3367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841355   (1047924) от 10.12.2025
+
+Microsoft Visual Studio 2026 Professional 18.1.0 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FD4EA933CC6ACEE7D45DC82AFBFEEE889B7CC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

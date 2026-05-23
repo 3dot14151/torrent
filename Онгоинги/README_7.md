@@ -6,7 +6,7 @@ Tougen Anki | Legend of the Cursed Blood | Тёмный демон [2025, TV, 12
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_692.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_669.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_664.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_434.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_414.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kaijuu 8 Gou (2025) | Kaiju No. 8 (2025) | Кайдзю номер 8 [ТВ-2] [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_400.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Game Center Shoujo to Ibunka Kouryuu / Cultural Exchange with Game Center Girl /
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_385.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_378.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_311.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шальной �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_286.jpg" />
 </div>
 
 

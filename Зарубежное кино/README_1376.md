@@ -1,57 +1,3 @@
-###  Публикация: 1331085   (334400) от 13.10.2019
-
-Гнев / Man on Fire (2004) WEB-DLRip [H.264] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Состоятельные жители Мехико в панике: всего за шесть дней в городе пропали 24 человека! Бывшего агента ЦРУ Джона Кризи нанимают телохранителем девятилетней дочери промышленника Сэмюэля Рамоса, Питы Рамос. Поначалу Кризи с трудом терпит соседство не по годам развитой девочки.
-
-Но со временем они становятся друзьями. Кризи вновь почувствовал вкус к жизни, но все рушится, (   Читать дальше...   )Производство: США, Великобритания, Мексика, Швейцария / Fox 2000 Pictures, Regency Enterprises, New Regency PicturesЖанр: боевик, триллер, драма, криминалРежиссер: Тони СкоттАктеры: Дензел Вашингтон, Дакота Фаннинг, Кристофер Уокен, Марк Энтони, Рада Митчелл, Джанкарло Джаннини, Рейчел Тикотин, Хесус Очоа, Микки Рурк, Анджелина ПелаезПеревод: Дублированный, авторскийСубтитры: русскиеПродолжительность: 02:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5933FA71527B08A9E814BC55318EF6C88D15961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566560   (334398) от 13.10.2019
-
-Доктор Голливуд / Doc Hollywood (1991) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Судьба подложила ему свинью. Доктор Бенджи Стоун едет в Голливуд. Впереди перспективная работа пластическим хирургом в одной из местных клиник, и вдруг — авария на главной улице какого-то захолустного городка. Кто виноват? Конечно, Бенджи. Судья определяет нарушителю наказание: 32 часа принудительных работ терапевтом в местной больнице. Нормально? Доктор Голливуд (   Читать дальше...   )Производство: США / Warner BrothersЖанр: Мелодрама, комедияРежиссер: Майкл Кейтон-ДжонсАктеры: Майкл Дж. Фокс, Бриджит Фонда, Вуди Харрельсон, Дэвид Огден Стайерз, Джордж Хэмилтон, Джули Уорнер, Барнард Хьюз, Фрэнсис Стернхаген, Мел Уинклер, Робертс БлоссомПеревод: Дублированный (Варус-Видео)Язык озвучки: Русский, Английский, НемецкийСубтитры: Английские, чешские, датские, финские, немецкие, греческие, иврит, венгерские, норвежские, польские, португальские, испанские, шведские, турецкиеПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7898E2AC7A921FF419A00E105F366BA6087BD188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330050   (334395) от 13.10.2019
 
 Каратель / The Punisher (2004) BDRip [H.264/720p] [Director's Cut]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334395.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334392.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334332.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334324.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334323.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334321.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334313.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334310.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334305.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334297.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334254.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334179.jpg" />
 </div>
 
 
@@ -376,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334167.jpg" />
 </div>
 
 
@@ -402,7 +348,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) BDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334118.jpg" />
 </div>
 
 
@@ -428,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334116.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334089.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334059.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334058.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334057.jpg" />
 </div>
 
 
@@ -558,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334050.jpg" />
 </div>
 
 
@@ -584,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334043.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333946.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333829.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333826.jpg" />
 </div>
 
 
@@ -675,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83699766C255BD29C4DF5D66DAAF4415386BCCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840436   (333598) от 13.11.2014
+
+Судная ночь 2 / The Purge: Anarchy (2014) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в идеальный мир будущего, мир без преступности и войн. И только один раз в году роскошная спокойная жизнь сменяется анархией. Этой ночью дозволено все: во тьме улиц одни жаждут мести, другие ищут развлечений, остальные пытаются дожить до рассвета...Производство: США, ФранцияЖанр: Триллер, криминал, боевикРежиссер: Джеймс ДеМонакоАктеры: Фрэнк Грилло, Кармен Эджого, Зак Гилфорд, Киле Санчес, Майкл К. Уильямс, Зои Борд, Жустина Мачадо, Джон Бизли, Джек Конли, Ноэль ГульемиПеревод: Дублированный (Лицензия)Язык субтитров: Русский (Forced, full), украинский (full), английский (full, SDH, SDH-COLORED)Продолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9612EB1F2235A2D71801D327326C656EB0D7D9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840442   (333585) от 13.11.2014
+
+Судная ночь 2 / The Purge: Anarchy (2014) BDRip [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в идеальный мир будущего, мир без преступности и войн. И только один раз в году роскошная спокойная жизнь сменяется анархией. Этой ночью дозволено все: во тьме улиц одни жаждут мести, другие ищут развлечений, остальные пытаются дожить до рассвета...Производство: США, ФранцияЖанр: Триллер, криминал, боевикРежиссер: Джеймс ДеМонакоАктеры: Фрэнк Грилло, Кармен Эджого, Зак Гилфорд, Киле Санчес, Майкл К. Уильямс, Зои Борд, Жустина Мачадо, Джон Бизли, Джек Конли, Ноэль ГульемиПеревод: Дублированный (Лицензия)Язык субтитров: Русский (Forced, full), украинский (full), английский (full, SDH, SDH-COLORED)Продолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F343346CA7FA53ABBCF4D55F17DD9387097DA711
 ```
 
 https://mybot314.ru/tekegram_catalog/

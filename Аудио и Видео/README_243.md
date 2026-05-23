@@ -1,365 +1,3 @@
-###  Публикация: 1512944   (227701) от 27.11.2021
-
-VA - Melodica, Vol. 9 (2021) [AAC|~331 Kbps] <Deep House, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Compuphonic, Marques Toliver - Sunset (Tim Engelhardt Remix A) (7:10)
-02. Jurek Riegler - Muddy Waters (Original Mix) (8:10)
-03. Kadosh (IL), Yost Koen - Mindrum (Original Mix) (6:37)
-04. Alessio Pagliaroli, Jinadu - Colour My Vision (Massimiliano Pagliara Remix) (9:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6CD56E1AAA7CB372C5706ECD79438D40BE53EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512890   (227693) от 27.11.2021
-
-VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Kristian Heikkila - Toilet Romantik (Original Mix) (5:32)
-02. Animal Trainer - Yamato (Original Mix) (7:29)
-03. Kadosh, Yost Koen - Mindrum (Original Mix) (6:37)
-04. Betoko - Phantasy (Sezer Uysal's 'Afrekno' Remix) (8:04)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C090EC7BC9C34491934922B94C85EAC87AA0DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512885   (227655) от 27.11.2021
-
-VA - Chillout Adventures, Pt. 7 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-1.01. Chronos, Taff - After Twelve (10:12)
-1.02. AuroraX - Photon Dream (10:26)
-1.03. Sufi's Life - Ice and Fire (8:06)
-1.04. Merlin, Lydia - Infinity (5:35)(   Читать дальше...   )Жанр: Ambient, Chill Out, Downtempo, TranceПродолжительность: 03:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD905C1D8B5992F320B299D2E2D4BE263A0C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513017   (227647) от 27.11.2021
-
-VA - Balearic Deep-House Winter 2022 (2021) [AAC|~325 Kbps] <Deep House, Chill House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Sunshine (Original Mix) (4:42)
-02. Boris Backup - Introspector (Original Mix) (8:00)
-03. Florent Campana - Silver Haze (Original Mix) (5:12)
-04. Living Room - Brand New Day (Original Mix) (4:13)(   Читать дальше...   )Жанр: Deep House, Chill House, DowntempoПродолжительность: 03:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB65A9414715B69B8F8AF5F1A639FE016DD354B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513044   (227617) от 27.11.2021
-
-VA - Arabian Nights 2 (2020) [AAC|~329 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Syncosis - Camel's Soul (7:04)
-02. Clive Vaz, Organic Muse - Arabian Sea (6:38)
-03. Elias Fassos, RisK (Gr), Ghenwa Nemnom - Ilios (6:15)
-04. Chris Tzounas - Hikaye (5:21)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035FABA42D4D00E8F6149926BDE41D0BDC237423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268285   (227575) от 10.12.2018
-
-Маугли / Mowgli (2018) WEBRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-История о взрослении ребёнка по имени Маугли в волчьей стае в джунглях Индии. Он учится суровым законам джунглей под опекой медведя Балу и пантеры Багиры и принимает обитателей диких джунглей за своих. Всех, кроме одного: страшного тигра Шерхана. Но вскоре мальчику предстоит узнать, что в джунглях его могут поджидать куда большие опасности, чем тигр, и одна из них (   Читать дальше...   )Производство: СШАЖанр: Драма, приключенияРежиссер: Энди СеркисАктеры: Роэн Чанд, Кристиан Бэйл, Кейт Бланшетт, Бенедикт Камбербэтч, Наоми Харрис, Энди Серкис, Питер Муллан, Джек Рейнор, Эдди Марсан, Том ХолландерПеревод: Дублированный (Пифагор)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  АнглийскиеПродолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E096311262F2893CACFA56AC69E40978B226A5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965034   (227572) от 13.12.2015
-
-Выхода нет / No Escape (2015) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Семья техасского инженера Джека Двайера прилетает в неназванную азиатскую страну. Главу семейства ожидает работа в солидной инжиниринговой корпорации, новая карьера и заманчивые перспективы. Но переехавшая в поисках лучшей жизни на другой край света американская семья оказывается в огне охватившего страну военного переворота. Как далеко сможет зайти загнанный в угол (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллерРежиссер: Джон Эрик ДаудлАктеры: Оуэн Уилсон, Лэйк Белл, Пирс Броснан, Стерлинг Джеринс, Клер Джир, Thanawut Ketsaro, Чатчаваи Камонсакпитак, Сахайак Бунсанакит, Танапол Чуксрида, Нопханд БуньяйПеревод: Дублированный (IPTV)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DDE7A3049BC4BC92593CBA93D3500DF13DC47E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513014   (227527) от 27.11.2021
-
-VA - Arabian Nights (2019) [AAC|~314 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Elias Fassos, RisK (Gr) - Sunset in Ayia Napa (7:08)
-02. Stanisha - Emina (9:36)
-03. Nikos Kaponis - Gypsy Day (6:46)
-04. Arona - Shawq (9:53)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE006EA78D51F194840652567E1D7FE3ECAA7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513020   (227520) от 27.11.2021
-
-VA - Winter Chillout Lounge 2021 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream - Sweet Life (Dream Wave Mix) (4:52)
-02. Cafe Americaine - Sub Marina (Asian Timetable Mix) (5:10)
-03. Seaside Bar - Gruta Azul (Way Back Mix) (5:13)
-04. Cocogroove - Movimiento (Step by Step Mix) (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA54967BBB2C7C9DE13E89F8F0A542654BA788C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268283   (227476) от 10.12.2018
-
-Маугли / Mowgli (2018) WEBRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-История о взрослении ребёнка по имени Маугли в волчьей стае в джунглях Индии. Он учится суровым законам джунглей под опекой медведя Балу и пантеры Багиры и принимает обитателей диких джунглей за своих. Всех, кроме одного: страшного тигра Шерхана. Но вскоре мальчику предстоит узнать, что в джунглях его могут поджидать куда большие опасности, чем тигр, и одна из них (   Читать дальше...   )Производство: СШАЖанр: Драма, приключенияРежиссер: Энди СеркисАктеры: Роэн Чанд, Кристиан Бэйл, Кейт Бланшетт, Бенедикт Камбербэтч, Наоми Харрис, Энди Серкис, Питер Муллан, Джек Рейнор, Эдди Марсан, Том ХолландерПеревод: Дублированный (Пифагор)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  АнглийскиеПродолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509B4740CF1637509B43AA28CBCBE2BFD3DB3DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424496   (227462) от 17.11.2020
-
-Wham! - Japanese Singles Collection -Greatest Hits- (2020) [AAC|~322 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Wham Rap! (Enjoy What You Do) (3:32)
-02. Young Guns (Go For It!) (3:40)
-03. Club Tropicana (4:30)
-04. Bad Boys (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E68E1E1730F9AD833E730D2B504D1C9973760C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965163   (227083) от 13.12.2015
-
-Далласский клуб покупателей / Dallas Buyers Club (2013) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Реальная история Рона Вудруфа, техасского электрика, у которого в 1985 году обнаружили СПИД. Врачи отвели ему всего 30 дней, но он не пожелал смириться со смертным приговором и сумел продлить свою жизнь, принимая нетрадиционные лекарства, а затем наладил подпольный бизнес по продаже их другим больным.Производство: СШАЖанр: Драма, биографияРежиссер: Жан-Марк ВаллеАктеры: Мэттью МакКонахи, Джаред Лето, Дженнифер Гарнер, Дэнис О’Хэр, Стив Зан, Майкл О’Нил, Даллас Робертс, Гриффин Данн, Кевин О. Ранкин, Донна ДюПлантьеПеревод: Дублированный (R5)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D26B553781690EC5F7FA5D01192FB776E998C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851613   (226786) от 19.12.2014
-
-Я – начало / I Origins (2014) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Молекулярный биолог и его напарница по лаборатории делают потрясающее открытие, способное коренным образом изменить современное общество.Жанр: Фантастика, драмаРежиссер: Майк КэхиллПродюсер: Майк Кэхилл, Хантер Грэй, Алекс ОрловскийАктеры: Майкл Питт, Стивен Ян, Астрид Берже-Фрисби, Брит Марлинг, Дориен Маклоги, Чарльз В. Грэй, Джон Шиумо, Фараша Бэйлок, Ако, Кристофер СантамарияПеревод: Профессиональный (многоголосый закадровый) (iTunes Russia)Язык субтитров: Русский, АнглийскийПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C047F2E5492C6D492375E06F83A4A331B4350E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268453   (226378) от 11.12.2018
 
 Между рядами / In den Gangen (2018) BDRip [1080p] ATV [MVO]
@@ -368,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226378.jpg" />
 </div>
 
 
@@ -394,7 +32,7 @@ VA - Parvati Records 20th Anniversary (2020) [AAC|~328 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226260.jpg" />
 </div>
 
 
@@ -423,7 +61,7 @@ VA - Urban City Vibes, vol. 6 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226243.jpg" />
 </div>
 
 
@@ -452,7 +90,7 @@ VA - Urban City Vibes, vol. 4 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226225.jpg" />
 </div>
 
 
@@ -481,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226217.jpg" />
 </div>
 
 
@@ -507,7 +145,7 @@ VA - Dark Melodies, Vol. 5 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226183.jpg" />
 </div>
 
 
@@ -536,7 +174,7 @@ VA - Urban City Vibes, vol. 2 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226179.jpg" />
 </div>
 
 
@@ -565,7 +203,7 @@ VA - Polyptych Limited: Year One (2021) [AAC|~314 Kbps] <Progressive House, Melo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226160.jpg" />
 </div>
 
 
@@ -594,7 +232,7 @@ VA - Urban City Vibes, vol. 5 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226145.jpg" />
 </div>
 
 
@@ -623,7 +261,7 @@ VA - Summer Collection 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226143.jpg" />
 </div>
 
 
@@ -652,7 +290,7 @@ VA - Dark Melodies, Vol. 6 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226135.jpg" />
 </div>
 
 
@@ -681,7 +319,7 @@ VA - Urban City Vibes, vol. 1 (Urban Funk, Soul and Lounge Music) (2018) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226129.jpg" />
 </div>
 
 
@@ -710,7 +348,7 @@ Till Brönner, Bob James - On Vacation (2020) [AAC|~324 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226123.jpg" />
 </div>
 
 
@@ -724,6 +362,380 @@ Till Brönner, Bob James - On Vacation (2020) [AAC|~324 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C05FA528352473A95BE5AD530010FEF6FB9A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424795   (226095) от 18.11.2020
+
+VA - Urban City Vibes, vol. 3 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~333 Kbps] <Chillout, Lounge, Trip-hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco - Monkeys (Original Mix) (4:51)
+02. Martin Liege - Sunrise Drive (Original Mix) (4:09)
+03. Elton Dumont - All Night Long (Original Mix) (3:16)
+04. Ricky Jones - Just Be (Orginal Mix) (4:44)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1111A20F73A46D0B5AC66F09BED4A0F0B0E6F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513193   (226077) от 28.11.2021
+
+VA - We Are 3000Grad (Katzengold DJ Mix 004) (2021) [AAC|~307 Kbps] <Deep House, Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Micronaut - WidelensЖанр: Deep House, Tech HouseПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DDA004593F5C87306ED830FD7B70D9C16B8F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513203   (226069) от 28.11.2021
+
+VA - Prognoesis, Vol. 02 (2021) [AAC|~337 Kbps] <Organic House, Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.R.A.L.I - Star (6:53)
+02. Goda Brother - Return (6:54)
+03. MAAND - Lanus (8:16)
+04. Gonzalo Sacc, Franco Leonardini - Living for Today (8:28)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BACBC42F388AA1B10EF63354AC2133CD72DA3C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424806   (226068) от 18.11.2020
+
+Dabro - Юность (2020) [AAC|~301 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая луна (2:48)
+02. Она не такая (3:29)
+03. Все за одного (3:25)
+04. Почему так происходит (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7746A0F5357E8A3599B19D4254D616F570526642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424775   (226060) от 18.11.2020
+
+Fourplay - Best of Fourplay (2020 Remastered) (2020) [AAC|~360 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max-O-Man (2020 Remastered) (5:33)
+02. 101 Eastbound (2020 Remastered) (5:57)
+03. Fourplay, Take 6 - Higher Ground (2020 Remastered) (4:55)
+04. 4 Play and Pleasure (2020 Remastered) (5:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711AD2A7F3C114B049754FCB2E5E0D48EFC1D352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513286   (226051) от 28.11.2021
+
+VA - Morttagua - 5 Years, Vol. 1 (2021) [AAC|~306 Kbps] <Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morttagua, Gaby Endo - Urania (7:12)
+02. Klunsh - 239 (6:59)
+03. Morttagua - Fragarach (7:51)
+04. Rauschhaus - Magnolia (8:35)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405A6C9A4F9E9403A46F62F04BC6D06F12D2F330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513269   (226028) от 28.11.2021
+
+VA - Dark Melodies, Vol. 3 (2020) [AAC|~325 Kbps] <Progressive House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amuze - Utopia (6:01)
+02. Andy Woldman, Eleonora - Somewhere (7:40)
+03. Julio Navas, Fernando Lagreca - Natural State (6:37)
+04. Mark (IT) - Strenght (5:34)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335250F709F8FE0E09DED34657D9F9F9314B885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513263   (225991) от 28.11.2021
+
+VA - Dark Melodies, Vol. 2 (2020) [AAC|~327 Kbps] <Progressive House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Guerrieri - Lions (5:44)
+02. Tom Gatley - Arriva (Vanita Remix) (7:15)
+03. Krissky - Dillema (6:48)
+04. The Human Awakening - In the Middle of Two Brains (8:24)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6227CC91B66B9BC8A14EC7B9F704C4698F6CBBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513289   (225973) от 28.11.2021
+
+VA - Morttagua - 5 Years, Vol. 2 (2021) [AAC|~314 Kbps] <Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Motion - Requiem for a Dream (7:13)
+02. Klunsh - Auf Den Start Warten (7:08)
+03. Stylo, Kintar - Shivaya (6:13)
+04. Space Motion, Haze-M - Ariahy (7:00)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B912B8D8460D867DC9C453AE76635BBFAB909548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513202   (225965) от 28.11.2021
+
+VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Demure - Bellabony (6:44)
+02. Julian Nates - Origami (7:21)
+03. Agustin Pietrocola - Dementor (7:30)
+04. Mooh - Connected (7:03)(   Читать дальше...   )Жанр: Organic House, Progressive House, Melodic House & TechnoПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDF39B130C84DBB0787581DC31443A09F649345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513209   (225957) от 28.11.2021
+
+VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Síntese - Meridians (5:35)
+02. Eliphas - Eliphas (7:51)
+03. Morego - Swoon (5:05)
+04. Blue Bliss - Fairlight (4:40)(   Читать дальше...   )Жанр: PsyChill, PsybientПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD75DEE950A75DB736D333E44A080CE0E1819E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513270   (225950) от 28.11.2021
+
+VA - Dark Melodies, Vol. 4 (2021) [AAC|~330 Kbps] <Progressive House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Add-us - Hissing (7:50)
+02. Airbas - Winking Stars (7:44)
+03. Coherence (ES) - Venus (7:47)
+04. Farbenklang - Ametrix (8:42)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA13DD27BB692132E179B41995512FD8569A4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513292   (225944) от 28.11.2021
+
+VA - Berlin Rooftop Sessions 2k22 (2021) [AAC|~308 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kokko Vit - Auxesia (4:24)
+02. Martin Biller - Callisto Calling (6:10)
+03. Mind & Mind - Intro Hz (5:04)
+04. PARTY IN THE DARK - September (5:42)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 05:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58241409D409F9FE711915CBBC0B02B8AB93394
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Cockos REAPER 6.37 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824850.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ThunderSoft Video to GIF Converter 3.5.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824845.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BurnAware Pro 3.1.6 [Rus/Eng] [Silent Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824837.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slimjet 26.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824814.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Allavsoft Video Downloader Converter 3.22.5.7431 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824811.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Unity Pro 2018.4.21f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824802.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824800.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AIMP 5.00 Build 2335 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824739.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.5 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824733.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Internet Download Manager 6.39 Build 3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824731.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Chromium 81.0.4044.138 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824705.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IObit Uninstaller Pro 9.5.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824699.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Brave Browser 1.8.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824696.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ RadioMaximus 2.27.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824695.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Wise Program Uninstaller 2.3.8.142 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824689.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe components: Flash Player 21.0.0.213 | AIR 21.0.0.198 | Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824623.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Google Chrome 50.0.2661.75 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824622.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Nox App Player 3.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824617.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Twonky Media Server 8.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824613.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Auslogics BoostSpeed 8.2.1 RePack (& Portable) by TryRooM [11.04.2016] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824610.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Microsoft Visual Studio 2019 Community 16.5.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824604.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Waterfox Current / Classic 2020.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824603.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ ScreenToGif 2.24.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824601.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Vivaldi 3.0.1874.38 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824600.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Brave Browser 1.8.95 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824591.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Firefox Browser 76.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824588.jpg" />
 </div>
 
 

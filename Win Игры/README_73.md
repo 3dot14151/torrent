@@ -1,29 +1,3 @@
-###  Публикация: 607416   (993871) от 24.01.2013
-
-Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En] (L) 2010
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Prison Break – это экшен с видом от третьего лица, создаваемый на основе одноименного телевизионного сериала, известного российским зрителям под названием "Побег". Действие игры разворачивается параллельно событиям первого сезона "Побега". В игре Prison Break вам предстоит управлять человеком по имени Том Пэкстон. Он является агентом так называемой "Компании" - организации, которая подставила Линкольна. Его отправляют в тюрьму для того, чтобы выяснить, зачем Майкл Скофилд попытался ограбить банк. Герою предстоит столкнуться с некоторыми персонажами, которые фигурировали в телесериале, а так же исследовать территорию тюрьмы "Фокс Ривер" и сразиться с противниками. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA862F5185D99F5940CFF469B4557A6F3B9EFCC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608237   (993867) от 24.01.2013
 
 Oil Rush [Ru/En/Multi3] (L) 2012 | *PROPHET*
@@ -32,7 +6,7 @@ Oil Rush [Ru/En/Multi3] (L) 2012 | *PROPHET*
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993867.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Desperados Anthology / Антология Desperados [Ru] (RePack) 2001-2009 | a
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993838.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Strike Suit Zero: Collectors Edition [En/Multi5] (Steam-Rip/1.0) 2013 | R.G. Gam
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993829.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Call Of Juarez: The Cartel: Limited Edition [Ru] (Rip/1.1.12) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993828.jpg" />
 </div>
 
 
@@ -143,7 +117,7 @@ Lunar Flight [En] (RePack/1.671) 2012 | R.G. Механики
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993340.jpg" />
 </div>
 
 
@@ -169,7 +143,7 @@ Max Payne 3 (Patch/NoDVD/1.0.0.113) 2012 | RELOADED
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993236.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ DmC: Devil May Cry [En/Ru] [Crack] 2013 | Reloaded
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993235.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ Ace Combat: Assault Horizon - Enhanced Edition [Ru/En] (RePack/1.0.117.128) 2013
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993191.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru/En] (L) 2013 | *FLT*
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993189.jpg" />
 </div>
 
 
@@ -277,7 +251,7 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993179.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ Ace Combat: Assault Horizon. Enhanced Edition [Ru/En/Multi9] (Steam-Rip/1.0.117.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993174.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ Secret City 4: Chalk of Fate (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992568.jpg" />
 </div>
 
 
@@ -357,7 +331,7 @@ Symphony [Ru/En] (Steam-Rip/1.3) 2012 | R.G. GameWorks
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991613.jpg" />
 </div>
 
 
@@ -384,7 +358,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.21) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991576.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.4.1.56) 2012 | Audioslave
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991554.jpg" />
 </div>
 
 
@@ -437,7 +411,7 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991508.jpg" />
 </div>
 
 
@@ -463,7 +437,7 @@ iBomber Attack [En] (RePack) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991490.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru] (Repack/1.0.117.128) 2013 | Fe
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991438.jpg" />
 </div>
 
 
@@ -515,7 +489,7 @@ Pirates of Black Cove [En/Multi4] (L/1.0.6.8095) 2011 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990765.jpg" />
 </div>
 
 
@@ -541,7 +515,7 @@ Overland (2019) [Ru/Multi] (713) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990477.jpg" />
 </div>
 
 
@@ -567,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989725.jpg" />
 </div>
 
 
@@ -593,7 +567,7 @@ Mystery Trackers 17: The Secret of Watch Hill / Охотники за тайна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989692.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ Tormentum - Dark Sorrow (2015) [Ru/Multi] (1.4.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989650.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ Cooking Simulator (2019) [Ru/Multi] (2.5.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989644.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989594.jpg" />
 </div>
 
 
@@ -682,6 +656,32 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDC8A9C31A694395E6F30D0E4690A7EEDBA9DD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354236   (988930) от 21.01.2020
+
+Cadenza 6: The Following / Каденция 6: Следуя за прошлым (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не так уж и часто распавшиеся в прошлом музыкальные группы воссоединяются вместе для ещё одного турне, но Velvet Whisper стали приятным исключением. Будучи журналистом, Вы вместе с участниками группы направляетесь на музыкальный фестиваль Огонь дракона, чтобы взять у них интервью. Но во время поездки случается неожиданное - загадочная девушка нападает на автобус (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FE306143B37877024A69765FDE7A77D37DD96F
 ```
 
 https://mybot314.ru/tekegram_catalog/

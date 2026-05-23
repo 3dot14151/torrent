@@ -6,7 +6,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя сэмпай — паре�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41629.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Total Commander 11.03 (22.09.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41626.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Xrecode 3 1.157 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41616.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Double Commander 1.1.18 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41614.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Araxis Merge Pro 2024.6002 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41613.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sandboxie plus 1.14.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41612.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ R-Studio Network 9.4 Build 191359 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41606.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ O&O Defrag Professional 29.0 Build 11110 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41605.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NoMachine 8.14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41604.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ IObit Smart Defrag Pro 10.1.0.419 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41603.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PDFsam Basic 5.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41597.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Sandboxie 5.69.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41596.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Advanced Renamer 4.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41594.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ GoldWave 6.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41592.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ WinCatalog 2024.8.1.1002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41588.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Photo Lab PRO v3.13.30 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41585.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ R-Studio Network / Technician 9.4 Build 191359 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41582.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ XYplorer 26.40.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41568.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Vivaldi 6.9.3447.51 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41566.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Advanced Renamer 4.03 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41557.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AOMEI Partition Assistant Technician Edition 10.5.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41554.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AOMEI Backupper Technician Plus 7.4.1 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41530.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AOMEI Backupper Technician Plus 7.4.1 WinPE by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41522.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TreeSize Professional 9.2.0.1905 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41515.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Krita 5.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41513.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VueScan Pro 9.8.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41512.jpg" />
 </div>
 
 

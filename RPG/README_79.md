@@ -6,7 +6,7 @@ Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13930.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13921.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13861.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stolen Realm (2021) [Ru/Multi] (1.2.7/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13837.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13798.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13796.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13770.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13765.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13764.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Svarog's Dream (2023) [En] (7.0.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13747.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fallout 3 (2009) [Ru] (1.7.0.4/dlc) Repack EXROW [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13728.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13724.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13656.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13615.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13585.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Forgotten Mines (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13494.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.05/dlc) Repack seleZen [S
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13439.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0.184/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13416.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13396.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Fate Seeker II (2) (2021) [Multi] (18655320) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13325.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Warhammer 40,000: Space Marine II (2) (2024) [Ru/Multi] (8.0.0.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13231.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13201.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Crown Gambit (2025) [Ru/Multi] (1.0.3) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13186.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13094.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13030.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13008.jpg" />
 </div>
 
 

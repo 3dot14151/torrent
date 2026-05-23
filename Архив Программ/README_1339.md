@@ -6,7 +6,7 @@ WinUtilities Pro 10.54 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357778.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Audition CC 2018 (11.0.0.199) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357763.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Total Commander 9.11 RC 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357747.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ G DATA BOOTCD 2012 RUS (06.11.2011)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357739.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Error Lookup 2.1.1102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357711.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ DSP pack 1.43 (Winamp / Aimp3) RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357701.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tor Browser Bundle 10.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357686.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Movavi Slideshow Maker 7.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357677.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ WinTools.net Premium 15.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357571.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ qBittorrent 3.2.5 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357567.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ R-Studio 7.7 Build 159851 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357556.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Character Animator 2020 3.4.0.185 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357545.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Media Encoder 2020 14.5.0.48 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357543.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Audition 2020 13.0.11.38 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357539.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ACDSee Video Converter Pro 3.0.24.0 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357514.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinXP SoftPack Twilight Angel Edition 2011.11 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357500.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ DriverPack Solution 17.7.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357469.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft .NET Framework 4.6.1 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357422.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ O&O Defrag Professional 19.0 Build 99 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357420.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Daum PotPlayer 1.6.56815 DC 30.10.2015 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357415.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Daz Studio 4.8.0.59 Pro Edition + Extra Addons [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357414.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ RusTV Player 3.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357410.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The Foundry NUKE STUDIO 9.0 v8 + HIERO 9.0 v8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357409.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ uTorrent Pro 3.5.5 Build 45798 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357357.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Windows 8.1 6.3 (build 9600.19847) x86/x64 (24in2) Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357329.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ DAEMON Tools Pro 7.0.0.0555 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357297.jpg" />
 </div>
 
 

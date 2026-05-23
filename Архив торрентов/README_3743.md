@@ -6,7 +6,7 @@ NetWorker Pro 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233495.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Manico 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233487.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FastScripts 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233482.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ iShowU Instant (Advanced) 1.4.9  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233472.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Things 3 v3.17.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233466.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233445.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ AnyBurn 5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233440.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Magic Sort List 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233437.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Find Any File (FAF) 2.3.2 b8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233422.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ YT Downloader 7.26.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233421.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Movavi Video Converter 22.4.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233414.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Topaz Video AI 3.2.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233398.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AltTab 6.60.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233395.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ IObit Smart Defrag Pro 8.5.0.281 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233391.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Perfectly Clear WorkBench 4.5.0.2539 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233389.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233384.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ TunesKit Audio Capture 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233381.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Dato 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233369.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Paint.NET 5.0.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233361.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VueScan Pro 9.8.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233353.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ UniBook - Аудиокниги v0.6.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233347.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Wondershare PDFelement 9.5.7.2260 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233343.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1739]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233325.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Tor Browser Bundle 11.0.13 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233304.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233293.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Multitouch 1.26.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233284.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39419.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.10.04c.standalone/dlc) License GOG [Co
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39148.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38857.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Riot Operator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38761.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.9.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38751.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38728.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38547.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38536.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Harvest Moon: The Winds of Anthos (2023) [Multi] (1.42/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38467.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38465.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Lost Village (2024) [Multi] (1.2.8/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38457.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Political Machine 2024 (2024) [En] (1.16/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38447.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38440.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38348.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38325.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38311.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Alchemist: The Potion Monger (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38293.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack LetsPlay [Game of the Year Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38232.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37962.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37958.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Techtonica (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37918.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37833.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (1.37.15252.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37811.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (build 16167669/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37753.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.0.5/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37717.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37710.jpg" />
 </div>
 
 

@@ -1,93 +1,3 @@
-###  Публикация: 904368   (654265) от 03.06.2015
-
-Владимир Жикаренцев | Добро и зло — игра в дуальность (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В данной книге продолжается исследование строения и работы ума. Поскольку, как было показано в предыдущей книге Путь К Свободе. Кармические причины возникновения проблем или Как изменить свою жизнь, Внешнее Равно Внутреннему, тогда, если мы знаем, как устроен и работает ум, мы получаем в руки ключ над тем, что происходит с человеком в жизни и почему.Жанр: Эзотерика, психологияПродолжительность: 07:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:359DFF9A8C16BECFFFDBB9F9AA1B930F9D7C41DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904359   (654262) от 03.06.2015
-
-Сидни Шелдон | Сорвать маску (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Психоаналитик Джад Стивенc уверен: один из его пациентов - маньяк-убийца...
-Но - кто?
-Невротик, действующий в состоянии аффекта?
-Респектабельный меланхолик, одержимый депрессией?(   Читать дальше...   )Жанр: ДетективПродолжительность: 05:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3164DB3D0F2900066ED13413EC7B0107912C72AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516141   (654218) от 27.06.2012
-
-Натан Арчер | Хищник-4. Бетонные джунгли [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга повествует о событиях, происходивших за четыре года до событий, описанных в книге Артура Квари „Хищник 3. Антарктида“ и спустя восемь лет после событий, описанных Дэном Кордейлом в первой книге о Хищниках.
-В Нью-Йорке стоит ужасная жара. Телевизоры показывают с
-большими помехами, духота и вонь помоек. Кто-то начинает убивать
-сначала преступников, а затем и полицейских, сдирая с них кожу и
-отрезая им головы. За расследование этих странных преступлений
-берутся два нью-йоркских полицейских - детектив Шефер, брат
-известного читателю по прежним книгам майора Алана Шефера по
-прозвищу Дач и детектив Раше. Через некоторое время друзья и
-напарники Шефер и Раше выясняют, что они имеют дело не с обычным
-преступником, а с инопланетным монстром. И даже не с одним, а с(   Читать дальше...   )Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002295144D34FA8E0940EB8941961FB70EA3DBE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 344269   (654191) от 31.05.2011
 
 Александр Солженицын | Красное колесо. Узел 1. Август четырнадцатого. (2009) [MP3]
@@ -96,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654191.jpg" />
 </div>
 
 
@@ -123,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654115.jpg" />
 </div>
 
 
@@ -149,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654029.jpg" />
 </div>
 
 
@@ -175,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654024.jpg" />
 </div>
 
 
@@ -201,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653997.jpg" />
 </div>
 
 
@@ -227,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653901.jpg" />
 </div>
 
 
@@ -253,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653898.jpg" />
 </div>
 
 
@@ -279,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653810.jpg" />
 </div>
 
 
@@ -305,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653804.jpg" />
 </div>
 
 
@@ -333,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653782.jpg" />
 </div>
 
 
@@ -359,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653778.jpg" />
 </div>
 
 
@@ -385,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653745.jpg" />
 </div>
 
 
@@ -414,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653689.jpg" />
 </div>
 
 
@@ -440,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653464.jpg" />
 </div>
 
 
@@ -466,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_652891.jpg" />
 </div>
 
 
@@ -492,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652866.jpg" />
 </div>
 
 
@@ -518,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652716.jpg" />
 </div>
 
 
@@ -544,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652643.jpg" />
 </div>
 
 
@@ -571,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652638.jpg" />
 </div>
 
 
@@ -597,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652540.jpg" />
 </div>
 
 
@@ -623,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652458.jpg" />
 </div>
 
 
@@ -649,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652433.jpg" />
 </div>
 
 
@@ -678,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652411.jpg" />
 </div>
 
 
@@ -689,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:670D325A97BA71356759AA4934A782BB0964820F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141125   (652326) от 09.06.2017
+
+Андрей Кивинов | Полное блюдце секретов. Инферно [Cборник]  (2017) [MP3, Антон Афанасьев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собой сборник криминальных повестей петербургского писателя Андрея Кивинова, в который вошли детективы «Полное блюдце секретов» и «Инферно».Жанр: Полицейский детективИздательство: StorytelПродолжительность: 09:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4BCC9C3583B5D2438E6D3C522825FD21AE8978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141261   (652317) от 09.06.2017
+
+Агата Кристи | Последние дела мисс Марпл (2017) [MP3, Вета]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий мастер детектива леди Агата Кристи скончалась в 1976 году, но до сих пор читатели продолжают знакомиться с ее бессмертными произведениями. Сборник детективных рассказов Агаты Кристи, опубликованный посмертно в 1979 году издательством Collins Crime Club, в России выходил под названиями «Последние дела Мисс Марпл». В сборник вошло семь рассказов разных лет, (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 04:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E044A99E55EC8AFC24823FB9F8251BA7787EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141282   (652308) от 09.06.2017
+
+Алексей Глушановский | Надежда пустошей (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир, который ты помнишь, - погиб. Погиб давно, Очень, очень давно, так что никто из живуших на его развалинах уже и не помнит, каким он был когда-то живой, веселый и молодой мир Кельдайна. Вернувшись с Земли домой, ты застаешь лишь обглоданный и искореженный Хаосом труп своей прежней родины. Но есть надежда на возрождение. Правда для этого придется предать и окончательно (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9CB677F775E969EC610522C756A92252CDB757
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,57 +1,3 @@
-###  Публикация: 1353779   (990538) от 19.01.2020
-
-Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop Touch на Андроид – скачайте и установите программу, и вперед фантазировать, создавать и комбинировать изображения, применяя профессиональные эффекты. Не забудьте поделиться с друзьями и с семьей через Facebook и еще много чего интересного.Тип издания: Пиратка (Mod: поддерживает Android 10)Релиз состоялся: 04.01.2020Разработчик: AdobeПоддерживаемая ОС: Android 3.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F01516B35C300CC47B146638F7821D9F22396ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029248   (990367) от 19.01.2020
-
-Self Camera HD Pro 4.2.21 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Это приложение позволяет делать отличные снимки высокого качества удаленно с помощью свистков или хлопков, не касаясь телефона.
-Многие фильтры эффект доступны с предварительного просмотра и возможностью использования 4 фильтров сразу.
-Простой и быстрый способ для захвата Селфи с расстояния от 1 до 15 метров от устройства.Тип издания: ПираткаРелиз состоялся: 18.01.2020Разработчик: Ouadban YoussefПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86598EF771D779EFEFA5A8191291ECF43C3E9353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354020   (989684) от 20.01.2020
 
 Клавиатура SwiftKey v7.4.6.6 [Ru/En]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989684.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988693.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ Free Audiobooks v1.14.7 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987823.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ GreenPower Premium 9.21 [Ru] - Экономная работа аккумуля�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985319.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ TurboScan Paid 1.5.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976473.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ Compass Pro 1.49 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976381.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976165.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974394.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972875.jpg" />
 </div>
 
 
@@ -300,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971526.jpg" />
 </div>
 
 
@@ -329,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970484.jpg" />
 </div>
 
 
@@ -355,7 +301,7 @@ Birthdays / Дни рождения v2016-01-15.34-paid Patched  [Ru/Multi] - В
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970193.jpg" />
 </div>
 
 
@@ -381,7 +327,7 @@ Canva Premium 2.47.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969299.jpg" />
 </div>
 
 
@@ -407,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963299.jpg" />
 </div>
 
 
@@ -433,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963169.jpg" />
 </div>
 
 
@@ -459,7 +405,7 @@ Adblock Plus 1.3.0.369 [Ru] - Блокировщик рекламы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961821.jpg" />
 </div>
 
 
@@ -487,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959287.jpg" />
 </div>
 
 
@@ -513,7 +459,7 @@ Check Engine  v1.5.8.01 [Ru] - на русском языке
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959176.jpg" />
 </div>
 
 
@@ -539,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958964.jpg" />
 </div>
 
 
@@ -565,7 +511,7 @@ WPS Connect 1.3.1 (Beta) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954825.jpg" />
 </div>
 
 
@@ -591,7 +537,7 @@ Assistant Premium 3.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954144.jpg" />
 </div>
 
 
@@ -617,7 +563,7 @@ IP Tools Premium v7.0.4 [Ru/Multi] - инструмент для анализа 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951380.jpg" />
 </div>
 
 
@@ -643,7 +589,7 @@ PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов фо
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947809.jpg" />
 </div>
 
 
@@ -670,7 +616,7 @@ Swapper for ROOT 2.0.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945692.jpg" />
 </div>
 
 
@@ -683,6 +629,60 @@ Swapper for ROOT 2.0.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C0D19BFD20572779BEB2F862EA09A19A8A2B040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090392   (945616) от 07.01.2017
+
+ElectroBuddy Pro 1.2 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945616.jpg" />
+</div>
+
+
+###  Подробнее
+
+ElectroBuddy Pro- AdFree версия Electrobuddy приложение, которое получило 100 тысяч загрузок в этой категории.
+Большая коллекция наиболее широко используемых инструментов электроники под одной крышей для всех студентов электроники, энтузиастов и профессионалов отрасли. Большая часть этого приложения является состоит из бесплатной версии electrobuddy.
+Цель этого приложения (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 8 февраля 2016 г.Разработчик: www.electrobuddyapp.comПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B09A2B45BB50A30333E288836B6F4D68CFE3CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090865   (945581) от 07.01.2017
+
+AntiVirus Android Premium 2.5.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Life-License Full версия Aнтивирус Aндроид AndroHelm Mobile Internet Security Vip Premium с расширенными функциями и возможностями для безукоризненной работы Вашего смартфона или планшета и Web безопасности в любых ситуациях, с пожизненной лицензией. При установке и начале работы быстро выявляет проблемные места для их лечения и при отклонениях в работе системы моментально (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 07.01.17Разработчик: AndroHelm SecurityПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4062277E34A29DAC0CA946CB3E650304E577E1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

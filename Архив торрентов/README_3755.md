@@ -6,7 +6,7 @@ AOMEI Backupper Technician Plus 7.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231748.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Feeder 4 v.4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231744.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Spotify 1.2.12.902 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231740.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ SamDrivers 22.10 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231734.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231733.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ K-Lite Codec Pack Update 17.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231723.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Project Office X Pro 1.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231711.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Perfectly Clear WorkBench 4.5.0.2511 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231701.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Sandboxie 5.64.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231687.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Glary Disk Cleaner 5.0.1.293 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231676.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MediaHuman YouTube Downloader 3.9.9.84 (1507) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231674.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ImageRanger Pro Edition 1.9.4.1865 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231673.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FireAlpaca 2.11.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231668.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ YT Downloader 9.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231666.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Icecream Photo Editor 1.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231648.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ GeoGebra 6.0.791.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231646.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Movavi Video Suite 22.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231638.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dynamic Wallpaper 14.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231634.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Sandboxie plus 1.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231627.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Registry Finder 2.57 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231618.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MWeb Pro 4.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231616.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Malwarebytes Антивирус 3.11.0.111 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231601.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Color Wheel 7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231594.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Stats 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231588.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ PDF Reader Pro 2.9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231576.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ PowerPhotos 2.4.2b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231572.jpg" />
 </div>
 
 

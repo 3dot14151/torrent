@@ -1,32 +1,3 @@
-###  Публикация: 932965   (507241) от 31.08.2015
-
-VA - Deep House and Techno - Dream Selection 2010-2015 vol.1 (2010-2015) [MP3|240-320 кб/с]<House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Late Night Alumni - Seemingly Sleepy [03:40]
-02. Max Duke - Undefined Time [06:42]
-03. Kaliber - Kaliber 15.1 [06:54]
-04. Oliver Schories - Go (Einmusik Remix) [06:54](   Читать дальше...   )Жанр: House, TechnoПродолжительность: 05:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA6C249BDC8000164157215BAB963D98347AC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933204   (507180) от 31.08.2015
 
 VA - Extra Trance (episode 6) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -35,7 +6,7 @@ VA - Extra Trance (episode 6) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507180.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - New Italo Disco (2015) [MP3|320 кб/с]<Synth-pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507166.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Осенняя 100-ка блатных песен (2015) [MP3|256 кб/с]<
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507163.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Record Super Chart 596 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506870.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Dancehall And Best Reggae Music Songs (2019) [MP3|320 Kbps] <Reggae, Danceh
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506864.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Soul of Ibiza Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506796.jpg" />
 </div>
 
 
@@ -215,7 +186,7 @@ VA - Ibiza Summer (2012) [MP3|320 кб/с]<Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506747.jpg" />
 </div>
 
 
@@ -244,7 +215,7 @@ VA - Лучшая 100ка Record: Взорви танцпол Vol.4 (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506740.jpg" />
 </div>
 
 
@@ -279,7 +250,7 @@ VA - Клубная Дискотека Record vol. 7 Зарубежная (2012)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506731.jpg" />
 </div>
 
 
@@ -314,7 +285,7 @@ VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Br
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506729.jpg" />
 </div>
 
 
@@ -349,7 +320,7 @@ VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506719.jpg" />
 </div>
 
 
@@ -378,7 +349,7 @@ VA - Sexy Trance #45 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506703.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ VA - Mega Bass Vol.2 (2012) [MP3|320 кб/с]<Hip Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506340.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Trance Traveling 68 (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506325.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Color Dance Expansion (2015) [MP3|320 кб/с]<Club, Minimal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506256.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - В машине с музыкой Vol.284 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506208.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - TOP August (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506167.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Kim Wilde - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506113.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - В машине с музыкой Vol.285 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506108.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Rock Collection 1982 (2015) [MP3|320 кб/с]<Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506064.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Rock Collection 1983 (2015) [MP3|320 кб/с]<Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506011.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Всё сразу 200 хитов Выпуск 5 (2015) [MP3|128 - 320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506001.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Рок-Весна (2015) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505999.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - I'm From The Slums: Rapstar Music (2019) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505962.jpg" />
 </div>
 
 
@@ -760,7 +731,7 @@ Nirvana - Come As You Are (2019) (Compilation) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505805.jpg" />
 </div>
 
 
@@ -774,6 +745,41 @@ Nirvana - Come As You Are (2019) (Compilation) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4450EDF9F56CB9B50E21FBE351D22A2EBE251262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539394   (505625) от 27.08.2012
+
+VA - Clubland Eurodance 4CD (2012) [MP3|320 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505625.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1(One) Продолжительность 01:05:45
+01. Mr. Saxobeat - Alexandra Stan
+02. On The Floor - Jennifer Lopez
+03. Moves Like Jagger - Maroon 5
+04. Molly - Cedric Gervais
+05. L' Asereje (The Ketchup Song) - Ketchup (Las)
+06. From Paris To Berlin - Infernal
+07. Falling Stars - Sunset Strippers
+08. Lola's Theme - Shapeshifters (The)
+09. Children - Robert Miles(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1689E68C71DC983D7A04D06360C4DAD93F93BA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

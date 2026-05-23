@@ -6,7 +6,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.24 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149340.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2019 Professional 16.8.2 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149326.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Smart Defrag Pro 6.6.5.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149319.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149312.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Character Animator CC 2019 2.0.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149302.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Visual Studio 2019 Community 16.8.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149298.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MultiBootHDD 2018 22.12.18 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149280.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Visual Studio 2019 Enterprise 16.8.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149267.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MAGIX Sound Forge Pro 15.0 Build 161 (x64) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149252.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ GOM Player 2.1.47 Build 5133 Final [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149251.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Enigma Virtual Box 9.90 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149241.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ACDSee Ultimate 10.2 Build 878 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149226.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ProduKey 1.93 + Portabe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149204.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ OEM Info Updater 9.6 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149203.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows Update MiniTool 25.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149193.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Malwarebytes AdwCleaner 7.2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149187.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AOMEI Backupper Technician Plus 6.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149173.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Balabolka 2.14.0.682 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149170.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ AOMEI Backupper Pro 6.3.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149161.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ ACDSee Ultimate 10.2 Build 878 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149157.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ IObit Uninstaller Pro 10.2.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149152.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Total HTML Converter 4.1.81 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149135.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Adobe InDesign CC 2019 14.0.1.209 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149114.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hetman Partition Recovery 3.5 Home / Office / Unlimited Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149111.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Opera One 105.0.4970.16 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149110.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ EZ CD Audio Converter 1.0.2 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149087.jpg" />
 </div>
 
 

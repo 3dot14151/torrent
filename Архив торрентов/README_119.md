@@ -6,7 +6,7 @@ WhatsApp 2.2106.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027081.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DjVu Reader Pro 2.4.5 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027077.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DxO PhotoLab 4 ELITE Edition 4.2.0.51 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027076.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TechSmith Snagit 2021.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027073.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TweakPower 1.172 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027068.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mujuice - Melancholium (2021) [MP3|320 Kbps] <IDM, House, Electropop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027066.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ WhatsApp 2.2106.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027065.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Master PDF Editor 5.7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027061.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Exif Pilot 6.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027060.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ DIGI Clock Widget Plus 2.3.5 Mod by DmitrySanich, 2Sist [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027033.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Movavi Video Editor Plus 21.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027024.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MAGIX Sound Forge Pro 15.0 Build 27 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027013.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ POCO Launcher 2.7.4.13 Mod by Pycm и JDM.707 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027010.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027003.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ StartIsBack++ 2.9.9 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026990.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7266.5000 (2021.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026986.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026985.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Bumpr 1.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026980.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Data Guardian 6 v.6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026979.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ PullTube 1.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026978.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Librarian Pro 6 v6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026976.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ A Better Finder Attributes 7 v7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026975.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Tidy Up 5 v5.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026974.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Iridient Developer 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026973.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ NCH Debut Professional 7.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026971.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ SoundSource 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026963.jpg" />
 </div>
 
 

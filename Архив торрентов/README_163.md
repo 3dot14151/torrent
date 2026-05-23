@@ -6,7 +6,7 @@ Maxon Cinema 4D Studio  S24.035 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019086.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StartIsBack++ 2.9.11 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019079.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BELOFF [dp] 2021.04.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019076.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sweet Home 3D 6.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019056.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ FreeCAD 0.19.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019055.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Jujutsu Kaisen | Магическая битва [2021, TV, 24 из 24 + 1SP] WE
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019050.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Lightricks Motionleap (Enlight Pixaloop) v1.3.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019033.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ ArchiCAD 24 Build 4018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019023.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019021.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019014.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ IconJar 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019004.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TinkerTool System 7 v7.2 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019003.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ RightFont 5 v5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019002.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Alfred 4 Powerpack 4.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019001.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dropshare 5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018999.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ EdgeView 2 v2.920 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018994.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Text Scanner - PDF & Document 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018991.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ OmniOutliner Pro 5 v5.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018988.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Live Home 3D Pro Edition 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018987.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Storyist 4 v4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018984.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BBEdit 13 v13.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018983.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Opera 75.0.3969.243 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018969.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ON1 Photo RAW 2021.5 v15.5.0.10362 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018966.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Big Sur Cache Cleaner 16.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018965.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ doPDF 11.0.134 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018964.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ GeoGebra 6.0.639.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018961.jpg" />
 </div>
 
 

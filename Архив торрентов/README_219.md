@@ -6,7 +6,7 @@ PDF-XChange PRO 9.1.356.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005895.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Character Animator 2021 4.4.0.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005890.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Advanced Renamer 3.88.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005889.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sumatra PDF 3.3.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005888.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Adobe Media Encoder 2021 15.4.0.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005887.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ableton - Live Suite 11.0.5 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005886.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - Доска Объявле�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005871.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Hard Disk Sentinel PRO 5.70.6 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005869.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Adobe Photoshop 2021 22.4.3.317 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005868.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Nemezis: Mysterious Journey III (2021) [Ru/Multi] (1.02/dlc) License GOG [Deluxe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005867.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PDF-XChange Editor Plus 9.1.356.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005864.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ CCleaner 5.83.9050 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005860.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe After Effects 2021 18.4.0.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005854.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.07.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005847.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Firefox Browser 90.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005842.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Opera 77.0.4054.277 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005838.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ IObit Driver Booster Pro 8.6.0.552 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005809.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MiniTool Power Data Recovery 10.0 Standadrd / Enterprise / Deluxe / Business Tec
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005796.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Xilinx Vitis Unified Software Platform 2021.1 [En] (unpacked)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005786.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005755.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Firefox Browser 90.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005730.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Microsoft Edge 92.0.902.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005726.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sumatra PDF 3.4.13837 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005725.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Wise Registry Cleaner Pro 10.4.1.695 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005724.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005721.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Skype 8.74.0.152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005713.jpg" />
 </div>
 
 

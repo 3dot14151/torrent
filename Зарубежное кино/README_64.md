@@ -1,55 +1,3 @@
-###  Публикация: 1604771   (1045169) от 15.01.2023
-
-Последнее испытание Шаолиня / Деревянные люди Шаолиня / Shao Lin mu ren xiang / Shaolin Wooden Men (1976) BDRemux [H.264/1080p] [Remastered] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень по прозвищу Молчун - сирота, который принимает обет молчания после гибели своего отца в от рук мастера боевых искусств. Проживая в шаолиньском монастыре, Молчун сближается с опасным заключённым, который обучает его секретным способам смертельного кунг-фу. Заметив упорство и стремление юноши стать мастером кунг-фу, мастера обучают его другим техникам (   Читать дальше...   )Производство: Тайвань, Гонконг, Япония, Lo Wei Motion Picture Co., Toei Central FilmsЖанр: боевик, комедия, драмаРежиссер: Чэнь Чи-ХваАктеры: Джеки Чан, Дорис Лун, Кан Чин, Чан Пинъюй, Чан Ифэй, Лу Чианг Чао, Вэй Оун Чан, Чун Кам, Хсин Чин, Кан ХоПеревод: Авторский (Юрий Сербин)Язык озвучки: русский, китайский, английскийСубтитры: Английские (PGS)Продолжительность: 01:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39954EBD8F998238DDCF7FCEB400F7612DA0FC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604774   (1045160) от 15.01.2023
-
-Жизнь прекрасна / 50/50 (2011) BDRip [H.265/1080p] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Адам - молодой преуспевающий журналист. Он не курит, не пьёт и даже не водит машину, потому что это опасно. У него есть всё для счастья: прекрасный дом, любимая девушка, хорошая работа. Но однажды он идёт к врачу и узнаёт, что смертельно болен...Производство: США / Summit Entertainment, Mandate PicturesЖанр: драма, мелодрама, комедияРежиссер: Николь Холофсенер, Джонатан ЛивайнАктеры: Сет Роген, Джозеф Гордон-Левитт, Анна Кендрик, Брайс Даллас Ховард, Анжелика Хьюстон, Серж Уд, Мэтт Фрюэр, Эндрю Эрли, Филип Бэйкер Холл, Донна ЯмамотоПеревод: Многоголосый профессиональный (OzzTv)Язык озвучки: Русский, английскийПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17CB4E4BFD1CA379C71EF2792B026BD3C5F9530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604747   (1045153) от 15.01.2023
 
 Воздушная тюрьма / Con Air (1997) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045153.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045148.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045145.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045144.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045133.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045129.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045127.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045056.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045048.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045047.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045044.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045042.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045037.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045035.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045033.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045026.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045023.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045022.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044974.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044971.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044929.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044923.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044915.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044908.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D118ECB9B0AF53F63A2CBA2519750BB668F25512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605225   (1044901) от 17.01.2023
+
+Покерфейс / Poker Face (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покер — опасная игра. И часто от нее зависят человеческие жизни. На одну, казалось бы, дружескую партию Джейк собрал в своем особняке друзей детства, чтобы наконец воздать каждому по заслугам. Но ставки мгновенно возрастают, когда на дом эксцентричного миллиардера нападают неизвестные. Теперь на кону не только богатства, но и собственные жизни. Но кто сможет сохранить (   Читать дальше...   )Производство: США / Alceon Entertainment Partners, Arclight Films, Catchlight StudiosЖанр: боевик, триллер, криминалРежиссер: Рассел КроуАктеры: Рассел Кроу, Лиам Хемсворт, RZA, Аден Янг, Стив Бастони, Дэниэл МакФерсон, Брук Сатчуэлл, Пол Тассоне, Мэтью Нэйбл, Бенедикт ХардиПеревод: Дублированный (Велес)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA9CB0BB1B9C5ECC583E3390449CF6D87DC5EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604497   (1044899) от 17.01.2023
+
+Двойная петля / Devotion (2022) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время боевого задания одного из лётчиков подбивают над вражеской территорией. Командование не видит необходимости в спасательной операции. Перед летчиком встает выбор — выполнять приказ или попытаться спасти напарника.Производство: США, / Black Label Media, Robert Simonds Company,The, Sony Pictures Entertainment (SPE), Stage 6 FilmsЖанр: боевик, драма, военный, историяРежиссер: Джастин ДиллардАктеры: Джонатан Мэйджерс, Глен Пауэлл, Кристина Джексон, Томас Садоски, Дарен Кагасофф, Джо Джонас, Спенсер Невилл, Ник Харгроув, Бун Платт, Дин ДентонПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: английский (full, SDH)Продолжительность: 02:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F959DD9112411410AA4A8A4AA06F967C6905E7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

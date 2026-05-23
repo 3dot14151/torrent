@@ -1,29 +1,3 @@
-###  Публикация: 1640789   (211031) от 19.06.2023
-
-NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Используйте свою смекалку, чтобы решить головоломки и сбежать из абстрактного мира в этой нарисованной от руки атмосферной игре ужасов. Смотри, кто наконец решил проснуться. В NeverHome молодая девушка по имени Грейнджер внезапно просыпается в чужом мире. Храбрый через враждебный мир, используя только свой ум и помощь новых друзей, которых вы найдете на пути, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: Shadow GengisЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCAE19CB3C9748F7C52E3A569586F261A5C65AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568618   (210940) от 09.08.2022
 
 No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
@@ -32,7 +6,7 @@ No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210940.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Royal Romances 3: The Power of Chosen One / Королевские романы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210860.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210838.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210543.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210522.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ My Destiny (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210487.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Best Forklift Operator (2022) [Multi] (1.0) License DARKSiDERS [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210407.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210195.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Cursed to Golf (2022) [Ru/Multi] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210167.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (11373498/dlc) Scene FairLight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210124.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210068.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ SolSuite Solitaire 2022 (2022) [Ru/En] (22.06) Repack/Portable TryRooM
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210054.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Save Room - Organization Puzzle (2022) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209968.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Shing! (2020) [Ru/Multi] (2.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209928.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Edge Of Galaxy (2021) [Ru/En] (1.29) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209900.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209630.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Islets (2022) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209513.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Are You Smarter than a 5th Grader? (2022) [Multi] (1.13/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209479.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Cursed Fables 3: A Voice to Die For (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209464.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Unsolved Case 3: The Scarlet Hyacinth / Нераскрытое дело 3: Ал�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209239.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Immortal Love 10: Polar Lights (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208947.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208926.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ When The Past Was Around (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208828.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Big Adventure: Trip to Europe 5 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208748.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208658.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC5C17B8BB70E4C9CC1408C23247E8A412802579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575622   (208405) от 10.09.2022
+
+The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция пасьянсов Zachtronics уже здесь! Внутри вы найдете семь совершенно уникальных пасьянсов, изначально разработанных как мини-игры для выпусков 2016–2022 гг., дополненных новой графикой 4K, а также один совершенно новый вариант пасьянса, который можно найти только в этой коллекции.Тип издания: LicenseРазработчик: ZachtronicsЖанр: Инди, Головоломка, Казуальная, Карточная играЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40C620296DFB860D44C4CF9F28BE2EB6B5B625F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,113 +1,3 @@
-###  Публикация: 1194720   (49749) от 17.07.2024
-
-Сказки с оркестром (Ганс Христиан Андерсен - Огниво) (2010) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Литературно-музыкальная композиция из цикла "Сказки с оркестром".
-Сказка "Огниво" Андерсена рассказывает о везучем солдате, который встретил в лесу ведьму, принесшую ему богатство. Взамен она только огниво со старого дупла попросила у него, но солдат и его сумел забрать. Огниво оказалось волшебным и с его помощью солдат не только избежал виселицы, (   Читать дальше...   )Производство: Россия, ГТРК "Культура"Жанр: Литературное чтение, музыкальный, детский, семейныйРежиссер: Сергей СидоренкоАктеры: Михаил ЕфремовСубтитры: отсутствуютПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8446F97125F7554BCDFA37F1D130005ABC795A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466372   (49746) от 17.07.2024
-
-Екатерина Ивановна / Российский театр драмы им. Волкова - Ярославль (2010) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Российского государственного академического театра драмы имени Федора Волкова, г. Ярославль по пьесе Леонида Андреева.
-
-Постановка Евгения Марчелли - глубинное исследование сущности отношений мужчины и женщины, которые всегда останутся друг для друга инопланетянами... Самая трудная и загадочная пьеса Леонида Андреева о любви, измене и тайнах человеческой (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Евгений МарчеллиПродолжительность: 01:02:20 + 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDD918F64C94994B9B14A66B41FE61BD8525B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741985   (49745) от 17.07.2024
-
-Хулиган (2010) WEBRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Премьера спектакля состоялась в 2009-м, а в 2011-м за роль Есенина Сергей Безруков получил награду девятого российского театрального форума «Золотой витязь» в номинации «Камерный спектакль и монодрама». Спектакль уже посмотрели зрители во многих городах России, в том числе и за рубежом. И везде он собирал аншлаг. Не стало исключением село Константиново. В день рождения (   Читать дальше...   )Жанр: МоноспектакльРежиссер: Сергей БезруковАктеры: Сергей БезруковПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C841D137BC219363F9CCEDB78096CA36CBC61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 42434   (49742) от 17.07.2024
-
-Heaven and Hell - Radio City Music Hall Live! (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Концерт в Radio City Music Hall01. E5150/After All (The Dead)
-02. The Mob Rules
-03. Children Of The Sea
-04. Lady Evil(   Читать дальше...   )Жанр: Hard Rock, Hard'n'HeavyВ ролях: Ronnie James Dio, Tony Iommi, Geezer Butler, Vinny AppiceФормат: DVD videoКачество: DVD9Продолжительность: 01:55:21 + 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBD4DF235A26F20E9BCEB1C28D02433D56DB21F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737325   (49699) от 17.07.2024
 
 Агутин, Куценко, Полицеймако, Гутин – «ПОНТЫ» (2024) WEBRip [H.264/1080p]
@@ -116,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49699.jpg" />
 </div>
 
 
@@ -142,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49689.jpg" />
 </div>
 
 
@@ -171,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49687.jpg" />
 </div>
 
 
@@ -199,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49675.jpg" />
 </div>
 
 
@@ -228,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49672.jpg" />
 </div>
 
 
@@ -254,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49644.jpg" />
 </div>
 
 
@@ -282,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49591.jpg" />
 </div>
 
 
@@ -310,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49588.jpg" />
 </div>
 
 
@@ -342,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49586.jpg" />
 </div>
 
 
@@ -368,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49584.jpg" />
 </div>
 
 
@@ -396,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49583.jpg" />
 </div>
 
 
@@ -422,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49562.jpg" />
 </div>
 
 
@@ -450,7 +340,7 @@ B.B. King & Friends - A Night of Blistering Blues (2005) DVD5 <Blues>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49461.jpg" />
 </div>
 
 
@@ -480,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49459.jpg" />
 </div>
 
 
@@ -506,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49454.jpg" />
 </div>
 
 
@@ -534,7 +424,7 @@ Foreigner - Live At Deer Creek 1993 (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49435.jpg" />
 </div>
 
 
@@ -563,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49434.jpg" />
 </div>
 
 
@@ -592,7 +482,7 @@ Fleetwood Mac: Live In Boston (2003) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49428.jpg" />
 </div>
 
 
@@ -621,7 +511,7 @@ Fleetwood Mac - The Dance (1997) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49427.jpg" />
 </div>
 
 
@@ -647,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49379.jpg" />
 </div>
 
 
@@ -673,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49375.jpg" />
 </div>
 
 
@@ -702,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49372.jpg" />
 </div>
 
 
@@ -718,6 +608,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA3EEB59A3F93B82EFBD33D40431D323F5E2B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608235   (49358) от 21.07.2024
+
+Ария - Сделано В России (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта сделана в 1997 году, на VHS выпушел в 1998, DVD диск был выпущен в 2004 году.01. Рабство иллюзий
+02. Раскачаем этот мир
+03. Король дороги
+04. Антихрист(   Читать дальше...   )Издательство: Мороз Рекордс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB3F67EECF62A209294B8C394B1580906305B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690827   (49357) от 21.07.2024
+
+Григорий Лепс - Полный Вперед! (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный вперед! LIVE, 2012. Презентация альбома «Полный вперед!» Концерт в КЗ Crocus City Hall 5 декабря 2012 года.
+
+За предоставленный DVD Спасибо brigadir200201. Безопасность
+02. Берега
+03. Люди
+04. Он был старше ее(   Читать дальше...   )Жанр: Концерт, Поп, рок, шансонПродолжительность: 02:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED8A794F8A7B78A56E8F3665388F29EFD10B442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138228   (49349) от 21.07.2024
+
+Крематорий - 20 ЛЕТ [2003, Rock, DVD9]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:Жанр: RockКачество: DVD9Продолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F601403F7AB408B2E2ECEC8429823F750FA570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191562   (49344) от 21.07.2024
+
+Пикник - Железные мантры (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный DVD содержит концерт в поддержку альбома (теперь уже предпоследнего) "Железные мантры". Также на нём вы найдете 8 видео новелл (очень даже "в стиле" группы на мой взгляд) и немного видео с тура "Железные мантры".Жанр: Art RockЯзык: Продолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A2849D13F6A65D71310EA337B57ADF5D92A76B
 ```
 
 https://mybot314.ru/tekegram_catalog/

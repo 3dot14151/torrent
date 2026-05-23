@@ -1,50 +1,21 @@
-###  Публикация: 1061722   (446763) от 11.10.2016
+###  Публикация: 1061630   (446437) от 11.10.2016
 
-VA - Trance Floor Astronomical (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris & Trance Arts - Innetic (Original Mix)  6:10
-02. Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
-03. Sean Tyas & Darren Porter - Relentless (Radio Edit)  3:40
-04. Binary Finary - The Annex (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 05:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DFB38888B8C2F20BABCA8DABDDF16DA73C20EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061678   (446762) от 11.10.2016
-
-Anthelion - Obsidian Plume (2014) Digipak [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+Flesh Juicer - GIGO (2015) [FLAC|Lossless|image + .cue] <Brutal Death Metal, Deathcore>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-幻日 Anthelion - "黑羽 Obsidian Plume"
-01. 朔時 - Scythe Returns at Dusk 02:22
-02. 黑羽 - Obsidian Plume 05:08
-03. 夏夜飛霜 - Ethereal Frost of the Darkness 05:25(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:44:16
+血肉果汁機 Flesh Juicer - "GIGO"
+01. 帶上血肉 - UFO TOUR 02:02
+02. 瘋狂大老二 - Mad Deuces 02:29
+03. 仙人掌B區 - Cactus B 04:07(   Читать дальше...   )Жанр: Brutal Death Metal, DeathcoreПродолжительность: 00:42:30
 
 ## Скачать торент
 ```bash
@@ -56,370 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061674   (446761) от 11.10.2016
+###  Публикация: 1061704   (446436) от 11.10.2016
 
-VA - Chilled Matters Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Lazygrooves - Walk With Me (05:21)
-02. Johannes Huppertz - Selflove (04:45)
-03. Billy Esteban - Springtime (04:35)
-04. Krystian Shek - Watching The Waves (03:31)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0166BC4DBB638B07EF02B3E5DA29BCE2E6C1DF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061524   (446760) от 11.10.2016
-
-Aposento - Aposento (2014) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Aliens - Seres del más allá 5:01
-02. Hijos del caos 3:51
-03. Muerte lenta 4:37
-04. La valla 4:30(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDB5C13D2F8FC808573014FCF4B241811AE5ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061692   (446759) от 11.10.2016
-
-Zuriaake - Afterimage of Autumn (2007) Digipak [FLAC|Lossless|image + .cue] <Black Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-葬尸湖 Zuriaake - "弈秋 Afterimage of Autumn"
-01. 林語 - Whispering Woods 04:19
-02. 山神 - God of Scotch Mist 07:16
-03. 冥江 - River Metempsychosis 07:36(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061702   (446758) от 11.10.2016
-
-Юрий Бриль | Рядом с зоопарком (1987) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новая книга свердловского литератора, известного читателю по книге «Не троньте лошадей», знакомит с миром подростка, с его увлечениями, интересами. Автор стремится помочь читателю определить грань, которая разделяет добро и зло, правду и неправду, творческое и потребительское отношение к жизни.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F2E5C0B82A2454569504EFF35678039C7F64F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061644   (446757) от 11.10.2016
-
-VA - Delicious Bar Tunes Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Guardner - with the flow (05:52)
-02. Jillene Luce - Magical Memories (05:16)
-03. The Lushlife Project - Soul Reservation Morning (06:57)
-04. Logic Moon - Load (04:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0C5E864F6460724F52C8A0F204201E81016D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061664   (446756) от 11.10.2016
-
-VA - First Class Lounge Vol. St Tropez (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Man In A Room - Something New (06:06)
-02. Weathertunes - My Night And Day (04:56)
-03. Newton - Just One Touch (04:55)
-04. Dave Ross - Break The Silence (08:03)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061796   (446755) от 11.10.2016
-
-Alberto Rionda Alquimia - Alquimia (2013) Japanese Ed.  2016 Reissue [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Mutus Liber
-02. El Lobo Y El Arca
-03. Dama Oscura
-04. La Cuna De Arce(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC746519CE224A0561CB388B8E65F4D33D6FE73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061615   (446754) от 11.10.2016
-
-VA - The Lounge Hotel Vol.5 Royal Edition (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Rosarossa - Get Free (Soul Beats Mix) (03:34)
-02. Desert Groove - Beyond and Headlines (Orion Omega Mix) (03:34)
-03. Karmo - Push the Button (Carisma Mix) (03:23)
-04. Spherical Eyes - All Is Lost (Crystalline Mix) (03:56)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D564EF1DCE2A2EE2FAEF026C91205960FDC6679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061657   (446753) от 11.10.2016
-
-VA - Hotel Wellness and Relax Chillout Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. The Chillout Company - Miami Morning (06:17)
-02. Ice Pedestrian - Trust (Re:birth Mix by Masa) (08:57)
-03. Derek Lion - Frozen Lake (Meditation Edit) (08:17)
-04. Bertram Geck - Weekend (Live Piano Version) (05:38)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061629   (446752) от 11.10.2016
-
-VA - No Need To Rush Vol.6: Sunday Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Star (Original Mix) (04:06)
-02. Dave Ross - Sound Desire (Original Mix) (06:43)
-03. Grisha - Mir (Original Mix) (06:04)
-04. Xemplify - Twenty 11 (Original Mix) (06:26)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C6BB9C72374C446D7245DE5B5AFCD34DD83348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061670   (446751) от 11.10.2016
-
-VA - Moods Of Spring (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Van - Gentleman (06:48)
-02. Castlebed - Gravity (03:30)
-03. Stefan Reh - Way Out Here (06:48)
-04. Chris Le Blanc - Enjoy Your Life (Cafe Del Mar Edit) (04:11)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC2F9281CBC8C9E20DC4471530B1F7DD26453D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061791   (446750) от 11.10.2016
-
-VA - Mystical n Sexy Lounge (2016) [MP3|256-320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Sofa Groovers - Voyageur - Russia 2 Ibiza Mix
-02. DJ Lounge Del Mar - Wonderful Life - Sometimes it Hurts Mix
-03. Noel - Hold me - Relax Lounge Cafe Chillout Mix
-04. Two Heroes - A Place and a History - Mystical Movie Voice Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937C49870A7F6D796A90D99F620E0E16ECACAEF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247956   (446746) от 18.09.2018
-
-MarsEdit 4.1.4 [En]
+MacCleanse 5.1.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2018Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+MacCleanse - приложение с помощью которого, вы всегда сможете качественно удалить следы вашего прибывания в системе и Интернете: обсуждение конфиденциальных вопросов в IM, посещение определенных сайтов, редактирование важных документов, следы от сделанных покупок и т.д.Тип издания: macOS SoftwareРелиз состоялся: 10.10.2016Разработчик: Koingo SoftwareПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA9EA62D1669FECFC9017EFFA6780EF3B8DDE64B
+magnet:?xt=urn:btih:D455297F4F2B5492319BA992276C7A706A245000
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,51 +53,534 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248135   (446744) от 18.09.2018
+###  Публикация: 1061918   (446435) от 11.10.2016
 
-Harold Lopez-Nussa - Un Dia Cualquiera (2018) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz, Piano Jazz>
+VA - Armada Deep House Hits (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mowe feat. Bright Sparks - Your Skin (2:59)
+02. Kav Verhouzer & De Hofnar - Forget Who We Are (3:22)
+03. Boy Kiss Girl - Let You Go (2:43)
+04. Low Steppa feat. Kelli-Leigh - Runnin' (2:19)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: House, Deep HouseПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061745   (446434) от 11.10.2016
+
+BurnAware Professional 9.5 Final RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446434.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - Простая в использовании программа для записи CD, DVD и Blu-ray дисков. Позволяет выполнять все основные задачи по записи: создание и прожиг образов, запись аудио дисков из файлов WAV, MP3, и WMA, запись DVD-Video и дисков с данными, поддержка мультисессии, проверка записанных данных и многое другое.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2261EDAFAD42C15CBD251382F9CEE711EDB4E9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061710   (446433) от 11.10.2016
+
+Downie 2.5.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie 2 – это простейший видео-загрузчик. Поддерживает более 750 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Английский, Русский (вперемешку)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC88271F61725B49F066F99DD4ECF5A413778F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061676   (446432) от 11.10.2016
+
+VA - Best Of Easy Summer Group (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinoptik Music - Intro (Moon Landing) (07:33)
+02. Alex SkyWalker - Mantra (07:33)
+03. Reprobate - Rising Sun (06:36)
+04. Fade - Trace Behind (07:40)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965C0E53635F6D099C3BEFA3383B3CC77B16FB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061808   (446431) от 11.10.2016
+
+CoolUtils PDF Combine 5.1.90 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446431.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Combine - надежный инструмент и незаменимая программа для быстрого склеивания нескольких файлов PDF в один. Утилита работает с любыми типами PDF файлов очень быстро и качественно, что позволяет в считанные секунды получить нужный нам результат. Результат работы всегда точен и аккуратен, что важно для инвойсов, контрактов, банковских указов и других документов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AD95571ABC3ACF8D98972DBCBCC1C964B28766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061877   (446430) от 11.10.2016
+
+Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthlight
+02. Falling Star
+03. Daybreak
+04. Satellites(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDCA3B85B3DA1B6E092DDA7381EEB6FCF6BAA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061875   (446429) от 11.10.2016
+
+VA - Paris in Autumn The Love Lounge Music (2016) [MP3|320 Kbps] <Balearic, Downtempo, Piano>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Stex - Coffe In Paris 07:20
+02. King Hookiss - Relax (Gregorian Chillout Mix) 07:47
+03. Steams - Lachrymose Radio 02:12
+04. Collective Sound Members - When Love Leaves 05:16(   Читать дальше...   )Жанр: Balearic, Downtempo, PianoПродолжительность: 02:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B979F263505E7307A697C20B9A1F57C405D2FE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061866   (446428) от 11.10.2016
+
+Александр Вестов - Миллион облаков (2015) [FLAC|Lossless|image + .cue] <Shanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Миллион облаков
+02 - Она
+03 - За что нам это счастье
+04 - Было и прошло(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7643F1E5DF1E725985C61D220C4E096122FAB5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061747   (446427) от 11.10.2016
+
+VA - Сто хитов популярной музыки. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446427.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мулат - Включила Заднюю
+002. Aurora - Running With The Wolves
+003. Kanye West - All Day
+004. Наталия Власова & Григорий Лепс - Бай Бай(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061749   (446426) от 11.10.2016
+
+VA - Осенняя бомба года от Европы Плюс. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446426.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Skott - Amelia
+002. Inna & 3 Sud Est - Mai Stai
+003. Dinah Nah - If I Were Sorry
+004. Drake & Partynextdoor - Wednesday Night Interlude(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEE6BB4901905CA53FCFF6720D7B40E42A4E0B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061256   (446425) от 11.10.2016
+
+Сороковой день (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья отмечает сороковой день трагической гибели главы семьи. Неожиданный приход обвиняемого в убийстве молодого парня приводит к выяснению сложных семейных отношений...Производство: СССР, ЛентелефильмЖанр: ДрамаРежиссер: Олег ЕрышевАктеры: Инна Макарова, Людмила Шевель, Виктор Ильичёв, Вадим Ермолаев, Елена Соловей, Олег Дмитриев, Лев Семенов, Владимир ТатосовПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB8DEAB19CB0EB1E25B642BF1DDBC4734CDAD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061858   (446424) от 11.10.2016
+
+Screens 3.8.0 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446424.jpg" />
+</div>
+
+
+###  Подробнее
+
+VNC-клиенты и другие приложения для удаленного управления компьютерами бывают очень полезны. В этом случае выполнить определенные действия на удаленном компьютере становится значительно проще. Практически сразу после запуска Screens вы можете оценить качественный и интуитивный интерфейс, в котором просто невозможно запутаться.
+
+Для создания нового соединения потребуется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2016Разработчик: Edovia Inc.Поддерживаемая ОС: macOS 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061647   (446423) от 11.10.2016
+
+Flip PDF Corporate Edition 2.4.5 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flip PDF Corporate - профессиональная версия нашей мощной программы Flip PDF с множеством функций. С помощью Flip PDF можно конвертировать обычный формат PDF в потрясающие буклеты с удивительной покадровой анимацией. Flip PDF предлагает быстрый и легкий способ конвертировать обычные PDF файлы в потрясающие буклеты с эффектом перелистывания страниц и изумительным (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061711   (446422) от 11.10.2016
+
+Tarja - Innocence (2016) EP [MP3|320 Kbps] <Symphonic Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence (radio version)
+02. Demons in You (Tarja solo version)
+03. Victim of Ritual
+04. Acoustic Set (Rivers Of Lust / Minor Heaven / Montanas De Silencio / Sing For Me / Feel Immortal)Жанр: Symphonic MetalПродолжительность: 00:25:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061897   (446421) от 11.10.2016
+
+Slimjet 12.0.2.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C428C94A82D8DE01069BBC2EFA1DC27F518D1121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061754   (446420) от 11.10.2016
+
+Amethyste - Alien Moon (2016) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonrise
+02. Lake of the Clouds
+03. Time Is Still
+04. Dans Ma Memoire(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064303A0F368BCDDDBE88F8CD00653611A8F5C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061878   (446419) от 11.10.2016
+
+Midori - A Promise of Faeries 2 (2016) [MP3|320 Kbps] <New Age>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Secret Garden
+02. Faery Lore
+03. Magical Air
+04. Goodness & Grace(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061418   (446418) от 11.10.2016
+
+Владимир Волжский - Подарите женщине шансон (2009) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446418.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:21] 01. Подарите женщине шансон
+[4:52] 02. Как хочешь ты
+[4:04] 03. Первая любовь
+[4:18] 04. Женщина, которую ищу(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63198382FF7020B2B642D3DB8589D6FA67529D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551867   (446417) от 27.09.2012
+
+Chris Connor - Sings Ballads of the Sad Cafe (2010) [FLAC|Lossless]<Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cimarron [3:52]
-02. Danza de los nanigos [4:30]
-03. Una tarde cualquiera en Paris (To Bebo Valdes) [4:49]
-04. Preludio (To Jose Juan) [3:29](   Читать дальше...   )Жанр: Cuban Jazz, Piano JazzПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547C74CDE46A84D254CBB9CE4872360C127FE179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247950   (446743) от 18.09.2018
-
-JustBroadcaster for Facebook 2.1 [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Самый быстрый путь транслировать с вашего Mac на Facebook.
-Всё что вам нужно - это иметь Facebook-аккаунт.Идеально для тех у кого нет времени вникать в технические детали. Создайте профессиональную трансляцию в считанные минуты.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: MacBroadcasterПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+01. These Foolish Things [03:51]
+02. Bargin Day [03:31]
+03. The End Of A Love Afair [04:09]
+04. Glad To Be Unhappy [03:50]
+05. Ballad Of The Sad Cafe [05:31]
+06. Good Morning Heart Ache [04:46]
+07. Somthing I Dreamed Last Night [04:51]
+08. Lilac Wine [05:22]
+09. One For My Baby [05:21]Жанр: JazzПродолжительность: 00:38:13
 
 ## Скачать торент
 ```bash
@@ -483,26 +592,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248072   (446742) от 18.09.2018
+###  Публикация: 552713   (446416) от 27.09.2012
 
-GroupsPro 3.1.1 [Multi/Ru]
+Подборка журналов | Tattoo Energy №№71...77 (UK) [2011...2012] [PDF] [En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
-GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2018Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и т.д.
+Издание о татуировках как об искусстве. В номере объясняется значение различных символов в татуировке (символы света, демоны, кошки, птицы, сердца и т.д.). Журнал содержит много иллюстраций.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7950DF115856646B81B4EE7360C65DD1BE87EF78
+magnet:?xt=urn:btih:925545248494D599458DF3D0CD595A250BD8C66D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,27 +618,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248204   (446740) от 18.09.2018
+###  Публикация: 551062   (446415) от 27.09.2012
 
-Studies 1.5.0 (48) [En]
+DJ Gvozd - Пиратская Станция @ Radio Record # 578 (18.09.2012) [MP3|320 кб/с]<Drum & Bass>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
-
-Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+01. Wilkinson - Hands Up (Ram)
+02. Rockwell ft. Sam Frank and Kito - Childhood Memories (Shogun Audio)
+03. Prototypes - Abyss (Shogun Audio)
+04. Calyx and Teebee - Hurting (Ram)
+05. Optiv and BTK - Dirty Tricks (Virus)
+06. Task Horizons - Cobra Khan (Evolution Chamber)
+07. Nickbee - Summo (22:22)
+08. Camo and Krooked - Make the Call (Hospital)
+09. Drs ft Spy and Kemo - Renegade (Soul:r)
+10. Need for Mirrors - Palace (Yabai)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:59:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F156DC3AB58D5EF6FF87818B36716744928D8B94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,199 +653,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248131   (446739) от 18.09.2018
+###  Публикация: 552688   (446413) от 27.09.2012
 
-Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+Barillo - Dust (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3284B7ACEFBFD2B12301C91AE02C3208F78FE8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552601   (446412) от 27.09.2012
+
+Журнал | YES! №166 [октябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC81B8D767D9CC2E9CE1A763A1D5C8717911273C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551287   (446411) от 27.09.2012
+
+New York Trio - The Things We Did Last Summer (2002) [MP3|320 кб/с]<Post-Bop, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nuages [8:17]
-02. How About You [5:05]
-03. Someone To Watch Over Me [6:59]
-04. Makin' Whoopee [5:23](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:23
+01. Shadow of Your Smile (04:54)
+02. Things We Did Last Summer (06:38)
+03. How Long Has This Been Going On? (07:36)
+04. How High the Moon (07:49)
+05. Mona Lisa (03:40)
+06. You'd Be So Nice to Come Home To (09:13)
+07. It's Only a Paper Moon (06:02)
+08. When Your Lover Has Gone (08:02)
+09. As Time Goes By (05:44)Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:59:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D63EBF3638C65B808DD07E7F868E2D2A3D2CCB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248196   (446738) от 18.09.2018
-
-AnyTrans for iOS 7.0.0 (20180918) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
-
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5ABF82095F6F6726DAF140F945B8CD441F930A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248189   (446737) от 18.09.2018
-
-App Cleaner & Uninstaller Pro 5.4 [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Управляйте установленными приложениями, деинсталлируйте ненужные приложения, удаляйте сервисные файлы приложений.
-Удалите все служебные файлы и будьте уверенны, что ничего лишнего не занимает места на Вашем диске. Запустите приложение и оно автоматически сделает всю работу по поиску служебных файлов за Вас.Тип издания: macOS SoftwareРелиз состоялся: 14.09.2018Разработчик: NektonyПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248229   (446735) от 18.09.2018
-
-Che-MD - Хозяин в доме (2018) [MP3|320 Kbps] <Alternative Rock, Folk Rock, Punk Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Группа Che-MD — тогда она называлась Plexus — была основана в 2002 году её бессменным лидером и идейным вдохновителем Михаилом Смоленко, ныне журналистом бельцкого телевидения, документалистом и любителем молдавской старины.
-Название коллектива поменялось в 2006 году на вариант созвучный с сочетанием имени легендарного революционера Че Гевары и названия интернет-домена (   Читать дальше...   )01. Герои Бессарабии
-02. Страх
-03. Балканика
-04. Бесы(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Punk RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248111   (446734) от 18.09.2018
-
-Darlyn Vlys - Prince in the Rain (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Techno, Indie Dance>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Northern Lite & Darlyn Vlys – Sun In Hell | AFFKT Remix (06:58)
-02. Darlyn Vlys & Kid Bucle – Tears In Rain | Marc DePulse Remix (06:44)
-03. Darlyn Vlys & RARI – Paradoxal | Third Son Remix (06:07)
-04. Darlyn Vlys & Haptic – Surface | HearThuG Remix (07:40)(   Читать дальше...   )Жанр: Deep Progressive House, Techno, Indie DanceПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248162   (446731) от 18.09.2018
-
-Things 3.6.2 [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248223   (446730) от 18.09.2018
-
-VA - German Top 100 Single Charts 17.09.2018 [MP3|320 Kbps] <Pop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro Gigi D'Agostino - In My Mind
-002. Bonez MC RAF Camora - 500 PS
-003. Capital Bra - Melodien (feat. Juju)
-004. El Profesor - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:44
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:11DFE0D4BCA9D2D523BBC7E0313FDE3CF66EF1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

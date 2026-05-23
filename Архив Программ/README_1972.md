@@ -6,7 +6,7 @@ Helicon Filter 5.1.2.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136390.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Advanced SystemCare Pro 6.0.8.182 Final [Rus|Eng] RePack от D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136356.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VirtualBox 4.2.6.82870 Final + Extension Pack + PortableAppZ [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136344.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ ACDSee Pro 6.1 Build 197 Final (x86/x64) RePack by loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136337.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ CyberLink YouCam Deluxe 5.0.2308 Retail [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136317.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Reg Organizer 5.46 Final DC 19.12.2012 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136139.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Whos On My WiFi 2.1.2 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136101.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Tipard Video Converter Platinum 6.2.16 Portable by Kopejkin [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136100.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Reg Organizer 5.46 Final DC 19.12.2012 RePack (& Portable) by KpoJIuK [Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136080.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ My Daily Wallpaper 6.00 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135942.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ RonyaSoft Poster Designer 2.01.42 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135933.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ USB Disk Security 6.2.0.30 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135917.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ AnyDVD HD 7.1.3.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135883.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ WebcamMax 7.6.8.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135850.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ USB Disk Security 6.2.0.18 DC 20.12.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135844.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135843.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ CCleaner 3.26.1888 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135840.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bandicam 1.8.5.302 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135827.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Opera 12.12 Build 1707 Final RePack (& Portable) by D!akov [Rus/Ukr/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135819.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ AIMP 3.20 Build 1165 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135810.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Realtek High Definition Audio Driver (3.60) 6.0.1.6782 [Мульти/Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135789.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ EZ CD Audio Converter 1.0.4.2 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135645.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Driver Fusion 1.4.0 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135512.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ StartMenu8 2.0 Beta [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135493.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ SUMo 3.4.14.189 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135424.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Scribus 1.4.1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135422.jpg" />
 </div>
 
 

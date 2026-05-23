@@ -1,135 +1,3 @@
-###  Публикация: 1696718   (119535) от 03.02.2024
-
-Н.В. Кашин | Курс физики [3 книги] (1956 - 1963) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Трехтомник "Курс физики" для педагогических институтов.Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954AB61B6A3BDDF96750CA93CF975536AEBF5E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696708   (119532) от 03.02.2024
-
-Сергей Нечаев | Наполеон (2023) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Наполеон – это имя стало нарицательным еще при его жизни. Но как исторический персонаж он начинал даже не с нуля, а с минус бесконечности. Начав создавать свой бренд во Франции, он не был французом по рождению. Его родина – Корсика – стала принадлежать Франции буквально за пару месяцев до рождения Наполеона, а отношения Корсики с Францией были крайне сложными. Исключительность (   Читать дальше...   )Жанр: Биографии и Мемуары, ИсторияИздательство: АСТ, МоскваФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4176FEA8AF15EC2D2600FBED127FCEA9D70235DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696506   (119507) от 03.02.2024
-
-Книжная серия | Геометрия Лобачевского и развитие ее идей [7 книг] (1950 - 1952) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия книг "Геометрия Лобачевского и развитие её идей".Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4429ADF604C9C664157DBD4426F2E0BA5B45FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696618   (119500) от 03.02.2024
-
-А. В. Исаев | Приграничное сражение 1941. Первая битва Великой Отечественной (2020) [PDF, FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-К 75-летию Великой Победы! Радикальное переосмысление катастрофы 1941 года. Новый взгляд на Приграничное сражение, ставшее прологом самого страшного разгрома в советской истории. Убедительные ответы на самые острые, спорные и болезненные вопросы:
-На чьей стороне было в июне 41-го количественное и качественное превосходство?
-Благодаря чему Люфтваффе удалось так быстро (   Читать дальше...   )Жанр: военная история, документальная литература, исторические исследованияЯзык: русскийИздательство: ЯузаФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC33C8DADC733736A836F71632C6FE7F173E1102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696818   (119377) от 04.02.2024
-
-А.Л. Гельгор, Е.А. Попов | Система цифрового телевизионного вещания стандарта DVB-T (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое учебное пособие посвящено изучению различных аспектов стандарта эфирного (наземного) телевизионного вещания DVB-T, наиболее полно представляющего те методы обработки сигналов, которые в настоящее время применяются во многих системах передачи информации. В пособии рассмотрены как технические вопросы, связанные с принципами формирования, передачи, приёма (   Читать дальше...   )Жанр: ТелевидениеИздательство: СПбПТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51991A82CF05C939EB838DB3CFEEFA588B04EFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696966   (119375) от 04.02.2024
 
 В.И. Кириллов, Е.А. Коврига | Системы и сети цифрового кабельного телевидения (2016) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119375.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119355.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119343.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119248.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119203.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119202.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119196.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119170.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119168.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119160.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119153.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119133.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119126.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119115.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119100.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119090.jpg" />
 </div>
 
 
@@ -564,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118961.jpg" />
 </div>
 
 
@@ -590,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118960.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118959.jpg" />
 </div>
 
 
@@ -644,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118954.jpg" />
 </div>
 
 
@@ -670,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118888.jpg" />
 </div>
 
 
@@ -681,6 +549,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6366419721015C7AE37E3D4200C0865EF72ED713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896376   (118860) от 07.02.2024
+
+В. Е. Касторский | Основы аэродинамики и динамики полета (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены теоретические основы аэродинамики и динамики полета самолетов гражданской авиации. Рассмотрены основные понятия движущейся среды, создание аэродинамических сил, основные режимы полета, характеристики устойчивости и управляемости, влияние на них эксплуатационных факторов.
+
+Для студентов высших учебных заведений, обучающихся по программе Техническая эксплуатация (   Читать дальше...   )Жанр: АвиацияИздательство: Институт транспорта и связиФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7E11DCA0FA73AFFB223D236465039CB223AFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697523   (118828) от 07.02.2024
+
+А.А. Щука | Электроника 2-е изд. (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены разделы электроники: вакуумная и плазменная электроника, твердотельная электроника, микроэлектроника, квантовая и оптическая электроника, процессы микро- и нанотехнологий, методы исследования материалов и структур, микросхемотехника. В разделы включены исторические справки об этапах становления и развития направления электроники, контрольные вопросы и (   Читать дальше...   )Жанр: ЭлектроникаИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE35E2EC0CBB5A07CC42B0C89B7065913A8037A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697776   (118827) от 07.02.2024
+
+Р.А. Гиш, С.А. Фролов и др. | Классификация овощных растений (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие переработано и дополнено, рассчитано на студентов, изучающих дисциплину «Овощеводство».  В нем приведены классифика­ции, происхождение овощных растений, их народнохозяйственное значение, морфологическая характеристика и сортовое разнообразие.Жанр: Учебное пособиеИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E7291A5673A24A3E68B00467936F2B8C451250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697685   (118814) от 07.02.2024
+
+Л.П. Ануфриев, С.В. Бордусов | Технология изделий интегральной электроники (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие включает базовые технологические процессы и оборудование для производства изделий интегральной электроники. Предназначено для закрепления и углубления теоретических знаний, ознакомления с современными технологическими процессами и автоматизированным технологическим оборудованием для изготовления изделий интегральной электроники.Жанр: ЭлектроникаИздательство: ИнтегралполиграфФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625D899A93D1463138A7C25317A72DC11A7D3149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697854   (118788) от 07.02.2024
+
+С.П. Кулик | Квантовая электроника (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены материалы лекций профессора МГУ доктора ф-м наук Сергея Павловича Кулика для студентов физического факультета МГУ по курсу "Квантовая электроника"Жанр: ЭлектроникаИздательство: МГУ им. М.В. ЛомоносоваФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C051B2793329FB05761C997493BB3558D1DCF94F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068602.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068601.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Чернобыль: В эпицентре катастрофы / Chernobyl: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067836.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067409.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [4K, HDR, 10-bit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067408.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067374.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062759.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG. Озеро Танганьика. Голубое сердце Африки / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062196.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG. Фашистский лагерь смерти. Большой побег / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061956.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG. Намибия - убежище гигантов / Namibia: Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058853.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG. Титаник: цифровое воскрешение / Titanic: The Digit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055954.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG. Королевство обезьян: линии фронта / Kingdom of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055484.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052942.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052936.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052150.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051867.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051861.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Чудища морей: Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050282.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG. Дикая природа Центральной Америки / Wild Centr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049941.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047621.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046846.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046779.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.264/1080p] (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046778.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046693.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043536.jpg" />
 </div>
 
 

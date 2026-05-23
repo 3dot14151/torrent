@@ -6,7 +6,7 @@ CY Girls [PS2] [FullRUS] [NTSC] (2004)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990071.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989953.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Predator Concrete Jungle [PS2] [RUS] [PAL] (2005)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989916.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Alone In The Dark 4 The New Nightmare [PS2] [RUS] [PAL] (2001)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989900.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ DmC: Devil May Cry [Ru/En/Multi9] (RePack/1.0) 2013 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989855.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ The Cave [En/Multi5] (RePack/1.0dc130125) 2013 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989084.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dungeonland [En/Multi4] (L/3.5.6.44817) 2013 | FAiRLiGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988909.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988861.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Sleeping Dogs: Limited Edition [Ru/En/Multi7] (Repack/2.0.434913/24 DLC) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988785.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Omerta City Of Gangsters [XBOX360] [Region Free] [En] (XGD2 / 15574) (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987854.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Heavy Fire: Shattered Spear [XBOX360] [Region Free] [En] (XGD2 / 15574) (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987780.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987715.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Omerta City Of Gangsters [En/Multi3] (L) 2013 | FAiRLiGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987654.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Chaotic: Shadow Warriors [Wii] [NTSC] [Eng] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986702.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sonic & All-Stars Racing Transformed [En/Multi5] (Steam-Rip/1.0) 2013 | R.G. Gam
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986541.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ James Bond 007: NightFire [Ru] (L) 2002
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986318.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986193.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Hitman Trilogy HD [PS3] [EUR] [En] [L] [4.25CFW / 4.30 CFW] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985282.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ The Secret of Monkey Island Special Edition [En] (Steam-Rip/1.0) 2009 | R.G. Gam
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985270.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Red Faction: Armageddon [PS3] [Ru] [L] [3.41/3.55/4.21/4.30] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985269.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BioShock: Ultimate Rapture Edition [PS3] [USA] [En] [L] [4.30 CFW] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985185.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Fist of the North Star: Ken's Rage 2 [XBOX360] [Region Free] [En] (XGD2 / 15574)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985118.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Dead Space 3: Limited Edition [Ru/En/Multi6] (L) 2013 | Без таблетки|
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985034.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Rappelz: Песнь победы [Ru] (L/121526) 2006 (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983895.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Fist of the North Star: Ken's Rage 2 [PS3] [EUR] [L] [En] [4.30 CFW] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983801.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru] (Lossless Repack/1.6/DLC) 2012 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983637.jpg" />
 </div>
 
 

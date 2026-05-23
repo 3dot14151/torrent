@@ -6,7 +6,7 @@ Save Our Souls (2017) [En] (1.0) License CODEX [Episode 1]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832783.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dead Rising 2 (2010-2011) [Ru/En] (1.0/1.0) SteamRip Let'sРlay [Complete Pack]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832735.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Warden: Melody of the Undergrowth (2016) [En] (1.0.190) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832135.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GUILTY GEAR  2 -OVERTURE- (2016) [En/Multi] (1.0.0.520) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828209.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы (2003) [En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825538.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Deathtrap Dungeon (1998) [En] (1.0 it fix) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825532.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ HITMAN (2016) [Ru/Multi] (1.9.0/dlc) SteamRip R.G. Origins [The Complete First S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823821.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru] (1.06.329/dlc) Repack R.G. Games [Digital De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823738.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ The Club [Ru/En] (Р)  2008
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818733.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Tom Clancy's Ghost Recon Future Soldier (2012) [Ru] (1.8.130422/dlc) Repack =nem
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818698.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blades Of Time (2012) [Ru/Multi] (1.6/dlc) SteamRip Let'sPlay [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818391.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Troll and I (2017) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818321.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Just Cause 3 (2015) [Ru/En] (1.05/dlc) Repack Seraph1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814418.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Surge (2017) [Ru/Multi] (Update 11/dlc) SteamRip R.G. Origins [Complete Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813205.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Remember Me (2013) [Ru/Multi] (1.0.2/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813203.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DmC - Devil May Cry (2013) [Ru/Multi] (1.0r3/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813073.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Son of Nor (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810493.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mafia: Definitive Edition (2020) [Ru/En] (1.0.7368608/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807657.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807629.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Kill to Collect (2016) [En/Multi] (1.1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807172.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Prototype 2 (2012) [Ru] (1.0/dlc) Repack xatab [Radnet Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805743.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Infinite Tanks (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804580.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804008.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802211.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Darksiders: Wrath of War (2010) [Ru] (1.1/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801904.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Alice: Madness Returns (2000-2011) [Ru/Multi] (1.0.0.0/dlc) SteamRip Let'sPlay [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801631.jpg" />
 </div>
 
 

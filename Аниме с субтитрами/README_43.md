@@ -6,7 +6,7 @@ New Game! | Новая Игра! [2016, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766167.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Urara Meirochou / Предсказательница из Мейрочо [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766076.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766016.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765838.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765352.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Nana Maru San Batsu | Nanamaru Sanbatsu | Fastest Finger First | Семь - ве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764419.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Luck and Logic + Watashitachi, Luck Logic Bu! | Удача и логика [2016
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764240.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Deep Insanity: The Lost Child | Глубинное безумие: Потеря�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763119.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya: Sekka no Chikai | Судьба: Де�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762997.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Fate/kaleid liner Prisma Illya 3rei!! | Fate/Kaleid Liner Prisma Illya Drei!! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762872.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Inuyasha: Tenka Hadou no Ken | Inuyasha the Movie: Swords of an Honorable Ruler 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760386.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Inuyasha: Kagami no Naka no Mugenjou | Inuyasha the Movie: The Castle Beyond the
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760384.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kyattou Ninden Teyandee | Cat Ninden Teyandee | Samurai Pizza Cats | Коты-с
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760265.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Inuyasha | Инуяся [2000, TV, 167 из 167] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760250.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760065.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Beastars 2nd Season | Выдающиеся звери [ТВ-2] [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760063.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757701.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757192.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757186.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757018.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757017.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757015.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757006.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ryuuou no Oshigoto! | The Ryuo's Work is Never Done! | Работа для др�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756001.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Black Jack / Черный Джек [1993 - 1996, OVA, 10] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755964.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Hanamaru Youchien / Hanamaru Kindergarten / Детский сад Ханамар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755240.jpg" />
 </div>
 
 

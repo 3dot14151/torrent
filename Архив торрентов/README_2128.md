@@ -6,7 +6,7 @@ R-Studio 8.0 Build 164761 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579054.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Зарубежные клубные новинки vol.5 (2011) [MP3|320 kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579049.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KMS Tools Portable 12.08.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579046.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579038.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ D-Block Europe (DBE) - PTSD (2019) One-CD edition [MP3|320 Kbps] <Hip-Hop, Trap,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579025.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ DVDFab 9.2.0.5 Final Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579007.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579005.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Light Image Resizer 4.7.2.0 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579004.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AnyMemo Pro 10.7.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579002.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ExpanDrive 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579000.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578999.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ SQL Dynamite 1.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578998.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Bandicam 2.2.4.811 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578995.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ WinToUSB Free 2.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578993.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Music Коллекция ЛЕТА vol.1 (2011) [MP3|320 kbps]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_578991.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - The Blues Anthology (1999) [FLAC|Lossless]<Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578990.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA-Cafè Lychee - Volume 6 (2010) [MP3|320 kbps]<Classic Trance, Vocal Trance, U
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578988.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Men of Blues- Mississippi River Blues (1998) [FLAC|Lossless]<Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578984.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA-Cafè Lychee - Volume 4 (2010) [MP3|320 kbps]<Classic Trance, Vocal Trance, U
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578982.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578977.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Celtic Chill - City Of Legions (2010) [MP3|192 kbps]<New Age, World, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578970.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PrivaZer 4.0.44 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578949.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Excite Audio - Lifeline Console 1.0.0 Standalone, VST, VST 3 (x32/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578940.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Wise Disk Cleaner 8.65.612 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578932.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ IObit Smart Defrag 4.2.0.815 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578931.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Symphony X - Underworld (2015) [FLAC|tracks+.cue]<Progressive Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578926.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AntiPlagiarism.NET 4.142.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23953.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RedNotebook 2.39.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23441.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDFsam Basic 5.3.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21016.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Mu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20415.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CoolUtils Total Doc Converter 5.1.0.364 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20392.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vov Sticky Notes 9.6 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19709.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PDFCreator 6.0.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19650.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Desktop Calendar 3.22.234.7108 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19367.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Joplin 3.3.12 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19265.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ QOwnNotes 25.5.3 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19234.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GeoGebra 6.0.885-1 Classic + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19231.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ HomeBank 5.9.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19146.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FinePrint 12.12 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18760.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PdfFactory Std & Pro 9.12 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18711.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Draw.io 27.0.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18707.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16763.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ PDF Shaper Premium / Ultimate 15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15067.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Office Tab Enterprise 18.00 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14985.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ CoolUtils Total HTML Converter 5.1.0.315 RePack (& portable) by elchupacabra [Mu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14614.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ CoolUtils Total XML Converter 3.2.0.158 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14609.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Master PDF Editor 5.9.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13058.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Office Tool Plus 10.24.68.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11979.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ ACG-Free! 2.01 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11789.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.582 RePack (& Portable) by elchupaca
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11100.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Wondershare PDFelement 11.4.24.3620 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11002.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NFOPad 1.81 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9671.jpg" />
 </div>
 
 

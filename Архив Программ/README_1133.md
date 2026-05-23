@@ -6,7 +6,7 @@ SAM CoDeC & DeCoDeR Pack 2012 4.55 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469742.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Screenpresso 1.3.5.0 PRO + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469653.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Experimental Tor Browser Bundle 8.5 Alpha 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469585.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469584.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Android Studio 3.1.4 Build #AI-173.4907809 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469576.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mac Blu-ray Player 2.5.2.0986 + Portable by Invictus [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469555.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mail.Ru Агент 6.0.5976 Final RePack by elchupacabra [RUS|ENG|UKR]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469541.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nuclear Coffee VideoGet 6.0.2.65 [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469433.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Total Commander 8.01 Final [MAX-Pack 2012.9.4] AiO-Smart-SFX [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469430.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Internet Download Manager 6.12.15 Final RePack (& Portable) by D!akov [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469429.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Stardock Start10 1.61 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469344.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Photodex ProShow Producer 9.0.3771 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469316.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Kaspersky Rescue Disk 10.0.31.4 (16.09.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469273.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ TeamViewer 7.0.14563 Final RePack by elchupacabra [RUS|ENG|UKR]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469266.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Windows 7 Manager 4.1.4 Final [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469229.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Internet Download Manager 6.26 Build 5 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469216.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Nuclear Coffee VideoGet 6.0.2.65 RePack/Portable By Boomer [Русский/Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469016.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Icecream Image Resizer 1.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468968.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Icecream Slideshow Maker 1.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468966.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Acronis True Image 2018 Build 9207 RePack by KpoJIuK (27.08.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468943.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Game WideScreener 1.3.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468908.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Skype 8.51.0.86 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468900.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Total Commander 8.01 LitePack | PowerPack 2012.9a Final RePack (& Portable) by D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468861.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.9a Final + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468853.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ SamDrivers 19.7 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468747.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Reg Organizer 7.52 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468716.jpg" />
 </div>
 
 

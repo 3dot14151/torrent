@@ -1,29 +1,3 @@
-###  Публикация: 959873   (311545) от 26.11.2015
-
-Rampage Knights (2015) [En] (1.5) Unofficial
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Rampage Knights - хардкорный 2D-экшен с великолепной анимацией, случайно генерируемыми уровнями, и кровавыми битвами с врагами! Можно играть как одному, так и в кооперативе с другом. Вы будете играть за героя, который оказался заточен заклинанием в волшебном лесу. Все тропинки этого леса ведут в полуразрушенный замок, в котором находится источник черной магии.Тип издания: UnofficialРазработчик: Rake in GrassЖанр: ArcadeЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F3EA175C3A963F265E024C51023271C97C08CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959926   (311544) от 26.11.2015
 
 The Book of Unwritten Tales 2 (2015) [En/Multi] (25.11.2015) License PROPHET [Almanac Edition]
@@ -32,7 +6,7 @@ The Book of Unwritten Tales 2 (2015) [En/Multi] (25.11.2015) License PROPHET [Al
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311544.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Andersen Accounts 3: A Voice of Reason / Досье Андерсена 3: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311455.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.0.7) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311446.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311428.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311426.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311312.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Willy-Nilly Knight (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311294.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311293.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311277.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Templar Battleforce (2015) [En] (2.6.65) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311193.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ MotoGP 18 (2018) [Multi] (1.0) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311175.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311091.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Rise: Race The Future (2018) [Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311087.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Football Manager 2019 (2018) [Ru/Multi] (19.1.1) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311057.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310996.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.3.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310987.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Enchanted Kingdom 8: Master of Riddles (2020) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310611.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Cyber Chicken (2016) [En] (1.0.3) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310531.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mystery Tales 10: The Reel Horror / Загадочные истории 10: Уж
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309697.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ MadCaps [En] (P) 2004
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309399.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Space Pirates And Zombies 2 (2017) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309059.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] (1.03/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309044.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309018.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Pure Pool - Snooker pack (2015) [Ru/Multi] (1.05) License POSTMORTEM
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309010.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ GRIP: Combat Racing (2018) [Ru/Multi] (1.3/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308967.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ GRIP - это крутой высокооктановый боевой гоно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997DD77DFD4D7FE8672CD5EF77A0F1C79B3CF48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260795   (308962) от 08.11.2018
+
+Police Helicopter Simulator (2018) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Police Helicopter Simulator — симулятор, в котором у вас теперь есть возможность испытать повседневную жизнь вертолетного полицейского подразделения. Главная задача заключается в воздушном наблюдении за безопасной обстановкой вверенном вам округе. Большой и реалистичный игровой мир обеспечивает захватывающее действие и днем и ночью. В симуляторе полицейского вертолета (   Читать дальше...   )Тип издания: LicenseРазработчик: VIS-GamesЖанр: Simulator, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA8E82CD54D58FFF180C76B94D437F3BD103ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/

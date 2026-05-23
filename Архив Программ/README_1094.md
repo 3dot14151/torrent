@@ -6,7 +6,7 @@ Autorun Organizer 3.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490896.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 62.0.3331.116 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490885.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JRiver Media Center 25.0.89 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490880.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Cleaner 8.1.0 build 1113 [ML / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490874.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PGWare Throttle 6.9.3.2012 RePack by Boomer  [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490873.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nikon Capture NX2 2.3.4 Portable by Maverick [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490871.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Splash PRO EX 1.13.0 with Action! 1.9.1 (RePack) 1.13.0 [русский, укр�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490863.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490802.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WinRAR 5.91 [DC 25.08.2020] RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490800.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Acronis BootCD 2020 by zz999 (август 2020) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490798.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490734.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AIDA64 Extreme | Business Edition 2.60.2100 Final AIO (RePack & portable) by SPe
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490720.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ RuntimePack Lite (x86/x64) 12.8.20 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490717.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Opera Unofficial 12.02.1578 F + обновление до 12.02.1578 F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490715.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490700.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ YouTube By Click Premium 2.2.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490683.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Opera GX 62.0.3331.117 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490676.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ AOMEI Backupper Technician Plus 5.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490669.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Total Commander 8.01 LitePack | PowerPack | ExtremePack 2012.9 LOKO Edition Fina
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490633.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Adobe InDesign CC 2019 14.0.3.422 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490589.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Nikon Capture NX2 2.3.4 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490561.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ UltraISO Premium Edition 9.5.3.2901 Portable by BurSoft [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490513.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Adobe Audition CC 2019 12.1.3.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490495.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Avira Phantom VPN Pro 2.28.3.20557 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490491.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490366.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Firefox Browser ESR 91.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490354.jpg" />
 </div>
 
 

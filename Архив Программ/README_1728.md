@@ -6,7 +6,7 @@ Resource Hacker 5.1.8.360 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201687.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Download Master 6.27.1.1699 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201682.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Extended GodMode 1.0.2.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201681.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FolderSizes Enterprise 9.5.419 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201671.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Beyond Compare Pro 4.4.6.27483 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201669.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinPaletter v1.0.7.2 Standalone [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201666.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TeraCopy 3.9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201659.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ uTorrent Pro 3.6.0 Build 46716 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201657.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TaskSchedulerView 1.72 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201650.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Freemake Video Converter 4.1.13.153 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201648.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Abelssoft SSD Fresh Plus 2023 12.02.45685 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201647.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Opera 96.0.4693.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201644.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Bandicam 6.1.0.2044 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201641.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FileMenu Tools 8.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201638.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Topaz Video AI 3.1.8 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201628.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Wise Memory Optimizer 4.1.8.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201600.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ ByClick Downloader Premium 2.3.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201594.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Spotify 1.2.6.863 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201593.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.4 Build 9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201573.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ StartAllBack 3.6.2 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201567.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ IObit Uninstaller Pro 12.3.0.9 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201550.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Wirecast Pro 15.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201539.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adobe Acrobat Pro DC 23.001.20064.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201532.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PDF-XChange Editor Plus 9.5.367 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201529.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ SoftMaker Office Professional 2021 S1062.0225 (x86/x64) Portable by 7997 [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201528.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ AOMEI Partition Assistant Pro 9.15.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201526.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702851.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mike was Сursed (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702191.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Inner Voices (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698376.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17512) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698244.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Operation Flashpoint: Red River (2011) [Ru/En] (1.2.0.0) RePack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695491.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694894.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694619.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693896.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Pursuer (2019) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691626.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Umbrella Corps / Biohazard Umbrella Corps (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689947.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.3.2/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689785.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Containment Initiative (2018) [En] (1.45) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688939.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Prey (2017) [Ru/Multi] (1.0.2/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688662.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ STRAFE (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686777.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Reframed (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686615.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Apocryph: an old-school shooter (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686605.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DESOLATE (2019) [Ru/Multi] (1.2.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685554.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ CRIMSON METAL (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684357.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683500.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682262.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681791.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Inner Chains (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680406.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Prey [Ru] (L) 2006
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_678861.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ I Am Alive (2012) [Ru/Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676072.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ illWill (2023) [Ru/Multi] (1.11) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676066.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673878.jpg" />
 </div>
 
 

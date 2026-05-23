@@ -6,7 +6,7 @@ Kodi 20.1 (Nexus) for Android [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CamScanner 6.45.0.2307170000 Mod by maxi123444, youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OfficeSuite Pro + PDF 13.11.48134 Mod by mihz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208026.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Busuu - изучение языков 30.9.0(600134) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208022.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ OfficeSuite Pro + PDF 13.11.48134 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208008.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ OGWhatsApp 17.51 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207958.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Truecaller BETA: определитель номера 13.26.6 Mod by Amr Gamal 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207941.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AIMP для Android 4.00.1343 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207919.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Aqua Mail Pro 1.45.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207793.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CCleaner Pro: ПО для очистки 23.14.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207789.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207415.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ XY VPN - Security Proxy VPN 4.4.766 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207371.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Gradient v2.9.66 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207367.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ XY VPN - Security Proxy VPN 4.5.006 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207274.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Garmin: Дороги России Топо 6.40 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207084.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AirBrush v5.3.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206588.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Photo Lab PRO v3.12.65 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206525.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ PhotoRoom v4.6.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206459.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Duolingo: изучай языки 5.114.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206236.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ CamScanner 6.46.0.2308010000 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206174.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ CCleaner Pro: ПО для очистки 23.16.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206164.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206158.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AccuBattery Pro 2.1.1 Mod by Dymonyxx [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206146.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Square Home Launcher 2.4.14 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206140.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ OfficeSuite Pro + PDF 13.12.48620 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206049.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ YouTube ReVanced Extended 18.30.37 (RVP v2.187.1) Mod by Vooltmace + Micro G [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205924.jpg" />
 </div>
 
 

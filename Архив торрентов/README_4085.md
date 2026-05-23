@@ -6,7 +6,7 @@ Allavsoft Video Downloader Converter 3.25.9.8679  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175390.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hazel 5.2.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175387.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175386.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinRAR 6.00 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175377.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bartender 5 v.5.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175364.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SophiApp 1.0.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175363.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Photo Supreme 2023.2.0.5044 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175352.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Run-Command 5.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175351.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Topaz Video AI for Mac 3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175333.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Sticky Password Premium 8.6.2.1258 (промо SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175327.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Posterino 3 v3.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175324.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PhotoSweeper X 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175320.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Core Temp 1.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175317.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Valentina Studio Pro 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175312.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175309.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VideoDuke 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175308.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Format Factory 5.13.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175299.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Rogue Amoeba Farrago 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175291.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Motion 5.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175284.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Viber 21.1.0.6 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175282.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Serif Affinity Designer 1.10.6.1665 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175277.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Radiant Photo 1.1.2.315 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175274.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Macrorit Data Wiper 6.9.9 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175271.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Xmas snow 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175263.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ PDF-XChange Editor Plus 9.5.365.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175258.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Exposure Software Blow Up 3 v3.1.4.360 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175252.jpg" />
 </div>
 
 

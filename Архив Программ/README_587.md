@@ -6,7 +6,7 @@ Vivaldi 2.3.1440.41 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755203.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Brave Browser 0.59.35 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755200.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Coolutils PDF Splitter 5.2.0.66 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755196.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Light Image Resizer 5.1.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755194.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CrystalDiskInfo 8.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755188.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Viber 13.3.1.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755183.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kerish Doctor 2020 4.80 [DC 10.07.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755178.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WhatsApp 2.2027.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755174.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mozilla Firefox 38.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755152.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ LC Technology RescuePRO Deluxe 5.2.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755148.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Acrobat Pro DC 2015.016.20041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755111.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ JetBrains PyCharm Professional 2016.1.3 Build #PY-145.971 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755099.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ JetBrains WebStorm 2016.1.2b Build #WS-145.972 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755093.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Xhun Audio - LittleOne 3.1.0 VSTi, VSTi3 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755089.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ XnConvert 1.79 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755087.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755086.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Torch Browser 65.0.0.1617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755078.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Icecream PDF Editor 1.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755077.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Vivaldi 2.3.1440.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755076.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Icecream Screen Recorder PRO 5.92 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755073.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Topaz Video Enhance AI 1.3.8 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755043.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Start Menu X 5.41 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755029.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Google Chrome 42.0.2311.90 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755017.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754976.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ MAGIX Video Pro X10 16.0.2.306 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754960.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Icecream Password Manager 1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754959.jpg" />
 </div>
 
 

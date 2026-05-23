@@ -6,7 +6,7 @@ YT Downloader 7.27.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239123.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DiskCatalogMaker 8.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239119.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Formalin - Love and Nihilism (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro Indus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239118.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ DVDFab 12.0.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239117.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ n-Track Studio Suite 9.1.8 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239114.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Screens 4 v4.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239113.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Opera GX 90.0.4480.117 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239109.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Balabolka 2.15.0.848 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239108.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ ColorWell 7.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239107.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Glary Tracks Eraser 5.0.1.260 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239104.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Photo Effects Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239101.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ HWiNFO 7.27 Build 4865 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239096.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239091.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Fort Firewall 3.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239089.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Movist Pro 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239083.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Windows and Office Genuine ISO Verifier 11.12.36.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239076.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Calibre 6.19.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239072.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Sandboxie 5.64.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239070.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Eon Timer 2.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239069.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Draw.io 21.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239068.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ TreeSize Professional 8.4.0.1710 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239066.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Topaz Video AI 3.2.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239065.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ DaisyDisk 4.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239048.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Duplicate File Finder Pro 7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_239045.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Topaz Photo AI 1.3.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239036.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ IObit Uninstaller Free 12.5.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239026.jpg" />
 </div>
 
 

@@ -1,116 +1,3 @@
-###  Публикация: 873598   (857390) от 06.03.2015
-
-ABBA - The Definitive Collection (1974-1982) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1 Waterloo
-2 Ring Ring
-3 Mamma Mia
-4 SOS(   Читать дальше...   )Жанр: Pop, DiscoРежиссер: Лассе Халльстрём, Челль СундвалльПродолжительность: 02:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D18401F94B87159FDA3C363B79AD463511553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000641   (857298) от 26.03.2016
-
-Квартирник у Маргулиса - Би-2 (2016) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса группа Би-2 . Дата эфира: 06.02.2016.1. Хипстер
-2. И корабль плывет
-3. Варвара
-4. Серебро(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D536FBCCE7733A5193C9914E0A74341D3C9624F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474328   (855893) от 27.09.2021
-
-Status Quo - The Last Night Of The Electrics 2016 (2017) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Выступление британской рок-группы Status Quo в London O2 Arena 11 декабря 2016 года.01. Caroline
-02. The Wanderer
-03. Something Bout You Baby I Like
-04. Rain(   Читать дальше...   )Производство: ВеликобританияЖанр: RockПеревод: Не требуетсяПродолжительность: 01:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A6898AC9B48A96C758040EF2696FB313EDEC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648033   (855438) от 24.04.2013
-
-Sara Tunes - VIP (2013) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95ED03E71A95153E6443E34ECFC838FC4B43C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 648027   (855371) от 24.04.2013
 
 Marty - Suddenly (2013) WEBRip [H.264/1080p]
@@ -119,7 +6,7 @@ Marty - Suddenly (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855371.jpg" />
 </div>
 
 
@@ -145,7 +32,7 @@ Chase The Ace - California (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855285.jpg" />
 </div>
 
 
@@ -171,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854167.jpg" />
 </div>
 
 
@@ -200,7 +87,7 @@ Zucchero - Zu & Co - Live at Royal Albert Hall (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852590.jpg" />
 </div>
 
 
@@ -229,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852405.jpg" />
 </div>
 
 
@@ -255,7 +142,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852255.jpg" />
 </div>
 
 
@@ -282,7 +169,7 @@ Within Temptation - Let Us Burn (Elements & Hydra Live In Concert) (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852151.jpg" />
 </div>
 
 
@@ -311,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851990.jpg" />
 </div>
 
 
@@ -340,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851981.jpg" />
 </div>
 
 
@@ -369,7 +256,7 @@ Rammstein - Volkerball (2006) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851647.jpg" />
 </div>
 
 
@@ -398,7 +285,7 @@ Nightwish - Vehicle of Spirits (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851368.jpg" />
 </div>
 
 
@@ -426,7 +313,7 @@ Jackie Evancho - Music Of The Movies (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851098.jpg" />
 </div>
 
 
@@ -452,7 +339,7 @@ Beth Hart / 37 Days (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850994.jpg" />
 </div>
 
 
@@ -483,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850460.jpg" />
 </div>
 
 
@@ -510,7 +397,7 @@ Klaus Schulze feat. Lisa Gerrard - Dziekuje Bardzo (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849864.jpg" />
 </div>
 
 
@@ -538,7 +425,7 @@ Eagles - Live at the Capital Centre (1977) BDRip [H.264/1080p] [audio - self mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849784.jpg" />
 </div>
 
 
@@ -565,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849748.jpg" />
 </div>
 
 
@@ -592,7 +479,7 @@ Eric Clapton - One More Car, One More Rider (Live On Tour 2001) (2002) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848295.jpg" />
 </div>
 
 
@@ -621,7 +508,7 @@ Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848067.jpg" />
 </div>
 
 
@@ -650,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847303.jpg" />
 </div>
 
 
@@ -680,7 +567,7 @@ Blackmore's Night - The Beginning Box(2012) 2*DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847089.jpg" />
 </div>
 
 
@@ -706,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846848.jpg" />
 </div>
 
 
@@ -717,6 +604,117 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D97F88AAC9ED825ED1EBD9B6D90FCF218211C09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002236   (846771) от 01.04.2016
+
+Квартирник у Маргулиса. 20 выпуск. 7Б (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многим рок-группа 7Б запомнилась дебютным альбомом «Молодые ветра» 2001 года. В этом году группа 7Б отмечает свое пятнадцатилетие. Солист группы Иван Демьян состоял на учете в психиатрическом отделении больницы с диагнозом под медицинским кодом 7Б, обозначает одну из степеней шизофрении. Сегодня в теплой и душевной атмосфере квартирника у Евгения Маргулиса участники (   Читать дальше...   )01. Осень
+02. Мне ответит небо
+03. Кино
+04. Появись(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EC91481D7B9CEEF478F84E09BE1863A9946864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002243   (846769) от 01.04.2016
+
+Квартирник у Маргулиса. 19 выпуск. Мельница (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мельница — знаменитая фолк-рок-группа, которая была основана в 1999 году участниками распавшейся группы «Тиль Уленшпигель». Сегодня в теплой и душевной атмосфере квартирника у Евгения Маргулиса группа Мельница и ее вокалистка Наталья О’Шей исполнят свои самые популярные и полюбившиеся песни: Прощай, Дорога сна, Дороги, Далеко, Рапунцель, Никогда, Марсианский экспресс (   Читать дальше...   )01. Дорога Сна
+02. Дороги
+03. Далеко
+04. Овечка(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E546C932B31B842F64269201296BCA404B80B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001895   (846759) от 01.04.2016
+
+Людмила Улицкая. Незабудки (Мой внук Вениамин) (2014) SATRip (2 части) (Московский театр "У Никитских ворот")
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846759.jpg" />
+</div>
+
+
+###  Подробнее
+
+"На первый (поверхностный) взгляд Улицкая написала семейную мелодраму со всеми присущими ей признаками: несостоявшаяся свадьба из-за того, что жених улизнул из-под венца, властная родительница, диктующая сыночку, на ком ему следует жениться, забеременевшая девочка, приехавшая из провинции, волнующая до поры, до времени тайна сиротства, некий юноша в солдатской (   Читать дальше...   )Жанр: Мелодрама, спектакльРежиссер: Марк РозовскийАктеры: Райна Праудина, Екатерина Райкина, Дарья Щербакова, Александр ЧернявскийПродолжительность: 00:45:14 + 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69171AAECE7C8895B916ED840C0D6DC413C1C073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002766   (846598) от 01.04.2016
+
+Исидор Шток - Ноев ковчег (1967) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846598.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе Исидора Штока.
+Автор назвал это произведение доисторической документальной драмой, а зритель - признал это комедией. Исидор Шток написал "Ноев ковчег", как продолжение своей "Божественной комедии". В этом спектакле сохранена добродушная интонация. Временами она переходит в сатиру, за счет большого ряда аналогий с современностью.Производство: СССР, Ленинградское телевидениеЖанр: Телеспектакль, комедияРежиссер: Александр БелинскийАктеры: Сергей Юрский, Виктор Чекмарёв, Григорий Буймистр, Игорь Дмитриев, Сергей Боярский, Лидия Штыкан, Георгий Штиль, Виктория Аскенадзе, Вячеслав Ларкин, Инна Варшавская, Ирина Соколова (II), Наталья Бродская, Татьяна Иванова, Олег КозловПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58751E040909D0B86CD64AE2CA95EAC16FD93538
 ```
 
 https://mybot314.ru/tekegram_catalog/

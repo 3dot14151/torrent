@@ -6,7 +6,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923705.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser ESR 91.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923704.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinTools.net Premium 20.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923702.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kdenlive 21.08.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923697.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Acrobat Pro DC 2015.023.20056 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923649.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NetWorx 5.1.6 + Portable [MULTI (русский присутствует)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923605.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NVIDIA GeForce Desktop 442.59 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923593.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MAGIX Sound Forge Pro 14.0 Build 33 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923585.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Balabolka 2.15.0.734 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923582.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Google Chrome 92.0.4515.159 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923579.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Google Chrome 92.0.4515.159 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923545.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Nox App Player 6.6.0.5002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923541.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Flash Player 32.0.0.344 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923495.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Nvidia DriverPack v.442.59 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923493.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Power Video Converter 2.2.31 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923466.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Xilisoft Video Editor Portable RePack by ogurchik 2.0.1.0111 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923443.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Viber 15.9.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923425.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TuneUp Utilities 2010 9.0.4020.33 Eng / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923409.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Windows 7 Enterprise SP1 x64 RU [GX 11.08.21] by geepnozeex [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923317.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Windows 7 SP1 X64 Ultimate 3in1 OEM MULTi-7 JULY 2021 by Generation2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923309.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The KMPlayer 4.2.2.54 repack by cuta (build 6) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923295.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ FastStone Image Viewer 7.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923270.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ ABBYY FineReader 15.0.112.2130 Corporate Full/Lite RePack by KpoJIuK (11.03.2020
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923189.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Windows Chicago ВРЕМЕННАЯ РАЗДАЧА!!!
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923168.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ FlylinkDC++ r503 build 19503 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922769.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Q-Dir 6.48.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922760.jpg" />
 </div>
 
 

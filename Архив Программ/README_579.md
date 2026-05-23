@@ -6,7 +6,7 @@ Zemana AntiMalware Premium 2.74.2.150 RePack by EnVyMe [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Premiere Pro 2020 (14.3.0.38) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759958.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PicPick 5.2.1 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759919.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EasyUEFI Technician 4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759915.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Repair (All In Onе) 2018 4.4.3 Pro [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759892.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ACDSee Photo Studio Ultimate 2019 12.1 Build 1656 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759881.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Chromium 67.0.3369.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759835.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kerish Doctor 2022 4.85 (DC 05.01.2022) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759764.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 11 (v21h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759759.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Boris FX Continuum 2019 Plug-ins OFX Repack от Pooshock 12.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759754.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wondershare Filmora 9.0.7.4 (x64) Repack by elchupacabra (03.02.2019) + Effect P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759744.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.23 (2403) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759720.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Air Explorer Pro 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759713.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Speccy 1.01.132 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759671.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Hetman Partition Recovery 4.2 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759646.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Air Explorer Pro 2.2.0 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759610.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Any Video Converter Professional 6.2.3 RePack (& Portable) by TryRooM  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759608.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Zentimo xStorage Manager v1.0.2.949 Beta [ML]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759569.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Viber 8.5.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759543.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Nox App Player 6.0.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759538.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Tixati 2.57 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759533.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ FastStone Capture 8.9 Final RePack (& portable) by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759447.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Auslogics BoostSpeed 5.0.6.250 (от 05.04.2011) [RU/EN] | by Dopex REPACK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759415.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ DriverPack Solution 17.7.73.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759360.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ MediaHuman YouTube Downloader 3.9.8.23 (2403) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759359.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Realtek High Definition Audio Driver R2.59 [Многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759316.jpg" />
 </div>
 
 

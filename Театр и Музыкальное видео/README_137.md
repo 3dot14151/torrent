@@ -1,115 +1,3 @@
-###  Публикация: 1783851   (69713) от 08.03.2025
-
-МузЛофт-Дети / МузLoft. Владимир Сорокин (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Владимир Сорокин. Сын маминой подруги о том, как заработать на гитару.
-Встречайте, смотрите, слушайте новый выпуск шоу Музлофт-дети. Возможно, благодаря вашему просмотрю, этот харизматичный парень станет настоящей звездой, а пока просто послушайте как он поет и главное взросло мыслит.Производство: Россия | Y-GenerationУчастники: Владимир СорокинПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A925019686AF332BC0DA1DAD2BCD2B5520979A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784072   (69652) от 09.03.2025
-
-Квартирник у Маргулиса. ARTEMIEV (08.03.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Коллектив был основан в 2010 году бывшим солистом группы «Корни» Павлом Артемьевым. Изначально он назывался 21GRAMM, но в скором времени сменил название. За время своего существования московская группа меняется и развивается, но остается преданной первоначальной идее независимого творческого коллектива. Музыканты создают лиричную музыку по мотивам своих путешествий (   Читать дальше...   )00:00:04 140
-00:07:29 Смешнее
-00:12:23 Тропы
-00:19:40 Инстинктивно(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopЯзык озвучки: РусскийПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46EF0DFFA41198FCE9701C20ABAF1849C8443E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785511   (69285) от 16.03.2025
-
-Квартирник у Маргулиса. Хмыров (15.03.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Филипп Хмыров — яркий петербургский артист, который умело соединил в своем творчестве бодрый хип-хоп и задушевный русский рок. Он с детства мечтал стать музыкантом и уже в 11 лет придумывал песни в стилистике группы «Кино», но боялся осуждения родителей. Филипп сам пишет, записывает и сводит свои композиции. В его треках сочетаются питерская романтика, дворовая честность, (   Читать дальше...   )00:00:07 Коллектор
-00:05:42 Euro
-00:10:15 Аппаратура
-00:16:21 Ничего Святого(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок, хип-хопЯзык: РусскийПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DC2AD5DED3EE3631F7F10AAC4E782125842F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785521   (69262) от 16.03.2025
-
-Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Запись диджейского сета Пола Ван Дайка, который он представил на открытии музыкального фестиваля «КаZантип Z17» 1 августа 2009 года (Крым, Евпатория). На Украине запись эксклюзивно транслировалась на ТВ канале «М1». В России её можно было увидеть только на канале «MUSICBOX-Россия».01. Intro
-02. For an angel (Vandit club mix)Производство: УкраинаЖанр: Techno, TranceРежиссер: Никита МаршунокАктеры: Paul Van DykПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C6EC311429BAC89420A883C2C9F1C97970AF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785744   (69173) от 17.03.2025
 
 Don Juan Dracula - Burn (SnifferGod Rework) (2025) WEBRip [H.264/1080p]
@@ -118,7 +6,7 @@ Don Juan Dracula - Burn (SnifferGod Rework) (2025) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69173.jpg" />
 </div>
 
 
@@ -145,7 +33,7 @@ Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67938.jpg" />
 </div>
 
 
@@ -174,7 +62,7 @@ Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upsc
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67931.jpg" />
 </div>
 
 
@@ -203,7 +91,7 @@ Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upsca
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67638.jpg" />
 </div>
 
 
@@ -232,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66816.jpg" />
 </div>
 
 
@@ -259,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66810.jpg" />
 </div>
 
 
@@ -286,7 +174,7 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66806.jpg" />
 </div>
 
 
@@ -315,7 +203,7 @@ NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66805.jpg" />
 </div>
 
 
@@ -341,7 +229,7 @@ Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [ha
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66794.jpg" />
 </div>
 
 
@@ -370,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66750.jpg" />
 </div>
 
 
@@ -399,7 +287,7 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66749.jpg" />
 </div>
 
 
@@ -425,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66745.jpg" />
 </div>
 
 
@@ -451,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66621.jpg" />
 </div>
 
 
@@ -479,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66487.jpg" />
 </div>
 
 
@@ -506,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66303.jpg" />
 </div>
 
 
@@ -535,7 +423,7 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65428.jpg" />
 </div>
 
 
@@ -561,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65305.jpg" />
 </div>
 
 
@@ -588,7 +476,7 @@ NEMOPHILA. Zepp Tour 2022 at Zepp Osaka Bayside (2022) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64512.jpg" />
 </div>
 
 
@@ -618,7 +506,7 @@ NEMOPHILA 4th Anniversary. -Rizing NEMO- at KOBE KOKUSAI HALL (2023) [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63887.jpg" />
 </div>
 
 
@@ -648,7 +536,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62011.jpg" />
 </div>
 
 
@@ -674,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61197.jpg" />
 </div>
 
 
@@ -703,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60968.jpg" />
 </div>
 
 
@@ -717,6 +605,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25020ED8CF23673FEE547001A7BB6445F814A4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713517   (60593) от 06.04.2024
+
+Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку, он попадает в невероятные передряги.1. Ecstasy of Gold (by Ennio Morricone) =S&M= 1999
+2. Creeping Death =RIDE THE LIGHTNING= 1984
+3. For Whom the Bell Tolls =RIDE THE LIGHTNING= 1984
+4. Fuel =RELOAD= 1997(   Читать дальше...   )Производство: США / Blackened Recordings, Exclusive Media Group, Hit The LightsЖанр: музыка, приключения, концертРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хэмметт, Роберт Трухильо, Кайл Томсон, Тоби Харгрейв, Маккензи Грей, Питер Брайант, Хротгар МэтьюзПеревод: многоголосый профессиональный (THT)Язык озвучки: русский, английскийСубтитры: русские (full, texts songs), английские (forced songs, full texts songs)Продолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713521   (60574) от 06.04.2024
+
+Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку, он попадает в невероятные передряги.1. Ecstasy of Gold (by Ennio Morricone) =S&M= 1999
+2. Creeping Death =RIDE THE LIGHTNING= 1984
+3. For Whom the Bell Tolls =RIDE THE LIGHTNING= 1984
+4. Fuel =RELOAD= 1997(   Читать дальше...   )Производство: США / Blackened Recordings, Exclusive Media Group, Hit The LightsЖанр: музыка, приключения, концертРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хэмметт, Роберт Трухильо, Кайл Томсон, Тоби Харгрейв, Маккензи Грей, Питер Брайант, Хротгар МэтьюзПеревод: многоголосый профессиональный (THT)Язык озвучки: русский, английскийСубтитры: русские (full, texts songs), английские (forced songs, full texts songs)Продолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762794A6ECD81393B514C305865248C3542C5C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713855   (60453) от 07.04.2024
+
+Квартирник у Маргулиса. Юлия Пересильд и группа «Мандрагора» (06.04.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт заслуженной артистки России Юлии Пересильд и ее нового музыкального проекта «Мандрагора». В этот вечер коллектив дебютировал на сцене, впервые встретившись со зрителями. Юлия продолжает экспериментировать и искать новые форматы взаимодействия с аудиторией, несмотря на то, что уже давно завоевала любовь и всеобщее признание. В состав группы вошли (   Читать дальше...   )00:00:05  Русский промах
+00:05:30  В этот час…
+00:12:33  Дышать любовью
+00:20:55  В маленькой солнечной лужице(   Читать дальше...   )Производство: РоссияЖанр: ПопЯзык озвучки: РусскийПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F481A8D597F4A511FFDB03F152FE1CB01F409848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714881   (60138) от 10.04.2024
+
+Lovebites: Heavy Metal Never Dies (2021) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Recorded live at Tokyo Dome City Hall, Japan, on March 26, 2021, during the Ride for Vengeance Tour 2021.Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 02:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD90DCD23A15829ADA8A7000D11A94BCDE860B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Turtles - 2 albums (2003-2004) [FLAC|Lossless]<Korean,hip hop>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316984.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Acousphere - 2 albums (2010, 2011) [MP3|160-320 кб/с]<Instrumental, New age, 
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315479.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Kokuyasou - 6 альбомов (2007-2011) Touhou Instrumental, Vocal /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313842.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ P∴Rhythmatiq - 24 альбома (2008-2014) Vocaloid /Doujin/ [FLAC|tracks] <
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310096.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wu Judy Chin-tai - 3 albums (1999-2001) [MP3|320 kbps]<New age, Nature sounds>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_309905.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ HARDCORE TANO*C - 31 альбом (2004-2015) /Doujin/ [FLAC|tracks] <Hardcore, 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307571.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Yonin Bayashi - Ishoku-Sokuhatsu (1974) Reissue, Unofficial Release, 2009, Erebu
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307560.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ EXIT TRANCE PRESENTS (EXIT TUNES) - 442 альбома (2003-2015) [MP3|128-320 
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306635.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ PSY - The 7th Album (2015) [MP3|320 кб/с]<K-Pop, Dance, Hip-Hop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300798.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297805.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Younoumi - 15 альбомов (2008-2015) Touhou Vocal, KanColle /Doujin/ [FLAC
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296977.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Cosmic Invention - Cosmorama (1981) Reissue CD, 1994, Victor [MP3|320 Kbps] <Ele
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296729.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ KAEDE - 9 альбомов (2008-2013) /Doujin/ [FLAC|tracks] <J-Pop>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295058.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ programYMG - 2 альбома (2009-2010) /Doujin/ [FLAC|tracks] <J-Pop, Electro
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295027.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ALBATROSICKS - 9 альбомов (2007-2014) /Doujin/ [FLAC|tracks] <J-Pop, Ele
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294937.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ IOSYS - 105 альбомов (2004-2015) Anime, Game, Touhou Vocal, Vocaloid /Do
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294602.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ARM's Armageddon Records - 2 альбома (2011-2012) Touhou Instrumental, Voc
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294366.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ TAMUSIC - 116 альбомов (2005-2015) Touhou Vocal, KanColle, Anime, Game A
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294288.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ayako Ishikawa - SAKURA SYMPHONY (2016) [FLAC|Lossless|image+.cue+dvdiso] <J-Pop
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289960.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Houko Kuwashima — HouKo ChroniCle (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285215.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Ongaku Shoujo —  3STARS (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285214.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Chihiro Yonekura — BEST OF CHIHIROX II (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285210.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ YURiCa — Flower Drops (2015) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285200.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Zhaoze 沼澤 | 沼泽乐队 Zhao Ze - Discography 11 Releases (2010-2018) [FLAC
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279233.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ LAREINE - 7 альбомов+3 сингла (1997-2006) [FLAC|Lossless]<JRock, V
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276176.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Far in the distance — Mingled Burst !!! (2010) /Doujin/ [FLAC|Lossless] <J-Pop
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275231.jpg" />
 </div>
 
 

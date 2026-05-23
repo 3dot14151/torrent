@@ -6,7 +6,7 @@ Ushio to Tora / Усио и Тора [ТВ-1] [2015, TV, 26 из 26] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142151.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sono Toki, Kanojo wa. | И тогда она... [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142048.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141921.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141801.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tenchi Muyou! Ryououki Dai Yon-ki / Тэнти - лишний! Рё-о-ки 4 [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141766.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sengoku Night Blood | Ночная кровь эпохи Сенгоку [2017, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141593.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141548.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shoujo Shuumatsu Ryokou | Поход девочек после конца све
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141298.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Beastars | Выдающиеся звери [2019, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140524.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140445.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1][2020, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140444.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140417.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ No Guns Life | Жизнь без оружия [ТВ-1] [2019, TV, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140292.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 эп.] HDTVRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140260.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Maou-jou de Oyasumi | Sleepy Princess in the Demon Castle | Сон в замке
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140167.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антима
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140144.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Kaginado | Кагинадо | Key и всякое [2021, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139958.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Shokugeki no Souma: San no Sara | Food Wars! The Third Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139685.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139163.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Argonavis from Bang Dream! Animation | Аргонавис из "Ура мечт�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139111.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Vinland Saga / Сага о Винланде [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138583.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138107.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Magatsu Wahrheit: Zuerst | MWZ | Бедствие Вархайта [2020, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138066.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Kamisama ni Natta hi / The Day I Became a God / День, когда я стал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138029.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137986.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Kabukichou Sherlock | Case File nº221: Kabukicho | Шерлок из Кабук
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137914.jpg" />
 </div>
 
 

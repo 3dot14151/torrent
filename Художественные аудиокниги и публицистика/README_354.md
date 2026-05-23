@@ -1,86 +1,3 @@
-###  Публикация: 1529815   (731635) от 08.02.2022
-
-Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 51-152 (2022) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вот уже два с половиной столетия прошло с тех пор, как Европа впервые познакомилась с арабскими сказками «Тысячи и одной ночи», но и теперь они пользуются неизменной любовью читателей. Теперь у вас есть уникальная возможность услышать аудиоверсию этого удивительного произведения. Дорогие друзья! С огромной радостью представляем вам новый проект: Сборник сказок «Тысячи (   Читать дальше...   )Жанр: Зарубежная классика, Сказки, НовеллыПеревод: Михаил СальеПродолжительность: 13:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1388D4B2D1861CD0AE79438E9F2AD2D4BE31104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529880   (731628) от 08.02.2022
-
-Макс Вальтер | Мешок (Книга 4). Инстинкт выживания (2022) [MP3, Алексей Семёнов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-С каждым днём Мешок подкидывает всё больше вопросов, а меня воспитали так, что я не могу оставить их без ответа.
-
-На горизонте замаячил новый враг и имя ему Координатор. Но кто он, откуда взялся и с какого перепугу решил, что может играть со мной? Вскоре я это выясню и тогда он пожалеет о своём выборе. К тому же отныне я не один, моя Ольга и верные друзья помогут.Жанр: Боевая фантастика, ПопаданцыПродолжительность: 07:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E3F1E30F2D0B61C1B6EF2A4E0B7EFBEACAF1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529867   (731620) от 08.02.2022
-
-Константин Назимов | Травник (Книга 2). Лекарь (2022) [MP3, Сергей Демидов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Стас, оказавшийся в другом мире, пытается совместить невозможное. Он травник и
-умеет находить общий язык с природой и людьми. Кому-то поможет, с другими сцепится
-не на жизнь, а насмерть. Не чурается женского общества и ценит дружбу. Уверенно,
-невзирая ни на что, идет к поставленной цели. И ни сном, ни духом не подозревает, что(   Читать дальше...   )Жанр: Городское фэнтези, попаданцыПродолжительность: 11:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D0B779D1F75CAFFC38410DCDD489B08EC3CCD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529888   (731618) от 08.02.2022
 
 Вадим Фарг | Призванный Герой (Книга 1) (2021) [MP3, Максим Полтавский]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731618.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731615.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731595.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731591.jpg" />
 </div>
 
 
@@ -193,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731588.jpg" />
 </div>
 
 
@@ -219,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731511.jpg" />
 </div>
 
 
@@ -245,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731223.jpg" />
 </div>
 
 
@@ -272,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731109.jpg" />
 </div>
 
 
@@ -299,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731108.jpg" />
 </div>
 
 
@@ -325,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731082.jpg" />
 </div>
 
 
@@ -351,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731081.jpg" />
 </div>
 
 
@@ -377,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731080.jpg" />
 </div>
 
 
@@ -403,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731073.jpg" />
 </div>
 
 
@@ -430,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731071.jpg" />
 </div>
 
 
@@ -456,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731069.jpg" />
 </div>
 
 
@@ -483,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731064.jpg" />
 </div>
 
 
@@ -509,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731055.jpg" />
 </div>
 
 
@@ -537,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731049.jpg" />
 </div>
 
 
@@ -564,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731041.jpg" />
 </div>
 
 
@@ -591,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731035.jpg" />
 </div>
 
 
@@ -617,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730990.jpg" />
 </div>
 
 
@@ -644,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730980.jpg" />
 </div>
 
 
@@ -670,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730956.jpg" />
 </div>
 
 
@@ -681,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A8F46EF6AA89C8E9A8DFC025F73DF8D1657A7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021845   (730952) от 31.05.2016
+
+Геннадий Прашкевич | Костры миров (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730952.jpg" />
+</div>
+
+
+###  Подробнее
+
+После многих лет, проведенных в Крайнем секторе, в нетипичной зоне, за изучением расы протозид — огромных, массой с планетоид существ, игнорирующих любую попытку контакта, — Хенк прилетает на Симму, чтобы отдохнуть и получить расчет курса к Земле сквозь время и пространство...Жанр: Научно-фантастическая повестьПродолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E7DCB1B705BE8F4030FD77CB9E7BEABD3EC0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529998   (730890) от 09.02.2022
+
+Джонатан Троппер | Дальше живите сами (2022) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известие о смерти отца застает Джада Фоксмана в тяжелый момент: он потерял работу и переживает измену жены. Теперь ему предстоит еще одно испытание -провести траурную неделю под одной крышей со своим любящим еврейским семейством. То, что Фоксманы собрались по печальному поводу, не мешает им упражняться в остроумии, попадать в нелепейшие ситуации и выяснять отношения. (   Читать дальше...   )Жанр: Cовременная зарубежная литератураПродолжительность: 12:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5608A014B678A15907688FEFD2D85311474EAE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021786   (730825) от 31.05.2016
+
+Гарольд Лэмб | Ганнибал. Один против Рима (2013) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное беллетризованное жизнеописание одного из величайших полководцев в мировой военной истории. О Карфагене, этом извечном враге Древнего Рима, в истории осталось не так много сведений. Тем интересней книга Гарольда Лэмба - уникальная по своей достоверности и оригинальности биография Ганнибала, легендарного предводителя карфагенской армии, жившего в III-II (   Читать дальше...   )Жанр: Историческая прозаИздательство: Нигде не купишьПродолжительность: 11:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A37C36CD114BE38769C9A1FAD362429794DB0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

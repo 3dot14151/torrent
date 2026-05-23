@@ -1,58 +1,3 @@
-###  Публикация: 1379797   (836088) от 01.05.2020
-
-Robert Conquest | The Harvest of Sorrow / Роберт  Конквест | Жатва скорби. Часть 1 (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«…На сегодняшний день эта книга является единственным историческим отчетом о важнейшем периоде советского прошлого. Она отражает страшное время кровавой сталинской эпохи, тяжелейшее по числу своих жертв. В книге показано, как под тиранией Сталина и его приспешников было уничтожено все старое крестьянство, а вместе с ним вырублены и исторические корни русского, украинского (   Читать дальше...   )Жанр: История, ПублицистикаПродолжительность: 04:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B3078BFF05700119167C1CE312A09C771CF45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113642   (834532) от 13.03.2017
-
-Борис  Акунин | Семейный альбом (Книга 3). Счастливая Россия (2017) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новый роман серии «Семейный альбом» переносит читателя одновременно в не столь далекое прошлое и довольно отдаленное будущее, так что появляется возможность заглянуть в день вчерашний и день завтрашний из дня сегодняшнего.
-
-из интервью с Акуниным:
-"Этой весной выйдет мой третий роман из области литературы — утопия «Счастливая Россия». Этот жанр вышел из моды, (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 10:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1506294F3DFD8547423CC63CC13539AE63181530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380467   (833179) от 03.05.2020
 
 Юрий Стукалин | Завоевание Дикого Запада. «Хороший индеец – мертвый индеец» (2020) [MP3]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833179.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832475.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832435.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831446.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831362.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828895.jpg" />
 </div>
 
 
@@ -220,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828147.jpg" />
 </div>
 
 
@@ -246,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826607.jpg" />
 </div>
 
 
@@ -272,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_823489.jpg" />
 </div>
 
 
@@ -298,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822526.jpg" />
 </div>
 
 
@@ -324,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821413.jpg" />
 </div>
 
 
@@ -350,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820424.jpg" />
 </div>
 
 
@@ -376,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819752.jpg" />
 </div>
 
 
@@ -402,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819546.jpg" />
 </div>
 
 
@@ -428,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818768.jpg" />
 </div>
 
 
@@ -454,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817751.jpg" />
 </div>
 
 
@@ -480,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817740.jpg" />
 </div>
 
 
@@ -506,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817604.jpg" />
 </div>
 
 
@@ -533,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817450.jpg" />
 </div>
 
 
@@ -559,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817442.jpg" />
 </div>
 
 
@@ -585,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817372.jpg" />
 </div>
 
 
@@ -611,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815706.jpg" />
 </div>
 
 
@@ -638,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814009.jpg" />
 </div>
 
 
@@ -664,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813741.jpg" />
 </div>
 
 
@@ -675,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1936CA2F35881EB8C438D15FA0D5EC3258F049A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383207   (813449) от 14.05.2020
+
+Роберт Конквест | Жатва скорби (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813449.jpg" />
+</div>
+
+
+###  Подробнее
+
+«…На сегодняшний день эта книга является единственным историческим отчетом о важнейшем периоде советского прошлого. Она отражает страшное время кровавой сталинской эпохи, тяжелейшее по числу своих жертв. В книге показано, как под тиранией Сталина и его приспешников было уничтожено все старое крестьянство, а вместе с ним вырублены и исторические корни русского, украинского (   Читать дальше...   )Жанр: История, ПублицистикаПродолжительность: 18:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADEC63A80B80D1D151C6BE333D2482E52F4A907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008882   (811627) от 20.04.2016
+
+Людо Мартенс | Запрещённый Сталин (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Людо Мартенс (нидерл. Ludo Martens; 12 марта 1946, Винген, Западная Фландрия — 5 июня 2011) — бельгийский коммунист и историк. Основатель и руководитель Партии Труда Бельгии.
+Эта тема под негласным запретом на "демократическом" Западе. Эту книгу невозможно купить в "свободной" Европе. Открыв эту рукопись, западные издатели сразу забывали о свободе (   Читать дальше...   )Жанр: история, историческая литература, биографии и мемуарыПродолжительность: 10:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818E15FFDB6D5193FEA3BACBE9847C171A114911
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 1813708   (6623) от 21.08.2025
-
-Марджери Эллингем | Тайны Мистери-Майл (2025) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Марджери Луиза Эллингем – английская писательница, принадлежащая «золотому веку английской литературы», признанная «королева детектива» наряду с Агатой Кристи, Дороти Сэйерс и Найо Марш. Наибольшую известность приобрели книги Эллингем о сыщике-джентльмене Альберте Кэмпионе. В этот том вошли первые три романа ее главного цикла.
-В романе «Тайны Мистери-Майл» сыщику (   Читать дальше...   )Жанр: ДетективИздательство: Азбука-АттикусПродолжительность: 07:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F77DE4D149183309BD9F1A679FFFD8CAEFC4AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813806   (6612) от 21.08.2025
-
-Тимур Рымжанов | Оглянись в темноте. (Книга 1). (2025) [MP3, CHUGA]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История человека из нашего мира, шагнувшего через грань жизни и смерти в магический мир, в существование которого он не верил. Но новый мир оказался не очень гостеприимным, а наш человек не очень подготовленным ко всем тем испытаниям, что свалятся на него в новой жизни.Жанр: фэнтези, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 12:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7C6CABDE40902CD9D5DD554FE7D4005BBAFFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813836   (6609) от 21.08.2025
-
-Джеймс Уиллард Шульц | С индейцами в Скалистых горах (2025) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Индейский мальчик из племени черноногих по прозвищу Бегущий Орел и Том – белый мальчик, оставшийся сиротой, становятся закадычными друзьями. В один из дней приятели с сотней других индейцев отправились на охоту к Скалистым горам. И там неожиданно все пошло совсем не так, как задумывалось.Жанр: ПриключенияИздательство: СОЮЗПродолжительность: 03:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181D487617854E1F2E728A4B490BC915E4E17FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813719   (6608) от 21.08.2025
 
 Владимир Валуцкий | Зимняя вишня (2025) [MP3, Алла Човжик]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6608.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6607.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6604.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6603.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6602.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6601.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6599.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6594.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6593.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6592.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6591.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6565.jpg" />
 </div>
 
 
@@ -400,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6460.jpg" />
 </div>
 
 
@@ -426,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6458.jpg" />
 </div>
 
 
@@ -452,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6455.jpg" />
 </div>
 
 
@@ -478,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6453.jpg" />
 </div>
 
 
@@ -504,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6451.jpg" />
 </div>
 
 
@@ -530,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6450.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6449.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6448.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6441.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6438.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6437.jpg" />
 </div>
 
 
@@ -675,6 +596,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB20F918889BEF3CF921D8C24E59E2393E055DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813890   (6436) от 22.08.2025
+
+Александр Тенгриханов | Режиссер Советского Союза. (Книги 1-8). (2023-2025) [MP3, Алексей Воскобойников, Мирослав Велесов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно ли снять такой фильм, который не будет уступать современным, но сделать это в 1966 году? Волей провидения или высших сил Алексей Мещеряков оказался в прошлом. За окном 1966 год и совершенно иная жизнь. Более того, у него теперь есть семья и дети. А еще перед нашим героем стоит задача снять популярный фильм не хуже, чем у современников. Сможет ли Алексей (   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: ЛитРесПродолжительность: 79:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2F5C2206DB3C6E6BAF6B55CA19AF33E935171D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813766   (6433) от 22.08.2025
+
+Роман Злотников, Даниил Калинин | Князь Фёдор. Злая Русь 2. (Книга 3). Меч Тамерлана (2025) [MP3, Макс Радман]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1382 года. Зимний удар русичей обернулся полным успехом - и теперь уже Тохтамыш боится за свою столицу. В Сарае ждут ответного удара ушкуйников!
+Но Тохтамыш стал ханом с помощью эмира Тамерлана... А развивая Туран, Темир-Аксак имеет свои цели на севере - и потому раз за разом помогает ставленнику-чингизиду в его войнах.
+Вот и теперь хан Тохтамыш бежал в Самарканд (   Читать дальше...   )Жанр: Фантастика, попаданцы, боевикИздательство: АСТПродолжительность: 07:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D81A635DF7BBDD519FA2FBAF530F2A8A45734A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813880   (6430) от 22.08.2025
+
+Алексей Осадчук | Последняя жизнь (Книга 7). Закон силы (2025) [MP3, Влад Римский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6430.jpg" />
+</div>
+
+
+###  Подробнее
+
+В седьмой книге Макс Ренар все ближе к цели. У него уже достаточно войска, чтобы контролировать свои новые земли. Но герой просчитывает будущее и понимает, что если не остановить войска Золотого Льва, которые окружили остатки армии герцога де Клемона, то легионы неприятеля двинутся дальше. Лучше ударить сейчас и уничтожить угрозу. Слушайте новую аудиокнигу цикла!Жанр: Фэнтези, приключения, попаданцыИздательство: 1С-ПаблишингПродолжительность: 07:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D0195C412FC78766C5C93D64F5B150D7F2461D
 ```
 
 https://mybot314.ru/tekegram_catalog/

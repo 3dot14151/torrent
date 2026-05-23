@@ -6,7 +6,7 @@ R-Studio 8.13 Build 176051 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903217.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Slimjet 13.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903181.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NirLauncher Package 1.23.16 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903172.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ultra Adware Killer 5.3.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903160.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GoldWave 6.25 Portable by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903155.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903095.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Alcohol 52% 2.0.3.9326 Free Edition RePack by KpoJIuK (01.02.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903082.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ NVIDIA GeForce Desktop 445.75 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903038.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ MCS Drivers Disk 20.3.11.1535 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903037.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Kerish Doctor 2020 4.80 DC 21.03.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903025.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ DAEMON Tools Lite 10.5.1.229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902965.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ OnOne Perfect Photo Suite 5.5.1 (x32/x64) [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902960.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nvidia DriverPack v.445.75 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902951.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BELOFF 2020.03 Lite [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902881.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Cakewalk SONAR Platinum 23.1.0 Build 32 (2017.01) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902862.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Skype 7.32.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902766.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Alcohol 120% 2.0.3.9326 RePack by KpoJIuK (01.02.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902740.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ K-Lite Codec Pack 12.9.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902721.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Google Chrome 56.0.2924.87 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902638.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Privacy Eraser Free 4.10.0 Build 1867 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902596.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ MediaInfo 0.7.83 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902581.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe Shockwave Player 12.2.4.194 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902495.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ FireAlpaca 2.6.4 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902401.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Free Download Manager 6.15.1.4143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902375.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Apowersoft Streaming Audio Recorder 4.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902374.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Panda Free Antivirus 2016 16.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902325.jpg" />
 </div>
 
 

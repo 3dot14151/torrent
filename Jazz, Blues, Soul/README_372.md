@@ -6,7 +6,7 @@ Stan Webb's Chicken Shack - That's The Way We Are (1978) [FLAC|Lossless|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272600.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Musical Mojo Of Dr. John Celebrating Mac And His Music (2016) [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272598.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Music for Quiet Moments, Soothing Piano Music Universe, Sad Music Zone - Classic
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272559.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Matthias Lupri Group - Same Time Twice (2000) 2002, Summit Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272535.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Matt Bianco (Mark Reilly) meets New Cool Collective - The Things You Love (2016)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272481.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Acid Jazz Brazil (Nu Jazz, Funk & Soul with a Brazilian Flavour) (2016) [MP
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272454.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Donald Byrd & Pepper Adams Quintet - Out of This World: The Complete Warwick Ses
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272431.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Frank Sinatra - The Sinatra Christmas Album (1987) Capitol[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272390.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Chick Corea & Gary Burton - Hot House (2012) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272376.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Sir Roland Hanna - Colors From A Giant's Kit (2011) IPO Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272110.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ben Webster - Live At The Haarlemse Jazzclub (1972) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271531.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271528.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Guy Lafitte - Blue And Sentimental (1954) 2011, Universal[FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271464.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Betty Carter & Trio - I Didn't Know What Time It Was (1993) Jazz Door[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271462.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Jay Gordon Band - White Heaven Powdered Black (2000) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271461.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Kim Simmonds And Savoy Brown - Goin' To The Delta (2014) [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271384.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Jay Gordon's Blues Venom - Woodchoppers Ball (2015) [FLAC|Lossless|image + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271381.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Billy Paul - Ebony Woman (1970) 2012, Neptune Records/Sony Music/Big Break Recor
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271350.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Heather Newman - Burn Me Alive (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271210.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Earl Klugh - Life Stories (1986) Warner [FLAC|Lossless|tracks + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271165.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Charlie Haden & Brad Mehldau - Long Ago And Far Away (2007) 2018, Universal [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271164.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Bebo Valdes - Bebo de Cuba (2004) 2CD, Calle 54 Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271159.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Keiko Matsui - MTV Music History (2001) 2CD, Compilation [MP3|320 Kbps] <Jazz, S
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271000.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Bryan Ferry And His Orchestra - Bitter-Sweet (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270994.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ James Williams, Richard Davis, Ronnie Burrage - I Remember Clifford (1990) DIW [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270688.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Jay Thomas With The Oliver Groenewald Newnet - I Always Knew (2018) Origin Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270682.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Export for iTunes 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167580.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Downie 3 v3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167576.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 27) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167569.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ OmniPlayer Pro - Media Player 2.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167567.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Secret Folder Pro 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167565.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ RAW Converter 2 v2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167551.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Chromium 96.0.4664.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167540.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ GoodSync Enterprise 10.10.15.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167536.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Interbase 2020 14.0.0.469 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167522.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167518.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WinUtilities Pro 15.78 (акция Сomss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167517.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ True Burner 8.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167513.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ HWiNFO 7.35 Build 4935 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167512.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ FinePrint Software (FinePrint 11.06 / pdfFactory Pro 8.06) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167508.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Internet Status 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167502.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Wise Care 365 Pro 6.1.4.601 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167501.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Slimjet 37.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167500.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Light Image Resizer 6.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167496.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Suicide Squad: Special Ops / Отряд самоубийц: Спецназ v1.1.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167492.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167489.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Allavsoft Video Downloader Converter 3.21.0.7286 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167488.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mac FoneLab iOS Unlocker 1.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167485.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ BELOFF [dp] 2020.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167483.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Alfred PowerPack 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167482.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Opera 93.0.4585.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167476.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ TechSmith Camtasia 2022 Studio 2022.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167474.jpg" />
 </div>
 
 

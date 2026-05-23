@@ -1,112 +1,3 @@
-###  Публикация: 473551   (84597) от 26.03.2012
-
-[XBox360] Darksiders: Wrath of War [FullRUS] (RegionFree) (2009)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Земля разрушена. Всюду взгляд выхватывает одни лишь развалины и следы бушевавших когда-то губительных сил. Давно предрекаемый Конец Света свершился, однако планета не до конца сгорела в его пламени. В истерзанных городах еще теплится жизнь, но будет ли она милосердна к случайному путнику, особенно если путник этот не кто иной, как Всадник Апокалипсиса?
-
-Вам отводится роль посланника высших сил. Отправившись на Землю, чтобы проследить за ее уничтожением, один из четырех наводящих ужас Всадников — Война — сам оказался в ловушке. Он был предан собственным хозяином, лишен своего могущества и брошен погибать на агонизирующей планете. Но враги просчитались, не убив его сразу. Теперь Война вместе со своим боевым скакуном по кличке Руина полон решимости жестоко мстить!Разработчик: Vigil GamesЖанр: 3rd Person / Action / AdventureЯзык интерфейса: FullRUS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622D1720A6C168CB082560E7A8D8FAB644436838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471287   (83813) от 22.03.2012
-
-[Xbox 360] Burnout Revenge [PAL][Rus](2006)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Возможно, в этой жизни вы не разобьете ни одной «Ламборджини Диабло», никогда не превысите скорость и ни за что не вступите в пререкания со светофором. Ничего страшного! Потому что с Burnout Revenge, новой сверхскоростной гоночной игрой от компании Electronic Arts, вам будет о чем рассказать внукам! Забудьте о том, чему вас учили в автошколе, не вспоминайте о правилах дорожного движения и сделайте, наконец, то, о чем тайно мечтаете с момента получения водительских прав: громите «пробки», наказывайте «чайников», сносите светофоры на скорости двести миль в час!
-(   Читать дальше...   )Тип издания: ПираткаРазработчик: Criterion StudioЖанр: Racing/ArcadeЯзык интерфейса: Русский (текст и звук, при запуске игры выбрать британский язык)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469050   (83373) от 20.03.2012
-
-[XBox360] Jillian Michael's Fitness Adventure [ENG] [KINECT] (PAL/NTSC-U) (2011)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В мире фитнеса существует девушка, которая известна всему миру: Джилия Михайлс. Именно она превратила простой на первый взгляд фитнесс в настоящую культуру здорового образа жизни. Были созданы масса материалов, которые призывают и пропагандируют правильное питание с постоянным поддержанием физической формы.
-  Новая игра "Jillian Michael's Fitness Adventure" не отступает от главной линии спортсменки - ее цель как и ранее важна, научить каждого правильно владеть собственным телом. Вам предстоит принять участие в увлекательном приключении, которое приносит к тому же и пользу вашему телу. Повторяйте те движения, которые делает Джилия.
-  Геймерам предстоит выполнять серию интенсивных и веселых упражнений, пробираясь по заброшенному храму в джунглях. Кроме этого режима в игре есть и другие более стандартные режимы, которые позволят привести себя в тонус. Ваша цель - пройти установленный маршрут за указанное время, используя при этом указанные группы мышц. В конце занятий можно посмотреть свою статистику, которая (   Читать дальше...   )Тип издания: ПираткаРазработчик: MicroproseЖанр: Arcade(Exercises)/3D/SportsЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517ECA4850A37DE8174FB15CA78F8471AABD4934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366217   (83195) от 19.03.2012
-
-[PS2] PS2 софт, эксплойт + FAQ v1.94
-
->>Консольные Игры
->>Тех. раздел Консолей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Язык интерфейса: Английский(и в ряде случаев русский)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469129   (83174) от 19.03.2012
 
 [PS2] Trapt [NTSC][RUS/ENG][2006]
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83174.jpg" />
 </div>
 
 
@@ -141,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83172.jpg" />
 </div>
 
 
@@ -167,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83160.jpg" />
 </div>
 
 
@@ -194,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82972.jpg" />
 </div>
 
 
@@ -220,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82957.jpg" />
 </div>
 
 
@@ -246,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82766.jpg" />
 </div>
 
 
@@ -272,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82555.jpg" />
 </div>
 
 
@@ -298,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82355.jpg" />
 </div>
 
 
@@ -325,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82354.jpg" />
 </div>
 
 
@@ -351,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81966.jpg" />
 </div>
 
 
@@ -377,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81957.jpg" />
 </div>
 
 
@@ -412,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81940.jpg" />
 </div>
 
 
@@ -444,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81521.jpg" />
 </div>
 
 
@@ -471,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81301.jpg" />
 </div>
 
 
@@ -499,7 +390,7 @@ UFC Personal Trainer: The Ultimate Fitness System [XBOX360] [ENG] (RegionFree) [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81297.jpg" />
 </div>
 
 
@@ -530,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81296.jpg" />
 </div>
 
 
@@ -556,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81128.jpg" />
 </div>
 
 
@@ -591,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81098.jpg" />
 </div>
 
 
@@ -620,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80071.jpg" />
 </div>
 
 
@@ -646,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79844.jpg" />
 </div>
 
 
@@ -672,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79678.jpg" />
 </div>
 
 
@@ -700,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79472.jpg" />
 </div>
 
 
@@ -713,6 +604,116 @@ Harvey Birdman: Attorney At Law - новая комедийная судебно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EABFAD95AB16AE4BD019BFF17A91C2C12C9A95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456896   (78021) от 23.02.2012
+
+[Xbox360] Hasbro Family Game Night 4 (PAL) [ENG] [KINECT] (2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика никогда не стареет. Четвертая часть уникального сборника понятных, доступных, а главное — известных и любимых игр Hasbro Family Game Night выходит в свет, чтобы продолжить радовать любителей провести время весело.
+  Hasbro Family Game Night 4 - это универсальное развлечение для игроков всех возрастов, а также отличный способ самовыражения. Вместе со знаменитым мистером Картофельная Голова в качестве наставника вы сможете создать персональную комнату заядлого «игромана». Выбирайте варианты обстановки и украшайте свои владения честно заработанными в различных аттракционах трофеями. Скучно не будет!
+  Hasbro Family Game Night 4 включает в себя следующие мини игры — Connect 4 Basketball, Yatzhee! Bowling, Scrabble Flash, Bop-It Boptagon, Sorry! Sliders.
+  И, естественно, весь сборник рассчитан на поддержку сенсора KINECT для мультиплеера.2011Жанр: Fun/Family GameЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F806BB39458AF1DAB5595E9A7E45377347DBBA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456099   (77833) от 22.02.2012
+
+[Xbox360] Assassin's Creed: Revelations [Русский / Freeboot / Repack] (2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+ Assassin's Creed: Revelations является последней частью серии с Эцио в роли главного героя. Ему предстоит отправиться в Константинополь по следам Альтаира, в целях дальнейшей разгадки тайны между Тамплиерами и Ассасинами.Это полное опасностей путешествие обещает быть полным открытий и откровений. Путь приводит его в Константинополь, сердце Оттоманской Империи, где растущая армия Тамплиеров угрожает стабильности региона. Но что может армия закованных в железо рыцарей-крестоносцев против безжалостного и бесшумного убийцы...Разработчик: Ubisoft Montreal, Ubisoft Shanghai и Ubisoft MassiveЖанр: Action / 3D / 3rd PersonЯзык интерфейса: Русский текст и звук
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A20246880BAD4D0B6DF991FB60757B06ECEA97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454320   (77253) от 19.02.2012
+
+[PS3] Child of Eden (MOVE) [PSN] [PAL] [ENG] (2011)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Child of Eden погрузит вас в самый центр сражений за спасение проекта Lumi. Он предназначен для воспроизведения человеческой личности внутри Эдена, архива всех человеческих воспоминаний. Во время того, как Lumi находится на стадии завершения, в архив вторгается неизвестный вирус. Ваша задача заключается в избавлении Эдена от вируса и восстановлении надежды и мира. В Child of Eden вы полностью погрузитесь в игру, между игровым миром и вами не будет никаких барьеров.
+
+Много внимания в игре уделяется ведению огня по разнообразным объектам, которые будут появляться на ваших экранах, при этом производя музыкальные эффекты во время разрушений. Используя PS Move игроки смогут нацеливаться, для смены оружия тоже можно использовать стандартные контроллеры.2011Жанр: Shooter/Music GameЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455027   (77124) от 19.02.2012
+
+[Wii] Wing Island [ENG] [NTSC] (2007)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77124.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Wing Island" - это первый авиасимулятор для игровой консоли Nintendo Wii. В игре "Wing Island" Вы и ваши друзья смогут летать на старых бипланах, вытворяя при этом различные головокружительные трюки и маневры. При использовании  "Wii Remote" игроки смогут почувствовать себя, как будто они действительно летят на самолете. Использование (   Читать дальше...   )Разработчик: Hudson SoftЖанр: СимуляторЯзык интерфейса: ENФормат: Образ в формате WBFS. Инструкция здесь!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F934DA0AF5A81B2DD1454F1178191B4AB04E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

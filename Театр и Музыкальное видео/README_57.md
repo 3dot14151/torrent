@@ -1,119 +1,3 @@
-###  Публикация: 334514   (687640) от 10.05.2011
-
-Песни Весны и Победы (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Данная видеозапись – компиляция двух концертов, посвященных Дню Победы, проходивших в Государственном Кремлевском дворце в 2008 и 2009 годах.  Часть песен, представленных здесь, имеется в этой раздаче.  Однако, есть песни, которые не вошли в соответствующие телеверсии. В любом случае, это еще один подарок всем ко Дню Победы. Эфир программы: 8 мая 2011 года (Первый (   Читать дальше...   )01.	Иосиф Кобзон - Поклонимся великим тем годам
-02.	Александр Маршал - На безымянной высоте
-03.	Татьяна Буланова - Синий платочек
-04.	Дмитрий Билан - Тёмная ночь(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B89461F1990A8469C75C47BE507E0F8272C668F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897268   (687415) от 12.05.2015
-
-Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Uriah Heep выпускают концертный альбом Live At Koko, London 2014. Диск поступил в продажу 20 февраля в Европе и 24 февраля в Северной Америке, причем в разных форматах, как на обычном CD, так и на DVD/Blu-ray.01. Against The Odds
-02. Overload
-03. Traveller In Time
-04. Sunrise(   Читать дальше...   )Жанр: Rock, Prog Rock, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506462   (687404) от 06.06.2012
-
-30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт группы 30 seconds to Mars 5 июня 2010 года в Германии в рамках фестиваля Rock am Ring.Жанр: Alternative RockПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222126   (687246) от 28.04.2018
-
-Thunder - Stage (2018) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления британской блюз-рок-группы Thunder в зале The Cardiff Motorpoint Arena 24.03.2017г. в рамках тура в поддержку их 11-го альбома Rip It Up.В шоу прозвучали как новые вещи из новогого альбома,так и лучшие номера из 29-летней карьеры группы.
-Состав:
-Danny Bowes – lead vocals;
-Luke Morley – guitar,backing vocals;(   Читать дальше...   )01 No One Gets Out Alive
-02 The Enemy Inside
-03 River Of Pain
-04 Ressurection Day(   Читать дальше...   )Производство: Ear MusicЖанр: рокРежиссер: Tim SidwellАктеры: ThunderСубтитры: отсутствуютПродолжительность: 01:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B616FC67C75287944DB1B3C52BD696404A8173FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028869   (686091) от 24.06.2016
 
 Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
@@ -122,7 +6,7 @@ Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686091.jpg" />
 </div>
 
 
@@ -153,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685990.jpg" />
 </div>
 
 
@@ -179,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684681.jpg" />
 </div>
 
 
@@ -205,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683984.jpg" />
 </div>
 
 
@@ -231,7 +115,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683235.jpg" />
 </div>
 
 
@@ -260,7 +144,7 @@ Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683179.jpg" />
 </div>
 
 
@@ -286,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_682779.jpg" />
 </div>
 
 
@@ -315,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682122.jpg" />
 </div>
 
 
@@ -342,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681964.jpg" />
 </div>
 
 
@@ -369,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681957.jpg" />
 </div>
 
 
@@ -395,7 +279,7 @@ Within Temptation / Within Temptation - Black Symphony (2008) (1080p) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_680678.jpg" />
 </div>
 
 
@@ -421,7 +305,7 @@ Foreigner - Live at the Rainbow '78 (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680129.jpg" />
 </div>
 
 
@@ -449,7 +333,7 @@ Eric Clapton, Steve Winwood, Jeff Beck, Jimmy Page - A.R.M.S. Concert 2 (1983) D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679600.jpg" />
 </div>
 
 
@@ -478,7 +362,7 @@ Jimmy Page, Robert Plant & friends - California Poison II (1995) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679589.jpg" />
 </div>
 
 
@@ -507,7 +391,7 @@ Paul McCartney - Live at the BBC (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679588.jpg" />
 </div>
 
 
@@ -536,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678568.jpg" />
 </div>
 
 
@@ -562,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678424.jpg" />
 </div>
 
 
@@ -591,7 +475,7 @@ Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678186.jpg" />
 </div>
 
 
@@ -617,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677964.jpg" />
 </div>
 
 
@@ -646,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677130.jpg" />
 </div>
 
 
@@ -675,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676723.jpg" />
 </div>
 
 
@@ -701,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676563.jpg" />
 </div>
 
 
@@ -715,6 +599,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:827C16E2C0001030799EDB817684898EE36679D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337440   (676544) от 15.05.2011
+
+Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD280A5CC01AB58F4828DCC2CC99D5182B91437B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508679   (676508) от 11.06.2012
+
+DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727F61B4722342E3AB9A40D78750649B50DC15C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508850   (676363) от 11.06.2012
+
+Эпидемия - В Трезвучиях Баллад  (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Снова Быть С Тобой
+03. Феникс
+04. Жизнь В Сумерках(   Читать дальше...   )Жанр: Концерт, Power MetalПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B267727C9E8AC8710679F300528A88C3F7B44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136143   (676342) от 21.05.2017
+
+Rammstein: Paris (2017) BDRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный фильм группы Rammstein, вышедший в кинотеатрах 23 марта 2017 года. Записан на концертах в Париже 6 и 7 марта 2012 года в рамках тура Made in Germany.01. Intro
+02. Sonne
+03. Wollt Ihr Das Bett In Flammen Sehen
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial-MetalРежиссер: Йонас ОкерлундПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103ECDB42A4EAB8A5C306C41B40AEF3A33378031
 ```
 
 https://mybot314.ru/tekegram_catalog/

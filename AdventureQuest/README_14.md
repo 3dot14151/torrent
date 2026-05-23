@@ -1,29 +1,3 @@
-###  Публикация: 1491919   (906733) от 27.08.2021
-
-Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В Уинтерлейке таится нечто зловещее. Каролина Уолкер расследует исчезновение девочек-близнецов и в процессе с ней происходит кое-что ужасное. Она очнулась посреди ночи в ванне, голая и подключенная к древним медицинским приборам. Теперь Каролине нужно сражаться за свою жизнь, исследуя коридоры заброшенного особняка.Тип издания: LicenseРазработчик: Dual Effect, Abstract DigitalЖанр: HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6252C11D85592E9E488C0F949B1129E92951B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491790   (906615) от 27.08.2021
 
 Murder Mystery Machine (2021) [Ru/Multi] (7059951) License Fairlight
@@ -32,7 +6,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (7059951) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906615.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Myst (2021) [Multi] (1.4.0) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906591.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0.0.1) Repack R.G. Revenants [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906048.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Morels: The Hunt (2019) [Ru/Multi] (1.11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904661.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.284152) Repack Seraph1 [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904374.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ CAYNE (2017) [Ru/Multi] (1.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904230.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Spakoyno: Back to the USSR 2.0 (2016) [Ru/En] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903527.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mage's Initiation: Reign of the Elements (2019) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903036.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Grim Fandango Remastered (2015) [Multi] (1.4.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903029.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Last Light (2021) [Multi] (7245562) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901945.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Soul Axiom (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901876.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ UnderDread (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901850.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Welcome to PINEHILLS (2021) [Ru/En] (Jule20) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901821.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Beholder (2016) [Ru/Multi] (1.0/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900641.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900415.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Insurmountable (2021) [Multi] (1.3.1) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900202.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.25) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899481.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898952.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Husk (2017) [Ru/Multi] (4.13) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898714.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898490.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896956.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896826.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Interactive Adventures of Dog Mendonça & Pizzaboy (2016) [Ru/Multi] (1.0.3)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896781.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Amnesia. The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895400.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Jotun (2015) [Ru/Multi] (1.0 u#2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895009.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Jotun - масштабная action-adventure, выполненная в дре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CD130BA6B97C7BA9451CE9FC15BDC8F16BFBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993593   (894997) от 05.03.2016
+
+Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы путешествуете в прошлое, пытаясь помочь главному герою, неудачнику по жизни, исправить свою судьбу. Игра включает в себя сцены с перемоткой времени, где вам нужно будет использовать разные предметы, чтобы попробовать изменить будущее. Бывалым игрокам доставят удовольствие мини-игры, стилизованные под старинные игровые автоматы. Оригинальной особенностью геймплея (   Читать дальше...   )Тип издания: LicenseРазработчик: SiBearЖанр: Я ищу, Квест, Приключение, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8024DBFEABDA46D973E6BA61FC5192468D63B95
 ```
 
 https://mybot314.ru/tekegram_catalog/

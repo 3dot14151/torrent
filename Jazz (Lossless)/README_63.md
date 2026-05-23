@@ -6,7 +6,7 @@ Sadao Watanabe & Richard Bona - One for You: Sadao & Bona Live (2006) JVC [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816079.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kaylene Peoples - My Man (2015) Boogsey Music[FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816037.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Norah Jones - I Dream Of Christmas (2021) Japanese Edition [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815969.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815919.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815918.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Geri Allen - Grand River Crossings: Motown & Motor City Inspirations (2013) Memb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815916.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Blue Mitchell - Stablemates (1977) 2006, Candid [FLAC|Lossless|image + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815912.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eric Alexander - Chicago Fire (2014) HighNote [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815817.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Julie London - The Ultimate Collection (2014) 3CD Box Set [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815794.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mildred Bailey - That Rockin' Chair Lady 1930-e (1994) Topaz Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815682.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Maynard Ferguson - New Vintage 1977 (2004) Wounded Bird Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815677.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gene Ammons - Boss Tenor (1960) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815619.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Art Pepper - The Intimate Art Pepper (1996) Analogue Productions [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815616.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Splashgirl - Field Day Rituals (2013) [FLAC|Lossless|tracks + .cue] <Dark Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814228.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Orchestra Of Mirrored Reflections - Nonlinear Order (2016) [FLAC|Lossless|We
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814185.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Vainoras and the altar of the drill - Floating on air through grief and green gr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814183.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Kammerflimmer Kollektief - Wildling (2010) [FLAC|Lossless|tracks + .cue] <Dark J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814140.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ McCoy Tyner Trio - Bon Voyage (1987) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813949.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Art Blakey & Thelonious Monk - Art Blakey's Jazz Messengers With Thelonious Monk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813943.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Coleman Hawkins - Blues Wail: Coleman Hawkins Plays The Blues (1996) Remastering
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813939.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The Cannonball Adderley Quintet - 74 Miles Away / Walk Tall (1967) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813937.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - My Kind Of Music: A Fine Romance (2012)3CD [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813932.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Frank Sinatra - The Best LPs (1954 - 1962) 10CD, 2015, The Intense Media [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813686.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Shelly Manne - Perk Up (1976) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813619.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Houston Person - To Etta With Love (2004) HighNote [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813618.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Bill Evans - Homecoming (1979) 1999, Milestone [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813614.jpg" />
 </div>
 
 

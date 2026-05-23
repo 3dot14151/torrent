@@ -6,7 +6,7 @@ Kokoro ga Sakebitagatterunda / The Anthem of the Heart / Сердцу хочет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450237.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hotaru no Haka / Grave of the Fireflies /  Могила светлячков [19
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437980.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shiyan Pin Jiating | Семейка Франкенштейн [2018, TV, 11 из 
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430750.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wang Gu Shenhua Zhi Tian Xuan Zhe | Metaman | Метачеловек: избра
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429076.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wan Jie Xian Zong | Страна десяти тысяч чудес [2018-2019, 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429074.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ling Jian Zun | Spirit Sword Sovereign | Владыка духовного ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429058.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422425.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ To Be Heroine | Tu Bian Ying Xiong LEAF | Стать героиней [2018, ONA
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422006.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Senjuushi | The Thousand Noble Musketeers | Тысяча благородных 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414979.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gin no Guardian | The Silver Guardian | Серебряный страж [TV1+TV2
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407853.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Akira | Акира [1988, Movie] Blu-Ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376066.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Autumn 2019 Anime Preview | Осень 2019 Превью Аниме [2019, об�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372136.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mo Dao Zu Shi | Grandmaster of Demonic Cultivation | Магистр Дьявол
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367598.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Crusher Joe: Hyouketsu Kangoku no Wana / Крушила Джо OVA-1 [OVA] [1 э
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364956.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Crusher Joe: Saishuu Heiki Ash / Крушила Джо OVA-2 [OVA] [1 эп.] [З
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364845.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Min Diao Ju Yi Wen Lu | Bureau of Paranormal Investigation | Сводки бюр
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348664.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Japanese Anime Classic Collection / Коллекция классики япон
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333245.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Kumo no Mukou, Yakusoku no Basho / Beyond the Clouds, The Promised Place / За 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319521.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Toki wo Kakeru Shoujo / The Girl Who Leapt Through Time / Девочка, пок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314740.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Kari-gurashi no Arietti / The Secret World of Arrietty / Ариэтти из с�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311950.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sound & Fury | Sturgill Simpson Presents Sound & Fury | Звук и ярость
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308939.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ No Game No Life Zero | Нет Игры - Нет Жизни: Начало [2017, 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302749.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] UHD BDRemux HEVC 10-bi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285453.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Phantom Yuusha Densetsu: Return The Sky | Фантом: Легенда о хра
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283753.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Soutai Sekai | The Relative Worlds | Относительные миры [2017, 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270774.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257521.jpg" />
 </div>
 
 

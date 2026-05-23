@@ -6,7 +6,7 @@ Sandboxie 5.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027538.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ File & Image Uploader 8.0.7 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027537.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CodeLobster IDE 1.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027536.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NoMachine 7.2.3.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027535.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Whale Browser 2.9.115.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027529.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Autorun Organizer 5.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027523.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Wondershare UniConverter 12.5.6.12 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027515.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SupRemo 4.3.1.2584 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027512.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Jutoh 3.07.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027510.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Sidify Music Converter 2.2.3 RePack by F4CG (для Spotify) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027505.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ By Click Downloader Premium 2.3.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027496.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BELOFF [dp] 2021.02.4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027488.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ KiCad 5.1.9 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027487.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sweet Home 3D 6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027477.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wallpaper Engine 1.5.42 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027453.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Topaz Gigapixel AI 5.4.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027451.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027436.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ BetterZip 5 v5.1b3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027419.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Marked 2 v2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027418.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ TextMate 2 v2.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027417.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Sensei 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027411.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MediaHuman Youtube Downloader 3.9.9.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027406.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Blocs 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027402.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Bitwig Studio 3 for Mac v3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027389.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Pixelmator Pro 2.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027378.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Navicat Premium 15.0.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027376.jpg" />
 </div>
 
 

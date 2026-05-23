@@ -6,7 +6,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299039.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Frame Arms Girl | Боевые куколки | Вооружённая малы�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298776.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298733.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1991-2008
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296649.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295581.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295573.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295437.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kono Subarashii Sekai ni Shukufuku o! | Konosuba: God's Blessing on This Wonderf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295167.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Taboo-Tattoo | Запретная татуировка [2016, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294919.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293106.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291583.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Psycho-Pass: Sinners of the System| Психопаспорт: Грешники �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290536.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289566.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287551.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286016.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Lov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284055.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282177.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280525.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278991.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278785.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277672.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277632.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277271.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273615.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273436.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266827.jpg" />
 </div>
 
 

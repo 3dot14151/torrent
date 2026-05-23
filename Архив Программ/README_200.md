@@ -6,7 +6,7 @@ Kaspersky Rescue Disk 10.0.31.4 (10.02.2013) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973868.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Memory Improve Professional 5.2.2.528 Rus [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973853.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BrowsingHistoryView 1.21 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973815.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ PGWare SuperRam 6.2.11.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973810.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PGWare PCBoost 4.2.11.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973759.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ FotoSketcher 2.40 Final + Portable [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973752.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PGWare SuperRam 6.2.11.2013 Portable by KGS [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973694.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Promt 8.5 Software Collection Multi / 2010 [английский-русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973606.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ BatteryCare 0.9.13.0 + Portable [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973576.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Startup Delayer 3.0 Build 329 Standard [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973575.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ uGet 2.0.5 Build 8 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973574.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ann Video Converter 5.7.0 Pro RePack [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973567.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hard Disk Sentinel Pro 4.20.1 Build 6014 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973493.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ WebSiteSniffer 1.30 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973492.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Free Video Call Recorder for Skype 1.0.2 Build 115 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973412.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Tracker Software PDF-Tools 4.0 Build 0209 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973343.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Baidu Browser 43.22.1000.452 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973278.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Maxthon Cloud Browser 4.9.0.2700 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973272.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mozilla Thunderbird 38.5.1 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973264.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Tungsten 2.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973263.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ HDDlife Pro 4.0.192 + for Notebooks *Fix* [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973249.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Secret Disk 1.45 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973187.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Slimjet 25.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973165.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ KMSnano 24.1 Automatic by Heldigard [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973100.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ JRiver Media Center 26.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973083.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ LDPlayer 3.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973075.jpg" />
 </div>
 
 

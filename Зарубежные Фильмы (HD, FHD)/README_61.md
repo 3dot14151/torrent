@@ -1,56 +1,3 @@
-###  Публикация: 1450600   (1028829) от 27.02.2021
-
-Асоциальная сеть / Silk Road (2020) BDRip [H.265/720p] [10-bit] [МVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В мире супергероев он был бы Джокером. Настоящий суперзлодей, бросивший вызов системе. Он создал свой Амазон в мире даркнета, где преступники со всего мира сбывали оружие, поддельные документы и наркотики. Многомиллионное состояние, возможность по щелчку пальцев организовать любую хакерскую атаку и вооружить небольшую страну - кажется, он был неуязвим. Но как и всякий (   Читать дальше...   )Производство: США / High Frequency Entertainment, Mutressa Movies, Perfect Season ProductionsЖанр: Триллер, драма, криминалРежиссер: Тиллер РасселлАктеры: Ник Робинсон, Дженнифер Юн, Джимми Симпсон, Джейсон Кларк, Пол Блотт, Даррел Бритт-Гибсон, Дэниэл Дэвид Стюарт, Кеннет Миллер, Александра Шипп, Кэтрин АселтонПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русские (Forced), Английские (Full, SDH)
-В дорожке №2 присутствует ненормативная лексика.Продолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78020C8E195A0059B1667B6784A58A90328B94F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450611   (1028819) от 27.02.2021
-
-Иуда и чёрный мессия / Judas and the Black Messiah (2021) WEB-DL [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Чикаго, 1968 год. Попавшись на угоне машины с поддельным удостоверением ФБР, преступник Уильям О’Нил соглашается на сделку с федералами. Он внедряется в отделение радикальной организации «Чёрные пантеры» и втирается в доверие к её лидеру Фреду Хэмптону, как раз когда тот начинает объединять местные этнические организации в «Радужную коалицию».Производство: США / Bron Creative, MACRO, ParticipantЖанр: Биография, драма, история, криминалРежиссер: Шака КингАктеры: Лакит Стэнфилд, Дэниэл Калуя, Джесси Племонс, Доминик Фишбэк, Эштон Сандерс, Элджи Смит, Даррел Бритт-Гибсон, Лил Рел Ховери, Доминик Торн, Мартин ШинПеревод: Многоголосый профессиональный (Студия «AMS»)Субтитры: АнглийскиеПродолжительность: 02:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1A5A306D33C32C836555156BBDEE2F749288B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450760   (1028817) от 27.02.2021
 
 Убийцы / Tueurs (2017) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028817.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028812.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028807.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028805.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028802.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028800.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028794.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028784.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028781.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028780.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028769.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028767.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028764.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028689.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028658.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028649.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028648.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028639.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028638.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028630.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028629.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028628.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028627.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028626.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC36A4CD11FEE0525B380141A8743F62F6DD053E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450963   (1028624) от 28.02.2021
+
+Погребальные байки / The Mortuary Collection (2019) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка Сэм приходит устраиваться на работу в похоронное бюро, где только что прошла церемония поминовения умершего мальчика. Эксцентричный гробовщик Монтгомери Дарк уверяет, что у каждого покойника есть интересная история, и он собирал их годами. Сэм просит рассказать ей самые страшные, Дарк выбирает три — из 1950-х, 1960-х и 1970-х годов. Но, похоже, девушку не (   Читать дальше...   )Производство: США / AMP International, Trapdoor PicturesЖанр: Ужасы, фэнтези, комедияРежиссер: Райан Р. СпинделлАктеры: Клэнси Браун, Кейтлин Кастер, Кристин Килмер, Джейкоб Элорди, Эма Хорват, Барак Хардли, Сара Хэй, Бен Хеткот, Майк С. Нельсон, Дженнифер ИрвинПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833CF6F3F1FA52D338FFD6762BC9EAAFD4BDC475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449925   (1028620) от 28.02.2021
+
+Дитя человеческое / Children of Men (2006) BDRip [H.264/720p-LQ] [GBR Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028620.jpg" />
+</div>
+
+
+###  Подробнее
+
+2027 год. Мир погряз в анархии, причиной которой стало массовое бесплодие. Над человечеством нависла угроза полного вымирания. Лишенный иллюзий бюрократ превращается в чемпиона гонки на выживание в Лондоне, раздираемом клановыми войнами противоборствующих группировок. Именно он встает на защиту «последней надежды человечества» - беременной женщины, которую надо доставить (   Читать дальше...   )Производство: США, Великобритания, Япония / Strike Entertainment, Toho-Towa, Universal PicturesЖанр: Фантастика, триллер, драмаРежиссер: Альфонсо КуаронАктеры: Клайв Оуэн, Клэр-Хоуп Эшити, Джулианна Мур, Майкл Кейн, Чарли Ханнэм, Чиветель Эджиофор, Пэм Феррис, Дэнни Хьюстон, Питер Муллан, Темина СанниПеревод: Дублированный, профессиональный (многоголосый, UKR), профессиональный (двухголосый, закадровый), авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full x2), английскиеПродолжительность: 01:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7231EDCD17F55C4BF12B9ADC72A66B6CCD95FEB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

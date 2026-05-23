@@ -6,7 +6,7 @@ Macross Plus / Макросс Плюс [1994, OVA,  4 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474374.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли нашу л
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470008.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / По велен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468179.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467924.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Saikin, Imouto no Yousu ga Chotto Okashiinda ga. / ImoCho / Сейчас моя 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464239.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Hyakka Ryouran: Samurai Bride / Буйство цветов (ТВ-2): Самур
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461583.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Grisaia no Kajitsu / The Fruit of Grisaia / Натюрморт в серых т�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461582.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Saenai Heroine no Sodatekata / Saekano: How to Raise a Boring Girlfriend / Ка�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461579.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461457.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Handa-kun / Ханда-кун [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461258.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Haikyuu!! / Волейбол!! [2014, TV, 25 ep] WEBRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459536.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Charlotte / Шарлотта [2015, TV, 13] HDTVRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457072.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Orange / Апельсин [2016, TV, 13 ep] HDTVRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456652.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Devil Survivor 2 The Animation / Выжившие среди демонов 2 [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456640.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Muv-Luv Alternative: Total Eclipse / Total Eclipse / Полное затмени
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455487.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Sakigake!! Otokojuku / Charge!! Men's School / Мужская школа, в а�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454968.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken 2 / Fist of the North Star 2 / Ку
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454965.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Seikimatsu Kyuseishu Densetsu: Hokuto no Ken / Ken, the Great Bear Fist / Кул
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454962.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Hitsugi no Chaika: Avenging Battle / Чайка - принцесса с гроб
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454956.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Megalo Box | Мегалобокс [2018, TV, 13 из 13] HDTVRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454291.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Soten no Ken / Fist of the Blue Sky / Кулак Синего Неба [2006, TV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452827.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Koukaku Kidoutai 2.0 / Ghost in the Shell 2.0 / Призрак в доспеха
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452747.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448438.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Arslan Senki / Сказания об Арслане [2015, TV-сериал, 25] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448432.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446262.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai / Скучный ми�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446257.jpg" />
 </div>
 
 

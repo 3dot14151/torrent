@@ -1,57 +1,3 @@
-###  Публикация: 1770693   (32149) от 03.01.2025
-
-Блэйд / Blade (1998) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Получеловек-полувампир Блэйд намерен уничтожить виновника своей судьбы — Дьякона Фроста. Когда-то в кровь Блэйда попало совсем немного вампирского яда, но с течением времени он стал ощущать неизбежность своего превращения.
-
-Желая избавить людей от тайной и могущественной армии вампиров, заполонившей общество, он отправляется на решающий бой…Производство: США / Amen Ra Films, Imaginary Forces, Marvel EnterprisesЖанр: ужасы, боевик, фэнтезиРежиссер: Стивен НоррингтонАктеры: Уэсли Снайпс, Стивен Дорфф, Крис Кристофферсон, Н’Буш Райт, Донал Лог, Удо Кир, Арли Жовер, Трейси Лордс, Кевин Патрик Уоллс, Тим ГиниПеревод: Дублированный (Мосфильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, 2xFull), английские (Full, SDH)Продолжительность: 02:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7792C56E03DE4C2B80EB95FB0082BA05CC1FF537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770694   (32147) от 03.01.2025
-
-Блэйд 2 / Blade II (2002) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мир вампиров в ужасе от появления новой расы суперкровососов. Именно благодаря этому легендарный Блэйд и его учитель Уистлер вынуждены объединиться со своими кровными врагами — Кровавой Стаей, элитным отрядом вампиров-воинов.Производство: Германия, США / New Line Cinema, Amen Ra Films, Marvel EnterprisesЖанр: ужасы, боевик, триллер, фэнтезиРежиссер: Гильермо дель ТороАктеры: Уэсли Снайпс, Крис Кристофферсон, Рон Перлман, Леонор Варела, Норман Ридус, Томас Кречман, Люк Госс, Мэтт Шульце, Дэнни Джон-Джулс, Донни ЙенПеревод: Дублированный (Мосфильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, 2xFull), английские (Full, SDH)Продолжительность: 01:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D3FED0CA1F68AB2D89A0F4373BDDD7BA3B420C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770796   (32135) от 03.01.2025
 
 Субурра: Город мафии / Suburra (2015) BDRip [H.265/1080p] [10-bit] [PR]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32135.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ V.I.P. / Beuiaipi / V.I.P. (2017) BDRip [H.265/1080p-LQ] [10-bit]
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32130.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32126.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32123.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32118.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32109.jpg" />
 </div>
 
 
@@ -218,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32106.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32101.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32099.jpg" />
 </div>
 
 
@@ -296,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32075.jpg" />
 </div>
 
 
@@ -322,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32051.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32037.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32024.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32019.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32014.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31997.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31996.jpg" />
 </div>
 
 
@@ -504,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31995.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31944.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31943.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31938.jpg" />
 </div>
 
 
@@ -608,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31936.jpg" />
 </div>
 
 
@@ -634,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31925.jpg" />
 </div>
 
 
@@ -660,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31907.jpg" />
 </div>
 
 
@@ -671,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:742B72FADD0135AA18BB43F8546ECED8B46845FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771183   (31905) от 05.01.2025
+
+Охота на короля / King of Killers (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для каждого наемного убийцы важнее жизни только собственная репутация. Чтобы возвыситься в мире киллеров, группа самых отчаянных и безжалостных из них решила устроить охоту на Дракоса по кличке Король. Отправившись за его головой, они не догадываются, что вскоре сами могут стать добычей и пополнить список побед опаснейшего из убийц.Производство: США, Канада / Alain Moussi Productions, BondIt, Buffalo 8 Productions, Channel 56 FilmsЖанр: боевик, триллер, криминал, детектив, приключенияРежиссер: Кевин ГревьеАктеры: Ален Мусси, Фрэнк Грилло, Стивен Дорфф, Мари Авгеропулос, Шэннон Кук-Чун, Кевин Гревье, Райан Тарран, Жорж Сен-Пьер, Джанни Капальди, Эми ГроунингПеревод: Дублированный (Велес), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4203C3444A3E5126459523091A152D897EC7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 79442   (31864) от 06.01.2025
+
+Старикам здесь не место / No Country for Old Men (2007) [1080p]  WEB-DL
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разворачивающаяся в западном Техасе 1980 года история повествует о молодом вьетнамском ветеране, чья попытка сбыть наркотики заканчивается весьма плачевно. Герою приходится уносить ноги с полным чемоданом денег от двух киллеров, желающих вернуть наличные.
+Неподалеку от Рио Гранде охотник случайно натыкается на груду труппов, партию героина и 2 миллиона долларов наличными. (   Читать дальше...   )Жанр: Триллер, драма, криминалРежиссер: Итан Коэн, Джоэл КоэнАктеры: Томми Ли Джонс, Хавьер Бардем, Джош Бролин, Вуди Харрельсон, Стивен Рут, Келли Макдоналд, Джеймс Бролин, Барри Корбин, Бет Грант, Джейсон Дуглас, Мэтью Грир, Тесс Харпер, Брэндон Смит, Крис Уорнер, Ричард Барела, Роджер Бойс, Ричард Джексон, Люс РэйнсСубтитры: SoftSub (SRT)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098F2F4EAFBCEB48B5EDE8E9CCA1FF914B738E46
 ```
 
 https://mybot314.ru/tekegram_catalog/

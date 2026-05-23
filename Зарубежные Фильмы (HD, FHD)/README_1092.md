@@ -1,55 +1,3 @@
-###  Публикация: 1743302   (46730) от 15.08.2024
-
-Ганимед / Ganymede (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Влюбленность в одноклассника ставит под угрозу не только карьеру звезды рестлинга из маленького городка, но и его душевное равновесие. По мере того как его чувства углубляются, невидимое гротескное существо начинает вторгаться в его мысли. Борясь с внутренними демонами и пытаясь удовлетворить ожидания семьи, ценящей традиции и наследие, он должен найти в себе силы (   Читать дальше...   )Производство: США / Ganymede Film, Iris Indie International, Neighborhood PicturesЖанр: триллер, драмаРежиссер: Колби Холт, Sam ProbstАктеры: Мелани Бут, Пабло Кастельбланко, Джо Крест, Walker Cody, Jordan Doww, Deaton Gabbard, Брэйди Джентри, Tatiana Harman, Roy Hensel, Дэвид КокнерПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: Английские (Forced hardsub, на иностранную речь)Продолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB86A4BB01A7B00D9530C8064A0F1FF1AB2F0984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743343   (46724) от 15.08.2024
-
-Оно 2 / It Chapter Two (2019) WEBRip [AV1/1080p] [10-bit] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Проходит 27 лет после первой встречи ребят с демоническим Пеннивайзом. Они выросли, покинули родной городок и практически забыли о тех страшных событиях, но неожиданно в их взрослые проблемы вторгается телефонный звонок. Майк никогда не покидал Дерри и всё это время собирал информацию о жутком клоуне и ждал. Когда в городе начали происходить новые убийства, Майк (   Читать дальше...   )Производство: Канада, США / KatzSmith Productions, Lin Pictures, New Line CinemaЖанр: ужасы, фэнтези, драмаРежиссер: Андрес МускеттиАктеры: Джессика Честейн, Джеймс МакЭвой, Билл Хейдер, Айзая Мустафа, Джей Райан, Джеймс Рэнсон, Энди Бин, Билл Скарсгард, Джейден Мартелл, Уайатт ОлеффПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced-hardsub, full)Продолжительность: 02:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84FE16D59630BFD65304E3C27BAD388245263C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743198   (46723) от 15.08.2024
 
 1521 / 1521 (2023) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46723.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46722.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46706.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46698.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46694.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46690.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46683.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46677.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46676.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46672.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46671.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46667.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46657.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46638.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46620.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46598.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46586.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46584.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46572.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46569.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46567.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46563.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46539.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46538.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:245D3B4210E2A364DFAEE3DFC56501F9874CB578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743627   (46510) от 17.08.2024
+
+Схватка / Kill (2023) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Тулики хочет выдать ее замуж по расчету, поэтому девушку срочно увозят на поезде в Нью-Дели. Но у нее уже есть тайный возлюбленный, Амрит, и он не желает так просто отпускать любимую. Вместе со своим боевым товарищем Вирешем он отправляется следом, чтобы совершить романтическую миссию по спасению Тулики. Ситуация принимает неожиданный оборот, когда поезд начинает (   Читать дальше...   )Производство: Индия | Sikhya Entertainment, Dharma ProductionsЖанр: Боевик, криминалРежиссер: Никхил Нагеш БхатАктеры: Лакшья, Рагхав Джуял, Таня Маниктала, Абхишек Чаухан, Ашиш Видьятхи, Пратап Верма, Харш Чхая, Адриджа Синха, Минал Капур, Мукеш Чанделия и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: Русский, хиндиСубтитры: АнглийскиеПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3657DB290A0FF48BC0FC4F8638B2B34592A2C076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743623   (46482) от 17.08.2024
+
+Схватка / Kill (2023) WEB-DLRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Тулики хочет выдать ее замуж по расчету, поэтому девушку срочно увозят на поезде в Нью-Дели. Но у нее уже есть тайный возлюбленный, Амрит, и он не желает так просто отпускать любимую. Вместе со своим боевым товарищем Вирешем он отправляется следом, чтобы совершить романтическую миссию по спасению Тулики. Ситуация принимает неожиданный оборот, когда поезд начинает (   Читать дальше...   )Производство: Индия | Sikhya Entertainment, Dharma ProductionsЖанр: Боевик, криминалРежиссер: Никхил Нагеш БхатАктеры: Лакшья, Рагхав Джуял, Таня Маниктала, Абхишек Чаухан, Ашиш Видьятхи, Пратап Верма, Харш Чхая, Адриджа Синха, Минал Капур, Мукеш Чанделия и др.Перевод: Авторский (М. Яроцкий)Язык озвучки: Русский, хиндиСубтитры: АнглийскиеПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD08BB3AA779725596A42375FC55736B0378942
 ```
 
 https://mybot314.ru/tekegram_catalog/

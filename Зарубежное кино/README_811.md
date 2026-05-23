@@ -1,56 +1,3 @@
-###  Публикация: 1134866   (684711) от 17.05.2017
-
-Белый значок / Hayan chonjaeng (1992) DVDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Основан на романе корейского ветерана вьетнамской войны, писателя Ан Чжун Хё (Ahn Jung-hyo) "White Badge: A Novel of Korea".
-Фильм рассказывает о личной трагедии выживших корейских солдат, ветеранов войны во Вьетнаме. Страдая более десяти лет поствоенным синдромом, писатель Кайю Хан берётся за мемуары, изображающие год его службы и публикует их в газете, (   Читать дальше...   )Производство: Южная КореяЖанр: Военный, ДрамаРежиссер: Чжи-Ен ЖонгАктеры: Шим Хэ Джин, Ан Сун Ки, Ли Гён Ён, Док Го Ён Дже, Ан До Хун, Хо Джун Хо, Ким Бо Сон, Ким Се Чжун, Ли Ён Сук, Хон Сок ЁнПеревод: Одноголосый закадровыйСубтитры: Английские неотключаемыеПродолжительность: 02:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3187F05FDC3B25E5E99E591625DA6B173906742E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222452   (684690) от 29.04.2018
-
-Тело Дженнифер / Jennifer's Body (2009) BDRip [H.264] [Unrated Edition]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Захолустный американский городок замер от ужаса: в Главную героиню — участницу команды болельщиц — вселился бес, и она, по никому неизвестным причинам, убивает парней. На хрупкие плечи ее лучшей подруги ложится непосильная ноша — она должна найти способ остановить адски разбушевавшуюся убийцу.Производство: США/ Dune Entertainment, Fox Atomic, Hard CЖанр: Ужасы, КомедияРежиссер: Карин КусамаАктеры: Меган Фокс, Аманда Сайфред, Джонни Симмонс, Адам Броди, Дж.К. Симмонс, Кайл Галлнер, Крис Пратт, Хуан Ридингер, Сэл Кортез, Райан ЛивайнПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643746B33F1A281CE35FA31925EBA88D9D2B62B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222443   (684684) от 29.04.2018
 
 Величайший шоумен / The Greatest Showman (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684684.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684678.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684600.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684575.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684564.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684563.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684562.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684559.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684553.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684552.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684551.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ D.O.A.: Живым или мертвым / DOA: Dead or Alive (2006) BDRip [H.26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684505.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684453.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684446.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684432.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684431.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684359.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684358.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684168.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684160.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684115.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684110.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684104.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684011.jpg" />
 </div>
 
 
@@ -674,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F1821273319ECE281DED50BAD3FE9C951489FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535647   (683976) от 07.03.2022
+
+Трудная мишень / Hard Target (1993) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужественный герой неутомимого Ван Дамма пытается помочь молодой красавице найти ее отца, ветерана вьетнамской войны, пропавшего без вести не на полях сражений, а в родной стране, а в результате — вынужден не на жизнь, а на смерть схватиться с бандой патологических злодеев, которые используют несчастных бездомных в качестве жертв своей жестокой и опасной игры.Производство: США / Universal Pictures, Alphaville Films, Renaissance PicturesЖанр: Боевик, ТриллерРежиссер: Джон ВуАктеры: Жан-Клод Ван Дамм, Янси Батлер, Лэнс Хенриксен, Арнольд Вослу, Уилфорд Бримли, Уилли С. Карпентер, Кейси Леммонс, Чак Пфаррер, Роберт Аписа, Дуглас РайПеревод: дублированный, многоголосый закадровый, одноголосый авторскийСубтитры: русские (полные), английские (полные)Продолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4699F5BF47FA3C844CA736ECFE9E9A2E5A8FA882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535545   (683972) от 07.03.2022
+
+Пик Данте / Dante's Peak (1997) WEB-DLRip [H.264/1080p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученый-вулканолог Гарри Далтон, потерявший жену во время извержения вулкана, отправляется на Пик Данте, в маленький городок, расположенный на северо-западном побережье, для того, чтобы заняться там рутинной работой - исследованием сейсмической ситуации.
+Ученый немедленно обнаруживает тревожные признаки надвигающейся катастрофы, грозящей обернуться для жителей города, (   Читать дальше...   )Производство: США / Pacific Western, Universal PicturesЖанр: Боевик, Триллер, ПриключенияРежиссер: Роджер ДональдсонАктеры: Пирс Броснан, Линда Хэмилтон, Джейми Рене Смит, Джереми Фоули, Элизабет Хоффман, Чарльз Хэллахан, Грант Хеслов, Кирк Тратнер, Арабелла Филд, Ма ЦиПеревод: Многоголосый профессиональный (Blu-ray EUR, ОРТ, Universal Channel)Субтитры: Русские, английскиеПродолжительность: 01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1293120AE21B28ABEB2CCB6A76013D4D52C094
 ```
 
 https://mybot314.ru/tekegram_catalog/

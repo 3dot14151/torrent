@@ -1,82 +1,3 @@
-###  Публикация: 1654735   (193937) от 22.08.2023
-
-Александр Берг | Мусорщики (Книга 4). Одиночка (2023) [MP3, FAN12]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень попадает в лапы агарских работорговцев, а поскольку его никто не спешит освобождать, то приходится делать это самому, так как спасение утопающих исключительно дело рук самих утопающих. Стать из бесправного раба преуспевающим инженером и получить известность в мире Содружества, как полного отморозка, вот путь Виктора Седых. Книга входит в цикл «Мусорщики» (   Читать дальше...   )Жанр: Научная фантастикаИздательство: Клуб любителей аудиокнигПродолжительность: 12:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BDB7F1B3363E4A7D6CB69CA410A2729AD02FBB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654700   (193900) от 22.08.2023
-
-Василий Маханенко | Смертник из рода Валевских (Книга 5) (2023) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-"Смертник из рода Валевских" - роман Василия Маханенко, пятая книга одноименного цикла, жанр героическое фэнтези, бояръ-аниме, РеалРПГ.
-Турнир на звание лучшего мага империи. Что может пойти не так, когда просчитана каждая мелочь, а на сам турнир заявлены лучшие из лучших? Ответ очевиден - всё! И вновь Максимилиану Валевскому приходится спасать всех, чтобы (   Читать дальше...   )Жанр: Героическое фэнтези, Бояръ-аниме, РеалРПГИздательство: ИДДКПродолжительность: 08:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D5EFA2EAA6DFA0992FB3BF35ACE50DD71198E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654917   (193885) от 23.08.2023
-
-Серж Винтеркей | Антидемон (Книга 5) (2023) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Эйсон все ближе к тому, чтобы отомстить убийце своего отца. Нарастает градус противоречий и с могущественными кланами. Ставки все выше, риска все больше, но Эйсон считает, что готов к этому.Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 08:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F1FE10B7DF758A3140904AC7E9FD5ACB87E846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655324   (193878) от 25.08.2023
 
 Андрей Красников | Темные боги (Книга 4). Жатва (2023) [MP3, Станислав Федорчук]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193878.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193828.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193817.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193807.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193788.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193744.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193712.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193682.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193632.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193590.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193577.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193570.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193569.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193559.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193548.jpg" />
 </div>
 
 
@@ -479,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193509.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193503.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193497.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193464.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193319.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193318.jpg" />
 </div>
 
 
@@ -642,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193317.jpg" />
 </div>
 
 
@@ -670,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193300.jpg" />
 </div>
 
 
@@ -681,6 +602,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:273E842BE05901BA00367FA990CF3D45868130EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827858   (193299) от 23.10.2025
+
+Элисон Уэйр | Генрих VIII. Жизнь королевского двора (2024) [MP3, Евгения Витте]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английскому королю Генриху VIII суждено было стать одним из тех монархов, чье имя и спустя несколько столетий известно всему миру. Его внешний облик запечатлели портреты работы великих живописцев эпохи Возрождения, характерные черты его личности, восхищавшей, интриговавшей и устрашавшей современников, в изобилии проступают в самых разнообразных свидетельствах на (   Читать дальше...   )Жанр: ИсторияИздательство: АзбукаПродолжительность: 29:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB62061AE219B9C41D3943059E1CD2D7E7A40B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827856   (193298) от 23.10.2025
+
+Лэй Ми | Приют Русалки (2025) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жуткая находка. Именно так подумали полицейские, обнаружившие на берегу канала изуродованные тела трех молодых женщин. Они погибли в разное время, но оказались здесь одновременно. Есть догадка: трупы вынесло мощным потоком из ливневой подземной трубы. Осмотр тел привел полицейских к выводу: это дело рук одного и того же убийцы…
+Гу Хао, бывший начальник ведомственной (   Читать дальше...   )Жанр: детектив, триллерИздательство: INSPIRIA (Эксмо)Продолжительность: 16:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FE2A6B752736D89DBB64A57966E3114E0D8EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827855   (193297) от 23.10.2025
+
+Василий Жуковский | Лесной царь. Сказки и баллады (2025) [MP3, Иван Букчин, Андрей Одинцов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193297.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данную аудиокнигу вошли лучшие стихотворения и баллады Василия Жуковского!
+Василий Андреевич Жуковский (1783–1852) – русский поэт, основоположник романтизма в отечественной поэзии, автор элегий, романсов, баллад и эпических произведений. Стихотворение «Лесной царь» – перевод баллады И.В. Гёте.
+Наиболее известны русские переводы В. Жуковского и А. Фета. В.А. Жуковский (   Читать дальше...   )Жанр: Поэзия, классикаИздательство: Аудиокниги (АСТ)Продолжительность: 03:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E8E1A2F0BE1B1B6A70322D6C725A9E011B4373
 ```
 
 https://mybot314.ru/tekegram_catalog/

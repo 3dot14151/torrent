@@ -6,7 +6,7 @@ Sense Flip Clock & Weather v6.25.7 / Sense V2 Flip Clock and Weather v6.28.0 [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230912.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Speedtest от Ookla 5.0.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230909.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Telegram Desktop 4.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230905.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Telegram Desktop 4.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230903.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Acoustica Premium Edition 7.4.14 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230892.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230891.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ CLO Standalone 7.0.228 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230880.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Boxy SVG 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230876.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ PDF Extra: сканер и редактор 10.4.2088 Mod by derrin, Balatan [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230870.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Topaz Video AI 3.3.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230865.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ UninstallPKG 1.2.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230848.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.8 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230841.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VIP Notes 9.9.72 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230837.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ XnViewMP for Mac 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230827.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ ibis Paint X 10.1.5 Mod by AppModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230819.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Icecream Video Editor Pro 3.04 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230815.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Wondershare PDFelement 9.5.14.2360 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230813.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ ExamDiff Pro Master Edition 14.0.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230809.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Telegram Desktop 4.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230807.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Kdenlive 23.04.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230799.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Cisdem Video Converter 7.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230798.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Microsoft Visual Studio 2022 Enterprise 17.6.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230794.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ TuneIn Radio 31.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230793.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Darktable 4.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230785.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230783.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Pixelmator Pro 3.3.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230777.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455778.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chillhouse At The Beach Vol.1 (2017) [MP3|320 Kbps] <House, Chillhouse>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454995.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Various Artists - Hed Kandi: Nu Disco (2012) [MP3|320 кб/с]<House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452792.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Tech House Music Market (2017) [MP3|320 Kbps] <House, Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452785.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Feeling Better Now (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452784.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Plastique Elements Vol.4 (25 Dance Tunes) (2017) [MP3|320 Kbps] <Euro House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452718.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Autumn House Music Collection (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452715.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Radio Rockets Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452711.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Vocal and Funky House Selection (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452622.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - All The Best Remixes From 90s For Fitness & Workout (2020) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449182.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Christopher S pres.- Fuck The DJ (mixed by DJ Flava) (2009) [MP3|~190 кб/
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448905.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448684.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448379.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Axwell & Ingrosso - More than You Know (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448272.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Cartoon People-Future Club House Vol.1 (2020) [MP3|320 Kbps] <Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447363.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Steve Aoki - Neon Future Odyssey (2015) 2CD [MP3|320 кб/с]<Electronic, Progre
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447331.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Avicii - Stories (2015) Japanese Edition [MP3|320 кб/с]<Electronic, House, Da
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446911.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Stay a While and Dance (2016) [MP3|320 Kbps] <Funky, Progressive, House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444772.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Bikini Beach, Vol. 9 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444699.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Halloween Rave (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444475.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Various Artists - Club 86 Recordings Ibiza Closing 12 (2012) [MP3|320 кб/с]<P
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444348.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Ibiza Summer Club 2012 (2012) [MP3|320 кб/с]<Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444156.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Dunkan - Freshtime (2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444154.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Ministry of Progressive (50 Supreme Tunes) Vol. 1 (2018) [MP3|320 Kbps] <Pr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444134.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Various Artists - Ministry Of Sound - Deep House (2012) [MP3|320 кб/с]<Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443973.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ VA - Club 86 Recordings - Ibiza Closing 12 (2012) [MP3|320 кб/с]<Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442257.jpg" />
 </div>
 
 

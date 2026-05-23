@@ -6,7 +6,7 @@ Opera 65.0.3467.69 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170624.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.38 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170622.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Scrollow 1.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170620.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PC HelpSoft Driver Updater 7.0.1050 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170607.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ink2Go 1.9.1 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170604.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170592.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Smultron 12 v12.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170582.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CleanMyMac X 4.14.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170576.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FastScripts 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170573.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cent Browser 4.3.9.227 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170566.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Awaken 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170565.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Image Resizer – Resize Photos 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170564.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ MarsEdit 4 v4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170560.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PaintCode 3 v3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170548.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ xScope 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170547.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Untouch 1.2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170544.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ GoodSync Enterprise 10.10.14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170542.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ System Toolkit 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170538.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Text Workflow 1.7.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170536.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Display Driver Uninstaller 18.0.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170535.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Skylum Luminar AI 1.0.0.7326 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170531.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Yate 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170526.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adguard 2.4.0.693 nightly (CL - 1.5.141) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170524.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Script Debugger 8 v8.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170520.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Soulver 3 v.3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170519.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ SlimBrowser 11.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170518.jpg" />
 </div>
 
 

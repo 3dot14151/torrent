@@ -6,7 +6,7 @@ FlashDevelop 5.3.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552342.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pavtube Video Converter Ultimate 4.9.2.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552150.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GoodSync Enterprise 10.9.34.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552141.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tipard Blu-ray Converter 9.2.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552139.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mozilla Firefox 49.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552120.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox Quantum 67.0.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552064.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FastStone Image Viewer Corporate 7.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552063.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tipard DVD Creator 5.2.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551984.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Intel Chipset Device Software 9.4.0.1026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551976.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft .NET Framework 4.5 Full Plus by gora [Upd. 13.08.13] [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551953.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ FastStone Photo Resizer Corporate 4.3 RePack (& Portable) by TryRooM [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551885.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Google Chrome 75.0.3770.100 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551823.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Microsoft Office 2003 SP3 eng vl + conv2007 + updates (21.08.2013) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551811.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CorelCAD 2019.5 Build 19.1.1.2035 RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551776.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Dolby Atmos 3.20403.416.0 (05.06.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551775.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ IObit Driver Booster Pro 6.5.0.422 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551765.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FastStone Image Viewer 5.8 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551729.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Uninstall Tool 3.5.0 Build 5507 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551718.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Adobe Photoshop CC 2019 (20.0.5) x64 Portable by punsh (with Plugins) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551714.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Uninstall Tool 3.5.0 Build 5506 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551686.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FastStone Image Viewer 5.8 Final Corporate RePack (& Portable) by D!akov [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551682.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Mozilla Firefox 48.0.2 Final Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551679.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ FastStone Image Viewer 5.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551674.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dr.Web CureIt! 11.1.2 (27.08.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551658.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551650.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Hotspot Shield Elite 6.20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551648.jpg" />
 </div>
 
 

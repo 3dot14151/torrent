@@ -1,29 +1,3 @@
-###  Публикация: 361485   (757840) от 27.04.2014
-
-BBC: Амазонка - Великая река мира / BBC: Amazon: super river (2007) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм "Амазонка: Великая река мира" исследует удивительную жизнь реки, которая имеет самую разнообразную экосистему в мире. Из всех крутых рек на планете Амазонка самая длинная - более, чем 6400 км в длину и в некоторых местах до 16 км в ширину! Она практически разделяет континент пополам и содержит пятую часть всей пресной воды на планете. Чрезвычайное разнообразие дикой природы на территории Амазонки включает более 3000 видов рыбы и уникальных крупных животных, таких, как ленивец, ягуар, капибара и тапир. С помощью великолепных видов, снятых с высоты птичьего полета, профессиональной фотографии дикой природы и оригинальных визуальных эффектов "Амазонка" даст вам представление об удивительных животных и захватывающей истории самой великой реки мира.Жанр: ДокументальныйТелекомпания: BBCПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9656CC3494785917FCC3B00D07CCDA09922C9FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533204   (757763) от 27.04.2014
 
 BBC. Тайны мозга. Патология / The Brain: A Secret History. Broken Brains (2011) TVRip
@@ -32,7 +6,7 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757763.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757658.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Discovery. Американские гангстеры / American Gangsters (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757329.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757172.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757007.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756834.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756833.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ NGW: Смертельно опасные монстры Австралии / Aus
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756710.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756708.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756705.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756693.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756504.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ NG. Индия с высоты птичьего полёта / India From Above 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756488.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756481.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756071.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ BBC. Horizon: Путешествия во времени (2003) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755951.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755936.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ BBC: Грязные города. Средневековый Лондон [ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755835.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755731.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755285.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755079.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ NG: Последствия: Перенаселенная планета / Afterm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755024.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754952.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754816.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754814.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:097D8D33C21ACD551FE8931E8F102BB8F4BE6A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215887   (754464) от 28.03.2018
+
+Тайны древности. Троянский конь миф или реальность? / Ancient Mysteries: Trojan Horse The New Evidence (2014) SATRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда гласит, что неприступный город Троя был взят с помощью одной лишь хитрости. Обманутые жители сами распахнули ворота перед гигантским деревянным конем, внутри которого прятались враги. Древнегреческая поэма, из которой мы узнали об этой истории - одно из величайших произведений мировой литературы. Но, может, это не просто легенда? Существовал ли в действительности (   Читать дальше...   )Производство: Великобритания, Blink Entertainment LtfЖанр: Документальный, исследования, археологияРежиссер: Том ФоулиПеревод: Документальный дубляж (студия «СВ-Дубль», голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B57AC231C5AE4C3CE7EC42C1660C912393B508
 ```
 
 https://mybot314.ru/tekegram_catalog/

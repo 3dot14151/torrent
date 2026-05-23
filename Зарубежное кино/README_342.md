@@ -1,55 +1,3 @@
-###  Публикация: 288181   (923345) от 28.01.2011
-
-Где-то / Somewhere (2010) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Утопая в оргиях и пьянках, дорогих машинах и поклонницах, прожженная голливудская звезда Джонни Марко ведет распутную жизнь. Забившись в кокон греха и порока, он теряет себя… Однажды в роскошном отеле Шато Мормон его разыскивает его 11-летняя дочь, которую он бросил много лет назад. Джонни привязывается к девочке, а та возвращает его к жизни. Но расставание неизбежно…Производство: Focus Features, Pathé Distribution, Medusa Film / США, Великобритания, Италия, ЯпонияЖанр: Драма, КомедияРежиссер: София Коппола / Sofia CoppolaАктеры: Стивен Дорфф, Эль Фаннинг, Мишель Монахэн, Крис Понтиус, Эрин Уоссон, Александра Уильямс, Натали Фэй, Кристина Шеннон, Карисса Шеннон, Джон ПрадхонтПеревод: Дублированный (лицензия)Язык субтитров: русскиеПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117768   (923312) от 17.08.2021
-
-Крик / Scream (1996) BDRip [H.264] [Unrated]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-По городу прокатилась волна жестоких убийств, жертвами становятся беззащитные люди. Новой жертвой телефонного маньяка из городка Вудсборо может стать ещё одна девушка — Сидни Прескотт. Год назад у неё была изнасилована и убита мать, теперь маньяк угрожает ей самой. Но в первой ночной схватке с убийцей, девушка смогла спастись. Полиция находит на месте покушения маску (   Читать дальше...   )Производство: США / Dimension Films, Woods EntertainmentЖанр: Ужасы, Триллер, ДетективРежиссер: Уэс КрэйвенАктеры: Нив Кэмпбелл, Кортни Кокс, Дэвид Аркетт, Скит Ульрих, Мэттью Лиллард, Джейми Кеннеди, Роуз МакГоун, Лоуренс Хехт, Дрю Бэрримор, У. Эрл БраунПеревод: Профессиональный двухголосый (West Video, Премьер Видеофильм), Профессиональный многоголосый (СВ-Дубль)Язык озвучки: РусскийПродолжительность: 01:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591B4999328E14F735AF7CFA91A05C20983632A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456641   (923310) от 17.08.2021
 
 Кто-то там внизу меня любит / Nekdo tam dole me ma rad (2009) DVDRip [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923310.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923305.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923299.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923192.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923072.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923063.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922986.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922983.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922947.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922772.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922757.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922714.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922662.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922649.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922624.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922612.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922541.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922516.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922501.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922480.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922476.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922471.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922435.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922369.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D332855E52298B058BC97BA37898987167226F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096035   (922348) от 22.01.2017
+
+Андердог / Sommeren '92 (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренер датской сборной по футболу Рикард Мёллер Нильсен пытается внедрить новую тактику игры. Футболисты не понимают, чего он добивается. Журналисты критически настроены к нему. В итоге Дания не получает путёвку в финальную стадию чемпионата Европы. Но летом 1992-го года судьба неожиданно преподносит ему ещё один шанс. Данию всё-таки пригласили на европейский турнир (   Читать дальше...   )Производство: Дания, ВеликобританияЖанр: Драма, комедия, биография, спортРежиссер: Каспер БарфоэдАктеры: Ульрих Томсен, Миккель Боэ Фёльсгор, Сирон Бьёрн Мелвиль, Эсбен Смед Енсен, Хеннинг Енсен, Густав Дюэкьер Гис, Йон Ланге, Эллан Хайд, Йоханнес Лассен, Мортен Ванг Симонсен ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30453303D4900B56E5E24668E4AF3FF2CE0376B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096025   (922345) от 22.01.2017
+
+Жанна Пуассон, маркиза де Помпадур / Jeanne Poisson, Marquise de Pompadour (2006) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охлаждение августейшей особы во все времена означало безвозвратный уход бывшей фаворитки в тень и дальнейшее забытье, если не опалу. Маркиза де Помпадур была только 5 лет любовницей короля, а еще 15 — другом и ближайшим советником по многим вопросам, порой и государственной важности.Производство: ФранцияЖанр: ИсторияРежиссер: Робин ДэвисАктеры: Элен де Фужроль, Венсан Перес, Шарлотт де Тюркейм, Розмари Ла Волле, Дамьен Жуйро, Элизабет Маргони, Дженнифер Декер, Леа Вяземски, Хлоя Стефани, Патрик Одекюр ...Перевод: Профессиональный многоголосый (СВ Дубль)Субтитры: ОтсутствуютПродолжительность: 03:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E1E8CDAB5234EE9C4FF304266B925162F2FEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

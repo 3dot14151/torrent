@@ -6,7 +6,7 @@ VirtualBox 5.1.22 r115126 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720200.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VirtualBox 5.1.22.115126 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720199.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ScreenPresso Pro 1.6.3.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720184.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ICQ 10.0 build 12077 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720183.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IObit Smart Defrag Pro 5.1.0.787 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720181.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720083.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ O&O Defrag Professional 20.5 Build 603 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720077.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CCleaner 5.29.6033 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720062.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ O&O Defrag Professional 20.5 Build 603 RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720054.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720048.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cyberfox 47.0 for Intel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720024.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ReviverSoft PC Reviver 2.9.0.46 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720023.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719978.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Mozilla Firefox 47.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719955.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Freemake Video Converter 4.1.9.15 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719952.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ GridinSoft Anti-Malware 3.0.39 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719924.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Intel® Processor Identification Utility 5.50 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719921.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Google Chrome 51.0.2704.84 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719912.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719909.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ IObit Smart Defrag Pro 5.1.0.787 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719873.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mozilla Firefox 47.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719863.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Freemake Audio Converter 1.1.8.2 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719844.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ TechSmith Snagit 13.0.0 Build 6094 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719835.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ ReviverSoft Driver Reviver 5.8.0.14 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719818.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Vivaldi 1.0.162.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719761.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ QuiteRSS 0.17.7 + Portabe [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719760.jpg" />
 </div>
 
 

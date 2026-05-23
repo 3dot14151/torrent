@@ -1,29 +1,3 @@
-###  Публикация: 1731740   (52483) от 22.06.2024
-
-Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Впервые в серии: огромные архипелаги! Управляйте несколькими островами сразу и отвечайте на новые вызовы. Отправляйте своих агентов за границу на охоту за чудесами света – пора расширить вашу коллекцию. Стройте мосты и тоннели, перевозите граждан и туристов на такси, автобусах и канатных дорогах.Тип издания: SceneРазработчик: Limbic EntertainmentЖанр: Strategy, SimulationЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731776   (52479) от 22.06.2024
 
 Fossilfuel 2 (2024) [Multi] (1.0.1) Scene SKIDROW
@@ -32,7 +6,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52479.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52477.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52456.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Repack dixen18 [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52455.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gargoyles Remastered (2023) [Multi] (1.01.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52444.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52430.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Scene
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52429.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52427.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52415.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52412.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52407.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52402.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52401.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52396.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Forest Ranger Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52395.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Whispered Secrets 15: Cruise of Misfortune / Нашептанные секрет
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52391.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52386.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52325.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52317.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack FitGir
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52313.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ REPUNK (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52191.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52180.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Stronghold (2023) [Ru/Multi] (1.34/dlc) Repack Let'sРlay [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52170.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52137.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6931813/dlc) License GOG [Patches
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52136.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6931813/dlc) License GOG [Patches
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E0E04FB50BB2FC87871218594C535A41A721827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732583   (52110) от 25.06.2024
+
+Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reverse Collapse: Code Name Bakery - тактическая RPG, события которой происходят в далеком будущем. Мир страдает от глобального кризиса, вызванный загрязнением, именуемым Collapse Fluid. Находясь в послевоенном состоянии, две фракции решили вступить в противостояние за сферу влияния. Конфликт произошел между Антарктическим союзом и Коалицией Наций Роксатеризма. Им (   Читать дальше...   )Тип издания: SceneРазработчик: Shanghai Sunborn Network Technology Co., Ltd.Жанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский и другиеЯзык интерфейса: Английский, Японский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62168075F11EAF25DAB8E76630921B4C3313F3E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

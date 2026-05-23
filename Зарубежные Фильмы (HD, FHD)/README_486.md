@@ -1,56 +1,3 @@
-###  Публикация: 913333   (599489) от 01.07.2015
-
-Континуум / Project Almanac (2014) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Однажды после просмотра старой пленки со дня рождения уже взрослый именинник заметил себя «настоящего» в отражении на видео. Съедаемые любопытством, друзья нашли чертежи таинственного устройства, похожего на машину времени. Они решили доделать ее и испробовать, чтобы вернуться в прошлое и исправить некоторые ошибки.
-Но что будет, если группа отвязных тинейджеров (   Читать дальше...   )Производство: США, Paramount Pictures, MTV Films, Insurge PicturesЖанр: Фантастика, ТриллерРежиссер: Дин ИзраэлайтАктеры: Джонни Уэстон, София Блэк-Д'Элиа, Сэм Лернер, Аллен Евангелиста, Эми Ландекер, Гари Викс, Максен Линтц, Гэри Граббс, Мишель ДеФрайтс, Карри СтоунПеревод: Дублированный (Лицензия СЕЕ)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, арабский, индонезийский, малазийский, китайский, чешский, греческий, эстонский, иврит, хинди, исландский, корейский, латвийский, литовский, венгерский, польский, португальский, русский, румынский, словацкий, тайский, турецкий, украинскийПродолжительность: 01:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AD901F8616419647DB6DC28C542560AADB2E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232282   (599475) от 24.06.2018
-
-Телефонная линия / Landline (2018) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действия разворачиваются в 1995 году в Нью-Йорке. Две сестры, Дана и Эли, стали подозревать в измене своего отца. В этот момент они осознали, что их размеренная семейная жизнь начинает рушиться. Впервые старшая сестра Дана, недавно помолвленная и испытывающая угрызения совести из-за собственной неверности, чувствует привязанность к младшей сестре-подростку Эли. Вдвоем (   Читать дальше...   )Производство: США, MWM (MadisonWellsMedia), Route One EntertainmentЖанр: Драма, КомедияРежиссер: Джиллиан РобеспьерАктеры: Дженни Слейт, Джей Дюпласс, Эбби Куинн Джекман, Джон Туртурро, Иди Фалко, Али Ан, Маркиз Родригез, Джордан Карлос, Финн Уиттрок, Индия МенуэзПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D36F9134ACF986C7330B8FAA573341C63CAA078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232408   (599470) от 24.06.2018
 
 Исключение / The Exception (2016) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599470.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599397.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599389.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599376.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599267.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599263.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599255.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599208.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599195.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599171.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_599156.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599135.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599120.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599114.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599080.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599069.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598977.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598891.jpg" />
 </div>
 
 
@@ -536,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598882.jpg" />
 </div>
 
 
@@ -562,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598707.jpg" />
 </div>
 
 
@@ -588,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598704.jpg" />
 </div>
 
 
@@ -614,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598659.jpg" />
 </div>
 
 
@@ -640,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598283.jpg" />
 </div>
 
 
@@ -669,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597857.jpg" />
 </div>
 
 
@@ -680,6 +627,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFDCDE00501973B8C7CAD2212F5C955B57B4BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216960   (597770) от 25.06.2018
+
+Дело №39 / Case 39 (2009) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — социальный работник Эмили, которая считается настоящим специалистом в семейных вопросах. У неё нет личной жизни и своё призвание она видит в том, чтобы помогать детям, попавшим в сложные жизненные ситуации. Один из обычных, казалось бы, вызовов позволяет Эмили спасти от беды маленькую девочку. В её руки попадает дело N39 о Лилит, которая боится (   Читать дальше...   )Производство: США, Канада / Paramount Vantage, Misher Films, Anonymous ContentЖанр: Ужасы, ТриллерРежиссер: Кристиан АльвартАктеры: Рене Зеллвегер, Джоделль Ферланд, Иэн МакШейн, Брэдли Купер, Каллум Кит Ренни, Адриан Лестер, Керри О’Мэлли, Синтия Стивенсон, Александр Конти, Фил КабритаПеревод: Дублированный (BD CEE)Субтитры: Русские, английскиеПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E12DA109148DF4AC51DB6D3821704BB049EB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149732   (597730) от 12.07.2017
+
+Шальная карта / Wild Card (2015) BDRemux [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — бывший военный Ник Уайлд — работает в Лас-Вегасе охранником, мечтает накопить денег и навсегда уехать на остров Корсика. Но Ник соглашается помочь давней знакомой Холли, постоянно подвергающейся насилию со стороны сына крупного гангстера, из-за чего его отъезд откладывается.Производство: США, Cinema Seven Productions, Current EntertainmentЖанр: Боевик, триллер, драма, криминалРежиссер: Саймон Уэст/Simon WestАктеры: Джейсон Стэйтем, Майкл Ангарано, Майло Вентимилья, Доминик Гарсиа-Лоридо, Энн Хеч , София Вергара, Макс Казелла, Джейсон Александер, Хоуп Дэвис, Стэнли Туччи и др.Перевод: Дублированный (iTunes)Язык субтитров: Русский, английскийПродолжительность: 01:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DD881FEFAF0ADB7AAE3E52DC6C5A054AA0C05B
 ```
 
 https://mybot314.ru/tekegram_catalog/

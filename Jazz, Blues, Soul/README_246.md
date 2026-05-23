@@ -6,7 +6,7 @@ Fantastic Negrito - White Jesus Black Problems (2022) [FLAC 2.0|48/24|WEB-DL|tra
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571969.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mungo Jerry - Somelight (2022) [MP3|320 Kbps] <Blues Rock, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571962.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lounge Cafe, Chillout Lounge, Bossa Nova - Old Jazz On Piano (2017) [MP3|320 Kbp
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571944.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gene Chandler - Les Genies du Rock - Rainbow (1993) [MP3|320 кб/с]<Soul, Funk
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571873.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Curtis Fuller - The Magnificent Trombone Of Curtis Fuller (1961) /2014, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571871.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gladys Knight & The Pips - Les Genies du Rock - Every Beat Of My Heart (1995) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571794.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jerry Butler - Les Genies du Rock - For Your Precious Love (1995) [MP3|320 кб/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571785.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blake Aaron - Soul Stories (2015) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571783.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Sax 'N' Chill (Satin Smooth Jazz Grooves) (2015) [MP3|320 кб/с]<Jazz, Sa
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571734.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Braff Oester Rohrer - The Tide Is In (2001) [FLAC|Lossless]<Bebop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571577.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Blues Overdrive - The Blues Overdrive (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571483.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Acme Blues Company - I Think I Made It (2006) [FLAC|Lossless]<Industrial Strengt
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571480.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571292.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571187.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Brian Simpson - Above The Clouds (2007) [APE|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571163.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571151.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571147.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570963.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570834.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Gerry Mulligan Quartet - What Is There To Say (1959) Remaster, 2014, Sony Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570832.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Cynthia Tauro - Moments (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570829.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570751.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Herbie Hancock - Thrust (1974) 2016, Audio Fidelity [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570719.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - Vocal Jazz Lounge Hits (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570522.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570046.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569567.jpg" />
 </div>
 
 

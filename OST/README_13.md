@@ -6,7 +6,7 @@ Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568236.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568053.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567127.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566849.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564594.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kub
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562947.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561847.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561563.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560078.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560076.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Southpaw (2015) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557477.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555337.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555173.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554182.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552750.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Stranger Things / Очень странные дела (Original Series Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552701.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551851.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|25
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544847.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542043.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538839.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536387.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536318.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535582.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535158.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532734.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Лег�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532546.jpg" />
 </div>
 
 

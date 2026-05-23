@@ -1,87 +1,3 @@
-###  Публикация: 1626257   (243961) от 13.04.2023
-
-Тур Хейердал | Аку-аку. Тайна острова Пасхи (2021) [MP3, Илья Дементьев]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Каменные статуи на острове Пасхи веками завораживали всех, кто их видел. Но как на почти безлюдном острове оказались каменные гиганты? Почему они стоят, отвернувшись от всесильного океана, и смотрят вглубь островных вулканов? Бесстрашный норвежский исследователь Тур Хейердал (1914–2002) берется разгадать эти загадки. Он снаряжает экспедицию на остров, на котором (   Читать дальше...   )Жанр: документальная литература, путешествияПродолжительность: 12:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC921B501FF8A7B348C7F4EF4A70969D4E636ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611216   (243928) от 11.02.2023
-
-Дана Данберг | Элитная школа магии (Книга 1). Чем дальше, тем страшнее.. (2022) [MP3, Ольга Дианова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-«Чем дальше, тем страшнее…» – фантастический роман, первая книга цикла «Элитная школа магии», жанр любовное фэнтези, попаданцы.
-Она не хотела уходить, но у нее не было возможности остаться.
-Она хотела найти занятие по душе, но у нее не было возможности выбирать.
-Она хотела любви и дружбы, но оказалась в паутине интриг и лжи.(   Читать дальше...   )Жанр: Детективное фэнтези, Магические академии, ПопаданцыПродолжительность: 09:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814CC8861E47F67E37105C53B64BCFA5E6305865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567557   (243859) от 03.08.2022
-
-Вадим Панов | Чужие игры (Книга 1). Столкновение (2021) [MP3, Илья Дементьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Звезда киберспорта, популярный видеоблогер, неординарная художница, талантливый биолог, гениальный математик и просто золотая молодежь… Ими они были на Земле.
-
-А здесь?
-На разбитом лунном клипере? Посреди бескрайнего космоса, где статус и деньги не значат ничего.(   Читать дальше...   )Жанр: Героическая фантастика, космическая фантастикаПродолжительность: 13:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9A6615E31213089F644C64EDF5D9230CA53B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542180   (243822) от 05.04.2022
 
 Анджей Сапковский | Ведьмак (Книга 6). Башня Ласточки (2022) [MP3, Всеволод Кузнецов]
@@ -90,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243822.jpg" />
 </div>
 
 
@@ -116,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243817.jpg" />
 </div>
 
 
@@ -143,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243813.jpg" />
 </div>
 
 
@@ -170,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243794.jpg" />
 </div>
 
 
@@ -197,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243788.jpg" />
 </div>
 
 
@@ -223,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243786.jpg" />
 </div>
 
 
@@ -249,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243734.jpg" />
 </div>
 
 
@@ -275,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243667.jpg" />
 </div>
 
 
@@ -301,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243655.jpg" />
 </div>
 
 
@@ -327,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243653.jpg" />
 </div>
 
 
@@ -353,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243639.jpg" />
 </div>
 
 
@@ -379,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243575.jpg" />
 </div>
 
 
@@ -407,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243542.jpg" />
 </div>
 
 
@@ -433,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243499.jpg" />
 </div>
 
 
@@ -459,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243478.jpg" />
 </div>
 
 
@@ -485,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243459.jpg" />
 </div>
 
 
@@ -511,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243403.jpg" />
 </div>
 
 
@@ -537,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243380.jpg" />
 </div>
 
 
@@ -563,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243362.jpg" />
 </div>
 
 
@@ -589,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243342.jpg" />
 </div>
 
 
@@ -615,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243323.jpg" />
 </div>
 
 
@@ -641,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243307.jpg" />
 </div>
 
 
@@ -667,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243299.jpg" />
 </div>
 
 
@@ -680,6 +596,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1BD98F95B4CB3020F02537FED6C36612E5A0543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539931   (243297) от 27.03.2022
+
+Вера Шильникова | Требуется король. Срочно (2021) [MP3, Павел Нагин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы живете и не подозреваете, что в соседней квартире проходит собеседование с претендентом на королевский трон.Жанр: ФантастикаПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD0D7FEBB2CB92578667E80588507F8537D120C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623650   (243296) от 02.04.2023
+
+Андрей Ильин | Третья террористическая (Книга 1) (2023) [MP3, Александр Сидоров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять «чеченов» составили один диверсионный отряд. Все они неоднократно проверены в бою, и поэтому именно их выбрали для этого задания. Чеченский народ доверил им важную миссию, на которую он возлагает большие надежды. Они должны захватить несколько десятков российских заложников. Этот теракт может поставить точку в бесконечной войне. При любом раскладе они станут (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9388C6F9C9F5C10B4533448437A54EAA8A0F118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627098   (243288) от 17.04.2023
+
+Максим Бузин | Главный бой. Рейд разведчиков-мотоциклистов (2022) [MP3, Александр Макшанцев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холодная весна второго года войны… После советского контрнаступления под Москвой на фронтах наступила оперативная пауза. Но это всего лишь затишье перед бурей – грядут страшные летние сражения, апофеозом которых станет битва за Сталинград.
+
+Смелый рейд отчаянных разведчиков на новеньких отечественных мотоциклах М-72 по гитлеровским тылам заставил врагов пересмотреть (   Читать дальше...   )Жанр: Боевики, Книги о войнеПродолжительность: 08:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0278B1510B7FA8704EB75EC7E679AE2D3F282E50
 ```
 
 https://mybot314.ru/tekegram_catalog/

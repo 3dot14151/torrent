@@ -1,29 +1,3 @@
-###  Публикация: 1745433   (32463) от 31.12.2024
-
-Dustborn (2024) [Ru/Multi] (1.10) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Dustborn - дорожное приключение, вдохновленное графическими новеллами. Игра выполнена в стиле динамического комикса и рассказывает про небольшую группу подростков-неудачников, отправившиеся в путешествие сквозь всю пост-инфодемическую Америку. Их цель - доставить из Калифорнии одну важную посылку в Новую Шотландию.Тип издания: RepackРазработчик: Red Thread GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD638EED20A91DD861E6F64E2CAA82462393696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770354   (32462) от 31.12.2024
 
 Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
@@ -32,7 +6,7 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32462.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32460.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Let'sРlay [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32455.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dog Man: Mission Impawsible (2024) [Multi] (Build 16714564) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32451.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32447.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32443.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32415.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32414.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32412.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Follow the meaning (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32390.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Wanterlude [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32378.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32376.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Penny Blood: Hellbound (2024) [Multi] (1.0.00628) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32363.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Stars In The Trash (2024) [Ru/Multi] (Build 20241208) Repack FitGirl [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32362.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32356.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32349.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32345.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32343.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32342.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32341.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ BioGun (2024) [Ru/Multi] (1.600) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32329.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32282.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32271.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32253.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32235.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D80D7D5E37DCA52495914FB2E5EC6507BCD3B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770596   (32222) от 02.01.2025
+
+Cowboy 3030 (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к дикому приключению с Cowboy 3030 - захватывающим 3D шутером в стиле bullet hell и roguelite. Перенося вас в будущий Дикий Запад 3030 года, игра ставит вас в сапоги отважного охотника за головами. Ваша миссия? Ничто иное, как монументальное - разобраться с Nebularos, бандой внеземных злоумышленников, которые сеют хаос в вашем любимом Хололассо. Вы (   Читать дальше...   )Тип издания: RepackРазработчик: Soy Boy GamesЖанр: ЭкшеныЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5797427295D9DE74DBF11DDD73CAE0DC6AA69B
 ```
 
 https://mybot314.ru/tekegram_catalog/

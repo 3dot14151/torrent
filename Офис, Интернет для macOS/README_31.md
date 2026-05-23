@@ -6,7 +6,7 @@ Flux 7.1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397612.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TripMode 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395700.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Download Buddy 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394093.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Records - Database & Organizer 1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394046.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FileMaker Pro 16 Advanced 16.0.3.302 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390359.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ PDF Expert 2.2.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389645.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Chatty for Facebook 2.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388941.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Social Media Lab - Templates 1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387583.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.188 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387104.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Patterns - The Regex App 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385029.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Leaf - RSS News Reader 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384989.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Wondershare PDF Converter Pro (OCR) 5.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384360.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ MoneyWiz 2.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384351.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ popCalendar 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383398.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ DjVuReader EX 1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381125.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Studies 1.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379629.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Dejal Simon 4.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379627.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ JustBroadcaster for Facebook 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379619.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ ChatMate for Facebook 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379524.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ OmniPlan Pro 3 v3.10.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379308.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ChatMate for WhatsApp 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379202.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adware Zap Pro 2.8.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379120.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Productivity Lab for Pages - Templates Bundle 3.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378764.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ MathType 7 v7.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378350.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ CounterPath Bria 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377810.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Cookie 5 v 5.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374629.jpg" />
 </div>
 
 

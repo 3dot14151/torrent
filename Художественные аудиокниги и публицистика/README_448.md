@@ -1,81 +1,3 @@
-###  Публикация: 1299773   (594971) от 04.05.2019
-
-Григорий Каковкин | Мужчины и женщины существуют (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Каковкин Григорий Владимирович — писатель, драматург, журналист, режиссер и сценарист документального кино. Родился в Москве в 1953 году. Окончил философский факультет МГУ. Как журналист и публицист работал в ведущих изданиях страны, в газетах “Известия”, “Литературная газета”, журнале “Сельская молодежь” и “Открытая политика”. На телевидении был ведущим и автором (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE66F434D630592383B85F739C2E9B808B13C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299164   (594968) от 04.05.2019
-
-Сергей Козлов | Вид из окна (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сбежавший из родного города, а также пытающийся сбежать от самого себя разведённый поэт по объявлению в газете нанимается в сопровождающие к овдовевшей миллионерше-бизнесменше Вере. В скором времени между ними вспыхивает любовная страсть. Неожиданно появляется киллер, которого Вера нанимала для того, чтобы он разделался с убийцами её мужа, а потом начинают происходить (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 11:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0011C3704EF17421AED98E08F8149FD7504BD792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298843   (594965) от 04.05.2019
-
-Михаил Шполянский | Был такой случай (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Михаил Шполянский (1955-2014) - священник Украинской Православной Церкви, писатель, публицист, многодетный отец, воспитавший троих своих и 11 приемных детей. Популярность его книг выходит далеко за пределы воцерковленной читательской аудитории. Практически все рассказы отца Михаила имеют автобиографический характер. Читая их, невозможно не удивляться тому, как интересна (   Читать дальше...   )Жанр: Смешные и грустные истории из жизни священникаПродолжительность: 17:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73223481B094BB373C8607F6009247EC5B964210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299168   (594964) от 04.05.2019
 
 Амос Оз | Фима. Третье состояние (2019) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594964.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594945.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594925.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594882.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594854.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594851.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594835.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594829.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594786.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594775.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594716.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594685.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594585.jpg" />
 </div>
 
 
@@ -434,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594584.jpg" />
 </div>
 
 
@@ -461,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594557.jpg" />
 </div>
 
 
@@ -488,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594526.jpg" />
 </div>
 
 
@@ -517,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594521.jpg" />
 </div>
 
 
@@ -543,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594505.jpg" />
 </div>
 
 
@@ -569,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594435.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594433.jpg" />
 </div>
 
 
@@ -621,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594359.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594271.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594203.jpg" />
 </div>
 
 
@@ -684,6 +606,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1990E83CFAC65ABF7FA2C4195AEB1748E69F8BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039108   (594140) от 02.08.2016
+
+Артем Каменистый | Возвращение к вершинам (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594140.jpg" />
+</div>
+
+
+###  Подробнее
+
+По воле слепого случая они оказались бесконечно далеко от дома, в мире, где нет карт и учебников по географии, а от туземцев можно узнать лишь крохи, да и те зачастую неправдоподобные. Все остальное приходится постигать практикой – в долгих походах все дальше и дальше расширяя исследованную зону, которая ничуть не похожа на городской парк… Различных угроз здесь хоть (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122BE346F621274B6AA048AB5D4785C54C55ACC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549364   (594001) от 06.05.2022
+
+Андрей Вознесенский | Авось (2022) [MP3, Алексей Крутиков]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание в сентиментальных документах, стихах и молитвах славных злоключений Действительного Камер-Герра Николая Резанова, доблестных Офицеров Флота Хвастова и Довыдова, их быстрых парусников "Юнона" и "Авось", сан-францисского Коменданта Дон Хосе Дарио Аргуэльо, любезной дочери его Кончи с приложением карты странствий необычайных.Жанр: ПоэзияПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6473633A1520733B71FD030331BD2F200F78F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150564   (593978) от 15.07.2017
+
+Владимир Лорченков | Все там будем (2017) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители молдавского села Ларга очень хотят уехать в Италию. Серафим Ботезату, к примеру, за 20 лет строжайшей экономии буквально на всем выучил итальянский язык и может вполне сносно на нем изъясняться — было бы с кем! Супруга отца Паисия, матушка Елизавета, напротив, уехала в эту Италию еще в 1999 году. Сначала горничной устроилась, а потом вышла замуж за какого-то (   Читать дальше...   )Жанр: Юмористическая прозаПродолжительность: 14:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CA0183232928B4F08D92F88AD33073C03D214A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,58 +1,3 @@
-###  Публикация: 1583569   (228795) от 15.10.2022
-
-Новости Mail.ru v4.6.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Каждый день рассказываем о том, что происходит в России и мире, про звезд, спорт и котиков. Для вас — узнавайте о событиях своего региона. Информер прогноза погоды и курса валют поможет в решение ежедневных задач.
-Актуально — получайте самые свежие новости.
-Объективно — читайте статьи из разных СМИ в одном приложении.
-Ярко — смотрите видео и фоторепортажи.Тип издания: AdfreeРелиз состоялся: 10.10.2022Разработчик: VK.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77E692CB23046CBE54C339A78659D536604B890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268134   (228763) от 09.12.2018
-
-Триггерные точки v1.5.5 Pro [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Приложение предоставляет информацию о триггерных точках по всему телу. Местонахождение и пальпация триггерной точки, направление боли, лечение и упражнения. Головные боли, судороги ног, покалывание в сердце, тугоподвижность шеи, быстрое наступление усталости в икроножной области ног и многое другое, вызвано по причине триггерных точек. У вас болит спина, а врачи (   Читать дальше...   )Тип издания: Пиратка (активирована Pro версия)Релиз состоялся: 28.11.2018Разработчик: SalutemПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A20354067921F943C3618D7543ACCE0DD0F9680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512958   (228712) от 26.11.2021
 
 Muscle & Motion - Posture 2.2.08 premium [Ru/Multi]
@@ -61,7 +6,7 @@ Muscle & Motion - Posture 2.2.08 premium [Ru/Multi]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228712.jpg" />
 </div>
 
 
@@ -90,7 +35,7 @@ Anatomy Learning 3D Full v2.1 Unlocked [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228483.jpg" />
 </div>
 
 
@@ -116,7 +61,7 @@ Garmin: TopoActive Africa 2023 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228362.jpg" />
 </div>
 
 
@@ -144,7 +89,7 @@ Garmin: TOPO Czech PRO v2.01 [Cz]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227838.jpg" />
 </div>
 
 
@@ -172,7 +117,7 @@ Drad Paradise: The Road Warrior v 1.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226975.jpg" />
 </div>
 
 
@@ -198,7 +143,7 @@ Muscle & Motion - Yoga 2.2.5 premium [Ru/Multi]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226700.jpg" />
 </div>
 
 
@@ -227,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226636.jpg" />
 </div>
 
 
@@ -254,7 +199,7 @@ Malwarebytes Антивирус 3.11.1.113 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225056.jpg" />
 </div>
 
 
@@ -282,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224128.jpg" />
 </div>
 
 
@@ -308,7 +253,7 @@ Photo Tools Full v0.13 + Plugin [Ru] - Калькулятор для съёмо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224013.jpg" />
 </div>
 
 
@@ -334,7 +279,7 @@ VPN Proxy Master - Safer Vpn 2.3.1.1 (Pro) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223948.jpg" />
 </div>
 
 
@@ -360,7 +305,7 @@ Lunafaqt v1.25 [Ru/Multi]- Лунный календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223726.jpg" />
 </div>
 
 
@@ -386,7 +331,7 @@ Medativo Meditation Timer v1.2.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223298.jpg" />
 </div>
 
 
@@ -412,7 +357,7 @@ Glory of Generals 3 v1.0.0 [En] - Стратегическая игра о Вт�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222073.jpg" />
 </div>
 
 
@@ -438,7 +383,7 @@ Garmin: TOPO Denmark v4 PRO [Dk]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221519.jpg" />
 </div>
 
 
@@ -464,7 +409,7 @@ Garmin: City Navigator Australia & New Zealand NT 2023.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221356.jpg" />
 </div>
 
 
@@ -490,7 +435,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221264.jpg" />
 </div>
 
 
@@ -516,7 +461,7 @@ Garmin: Bulgaria OFRM Geotrade 2021 Q3 [Bg]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221240.jpg" />
 </div>
 
 
@@ -542,7 +487,7 @@ ArtRage Vitae Mobile Painting v1.0.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221226.jpg" />
 </div>
 
 
@@ -571,7 +516,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221224.jpg" />
 </div>
 
 
@@ -597,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221119.jpg" />
 </div>
 
 
@@ -623,7 +568,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220900.jpg" />
 </div>
 
 
@@ -649,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220883.jpg" />
 </div>
 
 
@@ -675,7 +620,7 @@ Smart Tools 2 v1.2.3 Mod by TryRoon [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220696.jpg" />
 </div>
 
 
@@ -686,6 +631,59 @@ Smart Tools® 2 - это расширенный набор инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325064   (220461) от 04.12.2019
+
+Terraria 1.3.0.7.7 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220461.jpg" />
+</div>
+
+
+###  Подробнее
+
+КОПАЙТЕ! СРАЖАЙТЕСЬ! ИССЛЕДУЙТЕ! СТРОЙТЕ! Присоединяйтесь к сообществу из миллионов террариан!
+ТЕРРАРИЯ ДЛЯ МОБИЛЬНЫХ УСТРОЙСТВ ПЕРЕДЕЛАНА С НУЛЯ — НОВАЯ И УЛУЧШЕННАЯ, ТЕПЕРЬ С КОНТЕНТОМ ИЗ ЛЕГЕНДАРНОГО ОБНОВЛЕНИЯ 1.3! «Это полная версия Terraria, но полностью переделанная... Если вам нравилась эта игра на ПК или консоли, вы полюбите и эту мобильную версию», — Slide (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 12.09.2019Разработчик: 505 GamesПоддерживаемая ОС: AndroidЖанр: Квесты, приключения, РПГЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24615A1B1822D463C84C71243C407C25AFEAFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425657   (220280) от 21.11.2020
+
+Rally Fury  v1.71 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rally Fury - Extreme Racing – отличный симулятор ралли, который подарит вам незабываемые эмоции и несколько часов игрового процесса.Тип издания: ПираткаРелиз состоялся: 21 ноября 2020 г.Разработчик: Refuel Games Pty LtdПоддерживаемая ОС: Android 4.1 и вышеЖанр: Racing (Гонка), Simulation (Симулятор)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8941F6C4C052AEDEA9D72D7504B8A8E6257833
 ```
 
 https://mybot314.ru/tekegram_catalog/

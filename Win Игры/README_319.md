@@ -1,29 +1,3 @@
-###  Публикация: 1268119   (228910) от 09.12.2018
-
-My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-My Memory of Us – это воспоминание о дружбе между мальчиком и девочкой. Дружбой, которая объединяла их в трудные времена. Во времена террора, боли и изгнания, когда люди были вынуждены жить в двух искусственно разделенных мирах.Тип издания: RepackРазработчик: Juggler GamesЖанр: Adventure, Arcade, Action, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58F22C94B36E1832F4152795D24F208317AF479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424182   (228718) от 16.11.2020
 
 Paranormal Files 6: The Trap of Truth (2020) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Paranormal Files 6: The Trap of Truth (2020) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228718.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228609.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228593.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.1.1/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228444.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Monster Energy Supercross - The Official Videogame (2018) [Multi] (1.0/dlc) Lice
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228424.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Life after Death (2022) [Ru/En] (10.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228323.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228228.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228210.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Nyan Cat: Lost In Space (2015) [En] (1.0.1) Unofficial ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227218.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Trifox (2022) [Multi] (1.0.0.7) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227100.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Project CARS 2 (2017) [Ru/Multi] (7.1.0.1.1108/dlc) Repack dixen18 [Deluxe Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227094.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Maneater (2021) [Ru/Multi] (7837297/dlc) Repack DjDI [Apex Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227057.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227024.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Dariusburst: Chronicle Saviours (2015) [Ru/Multi] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226960.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0 CD/dlc) Repack R.G. Catalys
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226757.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Inversion (2012) [Ru] (1.0.1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226744.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226727.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225874.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Stirring Abyss (2020) [Ru/Multi] (1.06.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225798.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.00.12) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225790.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225360.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225338.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Husk (2017) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225318.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Witches' Legacy 8: Dark Days to Come / Наследие ведьм 8: Гряду
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225251.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225089.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:275F1D88072E51B3D574FC99465A6137F16A4D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584413   (225009) от 18.10.2022
+
+Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте за гигантского монстра и обрушьте гнев на человечество в smash ‘em up в стиле ретро. Бейте по зданиям, вертолетам и автомобилям и пожирайте людишек - устройте полный хаос и бессмысленное разрушение (до 4 игроков сразу). Земля на пороге климатической катастрофы. Церковь Святого Ящера придумала зловещий план для спасения планеты от человечества - они хотят (   Читать дальше...   )Тип издания: LicenseРазработчик: Loren LemckeЖанр: Экшны, АркадаЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA44550EEB57B7A89D32EA7FF240A88FA57DC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

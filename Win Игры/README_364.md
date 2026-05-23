@@ -1,29 +1,3 @@
-###  Публикация: 1676078   (159100) от 11.11.2023
-
-DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Прошло много лет, и вы, наконец, покидаете свое убежище. Но дивный старый мир уже не такой, как прежде. Теперь он полон отвратительных и жутких существ. В этом мире, похоже, нет места человеку, ведь в нем властвует природа. И со временем все станет только хуже. Вам предстоит найти способ выбраться с этого проклятого острова. Но до тех пор наслаждайтесь сладостью (   Читать дальше...   )Тип издания: SceneРазработчик: 10tons LtdЖанр: Ролевая игра, Survival, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Китайский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A48E4756B42A8266188902AF110D271A3AECA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638833   (159070) от 11.11.2023
 
 TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
@@ -32,7 +6,7 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159070.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159066.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159062.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158754.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158732.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Dusk (2018) [Ru/Multi] (1.8.25/dlc) License GOG [Intruder Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158721.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158453.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158441.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Immortal Love: Letter From The Past (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158419.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Statue Of Liberty. The Lost Symbol (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158412.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158235.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158230.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Secret City 5: Mysterious Collection (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158094.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.13/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158004.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Christmas Stories 4: Puss in Boots / Рождественские истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158002.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.4.4) SteamRip R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157847.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Edge of Reality 6: Mark of Fate (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157594.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Assetto Corsa (2014) [En/It] (1.11.0/dlc) License RELOADED [Porsche Season Pass]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157504.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Phantasmat 12: Death in Hardcover / Фантазмат 12: Смерть в ст�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157220.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище Обреченных 5: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157033.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Redemption Cemetery 11: One Foot In The Grave / Кладбище искупле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156958.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ White Shadows (2021) [Ru/Multi] (1.31) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156774.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Christmas Spirit. Trouble in Oz / Дух Рождества: Неприят�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156652.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Secret Government (2020) [Ru/Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156559.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156531.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0BF07E1A49AFF27D07D5CD7BA11E4A4E917E96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593026   (156466) от 27.12.2022
+
+Lunistice (2022) [Multi] (1.05a) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lunistice может заинтересовать тех, кто ностальгирует по ранним трехмерным платформерам. Графика в этом проекте специально сделана в низкополигональном стиле и в низком разрешении. Этот ретро-платформер подражает консольным хитам, выходившим на приставках пятого поколения в 90-е годы. Он предлагает исследовать воспоминания главной героини по имени Хана. По сюжету (   Читать дальше...   )Тип издания: LicenseРазработчик: A Grumpy FoxЖанр: Экшны, Приключение, ПлатформерЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27BF0557BB18B01E4917E8B0840FD0B58114C61
 ```
 
 https://mybot314.ru/tekegram_catalog/

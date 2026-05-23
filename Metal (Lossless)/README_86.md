@@ -6,7 +6,7 @@ Lordi - Deadache (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787657.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lordi - Scare Force One (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787656.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ W.A.S.P. - ReIdolized: The Soundtrack to the Crimson Idol (2018) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787637.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lordi - The Arockalypse (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787629.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Moonspell - 1755 (2017) Limited Edition [FLAC|Lossless|image + .cue] <Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787625.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Within Temptation - Enter & The Dance (1997-1998) Reissue, Compilation, 2014, Nu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787460.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Leverage - Above The Beyond (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787139.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787080.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Embalmer - There Was Blood Everywhere (1995) [FLAC|Lossless|tracks + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787036.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lividity - ...'Til Only the Sick Remain (2002) [FLAC|Lossless|tracks + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787032.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lividity - Fetish for the Sick (1997) [FLAC|Lossless|tracks + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787006.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Die Kreatur - Panoptikum (2020) [FLAC|Lossless|Web-DL|tracks] <Gothic Metal, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786590.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Expulsion - Man Against (1996) [FLAC|Lossless|image + .cue] <Death Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786415.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Expulsion - Overflow (1994) [FLAC|Lossless|image + .cue] <Death Metal, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786413.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Oceans of Slumber - Aetherial (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786403.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Oceans of Slumber - Blue (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786398.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mattias IA Eklundh Freak Guitar - The Smorgasbord (2013) 2CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786390.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Futility - Futility (2009) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786226.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Herodias - Antevorta (2012) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786225.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lachrimatory - Anamnesic Voices Phenomena (2006) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786224.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Negative Voice - Infinite Dissonance (2013) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786222.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dаmnаtiоns Dау - А Wоrld Аwаkеns (2017) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786216.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lachrimatory - Transient (2011) [FLAC|Lossless|image + .cue] <Death Metal, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786211.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Negative Voice - Cold Redrafted (2016) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786210.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ulver - The Assassination of Julius Caesar (2017) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786105.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Taliandorogd - Neverplace (2002) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785839.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1676838   (154133) от 15.11.2023
-
-Макс Фрай | Ловцы книг (Книга 1). Ловцы книг (2023) [MP3, Владимир Овуор]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новый роман загадочной писательницы, скрывающейся под псевдонимом Макс Фрай. Причудливая философия, тонкий юмор, истории на грани иллюзии и реальности – слушатели погрузятся в многосложный и непредсказуемый фэнтези-мир.Жанр: фантастика, фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 09:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D5F784A2C146FBB13E8BE7660A2404E78B45DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601033   (154115) от 29.12.2022
-
-Антон Чехов | Интеллигентное бревно (2022) [MP3, Джахангир Абдуллаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Нелегко мировым судьям. Особенно молодым. Особенно, когда в качестве обвиняемого вызывается добрый знакомый. Здесь свою последнюю рубашку отдашь, лишь бы стороны разошлись довольными. И того, увы, бывает мало.Жанр: КлассикаПродолжительность: 00:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BBEA64968082902A3BA3BFD237FA88FF9DF1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676833   (154114) от 15.11.2023
-
-Юрий Москаленко | Перекрёсток судьбы (Книга 2). Пустышка - 2 (2023) [MP3, Вадим Ерофеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бояре анимэ. Альтернативная история России. Приключения почти простолюдина. Антимаг, но какой-то неправильный. Без войн… просто развитие и жизнь по приколу…Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 07:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5942D6E4C77E106AF998979D3C7CADD81C1822D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347132   (154095) от 22.12.2019
 
 Даниэль Пейдж | Дорога в Канзас (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154095.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154092.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154069.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154066.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154043.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154030.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154024.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154022.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154011.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154007.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153945.jpg" />
 </div>
 
 
@@ -381,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153940.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153934.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153890.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153880.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153865.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153835.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153823.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153821.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153808.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153806.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153798.jpg" />
 </div>
 
 
@@ -672,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153779.jpg" />
 </div>
 
 
@@ -685,6 +607,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:884EEE28CB88134729AF5B1308D2FC32CA83C50B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 433182   (153760) от 15.11.2023
+
+Аркадий Аверченко, Тэффи и др. | Новый Сатирикон (2008) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Антология юмора и сатиры.
+«Новый Сатирикон» – популярный юмористический литературный журнал, издававшийся в 1913-1918 гг. (его предшественник – журнал «Сатирикон» – издавался с 1908 г.) Веселые рассказы и фельетоны, стихотворения и юморески, эпиграммы и пародии для «Сатирикона» и «Нового Сатирикона» писали признанные мастера сатиры и юмора, такие как Аркадий (   Читать дальше...   )Жанр: Русская литература, классика, юмор, сатира, рассказИздательство: Студия «АРДИС»Продолжительность: 04:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EF1B7E06EAE12CCBEA10836827F2DD0B27A476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433855   (153759) от 22.12.2020
+
+Александр Март | Механики. Том 1 (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год в мире исчезают тысячи людей, в один миг – бесследно. И как их не искали, никаких следов просто нет… Александр не мог предположить что эта поездка, обычная доставка машин заказчику, так сильно изменит его жизнь. Пустыня, жара и все вокруг хотят тебя сожрать. Шутка ли? Но нет, теперь это реальность, в которой нужно для начала просто выжить. Рядом близкие (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, Юмористическое фэнтезиПродолжительность: 18:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0F0770C10F945F7165048590790B7C6365C6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437935   (153751) от 15.11.2023
+
+Аркадий Аверченко | Дюжина ножей в спину революции (2005) [MP3, Владимир Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аркадий Тимофеевич Аверченко (1880–1925) – русский писатель, сатирик, театральный критик. 1908 г. главный редактор журнала «Сатирикон».
+«Дюжина ножей в спину революции» – сборник рассказов «короля смеха» Аркадия Аверченко. В основе сюжетов – первые месяцы после революции 1917 г. в России.
+Текст прочитан без сокращений.Жанр: Русская литература, юмор, рассказИздательство: 1С-ПаблишингПродолжительность: 01:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0DC76F59D1F7FC3B96AE1E681BC49D5B8F4C8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

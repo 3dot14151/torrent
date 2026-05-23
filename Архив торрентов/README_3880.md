@@ -6,7 +6,7 @@ dict.cc+ Wörterbuch 11.0.5 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210328.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Partition Assistant Technician Edition 9.13.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210326.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Moviebase Premium 4.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210325.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 16.08.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210318.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PDF Reader Pro Edition 2.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210312.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TreeSize Pro 8.6.0.1759 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210309.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WinToUSB Technician 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210306.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Viber 19.2.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210297.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Total Commander 11.00 beta9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210296.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ HWiNFO 7.36 Build 4960 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210292.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wolfram Mathematica 13.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210283.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wondershare PDFelement 9.3.4.2071 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210282.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NetLimiter 5.2.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210272.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210269.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ XFolder File Manager / XFolder - Файловый менеджер 1.4.4.1 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210239.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ RS Explorer / RS Проводник 1.9.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210233.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ TreeSize Pro 8.6.0.1760 (x64)  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210225.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Topaz Photo AI 1.3.11 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210223.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210219.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Wise Registry Cleaner Pro 10.9.1.707 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210217.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Casse-o-player 3.1.4 + Cassette Pack (Unpacked) Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210216.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Wise Care 365 Pro 6.4.2.620 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210207.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Aiseesoft Data Recovery 1.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210198.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PortableApps.com Platform 23.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210197.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Opera 94.0.4606.65 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210190.jpg" />
 </div>
 
 

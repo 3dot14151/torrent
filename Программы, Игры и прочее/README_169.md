@@ -1,57 +1,3 @@
-###  Публикация: 1789644   (22416) от 05.04.2025
-
-AdGuard Ad Blocker TV Premium Final [No-Root] v4.9.50 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-AdGuard — лучший способ избавиться от навязчивой рекламы и онлайн-отслеживания, а также защитить свое устройство от вредоносного ПО. Сделайте свой веб-серфинг быстрее, безопаснее и комфортнее с AdGuard!
-AdGuard — уникальный блокировщик рекламы без прав root для Android, который удаляет рекламу в приложениях и браузерах, защищает вашу конфиденциальность и помогает (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 05.04.2025Разработчик: AdGuard Software LimitedПоддерживаемая ОС: Android TV 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1135DDF67E0E172DB239B30BB8EC47ABF0832F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789969   (22289) от 06.04.2025
-
-Bananastreet: Deep House & EDM v4.1.61 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Наша жизнь – это череда событий. Чтобы эмоции были ярче достаточно подобрать правильный саундтрек. Включай Bananastreet и открывай для себя новую музыку от лучших диджеев каждый день!
-Слушай плейлисты для разных занятий и настроений, чарты с популярными треками, а также тысячи релизов от топовых российских и мировых диджеев.Тип издания: ModРелиз состоялся: 06.04.2025Разработчик: Bananastreet EUПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C104E04346430EAB8A10EC7964C1A897CF506A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789845   (22287) от 06.04.2025
 
 SnapEdit - AI photo editor v7.3.5 Mod by Oflarm [Ru/Multi]
@@ -60,7 +6,7 @@ SnapEdit - AI photo editor v7.3.5 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22287.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ InColor: Coloring & Drawing v6.5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22283.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ CCleaner Pro: ПО для очистки 25.07.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22091.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ Dict Box - Английский словарь v8.9.9 Mod by Alex.Strannik [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21964.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ Password Safe and Manager v8.2.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21784.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ PhotoRoom v2025.15.02 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21751.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21700.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ Instant Translate On Screen / Перевод с экрана v7.0.09885 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21655.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21652.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21622.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ tTorrent Pro  v1.8.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21356.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21350.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ SoundHound ∞ - Music Discovery v10.4.8 Paid by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21248.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ RAR for Android v7.11 build 127 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20923.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20807.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ GRID™ Legends: Deluxe Edition v1.1.4RC7 (arm64-v8a) [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20653.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20584.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ Prince of Persia: Lost Crown v1.0.0f [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20571.jpg" />
 </div>
 
 
@@ -532,7 +478,7 @@ Total War: EMPIRE v1.6.4RC3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20547.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ Chaplin: The Missing Pieces v4.0.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20509.jpg" />
 </div>
 
 
@@ -587,7 +533,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20490.jpg" />
 </div>
 
 
@@ -613,7 +559,7 @@ World of Goo 2 v1.0.25042604 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20110.jpg" />
 </div>
 
 
@@ -640,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20085.jpg" />
 </div>
 
 
@@ -666,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19959.jpg" />
 </div>
 
 
@@ -677,6 +623,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:083A3B86815E774EBDC608A904517277C6925C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794860   (19725) от 01.05.2025
+
+Translator / Мгновенный перевод речи v11.3.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма удобное приложение для перевода речи на другие языки. Используют приложение Google для работы с речью. Поддерживает ввод текста для перевода и озвучивания и распознавание оного с изображений (в том числе полученных с камеры вашего устройства). В наличии возможность настройки скорости и тембра синтезируемой речи. Минималистичный внешний вид значительно упростит (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.05.2024Разработчик: EruditeПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794935   (19706) от 01.05.2025
+
+Mountain Legends 5 v1.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Legends 5 – наша гоночная игра из серии Mountain Legends.
+Доберитесь до финиша, пока не стало слишком поздно. Победите своих противников и первым пересеките финишную черту.
+ML5 также работает с устройствами с клавиатурой/геймпадом/сенсорным экраном.Тип издания: PaidРелиз состоялся: 18 мар. 2025 г.Разработчик: M.H.MISHUПоддерживаемая ОС: Android 5.1+Жанр: ГонкиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC20246BB1A5195063591FE581790FFE9D4D06F
 ```
 
 https://mybot314.ru/tekegram_catalog/

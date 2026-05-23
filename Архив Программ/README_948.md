@@ -6,7 +6,7 @@ Kaspersky Internet Security 2013 13.0.1.4107 Technical Preview [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_570163.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Bootstrap Studio 6.0.3 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570151.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ NVIDIA GeForce Desktop 372.54 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570145.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Tor Browser Bundle 6.0.4 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570129.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ O&O ShutUp10 1.4.1383 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570127.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CCleaner 5.21.5700 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570125.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Avast Internet Security 12.3.2279 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570105.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570102.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ JetBrains CLion 2017.2 Build #CL-172.3317.49 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570096.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ R-Studio 8.10 Build 173987 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570085.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Reg Organizer 8.29 Final RePack (& Portable) by KpoJIuk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570083.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Advanced SystemCare Pro 9.4.0.1131 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570033.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Avast Premier 12.3.2279 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570024.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PROMT Expert 12 Build 12.0.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570008.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ PROMT Professional 12 Build 12.0.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569999.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ My WCP Watermark Editor 1.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_569986.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adobe Photoshop CC 2015.5.1 (20160722.r.156) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569982.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ WinRAR 5.40 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569976.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ WinRAR 5.40 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569966.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ R-Studio 7.7 Build 159213 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569939.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ R-Studio 7.7 Build 159213 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569933.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Mozilla Firefox 40.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569928.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ R-Studio 7.7 Build 159213 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569881.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ R-Studio 7.7 Build 159222 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569866.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Ultra Adware Killer 3.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569865.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ SuperEasy Video Booster 1.1.3056 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569863.jpg" />
 </div>
 
 

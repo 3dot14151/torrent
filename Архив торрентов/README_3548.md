@@ -6,7 +6,7 @@ Central Industrial - Flaring Blue In A Timeless Space (2016) Auxiliary [FLAC|Los
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262836.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.14 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262832.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rainmeter 4.3.1 Build 3321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262817.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.15 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262803.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.13 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262800.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Advanced IP Scanner 2.5.3850 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262782.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Stellarium 0.90.0.15609 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262753.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Hands Off! 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262752.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262745.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sean Hayman - Rhapsody in Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262744.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Easy Duplicate Finder 5.8.0.978 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262723.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262661.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Foxit Reader 9.0.1.1049 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262650.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ EtreCheck Pro 6.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262637.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ SuperDuper! 3.3 (v120) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262634.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Ansome - Hounds Of The Harbour (2019) Perc Trax [FLAC|Lossless|WEB-DL|tracks] <T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262627.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VueScan Pro 9.7.09 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262626.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Process Lasso Pro 9.4.0.70 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262613.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Ummy Video Downloader 1.10.6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262611.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Opera GX 64.0.3417.139 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262601.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ YouTube By Click Premium 2.2.120 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262599.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Any Video Converter Ultimate 6.3.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262596.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Wise Care 365 Pro DC 26.11.2019 5.4.4.540 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262583.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Ashampoo UnInstaller 9.00.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262579.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Malwarebytes AdwCleaner 8.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262565.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ AIDA64 Extreme/Engineer/Business/Network Audit 6.20.5300 RePack (& Portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262549.jpg" />
 </div>
 
 

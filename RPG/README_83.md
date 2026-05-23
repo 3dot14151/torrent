@@ -6,7 +6,7 @@ Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7736.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7604.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7589.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7586.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7583.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7579.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tales and Tactics / Tales & Tactics (2023) [Multi] (1.2 Build 19453510) Scene Te
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7352.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7166.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack Wanterlude [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7165.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6988.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Warsim: The Realm of Aslona (2022) [En] (1.3.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6718.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6699.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6574.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6546.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6380.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6379.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6215.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6197.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6195.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ To the Eden (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6177.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6169.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack Let'sРlay [Director's Gut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6067.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6055.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,547) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6050.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5884.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5778.jpg" />
 </div>
 
 

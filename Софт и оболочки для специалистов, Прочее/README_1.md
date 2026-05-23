@@ -1,164 +1,3 @@
-###  Публикация: 1865708   (1065598) от 17.04.2026
-
-Autodesk AutoCAD Mechanical 2027 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Специализированный инструментальный набор AutoCAD Mechanical
-предназначен для промышленного машиностроительного проектирования в
-привычной рабочей среде AutoCAD.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1151702E4604BA84EC02534212B177F6F3170E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865801   (1065527) от 17.04.2026
-
-Visual Studio Code 1.116.0 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A013CB780EDC21A187EC064AE88D91EABD5C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865171   (1065284) от 14.04.2026
-
-WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2026.04.14 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7071EBBC30828726734BF44F01F39C815CF25A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865391   (1065238) от 15.04.2026
-
-Microsoft .NET 8.0.26 Runtime [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4115D287DB5A0CF4778E842AE0C5E027368F6193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865395   (1065236) от 15.04.2026
-
-Microsoft .NET 9.0.15 Runtime [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01A250C86D371E2A7116C0599C022EFE00C7B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865397   (1065234) от 15.04.2026
-
-Microsoft .NET 10.0.6 Runtime [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F2B8F18F5AFE160D1CC3ECD7AA8B4C1A4183EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865459   (1065181) от 15.04.2026
 
 PilotEdit Lite & Pro 20.7.0 [Multi/Ru]
@@ -167,7 +6,7 @@ PilotEdit Lite & Pro 20.7.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065181.jpg" />
 </div>
 
 
@@ -194,7 +33,7 @@ Exportizer Enterprise 10.3.2.479 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065071.jpg" />
 </div>
 
 
@@ -220,7 +59,7 @@ ORTMANN Cross Stitch Designer 7.8.4.777 [En/De]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065063.jpg" />
 </div>
 
 
@@ -246,7 +85,7 @@ AnyLogic Professional 8.9.8 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065031.jpg" />
 </div>
 
 
@@ -274,7 +113,7 @@ JetBrains Rider 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064883.jpg" />
 </div>
 
 
@@ -300,7 +139,7 @@ JetBrains DataSpell 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064882.jpg" />
 </div>
 
 
@@ -326,7 +165,7 @@ JetBrains PyCharm Professional 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064880.jpg" />
 </div>
 
 
@@ -352,7 +191,7 @@ JetBrains RustRover 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064877.jpg" />
 </div>
 
 
@@ -379,7 +218,7 @@ EJ Technologies Perfino 4.3 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064865.jpg" />
 </div>
 
 
@@ -408,7 +247,7 @@ EJ Technologies install4j 12.0.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064862.jpg" />
 </div>
 
 
@@ -434,7 +273,7 @@ JetBrains CLion 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064306.jpg" />
 </div>
 
 
@@ -460,7 +299,7 @@ JetBrains PhpStorm 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064294.jpg" />
 </div>
 
 
@@ -487,7 +326,7 @@ JetBrains RubyMine 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064293.jpg" />
 </div>
 
 
@@ -514,7 +353,7 @@ JetBrains GoLand 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064291.jpg" />
 </div>
 
 
@@ -542,7 +381,7 @@ Jetbrains WebStorm 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064290.jpg" />
 </div>
 
 
@@ -568,7 +407,7 @@ Jetbrains IntelliJ IDEA Ultimate 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064289.jpg" />
 </div>
 
 
@@ -594,7 +433,7 @@ JetBrains DataGrip 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064287.jpg" />
 </div>
 
 
@@ -621,7 +460,7 @@ WinToUSB Free / Pro / Enterprise / Technician 10.5 RePack (& Portable) by Dodaka
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064254.jpg" />
 </div>
 
 
@@ -647,7 +486,7 @@ FontViewOK 9.23 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064132.jpg" />
 </div>
 
 
@@ -673,7 +512,7 @@ MEmu 9.5.1.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064100.jpg" />
 </div>
 
 
@@ -685,6 +524,164 @@ MEmu позволит играть в любимые игры на персон�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8770051F45676E55305646F26E397F592A1BEE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862532   (1064095) от 30.03.2026
+
+WinToHDD 7.0 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064095.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToHDD - это удобное и полезное программное обеспечение, которое позволяет вам устанавливать или переустанавливать Windows 11/10/8/7/Vista без использования CD/DVD/ USB-накопителя. С помощью этого универсального средства развертывания Microsoft Windows вы можете легко переустановить Windows, установить Windows на диски, отличные от того, на котором установлена (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E865865B2A3BDBFC5D899B6765F03FAFBAE04B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863300   (1063584) от 03.04.2026
+
+Resource Tuner Business | Personal 2.31 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
+Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17236BAE8878080EBF7B190E41401E37449C4593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863578   (1063368) от 05.04.2026
+
+EarthView 7.15.2 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063368.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282D7A1A721668D21068ED068FE29DE325A22201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863872   (1063177) от 06.04.2026
+
+Hex Editor Neo Ultimate 8.04.01.9353 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hex Editor Neo – Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
+Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B226E7D46CE1F1468A18B5C5C931EF76816ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863840   (1063123) от 07.04.2026
+
+Stellarium 26.1.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Системы навигации и карты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellarium – бесплатный эмулятор звездного неба. Масштабный проект планетария с открытым кодом, распространяемое совершенно бесплатно, может отображать объемное 3D небо в режиме реального времени. Использование данного продукта будет интересно не только астрологам и астрономам, но простому человеку в познавательных целях. Невероятное огромное количество новой информации (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8625E7AD1E7B3A7206C55CF832901345C54876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863996   (1063099) от 07.04.2026
+
+LDPlayer 9.5.6.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063099.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer 9 — мощный бесплатный эмулятор устройства с операционной системой Android для ПК Windows. Это приложение позволяет запускать на вашем компьютере почти все популярные мобильные игры и приложения созданные для ОС Android. Игры можно устанавливать из магазина LD Store, Google Play или с помощью APK-файла и управлять ими с помощью мыши и клавиатуры. Этот эмулятор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2BB4688FC163052003D055E81FB1DA1A9C6D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

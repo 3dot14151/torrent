@@ -6,7 +6,7 @@ MediaInfo 22.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159351.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Seal 1.11.0-rc.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159347.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VivaVideo Video Editor v9.12.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159345.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Live Wallpaper & Themes 4K Pro 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159331.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ K-Lite Codec Pack Update 17.3.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159328.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Flyingbee PDF to Word for Mac 8.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159324.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ YouCut - Video Editor v1.600.1178 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159311.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Lunar Pro for Mac 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159306.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Photo Lab PRO v3.12.75 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159296.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Photo Studio PRO v2.7.1.2139 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159295.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wondershare PDFelement Pro OCR 9.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159291.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fitify: Фитнес тренировки дома 1.59.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159278.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PictureThis - Plant Identification v3.69 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159274.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wondershare Filmora 12.0.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159248.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Pipette 2022-10-22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159246.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skype 8.108.0.205 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159241.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Cockos REAPER 6.73 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159236.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Image Uploader 1.3.3 Build 4957 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159232.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MailWasher Pro 7.12.184 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159229.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Notepad++ 8.4.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159222.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ DVDFab StreamFab 6.1.4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159220.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ WPS Office + PDF 18.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159216.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ PIDKey Lite 1.64.4 b36 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159206.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Topaz Photo AI 2.1.1 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159190.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159189.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Maxon Cinema 4D Studio 2023.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159185.jpg" />
 </div>
 
 

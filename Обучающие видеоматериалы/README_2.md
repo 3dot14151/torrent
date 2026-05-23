@@ -1,32 +1,3 @@
-###  Публикация: 1864038   (1063006) от 08.04.2026
-
-OTUS, Михаил Каморин | Symfony Framework (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Для кого этот курс?
-
-Для PHP-разработчиков, которые стремятся поднять свой уровень до middle+ и senior+
-Курс рассчитан на PHP-разработчиков со средним опытом работы от двух лет.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 57:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB6A39055322A416FADDD6CCFC3B3A8B20AED36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864063   (1063005) от 08.04.2026
 
 1С Учебный центр №1, Сергей Арутюнов | Работа с данными файлов Excel в прикладном решении с использованием механизма расширений конфигурации (2022) WEBRip
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063005.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ ProFinansy, Ольга Гогаладзе | Облигационная зарп�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062805.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ ProFinansy, Наталья Котовская, Никита Прокофьев, 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062799.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ ProFinansy, Ольга Гогаладзе | Инвестстарт (2024) PCRec 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062794.jpg" />
 </div>
 
 
@@ -142,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062740.jpg" />
 </div>
 
 
@@ -168,7 +139,7 @@ ProFinansy, Павел Гогаладзе | Запись интенсива по
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062739.jpg" />
 </div>
 
 
@@ -197,7 +168,7 @@ TutorPlace, Ильяc Азимов | Шахматы с нуля (2025) WEB-DL [R
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062696.jpg" />
 </div>
 
 
@@ -223,7 +194,7 @@ ProFinansy, Ольга Гогаладзе | Я - инвестор (2021) WEB-DL,
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062685.jpg" />
 </div>
 
 
@@ -249,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062651.jpg" />
 </div>
 
 
@@ -275,7 +246,7 @@ OTUS, Виталий Юшкевич | Архитектор высоких наг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062649.jpg" />
 </div>
 
 
@@ -301,7 +272,7 @@ ProFinansy, Наталья Котовская, Эльдар Джабраилов
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062626.jpg" />
 </div>
 
 
@@ -327,7 +298,7 @@ TutorPlace, Илья Басманов | Ремонт телефонов (2026) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062486.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ UBICODERS, Elliot Lee | Master the First Principles of Robotics/Базовый �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062343.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062285.jpg" />
 </div>
 
 
@@ -408,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062220.jpg" />
 </div>
 
 
@@ -434,7 +405,7 @@ Magisteria, Дмитрий Бугай | Хайдеггер. Диалог с др
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062171.jpg" />
 </div>
 
 
@@ -460,7 +431,7 @@ javascript.ninja, Илья Климов | Эффективный TypeScript (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062168.jpg" />
 </div>
 
 
@@ -487,7 +458,7 @@ Gigaschool, Кристина Желтова и др. | LLM-инженер (2026)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061882.jpg" />
 </div>
 
 
@@ -513,7 +484,7 @@ TutorPlace, Анастасия Газукина | Акварельная жив�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061299.jpg" />
 </div>
 
 
@@ -539,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061295.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061294.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ Balun.Courses, Дмитрий Сафонов | Курс по Data Science дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061265.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061181.jpg" />
 </div>
 
 
@@ -646,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061072.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061070.jpg" />
 </div>
 
 
@@ -683,6 +654,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53767CB749127053F3375D093BE7D1E277B0D968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859297   (1061067) от 15.03.2026
+
+Вячеслав Дубынин | Мозг: стресс и выгорание (2022) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хронический стресс опасен истощением всех систем нашего тела. Здесь важнейшую роль играет гормон кортизол, чьи функции мы подробно обсудим. Как стресс влияет на формирование поведенческих зависимостей (игромания и т.д.)? Что понимается под выгоранием? Почему при этом страдает иммунитет, сон, функции сердца? Что такое «психозащиты» с точки зрения нейробиологии? Растёт (   Читать дальше...   )Жанр: видеоурок, лекция, нейрофизиология, психологияЯзык озвучки: русскийПродолжительность: 02:36:58Реклама: наложение на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8E6C68B0293236623F54B9709CCBA76E4F431E
 ```
 
 https://mybot314.ru/tekegram_catalog/

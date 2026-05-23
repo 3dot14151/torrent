@@ -1,81 +1,3 @@
-###  Публикация: 1629920   (199233) от 28.04.2023
-
-Юрий Тарарев, Александр Тарарев | Последний вздох (Книга 6). Точка отсчета (2023) [MP3, Александр Иванов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После уничтожения флотов Талиса и Светлова, события набирают обороты. Изменённые, под руководством Сьюис, желают захватить Дакус и Лагуну, не считаясь с последствиями.Но противостояние возглавляют Андрей и Лон, каждый преследуя свои цели. В результате чего происходит новый апокалипсис.Жанр: ФантастикаПродолжительность: 05:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F851CD37D502E45BE9B33F0AF2331987B2BABE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629964   (199227) от 28.04.2023
-
-Юрий Корчевский | Фельдъегерь (Книга 7). Нашествие. Попаданец во времена Отечественной войны 1812 года (2023) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-И снова Алексей Терехин переносится в другую эпоху, на этот раз в тяжкое для России время – вторжение Наполеона. Как обычно, начал с низов, с рядового егерского полка, отправился с сотоварищами лазутчиком да остался в сданной неприятелю Москве. Вдвоем с лесогоном Матвеем стал партизанить, переодевшись в униформу Неаполитанского полка. Урон французской армии нанес (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, ПопаданцыПродолжительность: 10:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE405217E3C0F47BC1E15412BE2F34AF40D985A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630088   (199225) от 28.04.2023
-
-Дмитрий Серебряков | Вселенная безумия (Книга 2). Псих. Тихая жизнь курсанта (2023) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Говорят, все гении – психи. Или наоборот? Насчет других не знаю, но я-то уж точно псих гениальный. Потому что так с разбега вляпываться в передряги, а потом выходить из них сухим и красивым, аки лебедь белая, – это еще уметь надо. Хотя в этот раз у меня, похоже, действительно серьезные проблемы, и не только с головой. На мир, в котором я получил шанс на новую жизнь, (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 09:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A39CDE2FF9A6DFDEB27EB2EF3927737629A55FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629918   (199223) от 28.04.2023
 
 Валерий Большаков | Целитель (Книга 8). (2023) [MP3, Илья Кочетков]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199223.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199115.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199105.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199103.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199051.jpg" />
 </div>
 
 
@@ -220,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199031.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198999.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198982.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198970.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198940.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198925.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198908.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198877.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198872.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198859.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198814.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198770.jpg" />
 </div>
 
 
@@ -536,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198753.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198743.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198738.jpg" />
 </div>
 
 
@@ -618,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198702.jpg" />
 </div>
 
 
@@ -644,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198592.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198571.jpg" />
 </div>
 
 
@@ -684,6 +606,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92893CBFDF69AF0C5A64D6FA6099E89FD3D06BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633117   (198566) от 13.05.2023
+
+Сергей Нуртазин | Черная смерть. Морпех против Батыя (2023) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демобилизованный морпех Кирилл Соколиков возвращается в родной город, не подозревая, что его ждут новые бои. На археологических раскопках он находит древнюю машину времени. Кирилл не в силах удержаться от соблазна побывать в прошлых веках, предвкушая необычные приключения, но машина неожиданно забрасывает его в далекий и кровавый 1238 год – в самый разгар нашествия (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыПродолжительность: 06:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1D7EBF9DEA683F5844037DF39552EF03664F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632772   (198535) от 11.05.2023
+
+Дмитрий Найденов | Разлом (Книга 8). Мир меча и магии (2023) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый мир встречает героя, но его прежние достижения ничего не значат и ему придётся всему добиваться с нуля. Любовь, интриги и Зов волчицы-оборотня. Сможет ли он устоять и стать сильнее?Жанр: Боевое фэнтези, Книги про волшебников, Магические академииПродолжительность: 08:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3232519872C5AB063CF61373915DCC3E8128DA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633317   (198513) от 14.05.2023
+
+Мария Семёнова, Анна Гурова | Аратта (Книга 7). Золотые корабли (2023). [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воды потопа наступают с юга и севера. По всей Аратте происходят страшные и удивительные события.
+В Белазоре на глазах у сотен людей исчезает башня главного храма. Хаста отправляется расследовать чудо и… тоже исчезает, успев оставить берестяную грамотку с загадочным рисунком: расколотый череп, а из него к небу тянется первоцвет…
+В Бьярме появился новый Зарни Зьен (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтези, историческое фэнтезиПродолжительность: 12:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25325A0D8BE5A8CA82AEA7E6B8B73E6D16ACE17C
 ```
 
 https://mybot314.ru/tekegram_catalog/

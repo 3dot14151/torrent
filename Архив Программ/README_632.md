@@ -6,7 +6,7 @@ Leawo Video Converter Ultimate 7.7.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731840.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HWiNFO 5.24-2850 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731776.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OCCT 10.1.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731746.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Download Master 6.12.4.1555 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731733.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 58.0.3029.81 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731727.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dr. Folder 2.6.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731713.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ClipGrab 3.8.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731703.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ JetBrains PyCharm 1.2.1 build #PY-105.58 for Win/Mac/Linux [Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_731693.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Slimjet 10.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731654.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FileZilla 3.18.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731653.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Bulk Crap Uninstaller 5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731626.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Jetico BestCrypt 9.03.16.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731594.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Bat! Professional Edition 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731593.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FitDEFORMER 1.41 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731590.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows 10 Manager 3.0.2 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731589.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ uTorrent 3.5.5 Build 45081 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731587.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ JetBrains RubyMine 3.1.1 Build #RM-103.260 For Win/Mac/Linux [Английски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_731557.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731522.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mozilla Firefox ESR 52.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731514.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Reg Organizer 8.85 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731493.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ AI Roboform Enterprise 7.9.28.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731477.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Windows 7 Professional VL SP1 (x86-x64) [2in1] by ivandubskoj (17.02.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731473.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Bat! Voyager 8.8.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731462.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Dism++ 10.1.5.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731429.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Wise Data Recovery 3.84.201 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731426.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ IP-TV Player 0.28.1.8845 DC 30.05.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731419.jpg" />
 </div>
 
 

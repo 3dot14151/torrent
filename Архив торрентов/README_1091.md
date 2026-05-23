@@ -6,7 +6,7 @@ AVS Video Software 11.9.6.12 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798623.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bongiovi Acoustics DPS Audio Enhancer 2.2.1.1 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798621.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ R.saver 8.17 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798594.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ MediaHuman YouTube Downloader 3.9.9.62 (0111) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798586.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798583.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Fedora 35 Workstation Server Spins [x86_64] 10xDVD, 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798547.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798539.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ AOMEI Partition Assistant Technician Edition 9.5.0 RePack by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798538.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Adobe Illustrator 2022 26.0.1.731 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798499.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Typinator 8 v8.10.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798494.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ SiteSucker Pro 4.1.5 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798493.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MacPilot 13 v13.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798492.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Find Any File (FAF) 2.3.2 b5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798491.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ iThoughtsX 5.29 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798490.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Mellel 5 v5.0.8 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798488.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Opera GX 80.0.4170.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798484.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ AirMail Pro 5 v5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798483.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ PopClip 2021.11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798468.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ PrivaZer 4.0.33 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798466.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Waterfox Current G4.0.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798451.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ RogueKiller Anti-Malware 15.1.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798448.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ WizTree 4.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798433.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ NIUBI Partition Editor 7.6.5 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798431.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ PrivaZer 4.0.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798429.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Firefox Browser 94.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798428.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ PC Cleaner Pro 8.1.0.18 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798417.jpg" />
 </div>
 
 

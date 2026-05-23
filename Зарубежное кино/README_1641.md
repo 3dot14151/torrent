@@ -1,56 +1,3 @@
-###  Публикация: 1553376   (213380) от 13.06.2022
-
-Спартак / Spartacus (2004) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-72 год до Рождества Христова. Великая Римская Империя правит античным миром своей железной рукой. Каждая новая страна, которую захватывают имперские центурионы, становится новым источником свежих рабов для жестоких римских хозяев.
-Проданный в рабство ещё ребенком Спартак прошел страшный путь лишений и истязаний, который закалил будущего вождя угнетённых и сделал (   Читать дальше...   )Производство: США / Nimar Studios, USA Network PicturesЖанр: боевик, драма, историяРежиссер: Роберт ДорнхельмАктеры: Горан Вишнич, Алан Бейтс, Энгус МакФадьен, Рона Митра, Иэн МакНис, Джеймс Фрейн, Генри Симмонс, Росс Кемп, Бен Кросс, Пол Кинмен, Пол Телфер, Крис ДжарменПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 02:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC315D0B0C651F542C31DFD0CD5B3987B9772867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557248   (213375) от 13.06.2022
-
-Роман служанки / Mothering Sunday (2021) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Англия, 1924 год. Молодая служанка Джейн встречает харизматичного англичанина из семьи аристократов. Чувства между двумя людьми из разных социальных слоев вспыхивают как спички. Историю страсти, дружбы, нежной любви и доверия прерывает один судьбоносный день, который Джейн запечатлела в своей памяти в мельчайших деталях. Он и определил всю ее дальнейшую жизнь.Производство: Великобритания / British Film Institute (BFI), Film4, Lipsync ProductionsЖанр: Драма, мелодрамаРежиссер: Ева ХассонАктеры: Одесса Янг, Джош О’Коннор, Сопе Дирису, Гленда Джексон, Оливия Колман, Колин Фёрт, Нэйтан Честер Рив, Сэмюэл Барлоу, Декстер Рэггэтт, Пэтси ФерранПеревод: Дублированный (Кириллица)Субтитры: Английские (SDH)Продолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8A7CD16D7B199F18ACAF62F8296F065FC6C19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202758   (213371) от 13.06.2022
 
 Меч короля Артура / King Arthur: Legend of the Sword (2017) DVD5 [Custom]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213371.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213370.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213352.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213348.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213347.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213346.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213341.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213334.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213328.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213325.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213324.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213323.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213322.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213321.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213319.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213310.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213309.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213308.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213307.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213306.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213304.jpg" />
 </div>
 
 
@@ -606,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213302.jpg" />
 </div>
 
 
@@ -632,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213301.jpg" />
 </div>
 
 
@@ -658,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213300.jpg" />
 </div>
 
 
@@ -669,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AF5DD365C3B832C0612A3A414EDE3CB533BA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557663   (213297) от 16.06.2022
+
+Отряд «Призрак» / Время умирать / A Day to Die (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевой спецотряд, который побывал в самых горячих точках планеты и привык решать конфликты силой, расформирован после долгих лет службы. Но уйти в отставку у командира этого элитного подразделения не получится — прошлое настигает его. Бывалому вояке предстоит собрать старых товарищей по оружию и показать, почему они были лучшими в своем деле.Производство: США / Spite the Movie, Capstone Studios, Future Proof FilmsЖанр: Боевик, криминалРежиссер: Уэс МиллерАктеры: Кевин Диллон, Брюс Уиллис, Джанни Капальди, Брук Батлер, Джонни Месснер, Кертис Никулс, Мохамед Карим, Вернон Дэвис, Александр Кэйн, ЛеонПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE88423C74289563D77EEFC2331258A32D062360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557699   (213296) от 16.06.2022
+
+9 жизней / 9 Bullets / Nine Bullets (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая танцовщица решает изменить свою судьбу и во что бы то ни стало спасти мальчика по соседству, жизни которого угрожает мафия в лице ее бывшего возлюбленного.Производство: США / Foresight Entertainment, Pop Films, Screen Media FilmsЖанр: ТриллерРежиссер: Джиджи ГастонАктеры: Лина Хиди, Дин Скотт Васкес, Сэм Уортингтон, Кэм Жиганде, Барбара Херши, Джон Алес, Далила Али Реджей, Ла Ла Энтони, Стефани Арсила, Мария Хосе КабальероПеревод: Дублированный (Велес)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F3752862B7A8153606982401418B70FFA06205
 ```
 
 https://mybot314.ru/tekegram_catalog/

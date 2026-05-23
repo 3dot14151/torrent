@@ -1,55 +1,3 @@
-###  Публикация: 980703   (953982) от 30.01.2016
-
-Королева пустыни / Queen of the Desert (2015) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В фильме показана история Гертруды Белл - роковой женщины, которая вскружила голову многим мужчинам, но никто не мог руководить ей. Она была выдающейся исследовательницей бедуинов, которые называли ее королевой пустыни. Именно эту женщину хотел использовать в своих целях Черчиль, чтобы захватить Ливан. Но Гертруда не была шпионкой. Она действовала согласно велению (   Читать дальше...   )Производство: США, МароккоЖанр: Драма, ПриключенияРежиссер: Вернер ХерцогАктеры: Джеймс Франко, Николь Кидман, Роберт Паттинсон, Дэмиэн Льюис, Дженни Агаттер, Холли Эрл, Дэвид Колдер, Бет Годдар, Джихад Абду, Марк Люис ДжонсПеревод: Двуголосый закадровый, любительский (2D)Продолжительность: 02:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82F6EF8A70B822F4E925DE151B2E019DCE3BA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172763   (953968) от 04.02.2010
-
-Деревенская девушка Фанни Хилл / Fanny Hill (1995) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Молодая красивая девушка Фанни Хилл, проживающая в английской глубинке, решает отправиться в столицу на заработки. В Лондоне она устраивается на работу к миссис Браун. Бедная девственница Фанни поначалу и не догадывается, что миссис Браун - "мадам" самого фешенебельного борделя в городе. Но атмосфера распущенности и продажной любви публичного дома не может убить потребность девушки в настоящей любви, которую она, после долгих невзгод и испытаний, и находит в объятиях богатого красавца Чарльза Миллера...Жанр: Эротика, МелодрамаРежиссер: Валентин ПалмерАктеры: Шерил Демпси, Джеймс Хайтон, Мелани Шепард, Гюнтер Вюргерт, Сайдани Бонд, Валентин Палмер, Кристин Хёрнес, Кейт Дринкел, Мери Хадсон, Рег БитчемПеревод: Одноголосый закадровыйПродолжительность: 01:26:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361618   (953905) от 20.02.2020
 
 Ягуар / Le jaguar (1996) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953905.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953891.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953884.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953804.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953783.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953764.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953707.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953697.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953688.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953687.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953679.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953678.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953674.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953672.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953647.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953643.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953574.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953516.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953502.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953305.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953282.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953279.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953206.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953202.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:100DDE9EE0138535A0FD1D4D3AECF334C66773AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088959   (953191) от 02.01.2017
+
+Вечность / Eternite (2016) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три поколения женщин. На протяжении 100 лет они пытаются сохранить и приумножить любовь. Их жизни меняются: появляются новые люди, отношения, ускользает красота. И только истинное чувство остается вечным.Производство: Франция | Artémis, BE TV, Bruxelles CapitaleЖанр: ДрамаРежиссер: Чан Ань ХунгАктеры: Одри Тоту, Беренис Бежо, Мелани Лоран, Жереми Ренье, Пьер Деладоншам, Ирен Жакоб, Арье Уортальтер, Валери Стро, Филиппин Леруа-Больё, Чан Ну Йен КхеПеревод: Профессиональный многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0585B0DA17F0612ABFFB3E707CE883779EBF883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857562   (953087) от 08.01.2015
+
+Убойная парочка: Старски и Хатч / Starsky & Hutch (2004) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэйв Старски - самый крутой и энергичный коп в Бэй-Сити, готовый до изнеможения гнаться за воришкой, укравшим жалкие восемь баксов. Кен Хатчинсон по прозвищу Хатч - жуликоватый агент под прикрытием, большой любитель проволынить и урвать неправедно нажитый доллар. Во всем городе нет двух более разных людей, но начальству, сделавшему их напарниками, виднее. Поначалу (   Читать дальше...   )Производство: СШАЖанр: Боевик, Комедия, КриминалРежиссер: Тодд ФиллипсАктеры: Бен Стиллер, Оуэн Уилсон, Снуп Догг, Фред Уильямсон, Винс Вон, Джульетт Льюис, Джейсон Бейтмен, Эми Смарт, Кармен Электра, Джордж Чунг, Крис Пенн, Бранд Родерик, Молли Симс, Мэтт Уолш, Джеффри Лоренцо, Шон Тиллман, Пэттон Освальт, Пол Майкл Глейзер, Дэвид Соул, Дэн Финнерти, Джернард Буркс, Омар Дж. Дорси, Прамод Кумар, Род Тейт, Ричард Эдсон, Рэймонд Ма, Терри Крюс, (   Читать дальше...   )Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE5B0DA8B9094F58E405A7CE03819270B4A9179
 ```
 
 https://mybot314.ru/tekegram_catalog/

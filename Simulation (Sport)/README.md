@@ -7,7 +7,7 @@ Sledders (2025) [En] (1.1.5) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067833.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Everybody's Golf Hot Shots (2025) [Multi] (1.0.8) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062426.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Skate Story (2025) [Ru/Multi] (20260124) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062012.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Streetdog BMX (2026) [Ru/Multi] (1.0.31) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060141.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FIFA 22 (2021) [Ru/Multi] (1.0.77.45722) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050626.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FIFA 22 (2021) [Ru/Multi] (1.0.77.45722) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050625.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Project Hunt (2024) [Ru/Multi] (20251217/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049982.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ TIEBREAK+: Official Game of the ATP and WTA (2024) [Ru/Multi] (1.0.6099/dlc) Rep
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049430.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049233.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Rugby League 26 (2025) [Multi] (1.0.3326) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048730.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cricket 22 (2021) [En] (0.1.3221) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047630.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AFL 26 (2025) [En] (1.0.1672) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047577.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Rugby 25 (2024) [Multi] (1.0.4016) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047576.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Cricket 24 (2023) [En] (0.2.5521) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047361.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AFL 23 (2023) [En] (1.0.6618) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047350.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ EA SPORTS FIFA 21 (2020) [Ru/Multi] (1.0.72.32477) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047235.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ EA SPORTS FIFA 21 (2020) [Ru/Multi] (1.0.72.32477) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047234.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Football Manager 2023 (2022) [Ru/Multi] (23.2.0/dlc) Repack DjDI
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038477.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tennis Manager 2022 (2022) [Multi] (2.3.4) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037432.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NBA 2K21 (2020) [Multi] (1.07) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037019.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ WE ARE FOOTBALL (2021) [Ru/Multi] (1.0h) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010876.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Anthology FIFA 1997-2013 [Ru/En] (RePack) 1996 - 2012 | Scorp1oN
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998161.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984394.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NBA 2K20 (2019) [Multi] (1.07) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980750.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mutant Football League (2017) [En] (1.01.2020smb/hf/dlc) Repack HOODLUM [Dynasty
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976294.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ LHL 14 (2008-2013) [Ru] (1.0) Repack/Mod =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975295.jpg" />
 </div>
 
 

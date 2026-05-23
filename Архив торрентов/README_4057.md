@@ -6,7 +6,7 @@ Lucky Patcher 10.3.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180902.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Coherence X 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180900.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FontLab 7 v7.2.0.7622 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180896.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Memento Database Pro 4.13.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180889.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ One Commander Pro 3.24.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180888.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Eon Timer 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180879.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Quick CPU 4.5.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180877.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Money Pro - Personal Finance 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180876.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Moises: приложение-музыкант 2.5.3 Mod by GoldenBoot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180872.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Q-Dir 11.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180856.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Abelssoft Win11PrivacyFix 2023 2.01.42898 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180854.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Chromium 117.0.5938.132 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180837.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Art Text 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180835.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ EasyWay - общественный транспорт 6.0.2.30 Mod by Ambeg [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180822.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Firefox Browser 118.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180820.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Export for iTunes 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180819.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Waterfox Current G6.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180817.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180814.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Principle 5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180801.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ CherryPlayer 3.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180796.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Opera One 102.0.4880.78 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180780.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ NVIDIA Inspector 1.9.8.6 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180776.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Firefox Browser ESR 115.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180772.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ CherryPlayer 3.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180763.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Firefox Browser ESR 115.3.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180760.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ ScreenToGif 2.39.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180757.jpg" />
 </div>
 
 

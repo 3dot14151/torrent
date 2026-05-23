@@ -6,7 +6,7 @@ Just Color Picker 5.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857656.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Reader DC 2021.007.20091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857578.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 (v21h1) x64 PRO by KulHunter v3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857531.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ XMedia Recode 3.3.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857426.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mirillis Splash 2.0.2.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857352.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MKVToolNix 9.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857344.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Allavsoft Video Downloader Converter 3.13.9.6268 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857341.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ PicturesToExe Deluxe 9.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857339.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ YouTube Video Downloader PRO 5.3 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857297.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857292.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe components: Flash Player 21.0.0.197 + AIR 21.0.0.176 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857261.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ EZ CD Audio Converter Ultimate v5.3.0.1 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857243.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WinCatalog 2017 17.0.2.27 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857241.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Avast Clear 17.2.3419.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857228.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mirillis Splash 2.0.2.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857181.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PrivaZer 3.0.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857149.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Auslogics BoostSpeed 8.2.1.0 RePack (& Portable) by D!akov (21.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857071.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft Windows and Office ISO Download Tool 4.19 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857061.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ MetaProducts Offline Explorer Enterprise 7.4.4572 SR1 Portable by punsh [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857060.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Display Driver Uninstaller 17.0.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857054.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856951.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft Office 2016 Standard 16.0.4312.1000 RePack by KpoJIuK (2016.03) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856950.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ MetaProducts Offline Explorer Enterprise 7.4.4572 SR1 Portable by PortableAppZ [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856917.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Avast Free Antivirus 17.2.2288 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856910.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Avast Internet Security 17.2.2288 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856908.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Process Lasso Pro 9.7.5.42 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856900.jpg" />
 </div>
 
 

@@ -1,368 +1,3 @@
-###  Публикация: 1283519   (739570) от 17.02.2019
-
-Синий бархат / Blue Velvet (1986) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В связи с болезнью отца Джеффри Бомон был вынужден на время оставить столичный колледж и вернуться в родной городок, и ему пришлось пережить целый ряд загадочных и страшных событий. Все началось с того, что неподалеку от дома он нашел человеческое ухо, которое сдал в полицию инспектору Уильямсу...Производство: США / De Laurentiis Entertainment Group (DEG)Жанр: Триллер, Драма, ДетективРежиссер: Дэвид ЛинчАктеры: Изабелла Росселлини , Кайл МакЛоклен , Деннис Хоппер , Лора Дерн , Хоуп Лэнг , Дин Стокуэлл , Джордж Дикерсон , Присцилла Пойнтер , Фрэнсис Бэй , Джек Харви , Кен Стовиц , Брэд ДурифПеревод: Профессиональный двухголосый, Авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B21F97F89B3C5107552F65AAF7FC4E71CDF6230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283618   (739562) от 17.02.2019
-
-Снежная Королева: Зазеркалье  (2018) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Могущественный король Харальд чуть не потерял семью из-за Снежной Королевы. Он находит способ очистить мир от волшебства — все обладатели магических способностей отныне заточены в Зазеркалье. Остановить его и не дать сказке навсегда исчезнуть из нашего мира может только Герда. Ведь ее главная сила не в волшебстве, а вере в добро и дружбу. В новом приключении на помощь (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, комедия, приключения, семейный, фэнтезиРежиссер: Алексей Цицилин, Роберт ЛенсАктеры: Лина Иванова, Владимир Зайцев, Ольга Зубкова, Никита Прозоровский, Всеволод Кузнецов, Ляйсан Утяшева, Ирина Безрукова, Надежда Ангарская, Николай БыстровПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EEC8EDD3B2F81E04DD862FA9BD2C49F8C74ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785016   (739550) от 09.05.2014
-
-РобоКоп / RoboCop (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2028 год. Международный конгломерат ОмниКорп лидирует в производстве робототехники. Благодаря разработкам компании Америка успешно побеждает в войнах по всему миру. Но теперь пришло время применить технологию на американской земле. Алекс Мерфи — любящий муж, отец и отличный полицейский, оберегающий порядок в Детройте, получает на службе смертельные ранения. Специалисты ОмниКорпа, используя новейшие разработки, сохраняют ему жизнь. Алекс возвращается на службу в родной город не только с новыми сверхспособностями, но и с проблемами, с которыми не сталкивался ни один живой человек.Жанр: Фантастика, боевик, криминалПродюсер: Марк Абрахам, Эрик Ньюман, Гари БарберВ ролях: Юэль Киннаман, Гари Олдман, Майкл Китон, Эбби Корниш, Джеки Эрл Хейли, Сэмюэл Л. Джексон, Майкл К. Уильямс, Дженнифер Или, Марианн Жан-Батист, Айми ГарсиаПеревод: Профессиональный (дублированный) (iTunes Russia)Язык субтитров: АнглийскийПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CF0CF4C22677D400DEE13F79545B08C03D0FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283610   (739441) от 17.02.2019
-
-Снежная Королева: Зазеркалье  (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Могущественный король Харальд чуть не потерял семью из-за Снежной Королевы. Он находит способ очистить мир от волшебства — все обладатели магических способностей отныне заточены в Зазеркалье. Остановить его и не дать сказке навсегда исчезнуть из нашего мира может только Герда. Ведь ее главная сила не в волшебстве, а вере в добро и дружбу. В новом приключении на помощь (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, комедия, приключения, семейный, фэнтезиРежиссер: Алексей Цицилин, Роберт ЛенсАктеры: Лина Иванова, Владимир Зайцев, Ольга Зубкова, Никита Прозоровский, Всеволод Кузнецов, Ляйсан Утяшева, Ирина Безрукова, Надежда Ангарская, Николай БыстровПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892090CD68B57CE5074817C44806ABB34A724C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526050   (739079) от 22.01.2022
-
-VA - Cuts Extraordinaire – Best of Jazzsticks 02 (2017) [AAC|~282 Kbps] <Drum & Bass, Jazz Step, Liquid Funk>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Paul SG, Conrad - You´ll Never Know (5:13)
-02. Decon - One Day (5:59)
-03. The Jazzassins - This is Paradise (7:44)
-04. Pulsaar, Paul SG - City Trip (7:11)(   Читать дальше...   )Жанр: Drum & Bass, Jazz Step, Liquid FunkПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76A91C1C0372A0530C9480863FB84C98E83264E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526048   (739078) от 22.01.2022
-
-VA - Cuts Extraordinaire – Best of Jazzsticks 01 (2014) [AAC|~283 Kbps] <Drum & Bass, Jazz Step, Liquid Funk>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Paul SG, Clart - Rhodesomes (6:25)
-02. Rowpieces - Stroke Of Genius (Jazz VIP) (6:23)
-03. Flowrian, Pulsaar - Blue (6:46)
-04. Paul SG - An Indiscreet Proposal (5:12)(   Читать дальше...   )Жанр: Drum & Bass, Jazz Step, Liquid FunkПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EECCDB71AE5EEB56D3DE23BFBE2F7A6037FC702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526051   (739075) от 22.01.2022
-
-VA - Cuts Extraordinaire – Best of Jazzsticks 03 (2021) [AAC|~290 Kbps] <Drum & Bass, Jazz Step, Liquid Funk>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Paul SG, DJ Marky - Pepper Bae (5:39)
-02. Flowrian, Pulsaar - Blue (Decon Remix) (5:20)
-03. Paul SG, MC Conrad - You'll Never Know (Flowrian Remix) (4:46)
-04. Paul SG - The Change (Malaky Remix) (5:47)(   Читать дальше...   )Жанр: Drum & Bass, Jazz Step, Liquid FunkПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B870387F88E4EFE784BD1AAC73F323DE9DD7ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526059   (738833) от 23.01.2022
-
-VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 1 (2022) [AAC|~279 Kbps] <Ambient, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Le Monde - Keep Your Mind in Balance (1:48)
-02. Santorini Sunset Groove - A Process of Constant Change (1:48)
-03. Yves St. Pierre - On the Point of Blooming (1:42)
-04. The Maldive Lovers - Principal Tenets (1:54)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB85391B315E76B85FECFF64B9C6DE3707A64558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526060   (738831) от 23.01.2022
-
-VA - Lounge & Beauty, vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - The Birds & the Bees (Original Mix) (2:15)
-02. Roberto Bronco - Reminisce (Original Mix) (5:07)
-03. Weber & Weber - The Diamond Life (Original Mix) (5:24)
-04. Alexandra Hampton, Ahbee - Love (Original Mix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C63771370BE3AD50BFC2A78823656C58CD5D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526082   (738830) от 23.01.2022
-
-VA - Summer in Electro & Swing Jazz (Light Music Selection Night Session) (2018) [AAC|~333 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Lisi - Ukulele Swing (2:50)
-02. JazzInCase - Non dimenticare (3:19)
-03. Minor Swing Quintet - Prince of Persia (7:27)
-04. Parma Brass Quintet - Toccata (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE139D20612F6E9EF37794B555DBAA4D85D067B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526236   (738825) от 23.01.2022
-
-VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Philip Aniskin, Alexsandra Mell - Too Close to You (4:54)
-02. Velvet Dreamer, Tim Gelo - Eternal Beauty (5:08)
-03. LastEDEN - Hot City Walk (3:18)
-04. Miss Luna, Neshia - Smile (Florito Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20297BFD690959D26B73889599071B6009FE893C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526068   (738823) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Neev Kennedy, Bote - What Else Is There To Love (3:31)
-02. Costa, Cathy Burton - Always (3:38)
-03. Beat Service, Ana Criado - So Much Of Me Is You (Radio Edit) (3:33)
-04. 4 Strings, Susanne Teutenberg - A Brand New Day (2:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526069   (738821) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Cathy Burton, AxelPolo - Loving Overflow (Radio Edit) (3:37)
-02. Costa, Sarah Lynn - The Water's Edge (3:51)
-03. 4 Strings, Maria Nayler - Remember You As Mine (3:21)
-04. Tenishia, Ana Criado - Ever True (Radio Edit) (4:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526083   (738820) от 23.01.2022
 
 VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbps] <Jazz>
@@ -371,7 +6,7 @@ VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738820.jpg" />
 </div>
 
 
@@ -400,7 +35,7 @@ VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738818.jpg" />
 </div>
 
 
@@ -429,7 +64,7 @@ VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738817.jpg" />
 </div>
 
 
@@ -458,7 +93,7 @@ VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738816.jpg" />
 </div>
 
 
@@ -487,7 +122,7 @@ VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738815.jpg" />
 </div>
 
 
@@ -516,7 +151,7 @@ VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738812.jpg" />
 </div>
 
 
@@ -545,7 +180,7 @@ VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738811.jpg" />
 </div>
 
 
@@ -574,7 +209,7 @@ VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738810.jpg" />
 </div>
 
 
@@ -603,7 +238,7 @@ VA - Beautiful Vocal Trance, ch. 6 (2022) [AAC|~332 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738789.jpg" />
 </div>
 
 
@@ -632,7 +267,7 @@ VA - Singing With The Stars, vol. 1 (2020) [AAC|~318 Kbps] <Nu Jazz, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738743.jpg" />
 </div>
 
 
@@ -661,7 +296,7 @@ VA - Singing With The Stars, vol. 2 (2021) [AAC|~324 Kbps] <Nu Jazz, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738733.jpg" />
 </div>
 
 
@@ -690,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738605.jpg" />
 </div>
 
 
@@ -716,7 +351,7 @@ VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738520.jpg" />
 </div>
 
 
@@ -730,6 +365,383 @@ VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:313D7CAD5F6211C16F0D8446BF4E25EDDB53BBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526369   (738519) от 24.01.2022
+
+VA - Sidewalk Bistro, Vol. 3 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - Nambuco (7:15)
+02. Emelie Christiansson - Sunday Song (3:25)
+03. Urban Phunk Society - Shadow Play (3:11)
+04. Peter Pearson - All Phased Out (5:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1328FBB3663BCC0CCA48AF6C70E8BECE35CE729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526321   (738516) от 24.01.2022
+
+Bart&Baker - Electro Swing Stories (2016) [AAC|~325 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart&Baker, George Bangable, Sax By C. Sharp - Der Tag (Original Version) (6:09)
+02. Bart&Baker, Marcella Puppini - Stop Googling Me! (Bost & Bim Remix) (3:51)
+03. Bart&Baker, David Costa Coehlo - Just Click (Original Version) (3:15)
+04. Bart&Baker, Carole Gireaud - Danke Schoen (Remastered) (5:33)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12822EFC275E3CAD0B045D8C13F978272470C7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526373   (738515) от 24.01.2022
+
+VA - Sidewalk Bistro, Vol. 4 (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luc Forlorn - That Time Again (4:18)
+02. Taste of dream - En Camino (4:33)
+03. Luc Forlorn - Reckless in Manhattan (6:31)
+04. Peter Pearson - Slow Trip Back (7:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D6CBFC7902E8AFF0A1892623C8AF9CBC0575A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526322   (738514) от 24.01.2022
+
+Bart&Baker - More Electro Swing Stories (2016) [AAC|~316 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart&Baker, George Bangable, Sax By C. Sharp - Der Tag (Extra Medium Remix) (4:10)
+02. Bart&Baker, Marcella Puppini - Stop Googling Me! (Bost & Bim Dub Remix) (4:00)
+03. Bart&Baker, David Costa Coehlo - Just Click (Dr Cat Remix) (3:23)
+04. Bart&Baker, Carole Gireaud - Danke Schoen (La Comtesse Remix) (4:30)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B33107D0E4920CBE911164896975F6B672104C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526331   (738511) от 24.01.2022
+
+Swing Republic - Electro Swing Republic (2011) [AAC|~309 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Downbeat (3:36)
+02. Peas and Rice (3:16)
+03. Scrub Me Mama with a Boogie Beat (3:24)
+04. Any Old Thing (4:33)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475A9C98571E25E74D9FC3A83CF1FB6A3A4AFE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526327   (738509) от 24.01.2022
+
+Lamuzgueule - Iceberg Club (2021) [AAC|~326 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stracciatella (Intro) (0:32)
+02. Ice Cream (3:28)
+03. Triple Lutz (3:50)
+04. Marshmallow (3:51)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBE878C7013B12825D2753AE4155FEC38981A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526362   (738508) от 24.01.2022
+
+VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 2 (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingrowers - That's Right! (Jamie Berry Remix) (3:40)
+02. Swing Republic - No No No (2:21)
+03. Jem Stone - Be-Bop 2 Hip-Hop (4:53)
+04. JFB, Beardyman - Swing Ya Beard (4:32)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4168DE88A6F2A3D4B1D8AB3A12644C676AF6EAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526334   (738506) от 24.01.2022
+
+Swing Republic - Mo' Electro Swing Republic - Let's Misbehave (Deluxe Version) (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing Republic, Dolly Dawn & Her Dawn Patrol - How'd Ja Like to Love Me? (3:41)
+02. Swing Republic, Duke Ellington, Ivie Anderson - Truckin' (4:08)
+03. Swing Republic, Karina Kappel - Sing It Back (3:32)
+04. Swing Republic, Benny Goodman, Jimmy Rushing - He Ain't Got Rhythm (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7AFA72F7C2500B833C790C9F4A1559DCB42274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526360   (738504) от 24.01.2022
+
+VA - Sidewalk Bistro, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naoki Kenji - Destination Earth (4:27)
+02. The Sushi Club - Hypnosia (7:13)
+03. Castlebed - Gravity (3:29)
+04. Gerrit van der Meer - Freudenberg (Springtime Edit) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B882254B777AD5E2191F03395DDFD76A44B2575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526364   (738502) от 24.01.2022
+
+VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 1 (2015) [AAC|~313 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing Republic - Crazy in Love (Radio Edit) (3:55)
+02. Nick Hollywood - Deep Henderson (3:41)
+03. The Correspondents - Washington Square (3:34)
+04. JFB - Wobble and Squeak (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4EE4C5908535B669175655B3CBD509960E9438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526326   (738494) от 24.01.2022
+
+Lamuzgueule - Electro Swing Best of, Pt. 2 (2021) [AAC|~330 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangsta's Paradise (3:49)
+02. Lamuzgueule, Bart&Baker - Bada Boum (2:38)
+03. Alors on Danse (2:35)
+04. Zoologic (4:02)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B6C4916D99B6291DE59FDBFE1339EE9F23B89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526323   (738485) от 24.01.2022
+
+Lamuzgueule - Electro Swing Best of, Pt. 1 (2021) [AAC|~339 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamuzgueule, Dimaa - Prohibition (4:08)
+02. Lamuzgueule, Lyre le temps - French Kiss (3:10)
+03. Triple Lutz (3:51)
+04. Lamuzgueule, Thomas Faure (Electro Deluxe), Syd - Black Swan (4:42)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9C6F55BFB3329C5AC3E98B0A0C0B76BE753ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526332   (738484) от 24.01.2022
+
+Swing Republic - Midnight Calling (2012) [AAC|~327 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing Republic, Karina Kappel - Fall (3:19)
+02. Swing Republic, Karina Kappel - Mama (3:20)
+03. Swing Republic, Karina Kappel - Midnight Calling (3:44)
+04. Swing Republic, Karina Kappel - Sugar Bubble (3:37)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12081AADE31163EEB9B423EE92C6598E590BBB9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

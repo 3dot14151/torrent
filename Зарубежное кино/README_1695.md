@@ -1,55 +1,3 @@
-###  Публикация: 1654694   (205065) от 22.08.2023
-
-Красный угол / Red Corner (1997) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий американский бизнесмен Джек Мур заключает крупную сделку с правительством Китая. На радостях он уединяется в номере с девушкой. Пробуждение оказывается кошмарным — китайская полиция обнаруживает труп девушки и арестовывает ещё не протрезвевшего Мура. Отец девушки, генерал Хонг, заявляет Муру, что сделает всё возможное, чтобы добиться его казни. Адвокат (   Читать дальше...   )Производство: США, Avnet/Kerner Productions, Metro-Goldwyn-Mayer (MGM)Жанр: драма, криминал, триллерРежиссер: Джон ЭвнетАктеры: Ричард Гир, Бай Лин, Брэдли Уитфорд, Байрон Манн, Питер Донат, Роберт Стэнтон, Цай Чинь, Джеймс Хонг, Ци Ма, Ульрих Матсхосс, Ричард Венчур, Джесси Менг, Роджер Йуан, Чи Ю ЛиПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеКачество: BDRipПродолжительность: 02:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FD3AD7AB59A73AD26C743368400B597E9FB074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584695   (205064) от 19.10.2022
-
-Откровение / De openbaring (2022) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Заботливый Якоб увольняется с работы и переезжает к своей престарелой матери, чтобы обеспечить её максимальную биобезопасность во время пандемии коронавируса. В отчем доме ему предстоит столкнуться с непониманием сестры, обвинениями бывшего начальника, многочисленными опасностями и странными теориями заговора, одна из которых просто сведёт его с ума.Производство: Нидерланды / Film Events, Make Way FilmЖанр: триллерРежиссер: Крис В. МитчеллАктеры: Виктор Лёв, Лени Бредервельд, Моник Хендрикс, Питер Болхёйс, Уильям Саттон, Eline HavenaarПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, нидерландскийСубтитры: немецкие, английские, нидерландскиеПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45727BE0ED0089172C28AC7B9AF8F1A725078567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584855   (205057) от 19.10.2022
 
 Хэллоуин заканчивается / Halloween Ends (2022) WEB-DL [H.264/1080p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205057.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205051.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205050.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205045.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205035.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205032.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205030.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205029.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205023.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205022.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205018.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205014.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205001.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204988.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204980.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204974.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204971.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204965.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204962.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204954.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204951.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204947.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204942.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204931.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FD7768E6AF9C29EBDEEEC1C618EF96F74B7041C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585408   (204929) от 22.10.2022
+
+Нет / Nope (2022) BDRip [H.264/1080p] [IMAX] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через полгода после смерти отца в результате нелепого несчастного случая брат с сестрой, Оджей и Эмеральд, пытаются удержать на плаву семейный бизнес — ранчо с лошадьми для съёмок в кино и рекламе. Дела идут из рук вон плохо, часть животных пришлось продать, и Оджей уже подумывает избавиться и от ранчо, когда вдруг замечает в окрестностях НЛО. Ребята видят в этом (   Читать дальше...   )Производство: США / Universal Pictures, Dentsu, Monkeypaw ProductionsЖанр: Фантастика, ужасыРежиссер: Джордан ПилАктеры: Дэниэл Калуя, Кеке Палмер, Брэндон Переа, Стивен Ян, Майкл Уинкотт, Ренн Шмидт, Кит Дэвид, Девон Грайе, Терри Нотари, Барби ФеррейраПеревод: Профессиональный многоголосый (Jaskier 18+)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 02:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC95D19C7B846378B96392DF74031DE67DCB81AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654780   (204924) от 22.08.2023
+
+Маленькая большая лига / Little Big League (1994) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204924.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Билли Хейвуд получает в наследство от деда бейсбольную команду и становится её менеджером. Это позволяет ему, оставаясь таким же озорным мальчишкой, способным на разные проделки, пользоваться всеми прелестями взрослой жизни.Производство: США / Castle Rock Entertainment, Lobell/Bergman ProductionsЖанр: комедия, семейный, спортРежиссер: Эндрю ШайнменАктеры: Люк Эдвардс, Тимоти Басфилд, Джон Эштон, Эшли Кроу, Кевин Данн, Билли Л. Салливан, Майлз Фюлнер, Джонатан Силвермен, Деннис Фарина, Джейсон РобардсПеревод: авторский (Павел Санаев)Язык озвучки: русский, английскийСубтитры: английские (full, pgs)Продолжительность: 01:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1411DF58A5C104990ADBA459596AF329F2ED5485
 ```
 
 https://mybot314.ru/tekegram_catalog/

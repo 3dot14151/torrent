@@ -1,55 +1,3 @@
-###  Публикация: 1587348   (192756) от 30.10.2022
-
-Холодный детектив / San taai daam zin / Detective vs Sleuths (2022) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Отстраненный от службы безумный следователь пытается распутать серию загадочных убийств, когда выясняется, что все жертвы — подозреваемые в нераскрытых преступлениях, так называемых «холодных делах».Производство: Гонконг, Китай / Emperor Motion Pictures, Er Dong PicturesЖанр: детектив, криминал, триллерРежиссер: Вай Ка-ФайАктеры: Чин Ван Лау, Чарлин Чой, Рэймонд Лам, Карман Ли, Тань Кай, Карлос Чан, Джина Хо, Кэти Тун, Стефани Че, Кевин ЧуПеревод: Многоголосый любительский (Head Pack Films)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB427898E2139134C40342112BA46E530C6360C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587222   (192752) от 30.10.2022
-
-На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEB-DL [H.264/1080p] [UKR, ENG, GER / UKR, EN, GER Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Их вырвали из привычной жизни и швырнули в кровавую грязь войны. Когда-то они были юношами, учившимися жить и мыслить, а теперь они — пушечное мясо, которое учится выживать и не думать.Производство: Германия, США, Великобритания / Amusement Park Films, Rocket ScienceSliding, Down Rainbows EntertainmentЖанр: военный, боевик, драма, историяРежиссер: Эдвард БергерАктеры: Даниэль Брюль, Альбрехт Шух, Себастьян Хюльк, Эдин Хасанович, Феликс Каммерер, Антон фон Люк, Девид Штрисов, Люк Фейт, Джо Вайнтрауб, Михаэль ВиттенборнПеревод: дублированный (Netflix)Язык озвучки: украинский, английский, немецкийСубтитры: украинские (forced, full), немецкие (forced, full, SDH), английские (forced, full, SDH)Продолжительность: 02:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E64019BFD1881A39311BD3B0971DC0634D25E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587260   (192750) от 30.10.2022
 
 Охота на ведьм / Военная охота / WarHunt (2021) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192750.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192749.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192748.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192746.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192687.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192662.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192638.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192625.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192577.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192576.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192574.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192550.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192547.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192540.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192538.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192535.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192534.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192531.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192529.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192525.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192517.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192515.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192514.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192506.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88F7448D653B460D0669D4F6D9BA6AF5F2D2F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657447   (192505) от 03.09.2023
+
+Смертельный выстрел / Dead Shot (2023) WEBRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирландский военный в отставке становится свидетелем того, как офицер SAS застрелил его беременную жену. Перехитрив SAS, он сбегает, верша свою месть на темных и параноидальных улицах Лондона 1970-х годов.Производство: Великобритания / Highland Midgie, Piecrust Productions, Rocket Science, Stylopik, Upper StreetЖанр: Боевик, триллерРежиссер: Чарли Гард, Томас ГардАктеры: Колин Морган, Марэйд Тайерс, Brian McCann, Амл Амин, Марк Стронг, Уильям Оксборро, Хайвел Морган, Rory Grant, Люсьэнн МакЭвой, Мартин МакКардиПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Английские (full, SDH)Продолжительность: 01:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735BAA1ECF9B295DF622F95EBF59DCA492ABF95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657386   (192504) от 03.09.2023
+
+Операция «Наполеон» / Operation Napoleon (2023) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая исландская юристка Кристин оказывается втянутой в водоворот международного заговора после того, как её обвинили в убийстве, которого она не совершала. Единственный шанс выжить — раскрыть секрет старого немецкого самолёта времен Второй мировой войны, недавно обнаруженного в результате таяния одного из крупнейших ледников Исландии.Производство: Исландия, Германия / Saga FilmSplendid FilmMMC MoviesЖанр: ТриллерРежиссер: Оскар Тор АксельссонАктеры: Вивиан Олафсдоттир, Джек Фокс, Иэн Глен, Вотан Вильке Мёринг, Оулавюр Дарри Улафссон, Атли Оскар Фьяларссон, Аделе Они, Тростур Лео Гуннарссон, Нанна Кристин Магнусдоттир, Anthony BacigalupoПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Английские (Forced, Full, SDH)Продолжительность: 01:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9726F19D8A8180858A9D514C81B622BE5AE31106
 ```
 
 https://mybot314.ru/tekegram_catalog/

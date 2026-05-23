@@ -1,30 +1,3 @@
-###  Публикация: 599898   (998450) от 09.01.2013
-
-Botanicula [Ru/En] (Repack/1.0.0.7) 2012 | Fenixx
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Причудливое творение от чешской студии Amanita Design, подарившей поклонникам жанра самобытные и необычайно красивые квесты «Саморост» и «Машинариум».
-В двух словах, Botanicula — это история о последнем семени умирающего дерева, изнуренного нашествием злобных паразитов. А если подробно, то это интереснейшие исследования, множество занимательных забавных головоломок, незабываемые знакомства со странными (симпатичными и не очень) существами, чарующая музыка… И все это — на одном необыкновенном огромном растении!Встречи с вами ждут пять обаятельных главных героев. В их приятной компании вы совершите путешествие с вершины древа к его корням, по дороге заглянете в пчелиный улей, посетите муравьиное гнездо, побываете в мрачном дупле и других таинственных местах. Особых сложностей по пути как будто не предвидится, однако сам он будет длинным, очень-очень длинным — шутка ли, более 150 игровых сцен!Будь вы хардкорный геймер или отчаянная домохозяйка, задорный подросток или убеленный сединами почтенный профессор биологии — просто расслабьтесь и получайте удовольствие от игры. Поверьте — у вас получится! (   Читать дальше...   )Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure / Point-and-click / PuzzleЯзык озвучки: ВымышленныйЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6028970DEBD5C0611A06336CA1BA3B0C7B1D31EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603228   (997112) от 14.01.2013
 
 Dracula: Origin / Охотник на Дракулу [Ru] (RePack/1.0) 2008 | Audioslave
@@ -33,7 +6,7 @@ Dracula: Origin / Охотник на Дракулу [Ru] (RePack/1.0) 2008 | Au
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997112.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ Dracula. Origin / Охотник на Дракулу [Ru] (Repack) 2008 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996600.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ Sherlock Holmes vs. Jack the Ripper / Шерлок Холмс против Дж�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996571.jpg" />
 </div>
 
 
@@ -115,7 +88,7 @@ Tormentum - Dark Sorrow (2015) [Ru/Multi] (1.4.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989650.jpg" />
 </div>
 
 
@@ -141,7 +114,7 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989594.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ Unmechanical [Ru/En] (RePack) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988846.jpg" />
 </div>
 
 
@@ -193,7 +166,7 @@ Phineas and Ferb: New Inventions / Финес и Ферб. Новые изобр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988800.jpg" />
 </div>
 
 
@@ -220,7 +193,7 @@ Brothers - A Tale of Two Sons (2013) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988751.jpg" />
 </div>
 
 
@@ -246,7 +219,7 @@ HellScape: Two Brothers (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985779.jpg" />
 </div>
 
 
@@ -272,7 +245,7 @@ Path of Zen (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983238.jpg" />
 </div>
 
 
@@ -298,7 +271,7 @@ Runner Heroes: The curse of night and day (2020) [Ru/Multi] (1.0) License HOODLU
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983142.jpg" />
 </div>
 
 
@@ -324,7 +297,7 @@ Lightmatter (2020) [Ru/Multi] (1.02) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980810.jpg" />
 </div>
 
 
@@ -350,7 +323,7 @@ Last in Orbit (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980759.jpg" />
 </div>
 
 
@@ -376,7 +349,7 @@ Louisiana Adventure / Однажды в Луизиане [Ru] (RePack) 2013 | Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980461.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.3.0155) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979883.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ Escape The Manor (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979723.jpg" />
 </div>
 
 
@@ -459,7 +432,7 @@ Lightmatter (2020) [Ru/Multi] (1.05/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979706.jpg" />
 </div>
 
 
@@ -485,7 +458,7 @@ Mutazione (2019) [Ru/Multi] (1.7.5805) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978534.jpg" />
 </div>
 
 
@@ -511,7 +484,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978452.jpg" />
 </div>
 
 
@@ -537,7 +510,7 @@ Lucius [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978316.jpg" />
 </div>
 
 
@@ -563,7 +536,7 @@ The Stanley Parable (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977581.jpg" />
 </div>
 
 
@@ -589,7 +562,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977341.jpg" />
 </div>
 
 
@@ -615,7 +588,7 @@ Catherine Classic (2019) [Ru] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977331.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976233.jpg" />
 </div>
 
 
@@ -667,7 +640,7 @@ SOMA (2015) [Ru/Multi] (1.510) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976178.jpg" />
 </div>
 
 
@@ -678,6 +651,32 @@ SOMA (2015) [Ru/Multi] (1.510) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FFB18B66E403ECD3D2DEDC9E1DEA7864A6D286D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356827   (976176) от 01.02.2020
+
+The Pedestrian (2020) [En] (1.0.6) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каково оказаться внутри мира общественных знаков? Помимо того, что символы неустанно работают 24/7, должным образом направляя людей, есть ли ещё хоть что-то в их прямой и узкой жизни? Может ли простой схематичный человечек отправиться в увлекательное приключение и обнаружить нестандартные решения, дабы преодолеть множество препятствий за границами его прямоугольной (   Читать дальше...   )Тип издания: LicenseРазработчик: Skookum ArtsЖанр: Platformer, Adventure, PuzzleЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3F7C3CB67F100E72939E89FBB6E7769D28AA85
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 1694252   (121110) от 24.01.2024
-
-Хелена Хейл | Сердце лета (2023) [MP3, Ксения Большакова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Книга, которая напомнит вам о детстве на даче или в деревне, о лете и первой любви. «Сердце лета» — это история о любви, но она поднимает вопросы домашнего насилия, жизни в маленьких деревнях и проблемы самоопределения.Жанр: современные любовные романы, романтическая эротикаИздательство: CLEVERПродолжительность: 09:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C80CEF538BB5351867631DB823D42C0A899F31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694297   (121105) от 24.01.2024
-
-Александр Беляев | Голова профессора Доуэля (2019) [MP3, Александр Хорлин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Возможна ли жизнь человеческого разума вне тела? И, если да, то что ждёт этот разум под властью морально нечистоплотного человека? Ставя свои дерзкие эксперименты, профессор Доуэль и не предполагал, что однажды в роли подопытного животного окажется он сам, а его бывший ученик получит в полную собственность голову своего учителя, чтобы безнаказанно распоряжаться его (   Читать дальше...   )Жанр: научная фантастика, повестиИздательство: Литрес ПаблишингПродолжительность: 07:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FA0B4FBFCF84ABF84FC29D5C6AC8D479C1FA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694286   (121089) от 24.01.2024
-
-Викентий Вересаев | Рассказы (2006) [MP3, Вера Васильева, Виктор Татарский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театральный фонограф.
-Викентий Викентьевич Вересаев (1867–1945) – прозаик, поэт-переводчик, критик, литературовед. Родился в городе Туле. В 1894 г. получил диплом врача и несколько лет практиковал в больницах Тулы и Петербурга. В 1904 г. участвовал в войне с Японией. Благодаря своему богатому жизненному опыту и хорошему знанию человеческой психологии, (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вокс Рекордс, 1С-Паблишинг, «Радио России»Продолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA83283371CE2AF296323916E26B0E07ABC58FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327819   (121082) от 25.01.2024
 
 Антуан де Сент-Экзюпери | Цитадель (2006) [MP3, Ирина Ерисанова]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121082.jpg" />
 </div>
 
 
@@ -114,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121054.jpg" />
 </div>
 
 
@@ -142,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121042.jpg" />
 </div>
 
 
@@ -170,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121035.jpg" />
 </div>
 
 
@@ -196,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121017.jpg" />
 </div>
 
 
@@ -222,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121016.jpg" />
 </div>
 
 
@@ -248,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121008.jpg" />
 </div>
 
 
@@ -275,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121003.jpg" />
 </div>
 
 
@@ -302,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120992.jpg" />
 </div>
 
 
@@ -330,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120988.jpg" />
 </div>
 
 
@@ -357,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120976.jpg" />
 </div>
 
 
@@ -383,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120965.jpg" />
 </div>
 
 
@@ -411,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120964.jpg" />
 </div>
 
 
@@ -437,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120894.jpg" />
 </div>
 
 
@@ -466,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120886.jpg" />
 </div>
 
 
@@ -493,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120859.jpg" />
 </div>
 
 
@@ -519,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120840.jpg" />
 </div>
 
 
@@ -548,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120826.jpg" />
 </div>
 
 
@@ -574,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120822.jpg" />
 </div>
 
 
@@ -600,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120809.jpg" />
 </div>
 
 
@@ -628,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120790.jpg" />
 </div>
 
 
@@ -654,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120735.jpg" />
 </div>
 
 
@@ -682,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120708.jpg" />
 </div>
 
 
@@ -694,6 +615,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CEA133FEF08DEBAEBD4F79E3E5B7D6C71D7A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695061   (120691) от 27.01.2024
+
+Серг Усов | Попаданец (Книга 3). Маг Тени (2024) [MP3, Владимир Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120691.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Попаданец. Маг Тени» – роман Серга Усова, третья книга одноименного цикла, жанр боевое фэнтези, попаданцы.
+
+Наш современник Андрей Немченко, оказавшийся в теле молодого мага из уничтоженной кровными врагами семьи Шерригов, нашёл своё место в средневековом мире и вполне успешно даёт отпор всем, кто пытается ему навредить. Началась война с северными королевствами, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: ИДДКПродолжительность: 09:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0876D4756748BDF6641FFA6482F7144F91513044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695052   (120686) от 27.01.2024
+
+Максим Гаусс | Путь одиночки (Книга 1). Браконьер. Назад в СССР (2024) [MP3, Егор Федотов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Громов ценой своей жизни спасает из-под руин здания маленькую девочку. По воле судьбы сознание героя переносится в 1956 год, в тело браконьера. Сложно говорить о везении – вокруг тайга, рядом валяется истерзанный труп, а где-то неподалеку бродит голодный медведь. Постепенно, Евгений понимает, что реципиент, в тело которого он попал, перед смертью успел наломать (   Читать дальше...   )Жанр: Альтернативная история, Историческая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E293E287E571F09E426563675BB59C62452A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695089   (120680) от 27.01.2024
+
+Саша Токсик | Фотограф СССР (Книга 2). Стоп. Снято!  (2024) [MP3, Сергей Уделов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120680.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 книга из серии «Фотограф СССР»
+Из гламурных двухтысячных в солнечный 1978-й. Из глянцевого журнала в сельскую районку. Надои… Покосы… Доски почета… Но хороший фотограф нигде не пропадет. «Зиночка, хотите сняться в стиле „ню“? Не знаете, что это?! Садитесь поближе, я сейчас расскажу!»Жанр: Альтернативная история, Историческая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AA7F77C4E3157FC6953C9E08F69F11A5CE2F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1041583   (582164) от 09.08.2016
-
-Dead Space (2008) [Ru] (1.0.0.222) Portable PortGamPС
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Dead Space - по-настоящему жуткая штука. Она не терзает уродцами, стоящими за дверью. Не раздражает бесконечными толпами «мяса». Не топит в литрах кетчупа. Нас осторожно теребят за нервы, ясно давая понять - безопасных мест нет. Куда бы ни ступил инженер Айзек Кларк, его ждут одиночество и неизвестность, пронизанные холодным шепотом и биением сердца. Зачем стращать (   Читать дальше...   )Тип издания: PortableРазработчик: EA Redwood ShoresЖанр: Action (Shooter, Survival horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B617CA63A9E3B33183DB59797D3FCE1A9E40022F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302093   (582054) от 14.05.2019
 
 Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2712) License CODEX
@@ -32,7 +6,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2712) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582054.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Frostpunk (2018) [Ru/Multi] (1.3.3) Repack R.G. Catalyst
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582009.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Star Hammer: The Vanguard Prophecy [Pacth] (2015) (1.0.2) Official RezMar
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581698.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Badland Bandits (2015) [Ru] (0.4.4) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581637.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581219.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Shadwen (2016) [En/Multi] (1356/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581183.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Grim Legends 2: Song of the Dark Swan (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581133.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Orbital Gear (2014) [En] (1.3.3) Repack OUTLAWS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580810.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие него�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580498.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ Shadwen (2016) [En/Multi] (1.0.0/build 1356/dlc) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580280.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580050.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.0.3/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579978.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Banished (2014) [En] (1.0.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579787.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Yasai Ninja (2015) [En/Esp] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579621.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Tembo The Badass Elephant (2015) [Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579618.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579500.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579188.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/u1) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579122.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Eisenhorn: XENOS (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579059.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Meridian: Squad 22 (2016) [En/Hu] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579057.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579043.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Shrouded Tales 2: Revenge of Shadows (2015) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579006.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578958.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [RuMulti] (1.0.3/dlc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578878.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578874.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6.0/dlc) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:244AFC95A916D11DE374194778531FD68A0DB4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554180   (578793) от 29.05.2022
+
+Magic City Detective: Wings Of Revenge / Волшебный Город: На крыльях мести (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет назад обычные люди жили в мире и согласии с волшебными существами. Но однажды люди прознали о силе волшебства Иных и захотели обладать ею. Теперь Иные вынуждены прятаться от людей. Но не все из них согласны скрываться. На карнавале в Венеции незнакомец в маске неожиданно оживил статую льва, тем самым выразив свой протест, и исчез. Проведите расследование, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C365371F4644A3F7421D24622A51C83FADC9C75A
 ```
 
 https://mybot314.ru/tekegram_catalog/

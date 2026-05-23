@@ -1,86 +1,3 @@
-###  Публикация: 1798227   (17525) от 21.05.2025
-
-Гильерме Фигейредо | Лиса и Виноград (Радиоспектакль) (2007) [MP3, Василий Топорков и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Гильерме Фигейредо (1915–1997) – бразильский прозаик, драматург, театральный критик.
-Радиоспектакль МХАТ СССР им. Горького по одноимённой пьесе Гильерме Фигейредо.
-Трагедия Гильерме Фигейредо «Лиса и виноград» – одна из трактовок жизнеописания древнегреческого баснописца Эзопа, жившего в VI веке до н.э.(   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, пьесаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACFA5F1507BE047FB5642AE3F2AFBD5800D0DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810174   (17512) от 03.08.2025
-
-Евгений Майоров | После всего (2025) [MP3, СанСаныч]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Николаю было 17 лет, когда мир вокруг него рухнул в один день. Прежняя жизнь подростка была перечёркнута ракетами, летящими на его город. Благодаря связям отца Коле удаётся добраться до бункера, который предназначался для политиков и высоких чинов. Глубоко под землёй парню предстоит вырасти и привыкнуть к новой жизни в стенах бункера вместе с его остальными жителями. (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Пересадочная станцияПродолжительность: 13:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277D35FF8ECEAD91204CBA421A42F52F42411B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810292   (17455) от 03.08.2025
-
-Артур Гедеон | Леший. (Книга 1). Хозяин Черного леса (2024) [MP3, Сергей Нафронович]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Давно живет на окраинах Царевской губернии легенда о страшном Лешем, хозяине Черного леса. Демон воровал женщин и уводил в свое темное царство.
-На детектива Андрея Kрымова выходят две молодые дамы, которые побывали на костюмированной вечеринке в отдаленном районе. Главным гостем там стал не человек, а чудовище…
-Вскоре Kрымов узнает о ритуальном убийстве. В окрестностях (   Читать дальше...   )Жанр: Мистика, ужасы, триллерИздательство: ЭксмоПродолжительность: 07:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687052C8ADE4ABF038CBB03129EB17098E2395C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810294   (17454) от 03.08.2025
 
 Артур Гедеон | Лилит (Книга 4). В зеркале Фауста (2025) [MP3, Сергей Ганин]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17454.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17452.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17445.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17396.jpg" />
 </div>
 
 
@@ -193,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17395.jpg" />
 </div>
 
 
@@ -219,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17394.jpg" />
 </div>
 
 
@@ -245,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17393.jpg" />
 </div>
 
 
@@ -271,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17392.jpg" />
 </div>
 
 
@@ -297,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17391.jpg" />
 </div>
 
 
@@ -323,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17390.jpg" />
 </div>
 
 
@@ -352,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17385.jpg" />
 </div>
 
 
@@ -378,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17382.jpg" />
 </div>
 
 
@@ -404,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17379.jpg" />
 </div>
 
 
@@ -430,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17364.jpg" />
 </div>
 
 
@@ -456,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17294.jpg" />
 </div>
 
 
@@ -484,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17292.jpg" />
 </div>
 
 
@@ -510,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17291.jpg" />
 </div>
 
 
@@ -536,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17290.jpg" />
 </div>
 
 
@@ -562,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17269.jpg" />
 </div>
 
 
@@ -588,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17268.jpg" />
 </div>
 
 
@@ -614,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17265.jpg" />
 </div>
 
 
@@ -640,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17264.jpg" />
 </div>
 
 
@@ -666,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17263.jpg" />
 </div>
 
 
@@ -677,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ED9DD22F698C65F757DA4AFBCB10F708CCAD5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810491   (17262) от 04.08.2025
+
+Юрий Никитин | Контролер (Книга 6). Порвали парус (2023) [MP3, Александра Арефьева]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17262.jpg" />
+</div>
+
+
+###  Подробнее
+
+И все-таки Комитет по спасению Человечества нужно было создать раньше. Не успели многое. Страшное оружие, перед которым ядерное смотрится детской игрушкой, сработало. Команды спасателей отчаянно ищут варианты спасения уцелевших. Промедление смерти подобно, планета стремительно погружается в хаос. Доктор наук Лавронов, со скальпелем в одной руке и пистолетом в другой, (   Читать дальше...   )Жанр: фантастикаИздательство: ЛитРесПродолжительность: 09:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE80FE1062E7313C555ED6500D611ACD5313A6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810493   (17261) от 04.08.2025
+
+Ивар Рави | Реквием: Инициация. (Книга 1) (2025) [MP3, Артем Чугуев (CHUGA)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17261.jpg" />
+</div>
+
+
+###  Подробнее
+
+И все-таки это случилось: ядерная война, гибель величайших достижений, крушение вековых устоев и катастрофический регресс. Посреди этого хаоса группа единомышленников ищет спасения вдали от крупных городов, превратившихся в радиоактивные кладбища. Но сама война не самое страшное - страшнее то, что она делает с людьми, выворачивая наизнанку все низменные пороки и (   Читать дальше...   )Жанр: фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 08:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A81ED9A895B8133A6BB6C037645EFE85746489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810513   (17235) от 03.10.2025
+
+Виктор Молотов, Алексей Аржанов | Токийский лекарь. Спасите меня, Кацураги-сан! (Книги 1-10) (2024-2025) [MP3, Сергей Кальницкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кацураги Тендо работает стажёром в больнице самого бедного района Осаки. Он весь в долгах, а наставник не подпускает к пациентам. Но всё меняется, когда в его тело попадает целитель! Это необычный путь к вершине, где главный герой думает в первую очередь своей головой! И Кацураги Тендо придётся доказать чего он стоит. Но как это сделать, когда на новом месте работы (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 80:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB01D8F3129F6ECCA933DE19AFB95F787746B192
 ```
 
 https://mybot314.ru/tekegram_catalog/

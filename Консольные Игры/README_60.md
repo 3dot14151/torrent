@@ -1,110 +1,3 @@
-###  Публикация: 1087456   (145974) от 27.12.2016
-
-Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Торопитесь! Вас ждет прогулка по виртуальному парку отдыха Nintendo и множество развлечений! Откройте для себя более 12 веселых аттракционов, которые оформлены в стиле игр Nintendo. Играть в одиночку или в компании с друзьями — выбор за вами! Это очаровательно, развлекательно и неповторимо, это Nintendo Land!
-
-В Nintendo Land используются широкие возможности консоли (   Читать дальше...   )Тип издания: LicenseРазработчик: NintendoЖанр: Party, Arcade, Mini-gamesЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA76EFB410814B86D33D612943E3EF9BCC3CB2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348216   (145518) от 26.12.2019
-
-New Super Mario Bros. U Deluxe (2019) [Switch] [EUR] 8.1.0 [NSZ] [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В New Super Mario Bros. U Deluxe для Nintendo Switch вас ждут более 160 двухмерных уровней в стиле классических игр Super Mario! Бегайте, прыгайте и топчите врагов в свое удовольствие!
-Прорываться через орды врагов и собирать монетки по пути к финальному флагу можно в компании трех других игроков — или, напротив, бросить им вызов в веселых дружеских соревнованиях! (   Читать дальше...   )Тип издания: LicenseРазработчик: NintendoЖанр: PlatformerЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E587D3ADE2C48FC5E7562446493B4B792EC9209C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348235   (144227) от 27.12.2019
-
-Winter Stars (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MOVE]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Там где есть снег и лед, есть место и зимним видам спорта. Если вы любитель спуститься на лыжах с заснеженного склона, крутануть пируэт на коньках, или просто мечтаете об этом, в таком случае игра просто таки создана для вас. Winter Stars - это глоток свежего воздуха в жанре зимних видов спорта, позволяющий фанатам спорта, разного возраста и с разным уровнем возможностей, (   Читать дальше...   )Тип издания: LicenseРазработчик: 49GamesЖанр: СпортЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409EF555164DFE6834A7491C80D45AF976D7FB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969633   (144128) от 28.12.2015
-
-Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO] [PSN / 1.01] [Ru/Multi] | E3Repacks
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Это история о Кунууксаюка. История о бесконечной метели, грозившей гибелью нашему народу. История об опасном путешествии на ледяном краю мира. История об отваге и истинной дружбе. Сыграй в мою историю. Ты — девочка, и ты — песец, ты идешь по опасным землям и смотришь в лицо ледяному ужасу. Ты встретишь фантастических созданий и увидишь затерянные деревни. Тебе откроются (   Читать дальше...   )Тип издания: PSNРазработчик: Upper One GamesЖанр: Adventure, 2DЯзык озвучки: Язык коренного народа АляскиЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6ED0CE5CBAB1005096FFFBCAD8F0AC60DEB626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589246   (143974) от 16.12.2012
 
 zBookr [PSP] [Ru/Eng] [Homebrew] (2009)
@@ -113,7 +6,7 @@ zBookr [PSP] [Ru/Eng] [Homebrew] (2009)
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143974.jpg" />
 </div>
 
 
@@ -141,7 +34,7 @@ Shantae: Half-Genie Hero (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143769.jpg" />
 </div>
 
 
@@ -167,7 +60,7 @@ Octodad: Dadliest Catch (2014) [PSVita] [USA] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143206.jpg" />
 </div>
 
 
@@ -193,7 +86,7 @@ Knock-Knock / Тук-Тук-Тук (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143156.jpg" />
 </div>
 
 
@@ -221,7 +114,7 @@ Far Cry 6 Game of the Year Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.12
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140984.jpg" />
 </div>
 
 
@@ -247,7 +140,7 @@ Winter Sports 2011: Go for Gold (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140582.jpg" />
 </div>
 
 
@@ -273,7 +166,7 @@ Men in Black: Alien Crisis (2012) [Xbox360] [RegionFree] FreeBoot [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140383.jpg" />
 </div>
 
 
@@ -299,7 +192,7 @@ Super Mario Maker for Nintendo 3DS (2016) [3DS] [EUR] 10.7 [CIA] [License / 1.02
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139776.jpg" />
 </div>
 
 
@@ -325,7 +218,7 @@ Drakengard 3 (2014) [PS3] [EUR] 3.41 [CFW / HEN] [Repack / 1.01 / DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138664.jpg" />
 </div>
 
 
@@ -352,7 +245,7 @@ Ninja Gaiden Sigma Plus (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] | R.G.
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137705.jpg" />
 </div>
 
 
@@ -378,7 +271,7 @@ Ninja Gaiden Sigma 2 Plus (2013) [PSVita] [USA] [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137563.jpg" />
 </div>
 
 
@@ -404,7 +297,7 @@ LEGO Star Wars: The Force Awakens (2016) [PSVita] [EUR] 3.60 [NoNpDRM] [License]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137341.jpg" />
 </div>
 
 
@@ -430,7 +323,7 @@ Saints Row: The Third Remastered (2020) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136604.jpg" />
 </div>
 
 
@@ -456,7 +349,7 @@ Need for Speed: Heat Deluxe Edition (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136569.jpg" />
 </div>
 
 
@@ -482,7 +375,7 @@ Mega Man Powered Up [PSP] [ENG] (2006)
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136311.jpg" />
 </div>
 
 
@@ -511,7 +404,7 @@ NullDC 1.0.4 r141 + BIOS + VMU [English] (2012) [Dreamcast]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135140.jpg" />
 </div>
 
 
@@ -537,7 +430,7 @@ Borderlands 3 Ultimate edition (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134679.jpg" />
 </div>
 
 
@@ -563,7 +456,7 @@ Record of Lodoss War [Dreamcast] [PAL] [RUS] [CDI] (2001)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134341.jpg" />
 </div>
 
 
@@ -589,7 +482,7 @@ Minecraft Dungeons (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.17.0.0 / DLC]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133982.jpg" />
 </div>
 
 
@@ -615,7 +508,7 @@ Nights Into Dreams [PS3] [USA] CFW 4.84 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132551.jpg" />
 </div>
 
 
@@ -641,7 +534,7 @@ Ultimate Band [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132528.jpg" />
 </div>
 
 
@@ -667,7 +560,7 @@ Wipeout 3 [Wii] [ENG] [NTSC] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132444.jpg" />
 </div>
 
 
@@ -679,6 +572,114 @@ Wipeout 3 продолжает серию игр Wipeout: The Game, основа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C64397468D2633557F40589D30FA4B62620A302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594614   (132420) от 28.12.2012
+
+Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
+
+>>Консольные Игры
+>>Другие приставки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Fire Emblem считается сложной именно из-за того, что требуется немалая изворотливость, тактический расчет и удача для сохранения жизни всему отряду. Будет ли исход битв меньше зависеть от случая после всех нововведений – пока неизвестно. Но что у владельцев PlayStation 2 появился очередной повод завидовать счастливым обладателям GameCube – вне сомнений.Жанр: StrategyЯзык интерфейса: Multi-5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5069A42243FF6D335709A692482CC30BCB265D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681772   (131680) от 06.12.2023
+
+Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [License] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в китайскую глубинку вместе с японским подростком Рё Хадзуки, который решительно настроен найти убийцу своего отца. Это история о приключениях, тайнах, дружбе, боевых искусствах и, самое главное, мести! Захватывающая история, созданная Ю Сузуки. В своё время Ю Сузуки создал несколько высокооцененных игр, таких как Space Harrier, Daytona USA и Virtua Fighter. (   Читать дальше...   )Тип издания: LicenseРазработчик: Ys NetЖанр: Third-person, Action, AdventureЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Испанский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Испанский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086DD5A4E798562BB592F46D792A7B2408CFB0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595417   (131258) от 30.12.2012
+
+King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как может показаться, в The Ancient City судьба вселенной никоим образом не зависит от ваших действий. Ведь все решено уже без вас - в королевство был завезен мистический символ печали, вследствие чего все население пострадало от страшной чумы. Так как спасать уже попросту некого, все, что остается - вернуть проклятую статуэтку ее законным обладателям.
+
+Сюжет ограничивается одной лишь завязкой. Спустя пару-тройку часов вы наверняка забудете, кто ваш герой и какими судьбами он оказался в очередном пропахшем сыростью подземелье. И не даже не найдетесь, что вам кто-нибудь напомнит. Город опустошен, NPC можно пересчитать по пальцам, а разговоры сводятся к никчемным замечаниям.
+
+Главное, что сюжетная линия не сдерживает вас в действиях. Вы вольны следовать, куда угодно, и развлекаться, как угодно. Если желаете, порешите топором продавца в магазине, которому до этого сбывали найденные предметы. Никто вам не скажет ни слова упрека. Некому. Отсюда и доминирующие чувства одиночества, безысходности, неопределенности. Как (   Читать дальше...   )Жанр: RPGЯзык интерфейса: Multi-5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5A530B23B6D2CE000722571C9E27BB2D765417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681836   (130660) от 09.12.2023
+
+Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] [Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в самый реалистичный симулятор вождения… 25 лет с вами. Садитесь за руль более 400 машин уже с первого дня и покоряйте 90 трасс в переменчивых погодных условиях. Вас ждут классические автомобили и ультрасовременные суперкары, воссозданные в мельчайших подробностях. Легендарный режим GT Simulation возвращается – откройте для себя новые машины и испытания, (   Читать дальше...   )Тип издания: LicenseРазработчик: Polyphony DigitalЖанр: Racing, SportsЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D37DA9A11AFD08B6D718000149CE27D51735368
 ```
 
 https://mybot314.ru/tekegram_catalog/

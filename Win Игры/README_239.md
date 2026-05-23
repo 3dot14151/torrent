@@ -1,29 +1,3 @@
-###  Публикация: 1382676   (478512) от 01.09.2020
-
-ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обновляемая)
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Внимание: ввиду того, что Трудоград продолжает события Atom RPG мы советуем пройти оригинал прежде чем играть в продолжение. Трудоград - пошаговая ролевая игра, действия которой разворачиваются в постапокалиптическом СССР. Игра вдохновлена классическими компьютерными ролевыми играми, такими как Fallout 1-2, Wasteland 1 и Baldur’s Gate. 22 года назад СССР и страны (   Читать дальше...   )Тип издания: RepackРазработчик: AtomTeamЖанр: Ролевые игры, Ранний доступЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79016898B119CC5DAE70BB4B859842AB055E548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319358   (478505) от 01.09.2020
 
 Age of Wonders: Planetfall (2019) [Ru/Multi] (1.315/dlc) Repack xatab [Deluxe Edition] (обновляемая)
@@ -32,7 +6,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.315/dlc) Repack xatab [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478505.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mini Maker: Make A Thing (2022) [Multi] (1.0) License TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478332.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478323.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478068.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Crossfire (2007) [Ru] (28.06.22) License
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478062.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477849.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477846.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477842.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Alice: Madness Returns Storybook (2011) [Ru] (1.0) Unofficial Pamplemousse [Flas
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477694.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477689.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ The Escapists 2 (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477686.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Tower of Time (2018) [Ru/Multi] (1.2.4.2473) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477644.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Vanishing of Ethan Carter Redux (2015) [Ru] (1.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477637.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Distrust (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477583.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477579.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Distrust (2017) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477574.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sea of Lies: Burning Coast / Море лжи: Горящий берег (2015) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477415.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Great Perhaps (2019) [Ru/Multi] (1.32.14) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476855.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Haunted Hotel 12: Silent Waters / Проклятый отель 12: Тихие �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476795.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Void Destroyer 2 (2016) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476788.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Great Perhaps (2019) [Ru/Multi] (1.32.14) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476690.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Office Freakout (2016) [En] (0.9.0 Release) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476650.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Goo Saga - HD Edition (2016) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476645.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Desolate (2018) [Ru/En] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476400.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Zombie Shooting Star (2022) [Multi] (1.0) License TiNYiSO [16+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475883.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Zombie Shooting Star - это шутер от третьего лица с эл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CEBF37AF69858C73F3E25DADAAE9D83D3EF958E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385796   (475712) от 09.09.2011
+
+[Русификатор: Текст | Звук] Остров мёртвых / Dead Island [Ru] (L) 2011 | Акелла
+
+>>Win Игры
+>>Языковые пакеты для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русификатор звука и текста для Dead IslandТип издания: Лицензия / Профессиональный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDAD5395EBAA1213CF5168386176C93B1C8214B
 ```
 
 https://mybot314.ru/tekegram_catalog/

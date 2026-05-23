@@ -7,7 +7,7 @@ IDA Pro 9.3 SP2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070082.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ PVS-Studio 7.42.106339 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069955.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Microsoft .NET 10.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068993.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Microsoft .NET 9.0.16 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068991.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Microsoft .NET 8.0.27 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068990.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.32 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068891.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.31 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066821.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Microsoft Visual Studio 2026 Enterprise 18.5.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066820.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft .NET 10.0.7 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066704.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Microsoft Visual Studio 2026 Enterprise 18.5.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065742.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.55 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065736.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Microsoft Visual Studio 2022 Professional 17.14.30 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065733.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Microsoft Visual Studio 2026 Professional 18.5.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065732.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.30 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065731.jpg" />
 </div>
 
 
@@ -371,32 +371,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865587   (1065676) от 16.04.2026
-
-Microsoft  Visual C++ Runtimes AIO v0.104.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54180A533CF594A7A228D8FB6D164427871CB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865391   (1065238) от 15.04.2026
 
 Microsoft .NET 8.0.26 Runtime [Ru/En]
@@ -405,7 +379,7 @@ Microsoft .NET 8.0.26 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065238.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Microsoft .NET 9.0.15 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065236.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ Microsoft .NET 10.0.6 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065234.jpg" />
 </div>
 
 
@@ -486,7 +460,7 @@ JetBrains Rider 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064883.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ JetBrains DataSpell 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064882.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ JetBrains PyCharm Professional 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064880.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ JetBrains RustRover 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064877.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ EJ Technologies install4j 12.0.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064862.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ JetBrains CLion 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064306.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ JetBrains PhpStorm 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064294.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ JetBrains RubyMine 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064293.jpg" />
 </div>
 
 
@@ -682,6 +656,34 @@ RubyMine — умная и удобная интегрированная сре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07A9882E36FACEDA35333D61B2A06843ADCE982A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862198   (1064291) от 29.03.2026
+
+JetBrains GoLand 2026.1 Repack by IDE`a [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064291.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
+
+IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35A4E29F190920A8F6502CF11E2AF88EA4FEA4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

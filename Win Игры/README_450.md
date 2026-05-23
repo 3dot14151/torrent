@@ -1,29 +1,3 @@
-###  Публикация: 1741352   (47683) от 06.08.2024
-
-Get To The Top (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит забраться на вершину с помощью крюков. Для перемещения используйте клавиатуру, а для управления руками и крюками - мышь (или геймпад, если вам не хватает боли). Только самые упорные доберутся до вершины.Тип издания: RepackРазработчик: Bootur GamesЖанр: ЭкшеныЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4659C83CB3C72BBD5934E563D66A775E4883806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741366   (47679) от 06.08.2024
 
 [REC] Paroxysm (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47679.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47620.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack Decepticon [Ann
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47594.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.0.0.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47591.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Truck & Logistics Simulator (2023) [Ru/Multi] (1.02) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47590.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Night of the Dead (2020) [Ru/Multi] (1.1.1.13/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47588.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Abathor (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47578.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.782/dlc) Scene Rune [Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47572.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ LunarLux (2023) [Multi] (1.371) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47570.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47568.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47559.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47549.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47548.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47538.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Annive
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47517.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47512.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Callisto Protocol (2022) [Ru/Multi] (14745831/dlc) Repack Decepticon [Digita
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47511.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dakar Desert Rally (2022) [Multi] (2.3.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47508.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Contraband Police (2023) [Ru/Multi] (1.0.5.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47505.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Highrise City (2022) [Multi] (2.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47504.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Motordoom (2024) [Ru/Multi] (Build 15256500) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47499.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Bee Island (2023) [Ru/Multi] (20240805) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47493.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ The Troop (2023) [Multi] (Build 15201092) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47488.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ World of Goo (2008) [Ru/Multi] (1.53a) Repack dixen18
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47466.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Tour de France 2024 (2024) [Multi] (1.7.2.924/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47462.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Tour de France 2024 (2024) [Multi] (1.7.2.924/dlc) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6875AFB04F8AB6E5283EED829281F0C4F9CA9D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741724   (47460) от 08.08.2024
+
+Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный визуальный роман, в котором пользователи получают возможность взять под управление паренька по имени Айзава Юичи, что является простым школьником. Главный герой возвращается домой спустя долгое время отсутствия и спонтанно оказывается затянут в круговорот романтических приключений, что вынуждают юношу пересмотреть свои привычные взгляды на мир и собственную (   Читать дальше...   )Тип издания: SceneРазработчик: VISUAL ARTSЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8ADBA4967016EC6DA81115DAB228D2D2BCCDC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

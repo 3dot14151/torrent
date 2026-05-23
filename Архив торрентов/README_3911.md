@@ -6,7 +6,7 @@ Photo Lab PRO v3.12.65 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206525.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Backupper Technician Plus 7.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206524.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XnView MP 1.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206522.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206515.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DesktopDigitalClock 5.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206513.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ASAP Utilities for Excel 8.0 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206511.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Spotify 1.2.17.832 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206510.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Topaz Photo AI for Mac Intel/ARM 1.3.11 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206509.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AOMEI Backupper Technician Plus 7.0.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206508.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ DxO PhotoLab 6 ELITE Edition 6.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206507.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blender 3.3.1 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206496.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Opera Crypto Browser 101.0.4843.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206491.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ LibreWolf 116.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206485.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206475.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ CareUEyes 2.2.8.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206474.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ AIDA64 Extreme Edition 6.75.6134 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206470.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 05.10.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206460.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ PhotoRoom v4.6.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206459.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ FBackup 9.8.815 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206449.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Rainlendar Lite 2.20.0 Build 175 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206445.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ FontLab 8.2.0.8620 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206443.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Opera One 101.0.4843.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206424.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Windows Update Viewer 0.5.17.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206417.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Realtek Ethernet Driver 11.11.1206 | 10.63 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206414.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Everyone Piano 2.5.7.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206408.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Balabolka 2.15.0.838 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206396.jpg" />
 </div>
 
 

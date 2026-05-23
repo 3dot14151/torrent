@@ -6,7 +6,7 @@ PicPick 4.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298771.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298756.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vivaldi 2.1.1337.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298755.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JRiver Media Center 25.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298736.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Liri Browser 0.3 Alpha [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298721.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Avast Clear 11.1.2245.1540 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298715.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Google Chrome 47.0.2526.73 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298714.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AIMP 4.50 Build 2047 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298701.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Viber 7.5.0.97 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298686.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Blue Cat's All Plug-Ins Pack (v.2018.11) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298677.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ HY-Plugins - HY-MBMFX2 1.0.6 VST, VST3 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298676.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FreeFileSync 10.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298675.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298673.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Vivaldi 2.1.1337.47 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298672.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ummy Video Downloader 1.10.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298663.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ScreenToGif 2.19.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298658.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WinBin2Iso 2.88 build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298642.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Google Chrome 47.0.2526.73 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298637.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Nox App Player 6.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298623.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Avira Free Antivirus 15.0.33.24 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298614.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BlueStacks App Player 3.50.66.2547 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298606.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Skype 8.34.0.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298590.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BurnAware Professional 8.7 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298560.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Skype 7.15.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298551.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Notepad++ 7.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298519.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Piriform CCleaner Professional 5.49.0.6856 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298512.jpg" />
 </div>
 
 

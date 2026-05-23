@@ -6,7 +6,7 @@ Philter - The Queen of Crows (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959456.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959455.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stop SMS Uni Boot (Win 10 PE) v.6.01.25 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959420.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ KREC x Nik One - Москва-1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959411.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ AnyBurn 4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959403.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Oval - Scis (2020) Thrill Jockey [FLAC|Lossless|WEB-DL|tracks] <Experimental, ID
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959400.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sound Control 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959399.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Wifislax 4.11.1 [Аудит безопасности, хакинг] [x86, х64] 
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959390.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Ashampoo HDD Control 3.10.01 Corporate Edition RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959385.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Enigma Virtual Box 7.40 Build 20160125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959379.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Bear McCreary - Blumhouse's Fantasy Island/Остров фантазий (Origin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959346.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Shopopalo Records - Label Pack 23 Releases (2013-2014) (Tapolsky,VovKING,NickBee
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959342.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959340.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Firefox Browser 73.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959337.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959336.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Aiseesoft Video Converter Ultimate 9.2.86 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959331.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959324.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sensei 1.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959303.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Allegorithmic Substance Designer 2019.3.3 (build 3313) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959297.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Electro House Boom Box (27.01.2010) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959265.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ashampoo Burning Studio 21.5.0.57 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959260.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Mozilla Firefox Quantum ESR 68.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959255.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ PowerISO 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959254.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Planner 5D 4.2.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959251.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959249.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Adobe Zii 2020 - Universal Patcher v.5.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959182.jpg" />
 </div>
 
 

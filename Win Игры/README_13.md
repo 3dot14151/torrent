@@ -6,7 +6,7 @@ The Succession of Changing Kings (2026) [Ru/Multi] (Build 22151855) Repack seleZ
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061643.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Headquarters: Cold War (2026) [Ru/Multi] (1.01.04) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061636.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061613.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.2.0-188591/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061609.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061604.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Peregrino (2026) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061603.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack FitGirl [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061592.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Overthrown (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061573.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dragon Ball FighterZ (2018) [Ru/Multi] (1.42/dlc) Scene Rune [Legendary Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061557.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TerraScape (2024) [Ru/Multi] (2.0.0.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061556.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Legends of Amberland III: The Crimson Tower (2026) [En] (1.00) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061555.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Nested Lands (2026) [Ru/Multi] (0.7.8.12) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061554.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Succession of Changing Kings (2026) [Ru/Multi] (4.2.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061553.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack HardwareMining
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061477.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Whispers of the Eyeless (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Supporter
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061460.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Docked (2026) [Ru/Multi] (1.0.8.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061439.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sherman Commander (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061413.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Death Stranding 2: On The Beach (2026) [Ru/Multi] (1.0.45.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061412.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The King is Watching (2025) [Ru/Multi] (1.2.2/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061408.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Egypt Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061407.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Egypt Frontiers (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061406.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Doctor Arcana and The Secret of Shadowspire (2024) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061400.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Succession of Changing Kings (2026) [Ru/Multi] (4.3.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061396.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Homura Hime (2026) [Multi] (HotFix 4) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061374.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Elemental: Reforged (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061342.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Dragonkin: The Banished (2025) [Ru/Multi] (1.2.64.53721/dlc) Repack Let'sРlay [
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061328.jpg" />
 </div>
 
 

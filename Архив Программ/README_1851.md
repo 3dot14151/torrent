@@ -6,7 +6,7 @@ Epic Pen Pro 3.12.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mullvad Browser 13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173160.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft Edge WebView2 Runtime 1.3.177.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173150.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ eM Client Pro 9.2.2157.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173147.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Psiphon 3 build 180 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173141.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.2.3593 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173075.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Ashampoo Photo Optimizer 9.4.7.36 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173005.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Icecream Screen Recorder Pro 7.30 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173001.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ JRiver Media Center 31.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172995.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Attribute Changer 11.30 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172994.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ DxO PhotoLab Elite 7.0.1 build 76 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172993.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Luminar Neo 1.14.1.12230 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172986.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ SplitCam 10.7.20 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172985.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Nitro PDF Pro 14.13.0.7 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172983.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Topaz Video AI 3.5.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172982.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Topaz Video AI 3.5.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172976.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Topaz Photo AI 2.0.5 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172975.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Ashampoo Photo Optimizer 9.4.7.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172972.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Topaz Photo AI 2.0.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172941.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Adobe Illustrator 28.0.0.88 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172928.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Adobe Photoshop Lightroom Classic 13.0.1.1 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172923.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Auslogics Driver Updater 1.26.0.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172922.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ ADB AppControl 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172907.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172885.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ High-Logic FontCreator Professional 15.0.0.2941 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172864.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Icecream Video Converter Pro 1.35 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172860.jpg" />
 </div>
 
 

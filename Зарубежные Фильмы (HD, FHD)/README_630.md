@@ -1,55 +1,3 @@
-###  Публикация: 559281   (409593) от 12.10.2012
-
-100 миллионов евро / Les Tuche (2011) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История хорошо знакомой всей округе семьи Туше, которая постоянно стеснена в средствах, но никогда не жалуется на судьбу и находит своё счастье в работе. Они всегда бедны, но счастливы. Неожиданно на них сваливается огромное богатство, которое влечёт за собой большие перемены в их жизни. Смогут ли они изменить свои привычки и жизненный уклад, продолжая оставаться самими собой?Жанр: КомедияРежиссер: Оливье БарруАктеры: Жан-Поль Рув, Изабель Нанти, Клер Надо, Тео Фернандез, Сара Штерн, Дэвид Камменос, Карина Теста, Филипп Лефевр, Ральф Амуссу, Жером Коммандёр, Гай Леклюиз, Валери Бенгиги, Флоренс Мори, Ариель Семенофф, Ноеми Де Латтр, Оливье Барру, Ален Дуте, Франсуа Коттрелье, Омар Си, Паскаль Венсан, Кад Мерад, Жан-Франсуа Малет, Фанни Деблок, Оливия Форест, Кристоф Каротенуто, Жан-Мари Пэрис, Элиот Торрес, Дэвид Маршаль, Гаспар Марселлен, Людовик Бауде, Карлос МартыньшПеревод: ДублированныйПродолжительность: 01:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431A531236AC0FED87292EC125C041E14B858D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413360   (409572) от 03.10.2020
-
-От звонка до звонка / Starred Up (2013) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У Эрика крайне непростая жизнь и проблемный характер. В свои юные годы этот герой британской драмы уже сделался преступником и теперь оказался в тюрьме для взрослых. С самого начала он пытается самоутвердиться среди сотрудников тюрьмы и других обитателей и сталкивается со своим отцом, человеком, который почти всю свою жизнь пробыл за решеткой. По мере того как интрига (   Читать дальше...   )Производство: Великобритания, Film4, Lip Sync Productions, Quickfire Films, Sigma FilmsЖанр: драма, криминалРежиссер: Дэвид МаккензиАктеры: Джек О`Коннелл, Руперт Френд, Бен Мендельсон, Сэм Спруэлл, Дэвид Аджала, Шан Брекин, Питер Фердинандо, Дэвид Крисанту, Энтони Уэльс, Шэйн МакКэффриПеревод: Многоголосый профессиональный, одноголосый любительскийСубтитры: Русские, английскиеПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1D6C9C34979BA8E32FA3BFE2748186A46114C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413312   (409571) от 03.10.2020
 
 Между ангелом и бесом / Les anges gardiens (1995) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409571.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409561.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409476.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409466.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409291.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409269.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409263.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_409231.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409212.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409188.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409154.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409142.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409137.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409124.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409065.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409064.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409044.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409010.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408982.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408980.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408979.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408974.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408959.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408947.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02100121B37F1B7A4A582B03E83F11CF763266E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252385   (408914) от 05.10.2018
+
+Невероятные приключения Факира / The Extraordinary Journey of the Fakir (2018) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если любовь не стучится в дверь, самое время поискать её на другом конце света. Когда нашел — не потерять. А если потерял — вернуть любой ценой. Пускай для этого придется путешествовать в шкафу, на лодке, на воздушном шаре или даже в чемодане. Мумбаи-Париж-Лондон-Рим — если у чувств нет границ, то и бизнес-класс им не нужен.Производство: Франция, США, Бельгия, Сингапур, Индия / Brio Films, Scope PicturesЖанр: Комедия, ПриключенияРежиссер: Кен СкоттАктеры: Дхануш, Беренис Бежо, Эрин Мориарти, Баркхад Абди, Жерар Жюньо, Бен Миллер, Абель Жафри, Сара-Джинн Лабросс, Кай Грейданус, Амрута СентПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28964D7C4FC4A663B1148999D3AA8839ECDBCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252370   (408913) от 05.10.2018
+
+Аризона / Arizona (2018) BDRip [H.264/1080p] [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кесси, агент по продаже недвижимости и мать-одиночка, пытается справиться с жилищным кризисом 2009 года. Ситуация только ухудшается, когда в ее жизнь врывается недовольный клиент Сонни, чьи действия приносят только разрушение и смерть.Производство: США / Imperative Entertainment, Rough House PicturesЖанр: триллер, комедия, криминалРежиссер: Джонатан УотсонАктеры: Кэйтлин Олсон, Сет Роген, Элизабет Гиллис, Розмари ДеУитт, Дэнни МакБрайд, Люк Уилсон, Дэвид Алан Грир, Джейд Каммерман, Лолли Соренсон, Трэвис ХаммерПеревод: многоголосый закадровый (HDrezka Studio)Субтитры: АнглийскиеПродолжительность: 01:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D98370EBA2C467EFC1EE5DBBBB6B1E61C05E90
 ```
 
 https://mybot314.ru/tekegram_catalog/

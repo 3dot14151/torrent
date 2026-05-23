@@ -1,81 +1,3 @@
-###  Публикация: 1270568   (156990) от 19.12.2018
-
-Милослав Князев | Свой замок (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Итак, добро пожаловать в полный набор! Будет всё! И даже кое-что ещё, чего не было в первых двух книгах. Будет месть уничтоженного пиратского братства, окончательное сражение со сликовниками, долгая дорога через пустыни покинутых земель. Даже тайна эльфийской крови и та будет раскрыта. И дракон, между прочим, тоже будет, хотя на фига он нужен автор совершенно не (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 13:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321F8709EB2A8B76D791183CB0FFC2E03CC171E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194396   (156885) от 24.12.2017
-
-Александр Прозоров | Дикое поле (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дикое поле. Земля между Россией и Крымским ханством, разорённая многолетними набегами до полной опустошённости. На границе этих земель получили наделы братья Батовы, и начали обживаться. С Григорием Батовым управляет хозяйством его молодая жена, в прошлом (или будушем) член олимпийской сборной по стрельбе из лука. А на ханских землях появился кандидат физических (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 12:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA01E141023A901D3584BC38225A4A636E069B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433515   (156843) от 21.12.2020
-
-Лейф Густав Вилли Перссон | Комиссар Эверт Бекстрём (Книга 4). Можно ли умереть дважды? (2019) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Юного скаута Эдвина высадили на безлюдный остров и поручили собрать грибы и ягоды для общего котла. Но его ждала находка иного рода — простреленный человеческий череп. Пытливый подросток понимает, что должен немедленно показать его своему соседу по дому и старшему другу, комиссару полиции Эверту Бекстрёму. Официальное следствие начинается с генетической экспертизы, (   Читать дальше...   )Жанр: ДетективПеревод: Со швед. Игоря ПетроваПродолжительность: 15:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251F3FD4AB369486F63F277817300BCEB920F4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600558   (156834) от 27.12.2022
 
 Артур Кларк | Космическая Одиссея (Книга 2). 2010: Одиссея Два (2022) [MP3, Игорь Князев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156834.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156824.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156804.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156803.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156802.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156796.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156780.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156749.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156746.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156713.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156659.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156657.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156644.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156624.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156586.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156564.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156541.jpg" />
 </div>
 
 
@@ -540,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156512.jpg" />
 </div>
 
 
@@ -566,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156422.jpg" />
 </div>
 
 
@@ -592,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156407.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156398.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156396.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156335.jpg" />
 </div>
 
 
@@ -685,6 +607,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF60CE94A0C32B87D0547EAC4D63337CF9AEB5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588739   (156321) от 13.12.2012
+
+Линкольн Чайлд | Из глубины [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156321.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глубине 12 000 футов под поверхностью Атлантического океана исследователи обнаруживают нечто совершенно удивительное. Величайшая археологическая находка в истории? Или что-то такое, с чем еще не приходилось сталкиваться человечеству? В обстановке сверхсекретности ученые приступают к изучению странных артефактов, однако внезапно всех, кто работает на исследовательской базе на дне океана, поражают странные болезни. На базу срочно вызывают бывшего военного врача Питера Крейна, который постепенно начинает понимать, что медицинские проблемы — лишь малая часть огромной проблемы, которая угрожает самому существованию человеческой цивилизации.Жанр: Научная фантастика, триллер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8FC5C1D799EB1A3530A94D73B682F22FCE60CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275571   (156317) от 13.11.2023
+
+Уильям Сомерсет Моэм | 10 лучших рассказов (2004) [MP3, Елена Морозова, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Виртуозы рассказа.
+Уильям Сомерсет Моэм (1874-1965) - один из самых читаемых и любимых современных классиков. Сомерсет Моэм создал 25 пьес, 21 роман и более 100 рассказов. Герои его рассказов удивляют своим разнообразием: это и пациенты туберкулёзного санатория, жертвующие жизнью ради любви в рассказе «Санаторий», и священник, одержимый греховной страстью (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказыИздательство: СиДиКомПродолжительность: 08:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB52AF926B88FA7C51FBB268149A6DCF9B652263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276384   (156312) от 13.11.2023
+
+Уильям Сомерсет Моэм | Наверху, на вилле (Радиоспектакль) (2002) [MP3, Ирина Печерникова, Михаил Козаков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль театра Радио РОССИИ по мотивам одноимённого романа Сомерсета Моэма.
+Действие происходит в Италии тридцатых годов. Где-то приходят к власти фашисты... Где-то гибнут невинные люди... А на роскошной итальянской вилле надежно отгородилась от мира легкомысленная компания эстетствующих «светских львов и львиц и их богемных приятелей. Они развлекаются изысканными (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаВ ролях: Ирина Печерникова, Михаил Козаков и др.Издательство: Радио РОССИИПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995A1DC6F21FCD46888DDB836924EC24A18DEA14
 ```
 
 https://mybot314.ru/tekegram_catalog/

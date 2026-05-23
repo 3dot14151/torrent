@@ -1,83 +1,3 @@
-###  Публикация: 477082   (86000) от 02.04.2012
-
-Лев Прозоров | Евпатий Коловрат [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1237 год от Рождества Христова. Погибельная зима Батыева нашествия. Рязанский воевода Евпатий, ездивший за подмогой, возвращается на руины родного города. На руины собственной жизни". Если твой дом превратился в пепелище, если мертв государь, которому ты служил, и все, кто был тебе дорог, если сам Бог, в которого ты верил, отвернулся от тебя и твоей земли - где искать помощи? И не пора ли вспомнить, ЧТО носишь совсем не христианское, а древнее языческое прозвище?
-Летописи сообщают об отряде Евпатия Коловрата невероятные вещи: оказывается, татары считали, что против них поднялись мертвые - неужели обычная партизанщина могла так напугать прошедших полмира головорезов? И почему, чтобы одолеть русских .храбров,), завоевателям пришлось бросить против малой дружины Коловрата тысячи своих лучших воинов - сотня против одного? В кого превратился последний воевода мертвого города, если враги смогли убить его лишь с помощью стенобитных машин? Кто откликнулся на его зов и пришел к нему на помощь? И что на самом деле (   Читать дальше...   )2012Жанр: Черное Славянское Фентези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB670425B576DFCC825DC1206D1970464BF6060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477043   (85938) от 02.04.2012
-
-Плутарх | Сравнительные жизнеописания. Том 2 [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Наряду с трагедиями Эсхила и Еврипида, «Историей» Геродота и диалогами Платона, «Сравнительные жизнеописания» Плутарха Херонейского (I-II вв. н.э.) – величайший литературный памятник античной Греции.
-Настоящее аудиоиздание подготовлено на основе наиболее полного перевода «Сравнительных жизнеописаний», принадлежащего перу С. Ю. Дестуниса.Жанр: Биографии
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C2C1DA886BD89B7105C87B74C4FF875D42A858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475342   (85670) от 01.04.2012
-
-Нора Робертс | Северное сияние [2007] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:Жанр: Женский детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A2135F3D4C724843E7B5020BE205E560758D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476546   (85662) от 01.04.2012
 
 Фёдор Достоевский | Дядюшкин сон [Радиоспектакль] [2007] [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85662.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85535.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85533.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85510.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85500.jpg" />
 </div>
 
 
@@ -224,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85405.jpg" />
 </div>
 
 
@@ -253,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85280.jpg" />
 </div>
 
 
@@ -280,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85250.jpg" />
 </div>
 
 
@@ -311,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85146.jpg" />
 </div>
 
 
@@ -342,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85097.jpg" />
 </div>
 
 
@@ -368,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85012.jpg" />
 </div>
 
 
@@ -395,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84966.jpg" />
 </div>
 
 
@@ -421,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84923.jpg" />
 </div>
 
 
@@ -448,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84695.jpg" />
 </div>
 
 
@@ -475,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84548.jpg" />
 </div>
 
 
@@ -501,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84459.jpg" />
 </div>
 
 
@@ -527,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84457.jpg" />
 </div>
 
 
@@ -554,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84435.jpg" />
 </div>
 
 
@@ -581,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84335.jpg" />
 </div>
 
 
@@ -608,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84310.jpg" />
 </div>
 
 
@@ -634,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84159.jpg" />
 </div>
 
 
@@ -662,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84081.jpg" />
 </div>
 
 
@@ -689,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84053.jpg" />
 </div>
 
 
@@ -701,6 +621,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1CA26AF8B2B04925B3E7DCAA71AA0B84D1E0A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472469   (84046) от 24.03.2012
+
+Джеймс Грейди | Шесть дней Кондора [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BD89A6A0419CF692E34B2F0DE6D8914ABFB4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472733   (84044) от 24.03.2012
+
+Жорж Сименон | В подвалах отеля "Мажестик" [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите прочитать отличный детектив? Тогда обратите внимание на книги Жоржа Сименона. Его произведения очень популярны и интересны. Каждый его роман, это новая история о комиссаре Мегрэ, он путешествует и расследует преступления.
+Роман отличается невероятно сложной интригой, загадочностью преступлений, для раскрытия которых неизбежно выходящий победителем из интеллектуальной (   Читать дальше...   )Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2D32CFA50A60F7D3A297A20DDFB7EA650B8855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472017   (83974) от 23.03.2012
+
+Владимир Богомолов | Момент истины (В Августе 44-го) (2006) [MP3, 32 kbps, Юрий Григорьев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит на территории уже освобожденной от фашистов Белорусии. Советское командование засекло, что отсюда кто-то регулярно посылает шифрованные радиосигналы. Возглавить операцию по поиску и задержанию этих шпионов, получившую кодовое название "Неман", поручено капитану Алехину. Обладая великолепными интеллектуальными способностями и большим (   Читать дальше...   )Жанр: Военный детективИздательство: Библиофоника
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696E59CAA9C4E17DF552C1672BBF6D58BD2C5B09
 ```
 
 https://mybot314.ru/tekegram_catalog/

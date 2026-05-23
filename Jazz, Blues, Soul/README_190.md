@@ -6,7 +6,7 @@ Mezcaleros Blues Band - Sesiones Destiladas (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679138.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Big Wolf Band - A Rebel's Story (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678816.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678614.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Leigh Blond - Innocence (2022) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678548.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Buddy Rich - The Absolutely Essential 3 CD Collection (1930-е - 1960-е) 3CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678532.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678494.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678493.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Susie Arioli - Spring (2015) Spectra Musique [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678488.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dale Cooper Quartet & The Dictaphones - Metamanoir (2011) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678486.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dizzy Gillespie All-Star Groups & Big Band - Four Classic Albums (1954 - 1957) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678485.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Susie Arioli Band - Live At The Montreal International Jazz Festival (2006) Just
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678483.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gary Burton - Conception (1960-1962) 2CD, 2014, Cherry Red Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678468.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ AG Weinberger - ReBorn (2018) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678346.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tony Foster - Project Paradiso: Tony Foster Plays Ennio Morricone And Henry Manc
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678318.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Duke Ellington - Alhambra - Oct. 29th, 1958 (2002) 2CD, LaserLight Digital [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677424.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Maurice Peress & American Composers Orchestra - Four Symphonic Works by Duke Ell
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677406.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Susie Ibarra - Songbird Suite (2002) Tzadik [FLAC|Lossless|tracks + .cue] <Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677398.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Simon Rattle - Classic Ellington (1999) 2000, EMI [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677394.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Duke Ellington - The Essential Duke Ellington (1929 - 1960) 2CD, 2005, Columbia 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677392.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Duke Ellington - Love You Madly (1970) 2002, Collectables [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677299.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677297.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677293.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Duke Ellington - The Best of Duke Ellington (1941 - 1945) 2003, TIM [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677288.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Della Reese & Duke Ellington - On the Radio: The 1962 "Live" Guard Sessions (200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677276.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Brian Bromberg - Compared to That (2012) [FLAC|Lossless]<Contemporary Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_677188.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Barry Goldberg - Barry Goldberg & Friends (1991) Compilation, 1991, Sequel Recor
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677000.jpg" />
 </div>
 
 

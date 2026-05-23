@@ -6,7 +6,7 @@ VA - Избранное (2007) [MP3|320]<Классика>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_418564.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Beethoven - Chamber Music for Winds Vol.1 (Consortium Classicum) (1996) [FLAC| i
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417966.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416639.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Nicolo Paganini (1782-1840) The 6 Violin Concertos (3CD) [MP3|320 kb/s]<Classica
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_416526.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Lindsey Stirling - Artemis (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416067.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ The New London Chorale - Live In Concert (2012) A Tom Parker Project [FLAC|Lossl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415494.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ V.A. - Anita Meyer, Rob de Nijs, Amy Vanmeenen, Edward Reekers - The Commandment
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415493.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ The New London Chorale - The New Amadeus Mozart (1997) [FLAC|Lossless|image + .c
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415425.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413617.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Annabel Parker - The New Classics (1994) A Tom Parker Project [FLAC|Lossless|ima
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413353.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Wolfgang Amadeus Mozart–Divertimento KV 287 Eine Kline nachtmusik KV 525: Berl
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411553.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ J.S.Bach - Cantatas, Vol.48 (Bach Collegium Japan, Masaaki Suzuki) (2011) [DST64
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411515.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Buxtehude - Works for Organ (Masaaki Suzuki) (2010) [DST64 2.0, DST64 5.0|64(2,8
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411368.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mozart, Schubert, Debussy - Piano Duets (Sviatoslav Richter & Benjamin Britten) 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411263.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dale Kavanaugh - Toccata In Blue (2000) [FLAC|Lossless]<Contemporary Classical, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411035.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Marco Bakker - Opus (1987) A Tom Parker Project [FLAC|Lossless|image + .cue] <С
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410985.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sviatoslav Richter - The Essential Richter (1996) 5CD [MP3|320 кб/с]<Classica
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410935.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Beethoven - Chamber Music for Winds Vol.3 (Consortium Classicum) (1997) [FLAC|im
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409465.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ After Eden - Superstrings (1998) Producer – Tom Parker [FLAC|Lossless|image + 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409177.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Vanessa Mae - The Best (2010) [FLAC|Lossless|image + .cue] <Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408559.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Giuseppe Verdi - Don Carlos (Sir Georg Solti & The Orchestra of the Royal Opera 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407831.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Montserrat Caballe - Recital Espagnol (2003)(2CD)(RCA RED SEAL) [FLAC|Lossless]<
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407692.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Emmanuel Holterbach & Blutwurst - Ricercar Nell'ombra (2020) [FLAC|Lossless|trac
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406778.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Giuseppe Verdi - Otello: Tullio Serafin & Rome Opera Orchestra and Chorus (1998)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406570.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Giuseppe Verdi - Aida: Riccardo Muti & Montserrat Caballe, Placido Domingo (1986
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406515.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ David Garrett - Music (2012) Deluxe Edition [MP3|320 кб/с]<Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406490.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1056587   (481285) от 25.09.2016
-
-Тарзан. Легенда / The Legend of Tarzan (2016) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Приспособившийся к жизни в Лондоне Тарзан возвращается в свой бывший дом, в джунгли, чтобы разобраться в том, что происходит в лагере горнодобывающей компании.Производство: США, Великобритания, Канада / Beagle Pug Films, Dark Horse Entertainment, Jerry Weintraub ProductionsЖанр: боевик, драма, мелодрама, приключенияРежиссер: Дэвид ЙэтсАктеры: Александр Скарсгард, Марго Робби, Сэмюэл Л. Джексон, Кристоф Вальц, Джимон Хонсу, Джим Бродбент, Каспер Крамп, Хэдли Фрайзер, Женевьев О’Рейли, Саймон Расселл БилПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A53E67F35CB4B51178E302ADECD1F7E588C690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056589   (481277) от 25.09.2016
-
-Судная ночь 3 / The Purge: Election Year (2016) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в идеальное будущее, в котором Судная ночь превратилась в международный тренд. Туристы со всего мира прибывают в аэропорты Америки: ведь всего лишь раз в году здесь позволено все, главное — дожить до рассвета.Производство: США, ФранцияЖанр: Ужасы, фантастика, боевик, триллерРежиссер: Джеймс ДеМонакоАктеры: Фрэнк Грилло, Элизабет Митчелл, Майкелти Уильямсон, Джозеф Джулиан Сория, Бетти Гэбриел, Терри Серпико, Эдвин Ходж, Кайл Сикор, Бэрри Нолан, Лиза Колон-ЗайасПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAD6FA5F110DA0EC56294EB02002B51CDF955C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405823   (481265) от 31.08.2020
 
 Прощай, мистер Неудачник / Xia Luo te fan nao / Goodbye Mr. Loser (2015) HDRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481265.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481247.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [H.264
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481241.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481151.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481146.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481130.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481125.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481113.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481101.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481082.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481040.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480971.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480952.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480939.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480901.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480837.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480828.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480827.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480794.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480770.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480765.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480758.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480692.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480654.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E70BDC8AA7D08FD1D0F35EE85010F19198A977B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403557   (480652) от 31.08.2020
+
+Солнце / Solis (2018) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очнувшись, Трой Холлоуэй осознает, что находится в шаттле, направляющемся в сторону солнца. Командир Робертс вместе с командой уже мчится ему на помощь, однако Холлоуэй после недавней потери сына не особо жаждет спасения. Тем не менее командир не позволяет ему спокойно ждать смерти и всячески поддерживает его с помощью слабой радиосвязи, полный решимости вытащить (   Читать дальше...   )Производство: Великобритания, Goldfinch Studios, Premiere Picture, Strathie FilmЖанр: Фантастика, драмаРежиссер: Carl StrathieАктеры: Стивен Огг, Элис Лоу, Сид Феникс, Генри Даутуэйт, Кейт Куган, Шарлетт Килби, Jonathan CallowayПеревод: Многоголосый профессиональный (iTunes)Субтитры: Английские (srt)Продолжительность: 01:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BEC2CDE672DA96BEB46C0D72B91BE4FE5C48895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405736   (480644) от 31.08.2020
+
+Пока свадьба не разлучит нас / Hasta que la boda nos separe (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марину все устраивает: любимая работа, яркие вечеринки с друзьями, отношения без обязательств. Все меняется, когда она встречает мужчину своей мечты. Но есть всего одна проблема — он собирается жениться на ее лучшей подруге…Производство: Испания, Atresmedia Cine, Álamo Producciones AudiovisualesЖанр: Мелодрама, комедияРежиссер: Дани де ла ОрденАктеры: Белен Куэста, Алехандро Гарсия, Сильвия Алонсо, Антонио Дечент, Мариам Эрнандес, Грасия Олайо, Сальва Реина, Ricardo Castella, Jorge Ponce, Эрнесто СевильяПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Forced)Продолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEFC32384CA640D2F3428770E30C76BE31BF556
 ```
 
 https://mybot314.ru/tekegram_catalog/

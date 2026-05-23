@@ -6,7 +6,7 @@ Infix PDF Editor Pro 7.4.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354192.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DMG Audio - All Plugins (2019.06.29) VST, VST3, AAX, RTAS (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354191.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Krita 4.2.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354187.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ iZotope - Ozone Advanced 9.0.1 STANDALONE, VST, VST3, AAX (x64) RePack by VR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354186.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Topaz DeNoise AI 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354180.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Sharpen AI 1.4.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354176.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mozilla Firefox Quantum ESR 60.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354153.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Process Lasso Pro 9.0.0.502 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354149.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Slimjet 20.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354141.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ocenaudio 3.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354137.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ SolveigMM Video Splitter 6.1.1611.11 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354110.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Infix PDF Editor Pro 7.1.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354003.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ DAEMON Tools Lite 10.4.0.196 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353992.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ K-Lite Codec Pack 15.2.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353942.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MCS Drivers Disk 12.1.0.1145 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353896.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ R-Drive Image Technician 6.1 Build 6101 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353890.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BlueStacks Tweaker 5.7.4 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353854.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CPU-Z 1.86.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353853.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ WinToHDD Enterprise 2.3 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353851.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mozilla Firefox Quantum 63.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353850.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ FastStone Image Viewer 6.6 RePack (& Portable) by elchupacabra (20.10.2018) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353842.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ DriverPack Solution 16.11 + Драйвер-Паки 16.11.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353762.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Affinity Designer 1.5.0.36 (RC) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353751.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VueScan Pro 9.6.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353726.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The Foundry NUKE STUDIO + HIERO 11.2v4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353718.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BlueStacks App Player 4.31.56.2510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353717.jpg" />
 </div>
 
 

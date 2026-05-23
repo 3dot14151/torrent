@@ -1,55 +1,3 @@
-###  Публикация: 517363   (648980) от 30.06.2012
-
-Взрыв из прошлого (полная версия) / Blast from the Past (1999) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Адам Вэбер - сын эксцентричного изобретателя. После воздушной тревоги, которая произошла в 1960-ом, семейка Веберов просидела в бомбоубежище целых 35 лет. Теперь Адам должен решиться и выбраться на поверхность. Ему необходимо сделать массу дел: съездить в Лос-Анджелес за продуктами для семьи и найти жену-немутанта для себя. Наивный и искренний, он впервые оказывается (   Читать дальше...   )Производство: СШАЖанр: Драма, мелодрама, комедияПеревод: Дублированный, многоголосный закадровый, одноголосый закадровыйСубтитры: Русские (по умолчанию отключены)Продолжительность: 01:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F921E76778EF1F9ECC839BC233D4E60E4F7ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905560   (648950) от 06.06.2015
-
-Человек ноября / The November Man (2014) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Экс-агент ЦРУ, невольно вернувшись в дело, оказывается в эпицентре международной интриги, затеянной главами разведывательного управления. В их планах — внедрение во внутреннюю политику стран Восточной Европы через кандидата в президенты РФ с помощью шантажа грязным прошлым. На его совести — вторая вспышка войны на Северном Кавказе, жертвы, насилие. Но Питер Дэверо (   Читать дальше...   )Производство: США / Das Films, Envision Entertainment, Irish DreamTimeЖанр: Боевик, Триллер, КриминалРежиссер: Роджер ДональдсонАктеры: Пирс Броснан, Люк Брейси, Ольга Куриленко, Билл Смитрович, Амила Терзимехик, Лазар Ристовски, Медиха Муслиович, Элайза Тейлор, Катерина Скорсоне, Аки КотабеПеревод: Авторский (одноголосый, закадровый) А.ГавриловПродолжительность: 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C577B3F861E2FEDC0F67129E5BED8AC54ED8571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905534   (648942) от 06.06.2015
 
 Адмирал / Michiel de Ruyter / The Admiral  (2015) BDRip [H.264/720p] [Du / EN, Du Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648942.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648937.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648922.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648891.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648871.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648864.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648835.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648833.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648829.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648826.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648820.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648819.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648786.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648724.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648545.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648499.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648460.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648417.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648400.jpg" />
 </div>
 
 
@@ -561,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648399.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648394.jpg" />
 </div>
 
 
@@ -614,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648390.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648383.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648375.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:488441E69B0A6A3E003D31256C5F2F0F03F7C135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141271   (648370) от 11.06.2017
+
+Смерч / Twister (1996) BDRip [H.265/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рушащиеся, словно карточные домики, здания, разорванные линии электропередач, поднятые в воздух автомобили и животные, гибнущие люди... Мелкими и незначительными оказываются личные неурядицы героев перед лицом разбушевавшейся стихии. В отчаянный поединок с грозным и малоизученным явлением природы вступают ученые-метеорологи.Производство: СШАЖанр: Боевик, Триллер, Драма, ПриключенияРежиссер: Ян де БонтАктеры: Хелен Хант, Билл Пэкстон, Кэри Элвис, Джэми Герц, Филип Сеймур Хоффман, Луис Смит, Алан Рак, Шон Уэйлен, Скотт Томсон, Тодд Филд, Джои Слотник, Вендл Джозефер, Джереми Дейвис, Зэк Гренье, Грегори Спорледер, Патрик Фишлер, Николас Сэдлер, Бен Вебер, Энтони Рэпп, Eric LaRay Harvey, Абрахам БенрубиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5780F6F55CE28A15A6892C2A9801F27D71CEBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141454   (648369) от 11.06.2017
+
+Челюсть / Jawbone (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страдающий от алкоголизма боксер, оставшись без жилья предпринимает последний рывок, решаясь на бой без правил, который определит - вернется ли он к нормальной жизни и вступит в ААА, или скатится на самое дно и умрет.Производство: Великобритания, Emu Films, Revolution FilmsЖанр: Боевик, Драма, СпортРежиссер: Томас К. НэпперАктеры: Иэн МакШейн, Рэй Уинстон, Майкл Смайли, Джонни Харрис, Люк Дж.И. Смит, Анна Уилсон-Холл, Эрнест Вернон, Ли Лэтхэм, Хаки Али, Кирсти Шеннон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C28F9A973C5E8BF67B8DD1F529705CA3CF50F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

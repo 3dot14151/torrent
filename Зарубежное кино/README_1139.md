@@ -1,55 +1,3 @@
-###  Публикация: 1055761   (485776) от 23.09.2016
-
-Жертва / Sacrifice (2016) BDRemux [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Консультирующий хирург Тора Гамильтон вместе с мужем Дунканом переезжает на удаленные Шетландские острова, в 100 милях от северо-восточного побережья Шотландии. На территории своего нового дома Тора находит изрезанное руническими знаками тело молодой женщины, вместо сердца у которой — дыра. Не обращая внимания на предупреждения оставить все как есть, Тора все ближе (   Читать дальше...   )Производство: Ирландия, Германия, США, Boulder Media, Cheyenne Enterprises, Fundamental Entertainment, Schubert International Filmproduktions, Subotica Entertainment LtdЖанр: ТриллерРежиссер: Питер Э. ДаулингАктеры: Рада Митчелл, Руперт Грейвз, Йен МакЭлхинни, Дэвид Робб, Лайам Карни, Питер Фоллебрегт, Деклан Конлон, Леса Турман Конор Маллен, Джоэнн КроуфордПеревод: Одноголосый закадровый любительский (Хихикающий доктор)Язык субтитров: Английский, ИспанскийПродолжительность: 01:31:06Реклама: Без рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FE45D3D9DAEEB71E7CBC54F509E46A0EC6C91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055658   (485775) от 23.09.2016
-
-Охота на дикарей / Hunt for the Wilderpeople  (2016) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Рикки Бэйкер - упитанный городской хулиган. Сотрудница социальной службы Пола отвозит подростка в сельскую местность, где живёт единственная готовая принять его семья - Белла и её нелюдимый муж Гек. Когда Белла умирает и социальная защита собирается забрать Рикки, тот убегает в леса. Гек отправляется за ним. Сумасбродная Пола убеждена, что странный Гек слетел с катушек (   Читать дальше...   )Производство: Новая ЗеландияЖанр: драма, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Сэм Нил, Джулиан Деннисон, Рима Те Вьята, Рэйчел Хаус,  Оскар Кайтли, Стэн Уокер, Майк Миноуг, Коэн Холлоуэй, Риз Дэрби, Трой Кинги, Тайка ВайтитиПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF101954F8DAC501EFF50D7110740B9C126CDB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243993   (485748) от 30.08.2018
 
 Невидимка / Hollow Man (2000) BDRip [H.265/1080p-LQ] [10-bit] [Director's Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485748.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485740.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485695.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485694.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485691.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485680.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485624.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485620.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485616.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485610.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485607.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485599.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485582.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485580.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485578.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485577.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485576.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485570.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485522.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485509.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485501.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485449.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485445.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485440.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B812534C60C6C1FC1A554E398E8BBB5A8635A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937741   (485437) от 16.09.2015
+
+Токийская невеста / Tokyo Fiancee (2014) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амели полна надежд начать новую жизнь — она едет в Японию, страну своего детства, чтобы найти вдохновение и написать книгу. На новом месте девушка дает объявление о частных уроках французского языка, и ее первым и единственным учеником становится Ринри — очаровательный молодой человек, с которым они вскоре сблизятся. В трудностях перевода, в неловких вечеринках и (   Читать дальше...   )Производство: Франция, Канада, БельгияЖанр: Комедия, мелодрама, экранизацияРежиссер: Стефан ЛиберскиАктеры: Полин Этьен, Тайчи Иноэ, Жюли ЛеБретон, Элис де Ланкесэ, Акими Ота, Хироки Кагеяма, Токио Ёкои, Хироми Асаи, Синносуке Касахара, Масаки ВатанабэПеревод: Дублированный (iTunes)Продолжительность: 01:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5394329D3EE5DDB882A425C52A7A764CB485C970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937989   (485433) от 16.09.2015
+
+Дитя джунглей / Dschungelkind (2011) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация получившего в Германии огромную известность автобиографического бестселлера Сабины Кюглер. В начале 80-х годов ХХ века Немецкий лингвист Клаус Кюглер вместе с женой и тремя детьми отправляется в джунгли Новой Гвинеи, где он изучает язык недавно обнаруженного туземного племени. В отличие от других членов семьи восьмилетняя Сабина быстро осваивается на (   Читать дальше...   )Производство: ГерманияЖанр: Драма, приключения, экранизацияРежиссер: Роланд Зузо РихтерАктеры: Стелла Кункат, Томас Кречманн, Надя Уль, Зина Ткоч, Том Хосбек, Милена Чарнтке, Свен Гильник, Эммануэль Семен, Феликс Токвепота, Ранге’е ПатиПеревод: Авторский одноголосый (Ю.Сербин)Язык субтитров: РусскийПродолжительность: 02:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00232F4F1D3DEEC9B8135049EE7BFC95626B716
 ```
 
 https://mybot314.ru/tekegram_catalog/

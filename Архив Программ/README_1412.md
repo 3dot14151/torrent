@@ -6,7 +6,7 @@ Wise Care 365 Pro 4.41.419 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sandboxie plus 1.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320774.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Acronis BootCD Collection 7 in 1 Grub4Dos Edition [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320773.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Macrorit Partition Extender 2.0.2 Unlimited Edition RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320772.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Macrorit Partition Expert 6.3.4 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320771.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ K-Lite Codec Pack Update 17.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320768.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NIUBI Partition Editor 8.0.0 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320765.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ File & Image Uploader 8.2.4 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320759.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ZD Soft Screen Recorder 11.5.6.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320750.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Privacy Eraser Free 5.28.0 Build 4329 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320747.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4771.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320681.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows 10 Volume N Professional, Education, Enterprise Build 10586 (th2_release
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320673.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Chromium 77.0.3865.120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320655.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320653.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Apeaksoft Video Converter Ultimate 1.0.26 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320651.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Gilisoft Screen Recorder 10.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320650.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Isoo Backup 4.2.1.744 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320643.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ashampoo Video Optimizer Pro 1.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320640.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SpeedyFox 2.0.27 Build 142 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320639.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ IObit Driver Booster Pro 7.0.2.438 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320637.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe InDesign CC 2018 (13.0.0.125) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320606.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Photoshop CC 2018 (v19.0) x86-x64 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320597.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Rufus 2.18 Build 1213 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320565.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Wise Care 365 Pro 4.41.419 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320561.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Win7codecs 3.9.0 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_320517.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Total Commander 7.50a Grey Pack (Mini Version) 1.0 [русский + англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320475.jpg" />
 </div>
 
 

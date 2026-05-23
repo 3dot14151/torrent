@@ -1,55 +1,3 @@
-###  Публикация: 1242503   (25255) от 09.03.2025
-
-Женский день в гриль-баре «Эмерсон» / Lady Day at Emerson's Bar & Grill (2016) DVB [H.264/1080i-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1959 год. В захудалом баре Филадельфии Билли Холидей за четыре месяца до смерти даёт одно из своих последних выступлений , в котором сплетаются как грустные, так и весёлые воспоминания. В телевизионной версии мюзикла Одра Макдональд в образе Билли Холидей исполняет песни: "God Bless the Child", "Say No To This", "Crazy He Calls Me"и (   Читать дальше...   )Производство: США / Two Hands Entertainment,NuttHouse Moving Pictures CompanyЖанр: Драма, Биография, МузыкаРежиссер: Лонни ПрайсАктеры: Одра МакДональд, Шелтон Бектон, Джордж Фармер, Clayton Craddock, Рокси, Дебра Кроу, Дэвид Майкл СефалуПеревод: ОтсутствуетСубтитры: Русский, неотключаемыеПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB31068AFCCF78890F2324B69D43506B5A2C2C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784225   (25237) от 09.03.2025
-
-Секретный агент / Unlocked (2017) BDRip [H.265/1080p] [10-bit] [US Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Она - секретный агент мирового уровня. На этот раз её задача – предотвратить биологическую атаку на Лондон. Вовлечённая в большую шпионскую игру, она неизбежно сталкивается с миром двойных стандартов, паранойи, безнаказанности и предательства. Вокруг так много друзей, но кому из них на самом деле можно доверять? И кто из них тот неуловимый «крот», которого она должна (   Читать дальше...   )Производство: Чехия, Швейцария, Великобритания, США, Франция / Bloom, Czech Anglo Productions, Di Bonaventura Pictures, Grindstone Entertainment Group, Lip Sync Productions, Polyphony DigitalЖанр: боевик, триллерРежиссер: Майкл АптедАктеры: Нуми Рапас, Орландо Блум, Тони Коллетт, Джон Малкович, Майкл Дуглас, Мэттью Марш, Макрам Хури, Брайан Каспе, Филип Броди, Тосин КоулПеревод: дублированный (официальный)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, SDH, SDH-Colored)Продолжительность: 01:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D763E47A5FF9F65E12991C2475CEF55CAA774DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784188   (25231) от 09.03.2025
 
 Стигматы / Stigmata (1999) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25231.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25205.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25144.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25133.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25124.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25074.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25003.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24949.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24931.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24919.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24677.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24665.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24615.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24608.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24585.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24583.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24517.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24491.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24484.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24471.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24424.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24406.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24318.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24287.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F157DEFD169575282C3839EDEF986DCFA5C816E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782892   (24226) от 19.03.2025
+
+Подай знак / Blink Twice (2024) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переодевшись в вечерние платья, Фрида и Джесс проникают в качестве гостей на приём, где они должны были работать официантками. Там Фрида знакомится со своим кумиром, IT-миллионером Слейтером Кингом, и хорошо проводит вечер в его компании, а затем он приглашает девушек и других гостей на свой частный тропический остров. В течение нескольких дней компания веселится (   Читать дальше...   )Производство: США, Мексика / Bruce Cohen Productions, Free AssociationЖанр: триллер, драмаРежиссер: Зои КравицАктеры: Наоми Аки, Ченнинг Татум, Алиа Шокат, Кристиан Слэйтер, Саймон Рекс, Адриа Архона, Кайл Маклоклен, Хейли Джоэл Осмент, Джина Дэвис, Левон ХоукПеревод: Дублированный, Многоголосый, ДвухголосыйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH) и др.Продолжительность: 01:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12E6F377BCED3A6B306388993741BDC296E9A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786209   (24217) от 19.03.2025
+
+Дикость / Wild Things (1998) UHD BDRip [H.265/1080p] [10-bit] [Unrated]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетняя Келли влюбляется в своего учителя Сэма. Она использует всевозможные способы, чтобы привлечь его внимание, но безрезультатно. А когда девушка не получает желаемого, она начинает мстить. Несостоявшаяся любовница обвиняет Сэма в изнасиловании. Улик явно недостаточно, пока на помощь Келли не приходит её подруга, которая готова давать показания. Но вскоре (   Читать дальше...   )Производство: США / Mandalay EntertainmentЖанр: триллер, драма, криминал, детективРежиссер: Джон МакНотонАктеры: Кевин Бейкон, Мэтт Диллон, Нив Кэмпбелл, Тереза Расселл, Дениз Ричардс, Дафна Рубин-Вега, Роберт Вагнер, Билл Мюррей, Кэрри Снодгресс, Джефф ПерриПеревод: дублированный официальный (Невафильм), профессиональный многоголосый (Видеосервис, ОРТ, СТС), авторский (Андрей Гаврилов, Юрий Живов, Владимир Королёв), любительский одноголосый (неизвестный)Язык озвучки: русский, английскийСубтитры: русские (SDH), английские (SDH)Продолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0D00870A0D1BBDBABA60426146C53865F863EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

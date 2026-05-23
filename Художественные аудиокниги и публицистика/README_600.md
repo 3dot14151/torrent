@@ -1,82 +1,3 @@
-###  Публикация: 1255837   (360638) от 19.10.2018
-
-Андрей Ливадный | Край Бездны (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Край Бездны» – фантастический роман Андрея Ливадного, первая цикла «Тест на респаун».
-Он думал, что в его жизни уже случилось все, что выпадает на долю обычного человека и ясно представлял себе будущее, но внезапный звонок в корне изменил судьбу. «Край Бездны» – первая полноценная виртуальная реальность, где его попросили выполнить несложное задание, на поверку (   Читать дальше...   )Жанр: LitRPGПродолжительность: 08:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64C0EF41A894C19EF06D0A886BA9699AA5E309C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576890   (360594) от 18.11.2012
-
-Эдгар Аллан По | Бес превратности. Повести и рассказы (2012) [MP3, Аркадий Бухмин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эдгар Аллан По - легенда американской литературы. Кажется, все ее жанры и направления выросли из его творчества. Это его мрачная загадочная фигура проходит через все шедевры, рожденные в Новом Свете. Его собственные произведения полны мрака и мистики. Загадочные покойники, таинственные звери, Сфинкс, король Чума и сам Дьявол - вот его излюбленные герои. Но нет-нет (   Читать дальше...   )Жанр: Детектив, мистикаИздательство: МедиаКнига
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E469D9F6F8BEC7D05584B42BFC131E9BFD83E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177980   (360496) от 26.10.2017
-
-Пауло Коэльо | Адюльтер (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Простые истины, написанные языком души от Пауло Коэльо! Журналистке Линде 31 год, и все считают, что ее благополучию можно лишь позавидовать: она живет в Швейцарии, у нее любящие муж и дети, достойная работа. Однако Линда ощущает, что с каждым днем все глубже погружается в апатию, и больше не может притворяться счастливой. Все меняется, когда она встречает свою школьную (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153A83DF93A638D0072AADB2C51742B34BE140CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177896   (360492) от 26.10.2017
 
 Джон Вердон | Дейв Гурни (Книга 4). Питер Пэн должен умереть (2017) [MP3, Игорь Князев]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360492.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360408.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360353.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360343.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360338.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360337.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360243.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360239.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360238.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360223.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360218.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360216.jpg" />
 </div>
 
 
@@ -397,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360167.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360131.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360128.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360104.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359931.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359731.jpg" />
 </div>
 
 
@@ -557,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359612.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359512.jpg" />
 </div>
 
 
@@ -609,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359259.jpg" />
 </div>
 
 
@@ -635,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359258.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359241.jpg" />
 </div>
 
 
@@ -673,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5E215DF5D1F4D5A656EAFFBA130804BCFAF26BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328969   (359160) от 02.10.2019
+
+Светлана Фалий | Счастливый билет (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юра и Лариса – неисправимые оптимисты в борьбе за добро и справедливость. И часто им их принципиальность выходит боком. Но даже в каждой, казалось бы, неудаче они видят только хорошие стороны. И его величество Случай решает вознаградить их – посылает лотерейный билет с выигрышем джекпота. Но даже это событие становится причиной испытаний, порой нелепых и курьёзных. (   Читать дальше...   )Жанр: Семейный, МелодрамаПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06060D5CCA7B50B954DC03302194F54AA3AF2CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328934   (359071) от 02.10.2019
+
+Майкл Стэкпол | Рожденный для войны (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли смерть одного ребенка привести к полномасштабной войне между космическими сверхдержавами? Может, если он – наследник престола. Может ли один человек противостоять кровавому тоталитарному режиму? Нет? А если это – самый изощренный убийца во всей Внутренней Сфере, надеявшийся отсидеться на тихой планетке, которую неожиданно накрыла война Революции?Жанр: ФантастикаПродолжительность: 15:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C28BC7352F2441D5D5477F0254E9FCC3DCC723C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328519   (359055) от 02.10.2019
+
+Филип Дик | Помутнение (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359055.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем эксперименты с наркотиками становятся обыденным делом. Роберт Арктор крепко подсаживается на препарат С — «выжигатель мозгов», довольно опасная штука, которая стала слишком популярной. Правительство это понимает и принимает меры. За Бобом ведётся наблюдение агентом Фредом. Или это его паранойя, вызванная употреблением препарата? Всё чаще вокруг (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F47CCA89C57E8A5718DADD4425119A672786A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1108131   (864258) от 24.02.2017
-
-Теневой заговор / Shadow Conspiracy (1996) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Президент, переизбранный на второй срок, готовится к радикальным изменениям и собирается произнести речь в конгрессе, написанную совместно с Бобби Бишопом (Чарли Шин), своим советником. Журналистка Аманда Гивенс (Линда Хэмилтон) также кое-что разнюхала о "теневом заговоре". Профессиональный убийца убивает одного за другим людей, имеющих, очевидно, какие-либо (   Читать дальше...   )Производство: СШАЖанр: Боевик, ТриллерРежиссер: Джордж Пан КосматосАктеры: Чарли Шин, Линда Хэмилтон, Доналд Сазерленд, Реджиналд Дэвис, Хенри Строзир, Рамон Эстевес, Теодор Байкел, Стэнли Андерсон, Бобби Зайонг, Терри О'Куинн, Том Куинн, Кейси Биггс, Чарлз Чиоффи, Николас ТуртурроПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6851072773435385ED04CAFC9243CEDB1825877C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107813   (864147) от 24.02.2017
-
-Третий лишний (2007) WEBRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-У матери-одиночки Веры Волиной взрослая дочь. Красавице Маше уже 15 лет, и она вызывает интерес у мужчин. Мать осознает это, поэтому ревнует к ней своего молодого любовника Сергея. На фоне длительного стресса у Веры развивается мания, что ее хотят отравить и устранить. Все становится еще хуже, когда однажды в своей комнате женщина находит шприц, непонятно как туда (   Читать дальше...   )Производство: Украина / "Star Media"Жанр: Триллер, ДрамаРежиссер: Алексей ЛисовецАктеры: Елена Шевченко, Анна Кузина, Юрий Чурсин, Анатолий Журавлев, Анатолий Лобоцкий и др.Продолжительность: 01:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823378AF15FFBFDD4362EE535B7760258814BE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108135   (864135) от 24.02.2017
 
 Сент-Амур: Удовольствия любви / Saint Amour (2016) Blu-ray [H.264/1080p] [Custom]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864135.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864074.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864067.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864040.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863952.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863889.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863866.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863841.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863829.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863787.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863785.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863737.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863721.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863719.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863715.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863714.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863712.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863710.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863703.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863699.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863688.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863679.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863677.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863667.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C181996242C101F4E6778A7E7871F98B608F6B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107913   (863664) от 24.02.2017
+
+Другой мир: Войны крови / Underworld: Blood Wars (2016) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воительница-вампир Селена вступает в свой последний и решающий бой между оборотнями и кланом вампиров, который её предал.Производство: США / Lakeshore Entertainment, Screen Gems, Sketch FilmsЖанр: ужасы, боевикРежиссер: Анна ФерстерАктеры: Кейт Бекинсейл, Тео Джеймс, Лара Пулвер, Чарльз Дэнс, Тобайас Мензис, Брэдли Джеймс, Алисия Вела-Бэйли, Трент Гарретт, Дэйзи Хэд, Джеймс Фолкнер, Оливер СтаркПеревод: Профессиональный (многоголосый, закадровый) Paradox" & Omskbird records, любительский (одноголосый, закадровый) SolodСубтитры: отсутствуютПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3983278E2414EC07AE8F837A6CE5FAECEB8739D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767449   (863617) от 18.03.2014
+
+Три могилы / The Three Burials of Melquiades Estrada (2005) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_863617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в безлюдной техасской пустыне Мелквадеса Эстраду сначала убивают, а затем здесь же спешно хоронят без должных почестей. Позже тело находят и перезахоранивают на кладбище городка Ван Хорн. Местный фермер Пит Перкинс, друг Эстрады, похищает местного полицейского и заставляет его выкопать тело. С заложником на привязи и с телом, привязанным к мулу, Пит отправляется (   Читать дальше...   )Жанр: драма, криминал, детектив, приключения, вестернРежиссер: Томми Ли ДжонсАктеры: Томми Ли Джонс, Бэрри Пеппер, Хулио Седилло, Дуайт Йокам, Ванесса Боше, Ричард Джонс, Гильермо Арриага, Джейнуари Джоунс, Ричард Диллард, Мелисса Лео, Габриэль Олдс, Монтсеррат Де Леон, Полина Рейес, Мел Родригес, Чарлз Сандерс, Брент Смига, Спайк Спенсер, Анджелина Торрес, Виктория Джонс, Барри ТуббПеревод: Профессиональный (двухголосый закадровый)Субтитры: русские и английские (встроенные, отключаемые)Продолжительность: 02:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EB2DA4D205324B02B91EEDEE3178A81694F69D
 ```
 
 https://mybot314.ru/tekegram_catalog/

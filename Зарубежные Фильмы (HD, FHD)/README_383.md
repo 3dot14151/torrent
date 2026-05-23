@@ -1,55 +1,3 @@
-###  Публикация: 1218375   (717030) от 12.04.2018
-
-Солдатики / Small Soldiers (1998) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Корпорация «Глоботек» задействовала в производстве игрушек военные технологии, один из разработчиков вставил в новую серию солдатиков сверхсовременные самообучающиеся микропроцессоры. В результате в магазин поступили злые десантники, запрограммированные воевать с добрыми фантастическими существами гаргонитами. Первым с ними столкнулся сын владельца маленького магазина (   Читать дальше...   )Производство: США / Universal Pictures, DreamWorks SKG, Amblin EntertainmentЖанр: Фантастика, Фэнтези, Боевик, КомедияРежиссер: Джо ДантеАктеры: Дэвид Кросс, Джей Мор, Александра Уилсон, Дэнис Лири, Грегори Смит, Дик Миллер, Кирстен Данст, Джейкоб Смит, Джонатан Боак, Кевин ДаннПеревод: Профессиональный многоголосый, закадровый - ПозитивСубтитры: ОтсутствуютПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BD65953D1A188707B80FC275EE4073F5212FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218895   (717024) от 12.04.2018
-
-Стрелок / Shooter (2007) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Опытный снайпер Боб Ли оказывается втянутым в заговор с целью убийства президента. Похоже, что его хотят подставить и «сдать» властям, поэтому ему необходимо как можно быстрее найти и обезвредить настоящего убийцу.Производство: США / Paramount PicturesЖанр: Боевик, ТриллерРежиссер: Антуан ФукуаАктеры: Марк Уолберг, Майкл Пенья, Дэнни Гловер, Кейт Мара, Элиас Котеас, Нед Битти, Раде Шербеджия, Рона Митра, Джонатан Уолкер, Тейт ДонованПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E737E8C6A9CE1A3C8A9E3E8610F9C9D1956C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 892809   (716966) от 27.04.2015
 
 Восставший из ада: Откровения / Hellraiser: Revelations (2011) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716966.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716964.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716915.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716914.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716905.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716903.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716899.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716850.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716841.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716833.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716830.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716829.jpg" />
 </div>
 
 
@@ -380,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716828.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716827.jpg" />
 </div>
 
 
@@ -433,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716724.jpg" />
 </div>
 
 
@@ -459,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716720.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716717.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716693.jpg" />
 </div>
 
 
@@ -539,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716692.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716691.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716615.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716609.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716453.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716442.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C6944E7A23120D8A815D9746ECA7829390AAA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532234   (716391) от 18.02.2022
+
+Невидимая жизнь Эвридики / A Vida Invisivel / Invisible Life (2019) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рио-де-Жанейро, 50-е годы прошлого века. Эвридика и ее старшая сестра Гида мечтают о жизни в Европе. Эвридика намеревается стать пианисткой и уехать учиться в Вену, а Гида жаждет свободы. Она бежит из дома с любовником в надежде обрести рай в далекой Греции. Планам обеих сестер не суждено сбыться. Деспотичный отец приговорит их к долгой разлуке. Но даже вдали друг (   Читать дальше...   )Производство: Бразилия, Германия / Sony Pictures Releasing, RT Features, Pola Pandora FilmproduktionsЖанр: МелодрамаРежиссер: Карим АйнузАктеры: Жулия Стокклер, Карол Дуарте, Флавия Гусман, Антонио Фонсека, Уго Круш, Николас Антунес, Мария Маноэла, Грегориу Дювивьер, Самуэл Толедо, Луана КсавьерПеревод: Многоголосый профессиональный (Позитив, iTunes)Субтитры: Английские, немецкие, испанскиеПродолжительность: 02:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F0B21FB9EB3E678FA36EACA63A828787458144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528370   (716323) от 18.02.2022
+
+Уроки ориентации / Home of Phobia (2004) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда у тебя ничего не получается с девушкой, есть один способ наладить отношения - стать геем. Ведь кто, как не геи, хорошо понимают женщин?…Производство: США / Element Films, L.I.F.T. Production, Persistent EntertainmentЖанр: мелодрама, комедияРежиссер: Райан ШиракиАктеры: Сэм Хантингтон, Марла Соколофф, Майк Эрвин, Хизер Матараццо, Кэйтлин Даблдэй, Брайс Джонсон, Джад Тайлор, Рэйчел Дрэч, Джон Гудман, Марк ЭбниПеревод: Профессиональный многоголосый (ТНТ)Субтитры: английские (full, SDH)Продолжительность: 01:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6B118AC55FBBE18BAD528D410C11F7306414AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

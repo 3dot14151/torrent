@@ -6,7 +6,7 @@ Athentech Perfectly Clear Complete 3.8.0.1680 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349870.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Athentech Perfectly Clear WorkBench 3.8.0.1680 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349866.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Windows 11 Manager 1.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349863.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Phase One Capture One Pro 22 15.4.0.16 Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349859.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FileMenu Tools 7.7 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349851.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MKVToolNix 38.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349842.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Kaspersky CRYSTAL 13.0.2.457 Technical Preview [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_349802.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ uTorrent 3.2.2 Build 28595 Stable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_349791.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Overloud - Gem ECHOSON 1.0.1 STANDALONE, VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349763.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Dmitry Sches - Thorn 1.1.0 VSTi, VSTi3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349744.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ WinTools.net Premium 19.5.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349704.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NetLimiter 4.0.53.0 Pro RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349703.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Advanced System Font Changer 1.1.2.33 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349648.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Overloud - TH3 3.4.9 STANDALONE, VST, VST3, RTAS, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349643.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ CrystalDiskInfo 7.8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349635.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ RAM Saver Professional 19.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349628.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ DriverMax Free 9.11  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349602.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ SlimBrowser 7.00 Build 132 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349552.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Psiphon 3 build 176 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349542.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Ventoy 1.0.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349536.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ WPS Office 2016 Premium 10.2.0.7516 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349535.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Driver Easy Pro 5.6.7.4216 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349533.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Media Encoder 2022 22.6.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349528.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Simple Website Blocker 4.0 Portable by Михаил [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349470.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mozilla Firefox 43.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349422.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Adobe Audition CC 2019 (12.0.0.241) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349403.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466601.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Ashampoo WinOptimizer 2012 8.14.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466595.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Adobe Flash Player 11.4.402.278 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466583.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Apowersoft Phone Manager 2.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466564.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Panda Free Antivirus 16.0.1 DC 22.09.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466562.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ XMedia Recode 3.5.1.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466554.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Vivaldi 3.3.2022.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466548.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Skype 8.64.0.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466544.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Skype 8.64.0.78 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466543.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ GPU-Z 2.34.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466538.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ CrystalDiskInfo 8.8.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466536.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Media Player Classic - BE v1.0.3.0 (32bit/64bit) Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466467.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Splash PRO EX 1.13.0 with Action! RePack by 7sh3 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466466.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ MSI Afterburner 2.2.4 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466457.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Google Chrome 45.0.2454.101 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466418.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Replay Media Catcher 6.0.0.79 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466415.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ LibreOffice 5.0.2 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466411.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VueScan Pro 9.7.32 (DC 03.09.2020) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466400.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ GeoGebra 6.0.603.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466399.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Topaz Mask AI 1.3.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466394.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Topaz DeNoise AI 2.2.11 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466391.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ TrustPort Antivirus 2013 13.0.4.5077 (2012) Русский присутству�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466344.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ TrustPort Total Protection 2013 13.0.4.5077 (2012) Русский присутс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466343.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Genarts Sapphire for Adobe After Effects 6.10 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466337.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Ashampoo Burning Studio 2012 10.0.15.11719 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466336.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Teleport Pro 1.67 + Portable by Punsh [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466333.jpg" />
 </div>
 
 

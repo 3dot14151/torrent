@@ -6,7 +6,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Realistic Product Animation / Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194914.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kalachevaschool, Анна Эгида | Цветная графика (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194297.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ The Gnomon Workshop, Sean Marino | Creating a Sci-Fi Pistol for Games (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194271.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Easy Cinematic Environments (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194258.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Boundless Entertainment, Sam Eisenhower | Unreal Engine for Filmmakers - Advance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194237.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Canopy Games, Erindale Woodford | BCS: Geometry Nodes For Blender 3.3+ (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194212.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Udemy, Gustavo Rosa | Learn Blender Compositor! (2022) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194202.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Udemy, Stephen Ulibarri | Blender Sculpting - Rune Sword (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193098.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193086.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Udemy, Art Studio | Learn Modelling and Animating in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193081.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ ArtStation, Daniel Peres | Creating Vegetation for Games (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192785.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Blender Guru, Andrew Price | The Architecture Academy (Blender 2.6-2.7) (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192471.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ XYZ School, Кирилл Золовкин | Пайплайн разработк�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191969.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Arnold 6 and 7 for Cine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191921.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Redshift 3 and 3.5 For 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191890.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Art And Shock, Евгения Тумина и др. | Визуализация �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190698.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Udemy, Oscar Villarreal | Procedurally Generated Scenes with Blender, Python & N
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189856.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Bonnie & Slide, Егор Мараев | Убойная анимация 2.0 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188348.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Color Grading Master, Александр Макаров | FUSION. Basic VFX Clas
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187938.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Udemy, Aniket Rawat | Creating a Traditional Chinese Room Environment in UE5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187930.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Domestika, Calder Moore | 3D Toon-Style Environment Art with Arnold (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187926.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187897.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Udemy, Raffi Bedross | Real-time VFX in EmberGen and Unreal Engine 5 (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187882.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187879.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Udemy, Hossein mashayekhi | Complete Unreal Engine 5 Mastery (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187877.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187772.jpg" />
 </div>
 
 

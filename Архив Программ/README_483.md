@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795795.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.4.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795790.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Celemony - Melodyne Studio 5 Studio v5.0.0.048 STANDALONE, VST3, RTAS, AAX (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795789.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BootRacer Premium (Акция COMSS) 7.90.0.590 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795784.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Nvidia DriverPack v.446.14 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795766.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ GoodSync Enterprise 10.12.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795759.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (1901) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795652.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ GoodSync Enterprise 10.7.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795591.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Q-Dir 6.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795581.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ocenaudio 3.10.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795541.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Any Video Converter Professional 7.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795540.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Any Video Converter Ultimate 6.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795521.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MediaInfo 0.7.85 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795512.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2192 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795497.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ OCCT 10.0.0 Beta 4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795494.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Eventide - Ensemble Bundle 2.15.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795490.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ WSCC (Windows System Control Center) 7.0.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795489.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ SanDisk SSD Dashboard 3.4.2.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795485.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Transcend Elite Data Management 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795484.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.17 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_795482.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ MEmu 7.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795481.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Auslogics BoostSpeed 10.0.2.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795478.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ MusicBee 3.1.6590 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795475.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Double Commander 0.8.1 beta Build 7950 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795460.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Topaz Gigapixel AI 5.7.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795439.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Process Lasso Pro 10.4.0.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795436.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PowerISO 7.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384969.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boilsoft Video Joiner / Video Splitter 7.01.2 [Eng+Rus] + Portable [Rus] by KGS 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nvidia DriverPack v.456.71 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384897.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ IObit Driver Booster Pro 7.0.2.409 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384834.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PotPlayer 1.7.20538 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384833.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ashampoo Photo Card 2.0.4 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384829.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384812.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384801.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ SiSoftware Sandra Lite 2013 01.19.11 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384790.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ CPUID HWMonitor Pro 1.15 Portable by Boomer [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384788.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Opera Unofficial 12.10.1652 + Update
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384782.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Album Player 2.109 (22.10.2016) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384775.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ZD Soft Screen Recorder 10.1.2 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384767.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Acronis True Image 2021 Build 32010 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384748.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ MInstAll v.07.10.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384746.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PIDKey Lite 1.64.4 b4 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384740.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Acronis True Image 2021 Build 32010 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384738.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ MInstAll v.07.10.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384736.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Movavi Video Converter 17.3.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384690.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Stardock Start8 1.02 (Patch by PainteR) [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384685.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mem Reduct 2.3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384681.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Daum PotPlayer 1.7.20538 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384649.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Internet Download Manager 6.35 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384637.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Display Driver Uninstaller 17.0.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384619.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Movavi Video Editor 14 Plus 14.0.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384545.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Advanced SystemCare with Antivirus 2013 5.6.4.273 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_384539.jpg" />
 </div>
 
 

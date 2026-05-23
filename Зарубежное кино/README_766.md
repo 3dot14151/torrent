@@ -1,55 +1,3 @@
-###  Публикация: 1286395   (710428) от 03.03.2019
-
-Вернуть Бена / Ben Is Back (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества  Бен Барнс сбегает из реабилитационного центра и возвращается домой. В свое время хлебнувшая с ним горя мать тепло принимает сына, но скоро убеждается, что ничего не изменилось — от парня по-прежнему нужно ждать беды. У нее есть 24 часа, чтобы уберечь сына от опасности. Но как далеко можно зайти, спасая тех, кого мы любим?Производство: США, Black Bear Pictures, 30West, Color ForceЖанр: ДрамаРежиссер: Питер ХеджесАктеры: Джулия Робертс, Лукас Хеджес, Кортни Б. Вэнс, Кэтрин Ньютон, Рэйчел Бэй Джонс, Дэвид Залдивар, Александра Парк, Майкл Эспер, Тим Гини, Мира Лукреция Тейлор ...Перевод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8944942E09F36DD7F2232A3289323212C621322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528601   (710419) от 21.02.2022
-
-Два мира / Les Deux mondes (2007) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В далеком затерянном параллельном мире жители крохотного племени Бегамени изнывают под гнетом каннибала Зотана. И каждый день они молят небеса о спасителе, который освободил бы их от тирана. А в это время в Париже, в нашем мире, живет типичный неудачник, скромный и никому неизвестный реставратор картин Реми Бассано. На него свалилось сразу 33 несчастья: его мастерскую (   Читать дальше...   )Производство: Франция / Film Afrika Worldwide CCЖанр: Фэнтези, комедияРежиссер: Дэниэл КоэнАктеры: Бенуа Пульворде, Наташа Линдинжер, Мишель Дукоссю, Дэниэл Коэн, Паскаль Элсо, Флоренс Лорье, Арли Джовер, Огустен Легран, Матиас Млекуз, Зофиа МореноПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F2E672BD2E259EBBA27DA7DF22BE894B527C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528613   (710409) от 21.02.2022
 
 Тор: Рагнарёк / Thor: Ragnarok (2017) WEB-DL [H.264/1080p-LQ] [IMAX]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710409.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710400.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710342.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710309.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710305.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710302.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710299.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710294.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710293.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710288.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710284.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710279.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710212.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710204.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710158.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710147.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710009.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709847.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_709808.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709779.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709772.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709770.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709769.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709765.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A037739EDC9FCCAD0B4AEE8391B974BC3A207520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329631   (709739) от 29.04.2011
+
+Знакомство с Факерами 2 / Little Fockers (2010) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_709739.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 лет, двое детей и бесчисленные испытания понадобились Грегу для того, чтобы тесть частично примирился с его существованием. Но после того как Грег, оказавшись на мели, находит себе халтуру в фармацевтической компании, подозрения Джека увеличиваются в геометрической прогрессии.
+Когда все семейство Грега и Пэм, включая ее бывшего возлюбленного Кевина, соберутся (   Читать дальше...   )Производство: DreamWorks Pictures / Everyman Pictures / Paramount Pictures / Relativity Media / Tribeca Productions / Universal Pictures (США)Жанр: комедияРежиссер: Пол ВайцПерсонажи: Роберт Де Ниро, Бен Стиллер, Оуэн Уилсон, Тери Поло, Блайт Даннер, Джессика Альба, Дастин Хоффман, Барбра Стрейзанд, Лора Дерн, Харви Кейтель и др.Перевод: ДублированныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Английский, Русский, УкраинскийПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329790   (709734) от 29.04.2011
+
+Легенда о динозавре / Kyoryu kaicho no densetsu / Legend of Dinosaurs and Monster Birds (1977) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1977 года. В расщелине у подножия горы Фудзияма найдены окаменевшие яйца динозавров. Миллионы лет пролежали они без движения, но природные катаклизмы пробудили их от спячки. И началось: исчезают люди, на дорогах находят обезглавленных животных. Начинают оживать все новые и новые твари. Кто или что сможет остановить кровавую вакханалию...Производство: Япония / Toei Co. Ltd.Жанр: ФантастикаРежиссер: Дзюндзи КуратаАктеры: Минэко Марухира, Сатору Набэ, Цунэхико Ватасэ, Нобико Сава, Сётаро Хаяси, Томоко Киёсима, Кэтрин Лауб, Хироси Нава, Гиндзи Накамура, Морин ПикокПеревод: Дублированный (Киностудия «Мосфильм»)Продолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5078A6A23A5ADA45471F7A38FE95347568AF30A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

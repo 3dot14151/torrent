@@ -6,7 +6,7 @@ Microsoft Windows 10.0.19042.985, Version 20H2 (Updated May 2021) - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015065.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Windows 10.0.19041.1052, Version 2004 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009971.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009931.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009925.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009901.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009603.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Microsoft Windows 10.0.19041.1110, Version 2004 (Updated July 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005813.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Microsoft Windows 10.0.19042.1110, Version 20H2 (Updated July 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005805.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft Windows 10.0.17763.2061, Version 1809 (Updated July 2021) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005770.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Microsoft Windows 7 N SP1 Updated 13.05.2011 - Оригинальные обра
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975927.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Windows Embedded 8.1 with Update [November 2014] - Оригинальные об
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954286.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Windows 8.1 Professional WMC with Update 3 [November 2014] [Ukr]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931169.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Windows 8.1 Single Language with Update 3 [November 2014] [Ru/En]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931163.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Windows 8.1 Professional WMC with Update 3 [November 2014] [Ru/En]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931154.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929855.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923701.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Microsoft Windows 10.0.17763.2114, Version 1809 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923641.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923441.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Microsoft Windows 10.0.19043.1165, Version 21H1 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914884.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Microsoft Windows 7 SP1 - Оригинальные образы от Microsoft M
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878848.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Windows Thin PC SP1 x86 [En] (6.1.7601) + langPatch [Multi/Ru]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872159.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866451.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866348.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866225.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866211.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866085.jpg" />
 </div>
 
 

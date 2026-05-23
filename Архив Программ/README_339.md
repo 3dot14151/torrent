@@ -6,7 +6,7 @@ Corel VideoStudio Ultimate X10 20.0.0.137 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879139.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ALLPlayer 4.6.0.0 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879128.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Aiseesoft HD Video Converter 8.1.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879084.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SIV (System Information Viewer) 5.08 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879082.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gilisoft Video Editor 7.2.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879077.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Aiseesoft Video Enhancer 1.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879071.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Tipard Video Converter Ultimate 9.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879069.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SamDrivers 14.3 - Сборник драйверов для Windows (DriverPack S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879054.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Proteus 8.1 SP1 Build 17358 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879038.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ SeaMonkey 2.40 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878991.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ K-Lite Codec Pack Update 12.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878988.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Aiseesoft Total Video Converter 9.0.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878975.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Gilisoft Full Disk Encryption 3.7.0 DC 07.03.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878972.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Aiseesoft DVD Creator 5.2.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878963.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ HDCleaner 2.008 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878935.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ JRiver Media Center 28.0.53 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878929.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ GeoGebra 6.0.664.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878927.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ ScreenToGif 2.33.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878926.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Slimjet 8.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878889.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NirLauncher Package 1.23.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878826.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Aiseesoft Data Recovery 1.2.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878815.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ShareX 13.6.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878812.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Gilisoft RAMDisk 6.5.0 DC 28.02.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878806.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Aiseesoft 4K Converter 8.0.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878797.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ DriverEasy Professional 4.9.15.21942 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878757.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Chromium 51.0.2676.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878685.jpg" />
 </div>
 
 

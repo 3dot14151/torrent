@@ -6,7 +6,7 @@ MultiWriter 1.0 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355361.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Java SE Development Kit 15.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355356.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355354.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FileZilla 3.51.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355353.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Google Chrome 86.0.4240.111 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355351.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Reg Organizer 8.56 Repack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355346.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ DxO PhotoLab Elite 4.0.0 build 4419 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355339.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ K-Lite Codec Pack 15.8.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355337.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Any Video Converter Ultimate 7.0.7 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355335.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinASO Registry Optimizer 4.8.0.0 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_355269.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chief Architect Premier X9 Build 19.3.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355259.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Red Giant Trapcode Suite 14.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355252.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Nero Burning ROM & Nero Express 2018 19.1.1005 Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355248.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Muse CC 2018.0.0.685 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355245.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.0.1.10 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355243.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ iSpring Suite 8.0.0 Build 11113 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355229.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VMware Workstation 12 Pro 12.0.1 build 3160714 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355223.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VirtualBox 6.1.16 Build 140961 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355218.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Adobe Dreamweaver CC 2018 18.0.0.10136 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355139.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Acrobat Pro DC 2015.009.20077 Lite Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355090.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VMware Workstation 12 Pro 12.0.1 build 3160714 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355089.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Open Shell (Classic Shell) 4.4.160 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355054.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe After Effects 2020 17.5.0.40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355043.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Total Commander 9.51 Extended 20.10 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355036.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Photoshop Lightroom Classic 10.0.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355009.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ FolderSizes 6.1.68 Professional Edition Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354970.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832848.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Trance Essentials Vol.1 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832835.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832832.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ DJ Nike Twist - TranceWave 137 @ GTI Radio (07.04.2016) [MP3|320 кб/с] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832830.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ CPU-Z 1.92.0 Portable by ALEX [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832822.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Kingdom (2020) / Царство [ТВ-3] [2020, TV, 4 из 26] WEB-DL 1080p Rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832815.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Zambezi - Родник (2013) [MP3|320 кб/с]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832810.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Debian GNU/Linux 7.0.0 Live [amd64] (4xDVD, 4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832792.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ RuntimePack 17.3.14 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832780.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Label Pack - Levitated Music - 63 Releases (2014 - 2017) [MP3|320 Kbps] <Trance,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832777.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832732.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10041 (x86, x64) (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832728.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10041 (x86, x64) (esd) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832727.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832715.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Sky Roses - Step Forward (2016) [MP3|320 кб/с] <Chill Trap, Future Bass, Chil
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832712.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Wondershare Filmora 9.4.6.2 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832694.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Internet Download Manager 6.37 Build 14 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832687.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VueScan Pro 9.7.27 + OCR Languages
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832686.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Easy Disc Burner 4.7.5.341 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832636.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Vigilante - Turning Point (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832633.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ C Y G N - Inside Out EP. (2015) [MP3|320 кб/с] <Chill Trap, Experimental, Fut
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832630.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832629.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Wise Care 365 Pro 4.13.398 RePack (&Portable) by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832562.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832559.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - Milchbar: Seaside Season 8 (2016) Compiled By Blank & Jones [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832556.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Gydra - Dystopia EP (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832555.jpg" />
 </div>
 
 

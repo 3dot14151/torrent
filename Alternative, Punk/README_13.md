@@ -6,7 +6,7 @@ We Came As Romans - We Came As Romans (2015) [MP3|320 кб/с]<Alt.Rock, Post-Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651196.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650225.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jonathan Davis (Korn) - Black Labyrinth (2018) [MP3|320 Kbps] <Alternative Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650059.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ FFS (Franz Ferdinand and Sparks) - FFS (2015) Deluxe Edition [MP3|320 кб/с]<I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649359.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Thousand Foot Krutch - Exhale (2016) [MP3|320 Kbps] <Alternative Rock, Christian
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649351.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bleeding Through - Love Will Kill All (2018) [MP3|320 Kbps] <Symphonic Metalcore
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648484.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Russkaja - No One is Illegal (2019) [MP3|320 Kbps] <Gypsy-Punk, Ska-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646679.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Annie Eve - Sunday '91 (2014) [MP3|320 кб/с]<Alternative, Indie Folk, Indie P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645781.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dominik Nicolas - La beaute de l'idee (2015) [OGG|489-536 кб/с]<Alternative, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645766.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lifehouse - Out Of The Wasteland (2015) Target Edition [MP3|320 кб/с]<Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645647.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Reel Big Fish - Candy Coated Fury (2012) [MP3|320 kbps] <Ska Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645348.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Nickelback - Feed The Machine (2017) [MP3|320 Kbps] <Post-Grunge, Alt. Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644255.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Down and Outlaws - Above Snakes (2016) [MP3|320 Kbps] <Alternative, Garage Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644109.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ HER - Revolution (2016) Special Edition [MP3|320 Kbps] <Alternative Pop, Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643806.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ On My Way - Апатия (2012) [MP3|320 кб/с]<Alternative Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643748.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Chevelle - The North Corridor (2016) [MP3|320 Kbps] <Alt.Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643678.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642962.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Pearl Jam - 16Albums+26Singles+2EP (1991-2011) [MP3|320 kbps]<Grunge/Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642751.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ She's So Rad - Tango (2015) [OGG|447-541 кб/с]<Alternative, Electronic, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641702.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ CG Bros. - Под Прицелом Врага (2011) [MP3|320 kbps]<Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639719.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Billy Talent - Afraid of Heights (2016) [MP3|320 Kbps] <Alternative Rock, Punk R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639684.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Scheuber - Shades (2019) [MP3|320 Kbps] <Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637659.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Circle of Dust - alt_Machines (2018) [MP3|320 Kbps] <Electronic, Industrial Meta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637382.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636957.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Sitcom - What's Up (2015) [MP3|320 кб/с]<Indie Rock, Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636165.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Ash - Kablammo! (2015) Deluxe Edition [MP3|320 кб/с]<Indie Rock, Alternative,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634194.jpg" />
 </div>
 
 

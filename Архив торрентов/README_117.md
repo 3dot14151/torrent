@@ -6,7 +6,7 @@ TweakPower 1.171 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027373.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 8.0.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027366.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Radio Silence 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027360.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PSPad 5.0.5 Build 567 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027359.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Windows 10 Manager 3.4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027341.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Cultist Simulator v3.5.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027338.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Any Video Converter Ultimate 7.1.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027335.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Spotify 1.1.54.592 Portable by JolyAnderson [En/Ru] (авторская разд
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027326.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ FreeTube 0.12.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027306.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ KineMaster - Pro Video Editor v4.13.4.15898.GP Mod by Unknown Author [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027286.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027280.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Bumpr 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027260.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Butler 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027259.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Middle 1.5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027258.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Posterino 3 v3.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027257.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ DockMate Beta 0.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027256.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ BetterZip 5 v5.1b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027255.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Photo Effects Pro 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027254.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ TextSoap 8 v8.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027251.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Backgrounds 9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027244.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ QuarkXPress 2020 16.3.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027232.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Advanced Installer 18.0 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027222.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Nexus VI - Enslaved (2021) [MP3|320 Kbps] <Electro-Industrial, EBM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027219.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Microsoft Edge 89.0.774.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027214.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ JRemote2 v2.0.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027202.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Wise Disk Cleaner 10.4.3.792 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027197.jpg" />
 </div>
 
 

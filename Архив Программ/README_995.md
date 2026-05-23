@@ -6,7 +6,7 @@ Ummy Video Downloader 1.7.0.2 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544673.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack 14.3.5 Mega/Full/Standard/Basic + Update  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544654.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BitDefender Antivirus Free Edition 1.0.20.1083 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544644.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Bitdefender Internet Security 2013 16.33.0.1897 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544631.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Google Chrome 68.0.3440.84 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544602.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Chromium 70.0.3506.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544598.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ MAGIX Sound Forge Pro 11.0 Build 341 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544552.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Glary Utilities Pro 5.122.0.147 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544535.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ PDF Shaper Professional 9.1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544531.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bandizip 6.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544523.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Daum PotPlayer 1.7.13622 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544508.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Google Chrome 68.0.3440.84 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544506.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Far Manager 3.0 Build 4747 Stable Portable by ThumbApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544489.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Far Manager 3.0 Build 4774 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544482.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Hirschmann Industrial HiVision 06.0.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544467.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ MAGIX Vegas Pro 13.0 Build 545 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544463.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ save2pc Ultimate 5.5.7.1586 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544454.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Office Tab 11.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544416.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ InPixio Photo Editor 1.5.6024 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544404.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ uTorrent Pro 3.4.8 Build 42576 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544399.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Opera 62.0.3331.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544361.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ K-Lite Codec Pack 14.3.6 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544356.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ MAGIX Vegas Pro 13.0 Build 545 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544329.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ DAEMON Tools Pro 7.1.0.0596 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544318.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ nLite 1.4.9.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544305.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ KMSAuto Lite 1.2.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544267.jpg" />
 </div>
 
 

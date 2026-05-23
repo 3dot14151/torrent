@@ -1,55 +1,3 @@
-###  Публикация: 1545130   (616379) от 18.04.2022
-
-Психиатрическая больница Конджиам / Gonjiam: Haunted Asylum / Gon-ji-am (2018) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После группового самоубийства 42 пациентов и исчезновения главврача 26 октября 1979 года психиатрическую больницу Конджиам закрыли. С тех пор это место притягивает любителей пощекотать нервы, и о нём ходят легенды — якобы здание населено призраками, и никому не удалось открыть дверь в зловещую комнату 402. Видеоблогер, ведущий шоу ужасов на YouTube, набирает команду (   Читать дальше...   )Производство: Корея Южная, Hive Mediacorp, Constantin Film, ZDFЖанр: УжасыРежиссер: Чон Бом-щикАктеры: Ви Ха-джун, Пак Чи-хён, Пак Сон-хун, О А-ён, Мун Е-вон, Ю Джэ-юн, Ли Сын-ук, Пак Чи-аПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, КорейскийСубтитры: Английские, корейские (PGS)Продолжительность: 01:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0FF386C5A8AB96ABF9123306B6C49B3AB45164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185308   (616325) от 16.07.2012
-
-Двадцать одно / 21 (2008) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Карточная игра — комбинация уникальных математических расчетов, превосходных актерских талантов и хладнокровной выдержки. Карточный игрок — человек особого склада. Молодые люди решили провернуть аферу века и разорить крупнейшие казино страны на астрономическую сумму. Они решили взять Вегас! Их пятеро. Игра захватила их целиком. Их игра поразила своей виртуозностью. (   Читать дальше...   )Жанр: ДрамаРежиссер: Роберт Лукетич.Актеры: Джим Стерджесс, Кевин Спейси, Кейт Босворт, Аарон Йу, Лиза Лапира, Джекоб Питтс, Лоренс Фишбёрн, Джек МакГи, Джош Гад, Сэм Голзари и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 02:02:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 180925   (616320) от 16.07.2012
 
 Внутри себя я танцую / Inside I'm Dancing (2004) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616320.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616310.jpg" />
 </div>
 
 
@@ -114,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616244.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616243.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616240.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616238.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616215.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616184.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616178.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616168.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616154.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616101.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616096.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616090.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616028.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616011.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616006.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616005.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616003.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616000.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615995.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615989.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615960.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615944.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A2CF154EB8A5B98A2E2C6CC0E4092245AD0C8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911726   (615926) от 23.06.2015
+
+Двойная игра / Gutshot Straight (2014) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заядлый картежник, оказывается в смертельной опасности из за своего хобби. Он игрок от бога, и это одновременно его дар и очень тяжелое бремя, ведь он постоянно испытывает жажду и потребность играть. Мир азартных игр очень опасен и коварен, там ты можешь сорвать большой куш и стать очень богатым человеком. но в то же время проиграв - можешь лишится всего своего богатства, (   Читать дальше...   )Производство: СШАЖанр: Боевик, ТриллерРежиссер: Джастин СтилАктеры: Джордж Идс, Анна-Линн МакКорд, Стивен Сигал, Винни Джонс, Стивен Лэнг, Тед Левайн, Тиа Каррере, Фиона Дуриф, Элси Фишер, Джон ЛьюисПеревод: Одноголосый закадровый, любительский (ХиХиДок)Продолжительность: 01:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF20AF1CF814090716F13F38AB148DC66AC7F872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684804   (615904) от 30.07.2013
+
+28 спален / 28 Hotel Rooms (2012) WEB-DLRip [Расширенная версия/Unrated]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина и женщина приезжают по работе в один и тот же город и останавливаются на ночь в одной гостинице. Через несколько месяцев они сталкиваются друг с другом в гостиничном ресторане другого города и второй раз проводят ночь вместе. Несмотря на то, что она замужем, а у него есть подруга, они решают продолжать встречаться. Так зарождается неожиданная любовь, постепенно (   Читать дальше...   )Производство: США |  Mott Street Pictures, OneZero ProductionsЖанр: ДрамаРежиссер: Мэтт РоссАктеры: Марин Айрлэнд, Крис Мессина, Роберт Димер, Бретт КольеПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: НТВ+Субтитры: ОтсутствуютПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750E12D57777D9124D94C75068976EDD30A78EFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ MAGIX Video Pro X13 19.0.1.129 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170172.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics BoostSpeed 13.0.0.6 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170168.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Reg Organizer 9.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170167.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Acrobat Reader DC 2019.021.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170165.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SamDrivers 21.11 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170152.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Firefox Browser ESR 91.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170144.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ O&O Defrag Professional 26.1 Build 7709 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170135.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Auslogics BoostSpeed 11.2.0.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170134.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ EaseUS Data Recovery Wizard Technician 15.8.1.0 Portable by FC Portables [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170131.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ HiBit Uninstaller 3.1.70 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170129.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PC Cleaner Pro 9.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170123.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe Audition 2020 13.0.1.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170120.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ LibreOffice 7.2.4.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170116.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Foxit PDF Reader 12.1.0.15250 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170106.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ CopyQ 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170089.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Rainmeter 4.5.6 Build 3573 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170082.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adobe Acrobat Pro DC 2019.021.20058 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170081.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinNTSetup 5.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170068.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Epic Pen Pro 3.12.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170055.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Luminar Neo 1.15.0.12363 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170050.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ HiBit Startup Manager 2.6.20 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170033.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Avira Phantom VPN Pro 2.29.2.24183 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170032.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Topaz Photo AI 2.0.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170029.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Total Commander 11.02 RC4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170026.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Topaz Video AI 4.0.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170019.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ EZ CD Audio Converter 11.3.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170015.jpg" />
 </div>
 
 

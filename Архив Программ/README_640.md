@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728242.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 7.36 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728236.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vivaldi 1.2.490.35 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728234.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Krita 3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728228.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VueScan Pro 9.5.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728210.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Artensoft Photo Collage Maker 2.0.109 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728206.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ASAP Utilities for Excel 7.3.1 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728189.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AusLogics BoostSpeed 9.1.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728101.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Autodesk AutoCAD LT 2018.0.2 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728095.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Acrobat Reader DC 2015.016.20045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728070.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CCleaner 5.18.5607 DC 01.06.2016 Free | Professional | Business | Technician Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728067.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Acrobat Pro DC 2015.016.20045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728065.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ KMS Tools Portable 01.06.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728019.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kinza Browser 5.3.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727845.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Vivaldi 2.3.1440.48 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727839.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ FBackup 9.5.510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727822.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mozilla Firefox Quantum ESR 60.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727751.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wise Registry Cleaner Pro 10.1.5.676 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727750.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727744.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sumatra PDF Pre-release + Portable 3.4.14268 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727739.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ FileZilla 3.58.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727736.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Google Chrome 72.0.3626.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727657.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Google Chrome 72.0.3626.119 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727650.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Auslogics Disk Defrag Free 8.0.23.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727646.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BurnAware Professional 3.2.0 RePack by Diablik94 [Rus/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_727609.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727592.jpg" />
 </div>
 
 

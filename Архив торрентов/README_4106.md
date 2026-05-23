@@ -6,7 +6,7 @@ O&O DiskImage Professional 18.4 Build 326 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172476.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Video AI for Mac 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172472.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ coconutBattery 3 Plus for Mac 3.9.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172470.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ reaConverter Pro 7.796 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172469.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Perfectly Clear WorkBench 4.6.0.2610 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172468.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Audio Hijack 4.2.5 fc1 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172467.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Draw.io 22.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172458.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Magnet 2.12.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172452.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VueScan Pro 9.8.18 (DC 18.10.2023) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172448.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Topaz Video AI 4.0.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172444.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ XY VPN - Security Proxy VPN 4.7.216 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172438.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ iStat Menus 6 v.6.72 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172435.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe Animate 2024 24.0.0.305 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172430.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Character Animator 2024 24.0.0.46 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172429.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Commander One PRO Pack 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172427.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Luminar Neo 1.14.1.12230 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172426.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Teorex Inpaint 10.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172425.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ CrossOver 23.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172424.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ The Bat! Professional 10.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172422.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Reg Organizer 9.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172421.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Parallels Desktop Business Edition 19 for Mac 19.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172419.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tails 5.18 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172405.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ CCleaner 6.17.10746 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172392.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 10.2023 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172370.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ EdgeView 4.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172369.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Noir – Dark Mode for Safari 2023.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172366.jpg" />
 </div>
 
 

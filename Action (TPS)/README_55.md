@@ -6,7 +6,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) License GOG [20 Year Cel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_649.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.4/dlc) Repack Decepti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_622.jpg" />
 </div>
 
 

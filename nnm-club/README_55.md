@@ -1,135 +1,3 @@
-###  Публикация: 1870076   (1068750) от 
-
-Алексей Небоходов | Не говори пустоте Да (Книга 2). Синкуб (2026) [MP3, Фибоначи]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В городе начинают исчезать мужчины. Не бомжи и не маргиналы – сильные, взрослые, состоявшиеся. Камеры фиксируют невозможное: мёртвые поднимаются и уходят. Следствие упирается в стену, за которой нет преступления в привычном смысле. Там – система, существующая веками, и те, кто питается чужой жизнью, оставаясь безнаказанными.«Синкуб» – мрачный детектив о власти, желании (   Читать дальше...   )Жанр: детектив, Мистика, УжасыИздательство: ЛитРесПродолжительность: 17:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B811C9BF0C96B75B2374AAF87950E19A3FFBF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870074   (1068749) от 
-
-Алексей Небоходов | Не говори пустоте Да (Книга 1). Не говори Пустоте Да (2025) [MP3, Фибоначи]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Двадцатипятилетней столичной чиновнице предлагают сделку: выйти замуж за покойника. Не ради романтики, конечно, а ради состояния в полмиллиарда долларов, особняка на холме и власти, о которой в Москве шепчут только на закрытых этажах. Любой нормальный человек сбежал бы, не оглядываясь. Но Алевтина Каглицкая, привыкшая брать от жизни по максимуму, решает сыграть в (   Читать дальше...   )Жанр: Детектив, Мистика, УжасыИздательство: ЛитРесПродолжительность: 18:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0682184CB5DF21E8B249472E4A218D32570CD7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870088   (1068748) от 
-
-Desktop.Calendar.Tray.OK 4.51 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Наличие календаря на рабочем столе Windows очень удобно. Например, вы можете быстро перейти к нужному месяцу или дате и просмотреть их с помощью этого инструмента рабочего стола Windows. Теперь вы можете видеть первый день недели, и обзор недели также очень удобен. Это не сложный инструмент планирования событий и уведомлений !
-Но это еще не все, календарь также покажет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7FDDF289DCDFCDDDB2A16E64BA42F99B8B057E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870089   (1068747) от 
-
-QuickTextPaste 9.51 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Программа поможет вам заранее вставить нужный вам текст в любое поле, сделать это можно путем нажатия горячих клавиш. Достаточно полезная фишка, если вы часто используете один и тот же текст. После запуска программы в выделенное поле надо вписать необходимый текст, потом прикрепить его к нужной клавише, дальше вы просто экономите время.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BC6F2D1A2679FEFBD617AA29888D37198866C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870091   (1068746) от 
-
-Print.Test.Page.OK 3.55 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Print.Test.Page.OK - это альтернативная портативная программа для печати тестовых страниц для всех операционных систем Windows, которая может быть очень полезной!
-Небольшой альтернативный инструмент для печати тестовых страниц действительно очень мал и может привести вас к цели без больших знаний в области ИТ или опыта работы с технологиями печати, и это всего лишь (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBC253B009DDB500F239683F1E92CBBFC4BB325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870063   (1068745) от 
 
 Теа Сандет | Голос Вессема (Книга 1-2) (2025-2026) [MP3, Полина Войченко]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068745.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068744.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068743.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068742.jpg" />
 </div>
 
 
@@ -245,7 +113,7 @@ FebruaryKr | Потерявший солнце (Том 1-2) (2025) [MP3, Люб�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068741.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068740.jpg" />
 </div>
 
 
@@ -300,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068739.jpg" />
 </div>
 
 
@@ -326,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068738.jpg" />
 </div>
 
 
@@ -352,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068737.jpg" />
 </div>
 
 
@@ -380,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068736.jpg" />
 </div>
 
 
@@ -408,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068735.jpg" />
 </div>
 
 
@@ -434,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068734.jpg" />
 </div>
 
 
@@ -462,7 +330,7 @@ QuickMemoryTestOK 5.44 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068733.jpg" />
 </div>
 
 
@@ -490,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068732.jpg" />
 </div>
 
 
@@ -517,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068731.jpg" />
 </div>
 
 
@@ -543,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068730.jpg" />
 </div>
 
 
@@ -569,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068729.jpg" />
 </div>
 
 
@@ -595,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068728.jpg" />
 </div>
 
 
@@ -621,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068727.jpg" />
 </div>
 
 
@@ -647,7 +515,7 @@ WILL: Follow The Light (2026) [Ru/Multi] (Build 23125391) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068723.jpg" />
 </div>
 
 
@@ -673,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068722.jpg" />
 </div>
 
 
@@ -684,6 +552,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42C3F8E451F4FCA14592B57CCB458BBE031B5418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870081   (1068721) от 
+
+Fan Control V267 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068721.jpg" />
+</div>
+
+
+###  Подробнее
+
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C336104D43A17A64CA36D1446FB918BF8A558CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870103   (1068720) от 
+
+DarkSwitch (2026) [Ru/Multi] (R26.0408.9102) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068720.jpg" />
+</div>
+
+
+###  Подробнее
+
+DarkSwitch - это вертикальный градостроительный симулятор на ветвях гигантского дерева. Защитите Древо от всепоглощающего тумана, мудро распоряжаясь огнем и светом. Раскройте тайны тумана, обладая скудными ресурсами и принимая сложные моральные решения.Тип издания: RepackРазработчик: Cyber TempleЖанр: СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655ABE984BCBD8D31AEA1270A03D11F3937A37B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870100   (1068717) от 
+
+The Coma 3: Bloodlines (2026) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в мир теней The Coma 3: Bloodlines, где оживают городские легенды, а за каждым поворотом таится опасность. Душа того, кто здесь погибнет, отделится от тела, и он больше никогда не очнётся... Убегайте и прячьтесь от монстров в 2D-хорроре The Coma 3: Bloodlines. Собирайте улики, разгадывайте загадки и узнайте, почему 3 главных персонажа оказались в этом (   Читать дальше...   )Тип издания: RepackРазработчик: Dvora Studio Co., Ltd.Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: КорейскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CDD02896849A17B03ADEBAA7F2B14C82157C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870125   (1068716) от 
+
+Тайная жизнь домашних животных / The Secret Life of Pets (2016 - 2019) BDRip 3D [H.264/1080p] [Дилогия] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делают домашние животные, пока хозяева пропадают на работе? С тоской смотрят в окно? Смиренно дремлют на коврике у двери? Как бы не так. Они ведут свою тайную жизнь.Производство: Япония, США, Франция / Universal Pictures, Illumination Entertainment, DentsuЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Крис Рено, Ярроу Чейни, Джонатан дель ВальПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:26:27 / 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092B570CA48389F178AD7627D7D5CFA75EF27225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870115   (1068715) от 
+
+Журнал | Эксперт №5 (28) (май 2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаИздательство: ООО "Эксперт.Медиа"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C8504B5D6DC4F34ED4686DAB800540FD072EDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

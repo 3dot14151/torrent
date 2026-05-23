@@ -1,84 +1,3 @@
-###  Публикация: 1817314   (3446) от 10.09.2025
-
-Аристарх Риддер | Центрфорвард (Книга 6). Новичок 6. Суперзвезда (2024) [MP3, Вячеслав Булавин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Колдер, Арт Росс, Харт, Конь и Кубок Стэнли в первый же сезон! Победа в Кубке Канады, рекордный контракт, статус главной звезды мирового хоккея и бонусом самая красивая девушка Миннесоты. Неплохо!
-Но нужно больше. Команда сама династией не станет, её нужно сделать такой. Так что, погнали дальше! Впереди мой второй сезон в НХЛ!Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 07:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCB87CC618F84F15F1B7D2000FFD7A4663B093E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817411   (3438) от 10.09.2025
-
-Александр Тамоников | Спецназ Берии. Человек в прицеле (2025) [MP3, Юрий Гуржий]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-1944 год. Несмотря на окончание боевых действий на советской территории и начало освобождения Восточной Европы, московская атмосфера остается напряженной. Контрразведка продолжает бдительно следить за ситуацией. В столице действует немецкая диверсионная группа под руководством предателя с позывным «Феникс». Эта группа занимается подрывами стратегических объектов (   Читать дальше...   )Жанр: Боевик, шпионскийИздательство: ЭксмоПродолжительность: 07:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987EE7AA5CB96FAAEEB1846634C1FD20B0392130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817309   (3437) от 10.09.2025
-
-Аристарх Риддер | Центрфорвард (Книга 2). Новичок 2. Чемпион (2024) [MP3, Вячеслав Булавин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Со сверкающего льда олимпийского финала на больничную койку нижнетагильской больницы образца лета 1987 года. Вместо белоснежных песков Флориды, виллы на берегу Мексиканского залива и капитанской нашивки в лучшей команде НХЛ - стальное уральское небо и однокомнатная квартира.
-Вот что приготовила мне судьба.
-Но я не зря был одним из лучших в своем времени. Если там (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 07:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9756E63F15BE8DA3D346868B650EBBFBFB1F677D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817317   (3436) от 10.09.2025
 
 Аристарх Риддер | Центрфорвард (Книга 8). Новичок 8. Легенда (2025) [MP3, Вячеслав Булавин]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3436.jpg" />
 </div>
 
 
@@ -114,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3435.jpg" />
 </div>
 
 
@@ -140,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3434.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3429.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3367.jpg" />
 </div>
 
 
@@ -221,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3348.jpg" />
 </div>
 
 
@@ -250,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3346.jpg" />
 </div>
 
 
@@ -276,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3344.jpg" />
 </div>
 
 
@@ -302,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3341.jpg" />
 </div>
 
 
@@ -330,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3340.jpg" />
 </div>
 
 
@@ -356,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3326.jpg" />
 </div>
 
 
@@ -382,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3324.jpg" />
 </div>
 
 
@@ -408,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3323.jpg" />
 </div>
 
 
@@ -435,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3321.jpg" />
 </div>
 
 
@@ -462,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3320.jpg" />
 </div>
 
 
@@ -491,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3319.jpg" />
 </div>
 
 
@@ -517,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3316.jpg" />
 </div>
 
 
@@ -543,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3314.jpg" />
 </div>
 
 
@@ -572,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3312.jpg" />
 </div>
 
 
@@ -599,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3310.jpg" />
 </div>
 
 
@@ -625,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3306.jpg" />
 </div>
 
 
@@ -654,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3305.jpg" />
 </div>
 
 
@@ -683,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3304.jpg" />
 </div>
 
 
@@ -697,6 +616,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:785F84BED603816615533A8B2267648BBD9DDDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817386   (3302) от 11.09.2025
+
+Дмитрий Чайка | Меня зовут Заратуштра (Книга 5). Когда будущее стало чужим (2025) [MP3, Дмитрий Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является развитием боковой сюжетной линии серии «Меня зовут Заратуштра», которая объясняет исчезновение ГГ в 3 и 4 книге.
+Наш современник, попавший в прошлое, и сделавший там головокружительную карьеру, решает вернуться назад. Но оказалось, что его отчаянные пляски по бабочкам изменили все слишком сильно. Того будущего, что он помнит, уже нет. Нет целых (   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: ЛитРесПродолжительность: 08:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB43F5979C8B94FB616D111719ECEC5FD278B16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817403   (3299) от 11.09.2025
+
+Михаил Ланцов | Фрунзе (Книга 4). Para bellum (2024) [MP3, Антон Макаров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задумка «западных партнеров» по использованию против Союза своего «боевого хомячка» - Польши, провалилась. Равно как и мятеж националистов, не сумевших добиться отделения УССР. Но ничто на Земле не проходит бесследно. И Англия с Францией сделали нужные выводы, начав активно готовиться к новой фазе борьбы с растущей мощью Союза.
+Наступал Interbellum – время активной (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 13:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1474F14A4BFDBAF8174E747FD756BB944326BCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817418   (3298) от 11.09.2025
+
+Сергей Булл, Евгений Астахов | Небеса умоются кровью (Книга 6). Под Знаменем Империи (Том 2) (2025) [MP3, Вадим Кривошеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тучи сгущаются над Империей, и с трудом завоёванная победа оказывается лишь краткой передышкой. Враг не дремлет, и его грозная тень вот-вот накроет земли людей. Но даже в столь отчаянный час раскол и интриги подтачивают единство гвардейцев, а верность клятве может обернуться тяжким бременем. Когда пламя войны разгорится в полную силу, на кону окажется не только судьба (   Читать дальше...   )Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 09:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4735899E3DF9D6ADEE2B1783723C1A405F2D798F
 ```
 
 https://mybot314.ru/tekegram_catalog/

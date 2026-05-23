@@ -6,7 +6,7 @@ Opera 65.0.3467.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219909.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.35 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219857.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adblock Plus 2.7 for Mozilla Firefox [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219852.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fast Menu 2.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219845.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AIMP 4.00 Build 1678 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219835.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SamDrivers 20.11 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219833.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BurnAware Professional 12.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219815.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ TeamViewer Free 11.0.53254 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219792.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BurnAware Professional 12.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219768.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adblock Plus 1.9.4 for Google Chrome / Opera / Safari [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219766.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 10.2022 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219749.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Emurasoft EmEditor Professional 19.4.0 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219747.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ XMedia Recode 3.2.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219740.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ StartIsBack 1.2.1 RePack by CRD [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219723.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Google Chrome 47.0.2526.106 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219709.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219704.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Freemake Video Converter 4.1.9.2 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219703.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Auslogics Disk Defrag Professional 4.8.1.0 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219697.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ AAct 3.0 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219689.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Telegram Desktop 1.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219686.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Microsoft Edge 96.0.1054.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219668.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Auslogics Duplicate File Finder 6.1.0.0 DC 01.12.2016 RePack by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219665.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Clipdiary 5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219660.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219635.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ PDF-XChange Editor Plus 7.0.328.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219630.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Topaz Mask AI 1.0.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219623.jpg" />
 </div>
 
 

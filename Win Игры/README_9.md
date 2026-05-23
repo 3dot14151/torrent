@@ -6,7 +6,7 @@ VASILISA (2025) [Ru/Multi] (Build 21812276) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063452.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ A Rat's Quest - The Way Back Home (2026) [Ru/Multi] (1.0.0) Repack Let'sРlay [S
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063451.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Biped 2 (2025) [Ru/Multi] (2.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063381.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Xenonauts 2 (2023) [Ru/Multi] (7.18.3) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063374.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Darwin's Paradox! (2026) [Ru/Multi] (1.0.1.24747/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063373.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Weeping Swan: Ten Days of the City's Fall (2026) [Ru/Multi] (1.3) Repack Oth
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063372.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Clue/Cluedo (2023) [Ru/Multi] (738449/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063340.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Crown of Greed (2026) [Ru/Multi] (1.0.4f1/dlc) Repack Let'sРlay [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063284.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hozy (2026) [Ru/Multi] (Build 22569174) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063279.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ All Will Fall (2026) [Ru/Multi] (1.0.1f1) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063271.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Artisan of Glimmith (2026) [Ru/Multi] (Build 22658641) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063238.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mindseye (2025) [Ru/Multi] (6508009/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063236.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ I Am Jesus Christ (2026) [Ru/Multi] (1.1.8) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063235.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Headquarters: Cold War (2026) [Ru/Multi] (1.01.04) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063234.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ I Am Jesus Christ (2026) [Ru/Multi] (1.1.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063121.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.1.0_476053/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063120.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Super Meat Boy 3D (2026) [Ru/Multi] (1.2.34) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063108.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ All Will Fall (2026) [Ru/Multi] (1.0.9f1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063045.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ GRIME II (2026) [Ru/Multi] (1.0.17551e) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063044.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Modulus Factory Automation (2026) [Ru/Multi] (1.0.1/dlc) Repack Let'sРlay [Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063043.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Xenonauts 2 (2023) [Ru/Multi] (7.18.7) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063042.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Stellar Tactics (2016) [Ru/Multi] (1.01/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063040.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Origament A Paper Adventure (2026) [Ru/Multi] (1.8.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063024.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Eastern Era (2026) [Ru/Multi] (1.0.18) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063009.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Crown of Greed (2026) [Ru/Multi] (1.0.0f5/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063001.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.123) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062938.jpg" />
 </div>
 
 

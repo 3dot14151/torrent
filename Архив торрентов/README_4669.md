@@ -6,7 +6,7 @@ TuneIn Radio Pro v37.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70848.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Lasso Pro 15.1.0.19 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70847.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Disk Cleaner 11.2.0.837 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70844.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PrivaZer Pro 4.0.98 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70843.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Desktop Calendar 3.21.222.6986 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70840.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Perfectly Clear WorkBench 4.6.1.2717 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70839.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Balabolka 2.15.0.887 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70835.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PhotoDirector v19.11.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70829.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PrivaZer Pro 4.0.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70816.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sante DICOM Editor 10.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70791.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sante DICOM Viewer Pro 14.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70789.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ O&O DiskImage Professional 20.2 Build 343 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70750.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Photo Supreme 2024.2.2.6715 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70745.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Taskito v1.1.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70743.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70739.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft Visual Studio 2022 Community 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70738.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70728.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.44 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70723.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Alfa eBooks Manager 9.0.240.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70704.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ TikTok Private Plus (PayBack Edition) v38.7.5 Mod by TikTok Updates [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70702.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Alfa eBooks Manager 9.1.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70698.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Telegram Desktop 5.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70683.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PrivaZer Pro 4.0.99 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70655.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Beyond Compare Pro 5.0.5.30614 RePack (& Portable) by elchupacabra (14.02.2025) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70647.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70630.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Process Lasso Pro  15.1.0.41 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70628.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1138281   (664064) от 29.05.2017
-
-BBC: Horizon. Проект "Гринглоу". В поисках контроля гравитации (Управлять гравитацией) / Project Greenglow The Quest for Gravity control (2016) HDTVRip [H.264/720p-LQ] (сезон 52 эпизод 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Уже 200 лет человечество мечтает покорить гравитацию. В середине 90-х британский концерн запустил программу «Зеленое мерцание», которая привела к созданию фантастических технологий. В то же время НАСА начала свою программу исследования возможности путешествий со скоростью больше скорости света и создания двигателей деформации пространства. Подчинится ли человеку (   Читать дальше...   )Производство: Великобритания, Science Production LondonЖанр: Документальный, научно-популярныйРежиссер: Ник ЯнгПеревод: Двуголосый закадровый, профессиональный (Позитив)Субтитры: отсутствуютПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863A94A2791FF41FE525D03A0CDEBCA89CBCF394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224887   (663761) от 12.05.2018
 
 BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [H.264/1080p] (Серии 1-5 из 5) [PR]
@@ -32,7 +6,7 @@ BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663761.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Первобытные поселенцы Америки / Traking the Firs
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660110.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Viasat Nature: BBC: Экспедиция в Новую Гвинею / Expedition
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657915.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC. Как построить ядерную электростанцию / How
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656036.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ BBC. В краю муссонов: В ожидании дождя / Wonders of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653088.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC: Horizon. Самая экстремальная погода во Вселе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651958.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC. Horizon. Наблюдая звёзды / Horizon. Seeing Stars (2011) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649419.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC. Horizon. Можно ли верить своим глазам? / Horizon. I
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649206.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BBC: Магия грибов (Тайная жизнь грибов) / The Magic 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647014.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ BBC. Заснеженный птенец или История одного пи
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646631.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ BBC: Viasat History. Бразды правления. Балет на лошад
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644709.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ BBC: Солнечные бури: угроза планете Земля? / Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643462.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641033.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BBC: В краю муссонов / Wonders of the Monsoon (2014) [BDRip/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634977.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ BBC: Код / The Code (2011) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633346.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ BBC: Большие птицы с Дэвидом Аттенборо / BBC Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631694.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631106.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629324.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625365.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ BBC: Жизнь с холодной кровью / Life in Cold Blood (2006) DVD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625294.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624679.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ BBC: Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624338.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ BBC: Третья мировая война: взгляд из командно�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624161.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ BBC: Веллингтон - железный герцог без маски / We
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623774.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ BBC. Самая дикая мечта. Покорение Эвереста / The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623201.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ BBC. Самая дикая мечта. Покорение Эвереста / The
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:338B85DA1C736D88F39764869B05364C7F191789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229833   (622535) от 08.06.2018
+
+BBC: Амазонка с Брюсом Перри / Amazon with Bruce Parry (2008) HDTV [H.264/1080i-LQ] (Сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амазонка величайшая по своим размерам, длине и полноводности река. Брюс Перри, бывший офицер английской морской пехоты, а ныне путешественник, покажет вам великую Амазонку во всей её красоте и силе.Производство: Великобритания, BBCЖанр: Документальный, природа, путешествияРежиссер: Стив Робинсон, Мэт Брэндон, Роб Салливан, Джеймс СмитПеревод: Одноголосый закадровый, профессиональный (Селена Интернэшнл)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0089DFDD7780B1937945BD2CF45CBDA6E1B2AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1132920   (797062) от 25.05.2020
-
-STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-STRAFE® - самый динамичный, кровопролитный и убойный боевик в стиле 90-х и с видом от первого лица. Устройте врагам мясорубку и залейте кровью все вокруг! Однако имейте в виду: на исследование леденящих кровь уровней вам отведена всего одна жизнь. После смерти все будет уже совсем иначе.Тип издания: LicenseРазработчик: Pixel TitansЖанр: Шутер, От первого лица, ФантастикаЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E26C56CEAF1672F8A63A70662E5AA8E33E4CF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200106   (796786) от 19.01.2018
 
 Full Metal Furies (2018) [Ru/Multi] (1.0.0-22R) License PLAZA
@@ -32,7 +6,7 @@ Full Metal Furies (2018) [Ru/Multi] (1.0.0-22R) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796786.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Chronology (2014) [Ru/Multi] (1.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796781.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796780.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Midnight: Submersion - Nightmare Horror Story (2021) [En] (2020.3.16.302446) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796737.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Nantucket (2018) [En] (1.0a) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796728.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796725.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lumini (2015) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796718.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Kill to Collect (2016) [En/Multi] (1.1.0.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796673.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Wailing Heights (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796611.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Hyperdevotion Noire: Goddess Black Heart (2016) [En/Jp] (1.0/dlc) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796605.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Planetoid Pioneers (2016) [En] (Build 0) Repack Other s [Contributor Edition]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796602.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Celestian Tales: Realms Beyond (2020) [En] (1.0.14) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796491.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Jet Lancer (2020) [Ru/Multi] (1.0.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796489.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796130.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dead or Alive 5: Last Round (2015) [Ru/Multi] (1.10c/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796082.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ World of Warcraft (2008) [En] (1.12.1) Unofficial
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796013.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Trial by Viking (2016) [En] (1.0.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795895.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Collider 2 (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795858.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795816.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Tale of Wuxia (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795815.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ LEGO The Hobbit (2014) [Ru/En] (1.0.0.21750) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795761.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Abyss Odyssey (2014) [Ru/En] (1.14) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795463.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Human: Fall Flat (2016) [Ru/Multi] (107976214) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795421.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04/dlc) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795401.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Gorogoa (2017) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795395.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Gorogoa – изящное развитие жанра головоломок, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F5D402FC364A8006A42CFDB2E7E51D622F07BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416228   (795372) от 11.11.2021
+
+Neverending Nightmares (2014) [Ru/Multi] (3.3.22469) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neverending Nightmares — это психологический хоррор, созданный на основе настоящей психологической проблемы разработчика, и её лечении. Томас просыпается в ужасе после кошмара и обнаруживает, что сон продолжается. Он начинает спускаться всё глубже в кошмар. От ужасных призраков нужно прятаться, от своих страхов — убегать. Ему придётся разобраться, какие из встреченных (   Читать дальше...   )Тип издания: LicenseРазработчик: Infinitap GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962991AB2C679BB17DFF45F641FF61AA325DAA11
 ```
 
 https://mybot314.ru/tekegram_catalog/

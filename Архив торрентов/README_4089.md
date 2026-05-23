@@ -6,7 +6,7 @@ OmniFocus Pro 3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MAGIX SOUND FORGE Audio Cleaning Lab 3 25.0.0.43 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174815.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fork 2.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174814.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mimestream 1.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174806.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ BlueStacks App Player 4.240.30.1002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174803.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe InDesign 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174793.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174786.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ RightFont 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174784.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Scrivener 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174780.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ BELOFF [dp] 2022.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174758.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dynamic Wallpaper Engine 16.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174752.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adobe Illustrator 2021 v25.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174731.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Office 2013-2021 C2R Install + Lite 7.4.9.1 b03 ++ Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174706.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ GeoGebra 6.0.805.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174701.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ ForkLift 4 v.4.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174685.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Q-Dir 11.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174681.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Waterfox Current G6.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174676.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Topaz Photo AI 2.0.4 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174665.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Live Home 3D Pro Edition 4.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174653.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Topaz Video AI 3.5.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174646.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Hazel 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174641.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Adobe Flash Player 32.0.0.465 (Web Installer) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174634.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ WinRAR 6.00 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174629.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Firefox Browser 118.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174621.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Sumatra PDF 3.5.15706 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174618.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Music Collection 3.6.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174614.jpg" />
 </div>
 
 

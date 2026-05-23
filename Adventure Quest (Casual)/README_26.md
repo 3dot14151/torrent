@@ -6,7 +6,7 @@ Shattered Minds 2: Encore / Разбитый мозг: Рецидив (P) [Ru] 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637044.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Marooned 2: Secrets of the Akoni / Покинутая 2. Секреты Акон
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637038.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Grim Facade: Sinister Obsession Collector's Edition / Тайный Орден 2:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636914.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Grim Facade: Sinister Obsession Collector's Edition / За гранью жест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636708.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Danse Macabre 4: Thin Ice (2015) [En] Unofficial [Collector's Edition / Колл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636049.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ New York Mysteries 2: High Voltage (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635973.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Secrets of the Dark: The Flower of Shadow / Тайны Тьмы: Цветок Т
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635434.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mystery Tales 11: Dealer's Choices (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635376.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ What Makes You Tick: A Stitch in Time / WMYT: Всему свое время (P)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635056.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dark Dimensions 7: Blade Master / Темные измерения 7: Масте�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633946.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Labyrinths of the World 2: Forbidden Muse (2015) [En] Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633860.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Demon Hunter 5: Ascendance / Охотник на демонов 5: Тайна м
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633491.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shtriga: Summer Camp / Штрига: Летний лагерь (2014) [Ru] (1.0)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631698.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Spirits of Mystery 8: Illusions / Тайны духов 8: Иллюзии (2017)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631208.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Endless Fables 4: Shadow Within (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629775.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Nevertales 8: The Abomination / Несказки 8: Мерзость (2019) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627689.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Surface 11: Strings of Fate / Внешние пределы 11: Линии су�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627239.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Small Town Terrors 3: Galdor's Bluff / Террор в городке 3: Бле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625687.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Mythic Wonders: The Philosopher's Stone / Мифические чудеса: Ф�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625425.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tales of Lagoona: Orphans of the Ocean / Сказочная Лагуна: Сир
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624674.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dark Tales 15: Edgar Allan Poes. Speaking with the Dead / Тёмные исто�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623970.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Grim Tales 3: The Wishes Collectors Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622857.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Edge of Reality 5: Great Deeds (2019) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622380.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Halloween Chronicles: Monsters Among Us / Хроники Хэллоуина: М�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620478.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Grim Facade 6: Hidden Sins (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620242.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Ominous Objects 2: Phantom Reflection / Зловещие вещи 2: Иллюз�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619702.jpg" />
 </div>
 
 

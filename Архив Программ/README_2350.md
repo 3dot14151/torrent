@@ -6,7 +6,7 @@ ExamDiff Pro 16.0.1.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1639.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Serif Affinity Designer 2.6.3.3322 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1631.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Gigapixel 1.0.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1528.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Imagine 2.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1489.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vivaldi 7.6.3797.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1435.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MassTube Ultra 21.0.2.166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1197.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Native Instruments - Kontakt 8.7.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1161.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Internet Download Manager 6.42 Build 46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1039.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MassTube Ultra 21.0.2.166 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1006.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Internet Download Manager 6.42 Build 46 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_856.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Internet Download Manager 6.42 Build 47 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_606.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Internet Download Manager 6.42 Build 47 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_571.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Display Driver Uninstaller 18.1.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_534.jpg" />
 </div>
 
 

@@ -1,83 +1,3 @@
-###  Публикация: 1543128   (633554) от 09.04.2022
-
-Франсис Карсак | Тераи Лапрад (Книга 1). Горы Судьбы (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Эта повесть является вводной частью цикла, основной частью которого является приключенческий роман Карсака "La vermine du lion", но при этом может рассматриваться как самостоятельное произведение. Тераи - олимпийский чемпион и профессиональный геолог. Его родители-ученые погибли от рук фанатиков. Когда произошло нападение на лабораторию родителей, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6299900DCC00428FF876F3940B6D11269BD0E373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908255   (633482) от 14.06.2015
-
-Ричард Лаймон | Подвал (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга первая - "Подвал". Переначитка по новому, полному переводу.
-Отличный развлекательный ужастик. Можно сказать, эталонный сплаттерпанк, настоящая классика, написанная в ту пору, когда жанр только зарождался. На момент написания дебютный роман Ричарда Лаймона радовал сравнительно нестандартным подходом к теме "нехорошего" дома, увлекательным (   Читать дальше...   )Жанр: Фэнтези, ужасы, мистикаПродолжительность: 08:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE25EFE3009CDE49FE34EB8001FECC6C14F38A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543161   (633442) от 09.04.2022
-
-Тим Волков | Кровь химеры (2021) [MP3, Борис Токарев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ярость никогда не исчезает. Она копится. Просачиваясь сквозь раны, оседает на самое дно, где до времени пребывает в кромешной тьме. Но каждый сосуд души имеет свои объемы и приходит час, когда ярость, хлестнув через край, вырывается наружу.
-Огонь злости испепеляет всё на своем пути, жажда мести требует новых жертв. Что может остановить и погасить пламя? Только кровь.Жанр: Боевое фэнтезиПродолжительность: 10:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6629D685DDA64C2D38FA75F84D2CF347A433B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543005   (633293) от 09.04.2022
 
 Мила Бачурова, Василий Криптонов | Гром гремит дважды (Книга 1) (2021) [MP3, Михаил Алексеев]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633293.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633276.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633265.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633260.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633164.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633154.jpg" />
 </div>
 
 
@@ -245,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633153.jpg" />
 </div>
 
 
@@ -271,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633143.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633138.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633016.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632848.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632762.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632739.jpg" />
 </div>
 
 
@@ -430,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632661.jpg" />
 </div>
 
 
@@ -457,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632603.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632394.jpg" />
 </div>
 
 
@@ -511,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632096.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632092.jpg" />
 </div>
 
 
@@ -564,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631991.jpg" />
 </div>
 
 
@@ -590,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631989.jpg" />
 </div>
 
 
@@ -618,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631848.jpg" />
 </div>
 
 
@@ -644,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631837.jpg" />
 </div>
 
 
@@ -673,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631707.jpg" />
 </div>
 
 
@@ -685,6 +605,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A3D3CB6F97A72A9F8B81BF4DD88C29AE4A801F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543188   (631676) от 10.04.2022
+
+Саймон Скэрроу | "Орел" Книга 3. Орел нападает (2022) [MP3, Александр Городиский]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Промозглой зимой 44 года от Рождества Христова римские силы в Британии с нетерпением ожидали наступления весны, чтобы возобновить кампанию по завоеванию острова. Непокорные бритты тем временем становились все более изощренными в своем сопротивлении, не гнушаясь нанести римлянам удар в спину.
+
+Захвачены в плен жена и дети генерала Плавта, центуриону Макрону и его (   Читать дальше...   )Жанр: Историческая литература, ПриключенияПродолжительность: 12:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DA10B4B755FFE8A42806124839F597AE98F147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228791   (631664) от 03.06.2018
+
+Александр Бачило | Академонгородок (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нечистая сила становится Силой, только если в нее верят. А как прикажете заставить людей поверить в русалок и вурдалаков, если на дворе – 1957 год и на месте древнего города Демонов того и гляди начнут очередную коммунистическую стройку убежденные материалисты? Главному злодею – Стылому Мороку – предстоит долгая и кропотливая работа… В принципе, эта книга была бы (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 10:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B924895BA4C624FA432879502AB6CE06E2149FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143907   (631637) от 20.06.2017
+
+Станислав Родионов | Диско-бар (2017) [MP3, Николай Козий]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ленинградский писатель Станислав Родионов в своих остросюжетных повестях возвращается к давно волнующей его теме: расследованию преступлений. Причем нарушение закона автор исследует прежде всего как следствие нарушения нравственных, этических норм.
+Автора интересуют глубинные корни как общественных явлений, так и поступков каждого отдельного человека.Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 03:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B2762C6195C14DC308573303CE05DDA0A6F697
 ```
 
 https://mybot314.ru/tekegram_catalog/

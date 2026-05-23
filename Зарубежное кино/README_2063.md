@@ -1,55 +1,3 @@
-###  Публикация: 467676   (82100) от 14.03.2012
-
-Полночь в Париже / Midnight in Paris (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Писатель и безнадежный романтик, уверенный в том, что должен был жить в 1920-е годы, приезжает в Париж со своей возлюбленной на каникулы и попадает в прошлое. Встречаясь там с Хемингуэем, Пикассо, супругами Фицжеральдами, Гертрудой Стайн он понимает, что принадлежит этому времени и хочет остаться там навсегда.Производство: США, Испания / Gravier Productions, Mediapro, Televisiо de Catalunya (TV3)Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Вуди АлленАктеры: Оуэн Уилсон, Рэйчел МакАдамс, Курт Фуллер, Мими Кеннеди, Майкл Шин, Карла Бруни, Морис Зонненберг, Тьерри Ханчиссе, Эдриан Броуди, Марион Котийяр, Кэти Бейтс, Том ХиддлстонПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:30:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465760   (82098) от 14.03.2012
-
-Переростки / The Inbetweeners Movie Movie (2011) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Устав от своих проблем, четверо восемнадцатилетних приятелей подростков с юга Англии отправляются на двухнедельный отдых-мальчишник в Грецию.Жанр: КомедияРежиссер: Бен ПалмерПродюсер: Кристофер Янг, Дэймон Бисли, Айэйн МоррисАктеры: Саймон Бёрд, Джеймс Баккли, Блейк Харрисон, Джо Томас, Эмили Хэд, Лидия Роуз Бьюли, Лаура Хэддок, Тамла Кэри, Джессика Нэппет, Тео Барклем-БиггзПеревод: ДублированныйПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467874   (82089) от 14.03.2012
 
 Случайный муж / The Accidental Husband (2008) BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82089.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82085.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82077.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82061.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82029.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81976.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81945.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81941.jpg" />
 </div>
 
 
@@ -273,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81936.jpg" />
 </div>
 
 
@@ -299,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81930.jpg" />
 </div>
 
 
@@ -325,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81914.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81879.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81865.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81819.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81810.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81734.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81725.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81723.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81708.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81700.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81687.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81674.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81652.jpg" />
 </div>
 
 
@@ -664,13 +612,65 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81649.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Невероятная, сексуальная и легендарная Мэрилин Монро отправляется в Англию для съемок в новом фильме. Она очаровывает и покоряет всех, включая юного ассистента режиссера Колина. Но что чувствует сама Мэрилин? Может ли она влюбиться в неопытного юношу? И каково это — быть Мэрилин Монро?Жанр: Мелодрама, КомедияРежиссер: Саймон КертисАктеры: Мишель Уильямс, Кеннет Брана, Эдди Редмэйн, Джуди Денч, Джулия Ормонд, Пип Торренс, Эмма Уотсон, Джеральдин Сомервилль, Майкл Кичен, Миранда РэйсонПеревод: Дублированный, Профессиональный многоголосый (закадровый)Язык субтитров: русскийПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466583   (81621) от 12.03.2012
+
+Прикованная к постели (Картахена) / L'homme de chevet (Cartagena) (2009) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колумбия. Лео бывший чемпион мира по боксу в полусреднем весе, а теперь просто местный пьяница. Мюриэль — богатая капризная француженка, парализованная после автомобильной аварии. Ей нужна сиделка со знанием французского и Лео, которому отчаянно нужны деньги, соглашается на эту незавидную для него роль. Ненавидя друг друга, два разных человека пытаются сосуществовать рядом. Но от ненависти до любви — всего лишь один шаг…Жанр: ДрамаРежиссер: Алан МоннАктеры: Софи Марсо, Кристофер Ламберт, Маргарита Роза Де Франциско, Родольфо Де СоузаПеревод: Двуголосый закадровыйЯзык субтитров: русский, французскийПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466684   (81606) от 12.03.2012
+
+Человек, который хотел оставаться собой / The Big Picture / L'homme qui voulait vivre sa vie (2010) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Поль — сотрудник одной из адвокатских контор Парижа с большой зарплатой и большим домом, красивой женой и двумя сыновьями. Однако вскоре Поль узнает, что его жена изменяет ему с местным фотографом. Слепая ярость толкает Поля на безрассудный поступок. Стоя над трупом любовника, он понимает, что его красивая благополучная жизнь в прошлом…Жанр: ДрамаРежиссер: Эрик ЛартигоАктеры: Ромен Дюри, Марина Фоис, Нильс Ареструп, Бранка Катич, Катрин Денёв, Эрик РуфПеревод: Двухголосый закадровыйПродолжительность: 01:55:17
 
 ## Скачать торент
 ```bash

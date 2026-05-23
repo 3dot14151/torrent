@@ -1,29 +1,3 @@
-###  Публикация: 1674272   (161918) от 04.11.2023
-
-One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Двенадцать личностей с глубоко проработанными характерами, чьи судьбы переплетаются одной страшной ночью, которую вам предстоит пережить. Каждое ваше решение, каждое неосторожно брошенное слово, меняет ход событий. Любой из двенадцати, может стать жертвой и любой может оказаться убийцей, а значит, каждый раз Вас ждет новое приключение. Однако поимка маньяка, разгадка (   Читать дальше...   )Тип издания: SceneРазработчик: ViviLatviaЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E400F25CF0EB95E2D3E50D90883641EB31D71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826447   (161818) от 19.10.2025
 
 El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
@@ -32,7 +6,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161818.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Scrapland Remastered (2021) [Ru/Multi] (1.1/1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161765.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161617.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161560.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161552.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160914.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (673723) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160882.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160784.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160748.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160738.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160737.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159709.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159530.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159515.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156531.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156455.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156341.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156313.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155178.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154920.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154588.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154485.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153670.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153259.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153010.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Oxenfree – это триллер о сверхъестественных си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D98CD380EEA7DFCE2EDF4E2479B191CBDB18CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784335   (153001) от 27.12.2014
+
+Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153001.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеких горах Колорадо, ужасы творятся в лечебнице Маунт Мэссив. Учреждение было давно заброшено, но недавно восстановлено под программой «исследования и благотворительность» транснациональной корпорации Муркофф. До сих пор все в лечебнице проходило в полной секретности... Действуя по наводке от внутреннего источника, независимый журналист Майлс Апшур проникает (   Читать дальше...   )Тип издания: SteamRipРазработчик: Red BarrelsЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Бразильский, Португальский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Бразильский, Португальский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
 ```
 
 https://mybot314.ru/tekegram_catalog/

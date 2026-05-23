@@ -1,31 +1,3 @@
-###  Публикация: 1545097   (28123) от 10.02.2025
-
-Советское телевидение. Гостелерадиофонд [Ш-Щ-Э-Ю-Я] (2025) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции YouTube канала "Советское телевидение. Гостелерадиофонд" по состоянию на февраль 2025 года.
-
-Настоящая телевизионная летопись всех сторон жизни СССР: уникальные и редкие записи, первые телесериалы, шедевры советской документалистики, научно-популярные и учебные фильмы и программы, линейки культовых программ, таких как "В мире (   Читать дальше...   )Жанр: Документальный, Искусство, История, ТелепередачаПродолжительность: 436:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD66AD48C3733FCC15ED2AB434A975661859A2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542713   (28098) от 10.02.2025
 
 Советское телевидение. Гостелерадиофонд [О] (2025) WEBRip [H.264]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28098.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28097.jpg" />
 </div>
 
 
@@ -90,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28090.jpg" />
 </div>
 
 
@@ -118,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28087.jpg" />
 </div>
 
 
@@ -146,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27976.jpg" />
 </div>
 
 
@@ -172,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27958.jpg" />
 </div>
 
 
@@ -198,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27668.jpg" />
 </div>
 
 
@@ -224,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27497.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27395.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27233.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26768.jpg" />
 </div>
 
 
@@ -330,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26650.jpg" />
 </div>
 
 
@@ -356,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26624.jpg" />
 </div>
 
 
@@ -382,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26583.jpg" />
 </div>
 
 
@@ -409,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26555.jpg" />
 </div>
 
 
@@ -435,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Флот
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26542.jpg" />
 </div>
 
 
@@ -461,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26448.jpg" />
 </div>
 
 
@@ -487,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26153.jpg" />
 </div>
 
 
@@ -513,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25693.jpg" />
 </div>
 
 
@@ -539,7 +511,7 @@ BBC: Топ Гир. Худший автомобиль во всемирной и
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25645.jpg" />
 </div>
 
 
@@ -565,7 +537,7 @@ BBC: Топ Гир. Худший автомобиль во всемирной и
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25641.jpg" />
 </div>
 
 
@@ -591,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25337.jpg" />
 </div>
 
 
@@ -617,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25238.jpg" />
 </div>
 
 
@@ -643,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25213.jpg" />
 </div>
 
 
@@ -669,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25107.jpg" />
 </div>
 
 
@@ -680,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D71E3F8E0FBB84EFB05DA9564E4927C8F902F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784540   (25028) от 11.03.2025
+
+Создавая «Остаться в живых» / Getting Lost (2024) WEBRip [AV1/2160p] [4K, SDR, 8-bit] [DVO]
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавая «Остаться в живых» - независимый документальный фильм, режиссёром и сопродюсером которого выступил Тейлор Морден. В нем рассказывается о развитии и культурном влиянии научно-фантастического приключенческого драматического телесериала ABC «Остаться в живых». Документальный фильм, возвращающий нас к глобальному телевизионному феномену Lost. Включает интервью (   Читать дальше...   )Производство: США / Popmotion PicturesЖанр: документальныйРежиссер: Тейлор МорденУчастники: Джей Джей Абрамс, Стерлинг Бомон, Джек Бендер, Нестор Карбонелл, Оуэн Картер, Франсуа Чау, Карлтон Кьюз, Генри Иэн Кьюсик, Эмили де Рэвин, Эндрю ДивоффПеревод: Двуголосый любительскийЯзык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английскиеПродолжительность: 02:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D32F28CD62FAFC0E9D21AF917D5C40523E8532
 ```
 
 https://mybot314.ru/tekegram_catalog/

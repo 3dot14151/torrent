@@ -1,81 +1,3 @@
-###  Публикация: 1810482   (9317) от 04.08.2025
-
-Алекс Орлов | Томас Брейн (Книги 1-9) (2016-2021) [MP3, Андрей Финагин, Саша Степанов, Skorostnik, Александр Слуцкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Томас Брейн служит в корпоративной армии в чине сержанта. Его работа — охрана конвоев, продвигающихся сквозь опасные джунгли планеты Галилео. Томас многое повидал и не раз был ранен. Он дослуживает срок по третьему контракту и готов выйти в отставку, но что-то пошло не так, и Томас стал опасным свидетелем в разборках спецслужб и тайных спонсоров повстанческого движения. (   Читать дальше...   )Жанр: Фантастика, боевикИздательство: Аудиокнига своими руками, Эксмо, ЛитРесПродолжительность: 122:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB26FB1AAAA3B4E0DC734E312A575E39C2B3D551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810470   (9309) от 04.08.2025
-
-Алекс Орлов | Тени войны (Книги 1-20) (2006-2012) [MP3, Евгений Белов, В. Приз, Рауф Ахмедов, Александр Кафидов, Волк]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вот уже много лет люди стремились к звездам, потому что на Земле больше негде было жить. На новых планетах людей встречали моря, леса, горы и пустыни. Однако на большинстве из них была уже сложившаяся система жизни обитателей, где не находилось места непрошеным гостям. Для решения этой проблемы понадобилась сила. Назвали эту силу — Легион. Для службы в Легионе требовались (   Читать дальше...   )Жанр: фантастика, боевикИздательство: Аудиокнига своими руками,  Экстра-ПринтПродолжительность: 252:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD738FC9375ACF3B00D0DF7B2FFA46C4C7918C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810552   (9257) от 05.08.2025
-
-Александр Вайс | Фронтир (Книги 1-10) (2024-2025) [MP3, Андрей Брежнев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-С началом экспансии человечество вспомнило, что такое беззаконье, пиратство и право сильного. Космос слишком велик и жесток, чтобы кто-то мог сделать его безопасным вне островков спокойствия перенаселённых планет...Жанр: Фантастика, боевик, приключенияИздательство: ЛитРесПродолжительность: 95:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5981C605AC9A4B5B0287B927DE9CA7B0A31D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810511   (9230) от 05.08.2025
 
 А. Никл, Виктор Молотов | Видящий смерть. Тринадцатый (Книги 1-10) (2024-2025) [MP3, Владислав Горбылев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9230.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9224.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9222.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9220.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9218.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9217.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9216.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9215.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9213.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9212.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9210.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9205.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9202.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9201.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9200.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9117.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9115.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9104.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9099.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9098.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9093.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9012.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8947.jpg" />
 </div>
 
 
@@ -675,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23F1C28BDE98981564A72F512FF8BB7A9518AF94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811078   (8905) от 08.08.2025
+
+INDIGO | Фортуна дама переменчивая (Книга 12). На границе империй. Том 8. Часть 1 (2025) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений Алекса Мерфа. Всё забыто? Всё прощено?…Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 08:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0957B6054E4BA3AB9CF84EB9D03F485193CDD158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810729   (8887) от 08.08.2025
+
+Кирилл Тесленок | Граф Булгаков (Книги 1-5) (2024) [MP3, Никита Степаненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава рода Булгаковых умер - и алчные аристократы бросились делить его наследие. Они не ожидали, что в теле старшего наследника переродился я - сын Тёмной Богини Подземного мира. И я умею такое, что никому из Одаренных и не снилось. Но даже для меня не будет легкой прогулки. Тайны рода Булгаковых окутаны мрачной завесой - и очень многие хотят протянуть к ним свои (   Читать дальше...   )Жанр: Фантастика, боевик, попаданцыИздательство: ИДДКПродолжительность: 47:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666C94D7A4C6000047BD41E0A766C202CFB8CDC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809953   (8813) от 09.08.2025
+
+Родион Кораблев | Другая сторона (Книги 1-21) (2023-2025) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вселенная оказалась сложнее, чем думали люди. Она живет по своим законам, где разум является не целью, а необходимым условием для ее существования и всякий разумный вид должен выдержать суровое испытание – Слияние. Цивилизации поднимаются и падают, рождаются и гибнут, борются друг с другом за ресурсы, а если проигрывают борьбу, то выжившие становятся беженцами и (   Читать дальше...   )Жанр: Фантастика, боевик, ЛитРПГИздательство: ЛитРесПродолжительность: 251:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2BFA3AEB5E99ECB5301BA37B4C311BCF7D7508
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Shortino - Make A Wish (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308693.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ram - Rod (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307872.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Manowar - Fighting The World (1987) [FLAC|tracks+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307573.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Iron Maiden - Somewhere Back In Time - The Best Of: 1980-1989 (2008) [FLAC|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307400.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bonded - Rest in Violence (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306406.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ After Forever - Emphasis - Who Wants To Live Forever (2002) Limited Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306305.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ After Forever - Energize Me (2007) Single [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306297.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ After Forever - Follow In The Cry - Silence From Afar (2000) Limited Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306295.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ After Forever - Monolith Of Doubt (2002) Limited Edition [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306294.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ After Forever - Prison Of Desire (2000) Reissue, 2003, Transmission Records [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306287.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ After Forever - Decipher (2001) Reissue+EP, 2007, Avalon [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306286.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ After Forever - Remagine (2005) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306166.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ After Forever - After Forever (2007) Japanese Edition [FLAC|Lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306162.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) Limited Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306150.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Drakkar - Diabolical Empathy (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305686.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Khorada - Salt (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305685.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Unholy - Rapture (1998) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305684.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Lindemann - Ich weiß es nicht (2019) Single [FLAC|Lossless|Web-DL|tracks] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305267.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Wuthering Heights - Within (1999) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304409.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sepsism - To Prevail In Disgust (2003) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304408.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wuthering Heights - The Shadow Cabinet (2006) 2CD [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304406.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Amatris - Imprisoned (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303498.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The Last Ten Seconds Of Life - The Violent Sound (2016) [FLAC|Lossless|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302998.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Soijl - Endless Elysian Fields (2015) [FLAC|Lossless|image + .cue] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302623.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Soijl - As The Sun Sets On Life (2017) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302618.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Clouds - Dor (2018) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302617.jpg" />
 </div>
 
 

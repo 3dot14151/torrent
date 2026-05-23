@@ -1,55 +1,3 @@
-###  Публикация: 1631398   (254567) от 05.05.2023
-
-Убийство в Париже / Murder Mystery 2 (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Штатные детективы Ник и Одри изо всех сил пытаются запустить свое частное детективное агентство. Они оказываются в центре международного похищения, когда их друга Махараджа похищают на его собственной роскошной свадьбе.Производство: США / Echo Films, Endgame Entertainment, Happy Madison ProductionsЖанр: детектив, комедия, криминалРежиссер: Джереми ГареликАктеры: Адам Сэндлер, Дженнифер Энистон, Марк Стронг, Мелани Лоран, Джоди Тёрнер-Смит, Джон Кани, Куху Верма, Дэни Бун, Адиль Ахтар, Энрике АрсеПеревод: Дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C94B37DDC45256795BDAE8EC7F2C81772B6D94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631310   (254565) от 05.05.2023
-
-Подземелья и драконы: Честь среди воров / Dungeons & Dragons: Honor Among Thieves (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Эдгин Дарвис вместе с верной воительницей Хольгой объединяются с рассеянным магом Саймоном, ловкой друидкой Дорик и чопорным паладином Зенком, чтобы вернуть утерянную реликвию, наделенную огромной силой. Однако всё быстро идет наперекосяк, когда на их пути встает злодей Фордж.Производство: США, Канада, Великобритания, Исландия, Ирландия, Австралия / Paramount Pictures, Entertainment One, Allspark PicturesЖанр: фэнтези, боевик, комедияРежиссер: Джон Фрэнсис Дейли, Джонатан М. ГолдштейнАктеры: Крис Пайн, Мишель Родригес, Реге-Жан Пейдж, Джастис Смит, София Лиллис, Хью Грант, Хлоя Коулмэн, Дэйзи Хэд, Кайл Хиксон, Спенсер УайлдингПеревод: Многоголосый профессиональный (TVShows, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (Forced, Full, SDH)Продолжительность: 02:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B460FF6C3C2E364F833029A004BD724B2F5F262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631435   (254561) от 05.05.2023
 
 Ренфилд / Renfield (2023) UHD WEB-DLRip [H.264/1080p-LQ] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254561.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254554.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254551.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254543.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254538.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254518.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254516.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254503.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254499.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254491.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254490.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254463.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254446.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254426.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254418.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254416.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254392.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254317.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254303.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254279.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254263.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254204.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254161.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254154.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA97E42F0BB733A30BC923C7BA7E50E2BA4C7A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836738   (254108) от 12.11.2025
+
+Воздушная тюрьма / Con Air (1997) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254108.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Воздушная тюрьма» - транспортное подразделение полиции США, перевозящее особо опасных преступников. Одним из этих рейсов возвращается домой Кэмерон По, освобожденный из тюрьмы после 8 лет заключения. Он так долго ждал этого и ничто не должно остановить его на пути домой...Производство: США / Hiett Designs of Las Vegas, Jerry Bruckheimer FilmsЖанр: боевик, триллер, криминалРежиссер: Саймон УэстАктеры: Николас Кейдж, Джон Кьюсак, Джон Малкович, Винг Реймз, Майкелти Уильямсон, Рэйчел Тикотин, Ник Чинланд, Стив Бушеми, Колм Мини, Дэнни ТрехоПеревод: Дублированный, авторский (Гаврилов), многоголосый (''Favvora Film')Язык озвучки: Русский, узбекский, английскийСубтитры: АнглийскиеПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8A0A843C796AAD758149EC6FCC774600891A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497583   (253831) от 17.05.2012
+
+Малхолланд Драйв / Mulholland Drive (2001) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочная девушка, страдающая потерей памяти после автомобильной аварии, выбирает себе имя Рита с рекламного плаката к фильму с Ритой Хейворт и пытается с новым именем начать в Голливуде новую жизнь. Но тайны прошлого неотступно преследуют ее. Кто были те двое мужчин, что сидели в одной машине с ней и погибли в аварии? Почему полиция подозревает, что она была похищена ими? И случайно ли в ее жизни появляется новая подруга, начинающая актриса Бетти?Жанр: Детектив, ТриллерРежиссер: Дэвид ЛинчАктеры: Наоми Уоттс, Лаура Хэрринг, Энн Миллер, Дэн Хедайя, Джастин Теруа, Брент Бриско, Роберт Форстер, Кэтрин Таун, Ли Грант, Скотт Коффи, Билли Рэй Сайрус, Чад Эверетт, Рита Таггарт, Джеймс Карен, Лори Хёринг, Анджело Бадаламенти, Майкл Дес Баррес, Маркус Грэхэм, Мисси Крайдер, Роберт Катимс, Джинн Бейтс, Дэн Бернбаум, Скотт Вулфф, Майя Бонд, Патрик Фишлер, Майкл Кук, Бонни Ааронс, Майкл Дж. Андерсон, Джозеф Кирни, Ричард Мид, Шон Эверетт, Дэниэл Рей, Дэвид Шредер, Том Моррис, Мелисса Джордж, Мэтт Галлини, Марк Пеллегрино, Винсент Кастелланос, Дайан Нельсон, Чарльз Кроувэлл, Рена РиффеПеревод: Дублированный, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 02:26:34
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

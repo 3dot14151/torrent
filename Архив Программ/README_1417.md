@@ -6,7 +6,7 @@ ESET NOD32 | ESET Endpoint 7.0/6.x/5.x (x32 x64) Offline Update 12607 (нояб�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Soft4Boost Secure Eraser 4.2.7.465 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318528.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ GiliSoft Audio Recorder Pro 8.4.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318515.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ K-Lite Codec Pack Update 15.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318492.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ScreenPresso Pro 1.7.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318488.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ RegCool 1.111 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318484.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MInstAll Release by StartSoft 66-2017 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318453.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ESET NOD32 Antivirus 11.0.149.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318450.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AAct 3.8.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318440.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Adobe Photoshop Lightroom Classic CC 2018 (7.0.1.10) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318439.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ESET NOD32 Internet Security 11.0.149.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318438.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ K-Lite Codec Pack Update 12.6.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318372.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Reg Organizer 7.60 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318371.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Product Key Explorer 4.1.9.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318362.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ FreeFileSync 10.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318355.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Vivaldi 2.8.1664.44 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318350.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ HDCleaner 1.275 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318349.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Icecream PDF Editor 1.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318346.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Calibre 4.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318345.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ EF Commander 19.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318259.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318164.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ KMSAuto++ Portable 1.7.5 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318162.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318161.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ QTTabBar 1039 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318122.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ KRT CLUB 2.1.2.69 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318104.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Movavi Photo Editor 6.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318084.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1729991   (53305) от 14.06.2024
-
-Александр Афанасьев | Бремя империи (Книга 3). Сожженные мосты (Том 7). На краю бездны (2024) [MP3, Сергей Ларионов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В результате двойной игры, которую затеял шеф британской разведки Джеффри Ровен, могли погибнуть миллионы. Но финал ее для старого лиса стал совершенно неожиданным и трагичным. Именно Англия поддерживала безудержный фанатизм исламских экстремистов, стремящихся к созданию всемирного Халифата и заливших кровью врагов Персию. Подстрекаемая британцами, полыхнула пожаром (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 14:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E73448C482CF5262917AEF156FEBFA9B94D1E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729987   (53298) от 14.06.2024
-
-Александр Афанасьев | Бремя империи (Книга 3). Сожженные мосты (Том 6). В огне (2024) [MP3, Сергей Ларионов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В этой реальности Российская Империя была могущественной и богатейшей страной. Но так же, как в нашем мире, ее враги ни на секунду не ослабляли подрывную деятельность против нее. Бессмысленный мятеж в Польше, чудовищное восстание исламистов в Персии, залившее кровью всю эту древнюю страну, – происходили при их вмешательстве и поддержке. Цель фанатиков – установить (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 13:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F40D71883F68F7DACC014C0E249EF65D6A3B37F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730065   (53293) от 14.06.2024
-
-Тана Френч | Кел Хупер (Книга 2). Охотник (2024) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Большой ирландский детектив на лето — новый роман о тихом омуте маленькой деревни. Напряжение натянутой струны и перехватывающий дыхание саспенс — долгожданная новинка от королевы ирландского детектива! В продолжении «Искателя» Тана Френч возвращает нас в прекрасную и таинственную глубинку Западной Ирландии. Бывший детектив из Чикаго Кэл Купер бросил все и переехал (   Читать дальше...   )Жанр: детектив, триллерИздательство: ВИМБОПродолжительность: 18:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB15743957ACED46CFDD871625808BE9FDBB6485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730404   (53203) от 15.06.2024
 
 Чингиз Абдуллаев | Душа сутенера (2024) [MP3, Виталий Олефиренко]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53203.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53201.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53198.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53195.jpg" />
 </div>
 
 
@@ -192,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53164.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53152.jpg" />
 </div>
 
 
@@ -247,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53138.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53127.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53124.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53120.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53111.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53108.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53095.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53082.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53032.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53021.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53018.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52936.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52935.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52924.jpg" />
 </div>
 
 
@@ -615,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52917.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52916.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52915.jpg" />
 </div>
 
 
@@ -680,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F978C51D0E12C20AD519C253E5D2F87C3F5C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730827   (52908) от 18.06.2024
+
+Дмитрий Серебряков | Вселенная безумия (Книга 5). Псих. Дракониха и семь гномов (2024) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятая книга серии. Кланы, бояр-аниме, политика, черный юмор и полное отсутствие тормозов у гг. Попаданец. Плюшки есть, но мизерные. Герою пофиг на всех кроме себя. Характер нордический. Неуравновешенный эгоист. Не женат. Целеустремлен и хочет нагнуть весь мир. Обожает секс.Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A79622B35933183D76F834405DBA44DC0B21668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730847   (52885) от 18.06.2024
+
+Александр Смирнов | Чёрный гусар Фридриха Великого (Книга 1). Разведчик из будущего (2024) [MP3, Александр Гусинский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не верьте фронтовой пословице, что «все разведчики попадают в рай» – некоторые остаются на «сверхсрочную» даже после смерти.
+
+Погибнув в 1945 году под Кенигсбергом, старшина Красной Армии переносится на два столетия назад, в тело прусского барона из полка Черных гусар, которому после дуэли приходится бежать в Россию. Здесь «попаданцу» суждено возглавить личную гвардию (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыИздательство: ЛитРес: чтец, ЯузаПродолжительность: 09:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D8D8AC8A78F57607A1602CFEBF4CCDB6249A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730840   (52883) от 18.06.2024
+
+Денис Тимофеев | S-T-I-K-S - Дети Пекла (Книга 3). Человек из пекла (Книга 2. Часть 2) (2023) [MP3, Skorostnik]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сложится жизнь Медоеда после смерти родного человека? Чему учит Стикс и через что придётся пройти и что потерять, чтобы обрести, наконец, самого себя? Найдёт ли сын Сойки и Горца что ищет? Таков ли мир, каким его видят иммунные?Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 16:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794572054A901FD5E7E63F7A42ADBC42703DB952
 ```
 
 https://mybot314.ru/tekegram_catalog/

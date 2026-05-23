@@ -6,7 +6,7 @@ Bill Evans - Trio 64 (1963) 1997, Verve Records [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220922.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Marian McPartland - On 52nd Street (1953) 2002, Savoy Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220833.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sergio Mendes & Bossa Rio - Voce Ainda Nao Ouviu Nada! (1964) 2002, Dubas Musica
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220698.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Low Kick Collective - Coma Berenices (2022) [FLAC|Lossless|Web-DL|tracks] <Dark 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220648.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Alessio Menconi - Standard Trio (2005) Abeat Records [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220270.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220267.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Woody Herman & His Thundering Herd - Ready-Get Set-Jump (1953 - 1958) 1992, Lase
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220117.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ P.J. Perry - Worth Waiting For (1991) The Jazz Alliance [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220105.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jimmy Forrest - Out Of The Forrest (1961) 1994, Original Jazz Classics [APE|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220095.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ian McDougall - Songs & Arias (1997) Self-Released [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220085.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ P.J. Perry - My Ideal (1989) Unity Records [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220077.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Black Art Jazz Collective - Armor Of Pride (2018) HighNote [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220069.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Freddie Hubbard - Classic Recordings 1960-1962 (2015) 4CD, Enlightenment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220061.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Astrud Gilberto - The Silver Collection (1965 - 1970) 1991, Verve [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219990.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Eddie Higgins Trio - Jazz Standards Essential Best (2009) Venus Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219772.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ben Webster Quartet - My Man: Live At Montmartre (1973) 1986, SteepleChase [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219618.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ James Moody - Return From Overbrook (1958) 1996, GRP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219527.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dakota Staton - Time To Swing (1959) 2009, DRG Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219318.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sonny Cox - The Wailer (1966) Remaster, 1998, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219233.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Coleman Hawkins - Bouncing With Bean (1926-1949) 2CD, 2010, Le Chant Du Monde[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219224.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mal Waldron - You And The Night And The Music (1983) 2005, King Record [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219164.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - 'That's What I Call Sweet Music': American Dance Orchestras of the 1920s (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219066.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Big Band Brothers - A Jazz Celebration of The Allman Brothers Band (2019) New We
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219051.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Oscar Pettiford - Another One (1955) 2000, Bethlehem [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219015.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218991.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jim Stahlhut - Exit 228 (2013) Self-Released [FLAC|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218819.jpg" />
 </div>
 
 

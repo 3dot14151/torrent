@@ -6,7 +6,7 @@ Die Krupps - Vision 2020 Vision (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-I
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270603.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Draconian - 5 Albums (2003 - 2011) [MP3|320 kbps]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269923.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Axxis - 30th Anniversary - Best Of EMI-Years (2019) [MP3|320 Kbps] <Melodic Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268204.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Cavalera Conspiracy - 4 Альбома (2008-2017) [MP3|320 кб/с]<Groove Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266685.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Metal Church - Damned If You Do (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266582.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Apocalyptica - Plays Metallica by Four Cellos - A Live Performance (2018) [MP3|3
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266519.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nuckin' Futs - Abyss (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266035.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Clouds - Dor (2018) [MP3|320 Kbps] <Atmospheric Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265801.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265799.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265358.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lindemann - F&M Frau Und Mann (Deluxe Edition) (2019) [MP3|320 Kbps] <Industrial
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265257.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Vexovoid - Call Of The Starforger (2017) [MP3|320 Kbps] <Progressive Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263527.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Axel Rudi Pell - The Ballads V (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263046.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Chontaraz - Rondamauh (2017) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261810.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ When Nothing Remains - Echoes of Eternal Night (2025) [MP3|320 Kbps] <Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261710.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Pretty Wild - zero.point.genesis (2025) [MP3|320 Kbps] <Metalcore, Alternati
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260974.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mekong Delta - Intersections (2012) [MP3|320 кб/с]<Progressive Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258732.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Bloodbound - Field of Swords (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257756.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Heavyone - Heavyone (2011) [MP3|224 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256779.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Oomph! - Des Wahnsinns Fette Beute (2012) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256145.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Six Feet Under - Undead (2012) [MP3|320 кб/с]<Death Metal, Death'n'Roll>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255741.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Isaak - Hey (2023) [MP3|320 Kbps] <Stoner Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255478.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Keep of Kalessin - Katharsis (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255271.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Metallica - 72 Seasons (2023) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254661.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ VA - Metallic Emotions (2007) [MP3|320 кб/с]<eavy Metal / Power Metal / Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254335.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Synthphonia Suprema - 2 Альбома (2006-2010) [MP3|320 кб/с]<Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253898.jpg" />
 </div>
 
 

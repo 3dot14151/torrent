@@ -6,7 +6,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75356.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75344.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ uTorrent-Portable 3.1.2.26729 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75308.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75089.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dropbox 1.3.14 beta [Multi, русский отсутствует]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75058.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74723.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ McAfee Avert Stinger Portable 10.2.0.502 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74598.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 7 Ultimate SP1 x32 x64 WPI By StartSoft v 7.02.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73755.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VKMusic 4.33 + RePack + Portable by nkn0w [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72379.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VKMusic 4.29.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72009.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ QOwnNotes 25.1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71903.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ CudaText 1.220.5.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71853.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Telegram Desktop 5.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71850.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Advanced Renamer 4.08 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71650.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Free Download Manager 6.25.1.6042 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71648.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.43 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71647.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ PilotEdit Lite & Pro 19.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71645.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ QOwnNotes 25.1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71636.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ XYplorer 26.80.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71624.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Text Editor Pro 31.3.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71574.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Telegram Desktop 5.10.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71495.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Telegram Desktop 5.10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71461.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ GForce - Bass Station 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71431.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ GeoGebra 6.0.873.2 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71398.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Vivaldi 7.1.3570.42 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71358.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ CoolUtils Total Image Converter 8.2.0.275 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71285.jpg" />
 </div>
 
 

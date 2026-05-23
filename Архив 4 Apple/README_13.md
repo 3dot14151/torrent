@@ -6,7 +6,7 @@ Adobe Animate 2021 v21.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe XD v36.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036305.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Premiere Rush v1.5.44 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036297.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe InDesign 2021 v16.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036277.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Media Encoder 2020 v14.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036261.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Dreamweaver 2021 v21.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036252.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Audition 2020 v13.0.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036229.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe After Effects 2020 v17.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036220.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adobe Illustrator 2021 v25.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036206.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Adobe Bridge 2021 v11.0.1 incl. ARC13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036204.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe Premiere Pro 2020 v14.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036195.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Photoshop 2021 v22.1.1 + Neural Filters [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036180.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Photoshop Lightroom Classic v10.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036174.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ iSubtitle 3 v3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036070.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ IconJar 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036069.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Multitouch 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036068.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Affinity Publisher Beta 1.9.0.911 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036067.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Affinity Designer Beta 1.9.0.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036066.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Permute 3 v3.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036065.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Word Count Popup 2.50 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036064.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Feeder 4 v4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036063.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ NCH Doxillion Plus 5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036062.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Posterino 3 v3.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036061.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Piezo 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036059.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Display Maid 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036058.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Affinity Photo Beta 1.9.0.216 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036057.jpg" />
 </div>
 
 

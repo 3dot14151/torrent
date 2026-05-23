@@ -1,29 +1,3 @@
-###  Публикация: 1493233   (27691) от 14.02.2025
-
-Amazing Cultivation Simulator (2020) [Multi] (1.268-2501211542dev/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Amazing Cultivation Simulator – игровой проект, разработанный в жанре симулятора с элементами рогалика, где главному герою предстоит создать и развить собственный культ. Первым делом стоит отметить наличие мира, способного генерироваться совершенно случайным образом, что точно порадует всех любителей жанра. Данный факт говорит о том, что процесс автоматически становится (   Читать дальше...   )Тип издания: LicenseРазработчик: GSQ GamesЖанр: Симулятор, Стратегия, SandboxЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606E616C91913A35B7DE2742421132DBCFBCD427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702028   (27683) от 14.02.2025
 
 Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
@@ -32,7 +6,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27683.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27667.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.419.0/dlc) Repack Wagner [Pre
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27590.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Scene Rune [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27579.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27578.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Scorchlands (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27577.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27572.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27567.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27566.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack FitGirl [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27551.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27531.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Few Nights More (2025) [Ru/Multi] (1.0.0214) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27527.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack seleZen [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27521.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.3.105740/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27516.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27515.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (0.2.0.5.202502121057/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27509.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.12.16.01) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27496.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31/dlc) Repack Let'sРlay [Fleet Command Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27491.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27467.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27463.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27457.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27451.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27450.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ DeathOmen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27445.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Runa & The Chaikurú Legacy (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27425.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Runa & The Chaikurú Legacy (2024) [Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA5CE83489AB8FC20103E13C85DCC74FA8B9F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780004   (27424) от 16.02.2025
+
+Heroine's Quest: The Herald of Ragnarok (2014) [Ru/Multi] (1.2.9.2/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heroine's Quest: The Herald of Ragnarok – классическое ролевое приключение с видом сбоку и многоуровневыми локациями, по которым можно двигаться в разные стороны, что имитирует трёхмерное пространство. Ретро-игра имеет глубокую историю, рассказывающую о спасении мира избранной, которой стала главная героиня. Визуальная составляющая выполнена в ярком стиле, с применением (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal ShardЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Венгерский, Французский и другиеЯзык интерфейса: Русский, Английский, Венгерский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE270410BA53A7385A5459989F902CEBACA283AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.6.0.2653 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111621.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FontViewOK 8.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111619.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Google Chrome 123.0.6312.123 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111618.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ O&O Defrag Professional 28.0 Build 10010 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111616.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Topaz Gigapixel AI 7.1.1 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111614.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Skype 8.117.0.202 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111596.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NIUBI Partition Editor 9.9.5 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111566.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PIDKey Lite 1.64.4 b41 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111555.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Image Uploader 1.4.0 Build 5138 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111551.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Vivaldi 6.6.3271.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111547.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ R-Studio Network 9.4 Build 191301 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111507.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NIUBI Partition Editor 9.9.5 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111504.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Topaz Gigapixel AI 7.1.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111496.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Topaz Gigapixel AI 7.1.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111493.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Sumatra PDF 3.6.16019 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111481.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Macrorit Partition Expert 8.1.6 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111478.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Subtitle Edit 4.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111417.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Opera One 109.0.5097.45 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111414.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Draw.io 24.2.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111405.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Text Editor Pro 29.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111400.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Telegram Desktop 4.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111392.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Brave Browser 1.64.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111390.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ YT Downloader 9.7.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111346.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ IObit Driver Booster Pro 11.4.0.57 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111342.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ DesktopOK 11.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111339.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Firefox Browser 125.0.1 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111297.jpg" />
 </div>
 
 

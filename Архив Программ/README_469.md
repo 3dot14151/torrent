@@ -6,7 +6,7 @@ Dr.Web Security Space 11.0.5.2171 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799551.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WM Capture 8.8.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799549.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 7.34.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799514.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Revo Uninstaller Pro 3.1.9 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799505.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FBackup 9.3.434 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799493.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Java SE Development Kit 11.0.13 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799483.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Autodesk AutoCAD Electrical 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799480.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Revo Uninstaller Pro 3.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799462.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Spotify 1.1.71.560 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799455.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Firefox Browser ESR 91.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799448.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ant Download Manager Pro 2.4.2 Build 80118 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799445.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Firefox Browser 94.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799443.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ThisIsWin11 0.90.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799438.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Minstall Portable by Nomer001 2017.04 FINAL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799437.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Autodesk AutoCAD Architecture 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799436.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ USB 16GB Portable-Soft 02.04.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799434.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Bandizip 6.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799406.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BestReminder v2019.01.03.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799405.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Spotify 1.1.71.560 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799382.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Serif Affinity Photo 1.10.4.1198 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799378.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Process Hacker 3.0.4372 Nightly + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799376.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ JetBrains Rider 2018.3.1 Build #RD-183.5253.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799366.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Opera 57.0.3098.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799362.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ JetBrains ReSharper Ultimate 2018.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799349.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ AOMEI Backupper Technician Plus 6.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799345.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Notepad++ 7.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799332.jpg" />
 </div>
 
 

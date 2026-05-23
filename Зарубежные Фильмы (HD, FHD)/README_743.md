@@ -1,55 +1,3 @@
-###  Публикация: 1183722   (270809) от 01.12.2018
-
-Электра / Elektra (2005) BDRip [H.264/1080p-LQ] [Театральная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма основан на серии комиксов о приключениях греческой наемной убийцы Электры Начиос. Электра получает задание убрать «клиента» и его дочь. Но вместо этого они становятся друзьями и решают вместе противостоять заказчикам — воинам-ниндзя из тайного ордена наемных убийц…Производство: Канада, США / Twentieth Century Fox, Regency Enterprises, Marvel EnterprisesЖанр: Фэнтези, Боевик, Триллер, ДрамаРежиссер: Роб БоуменАктеры: Дженнифер Гарнер, Горан Вишнич, Кирстен Праут, Уилл Юн Ли, Кэри-Хироюки Тагава, Теренс Стэмп, Наташа Мальте, Боб Сапп, Крис Эккерман, Эдсон Т. РибейроПеревод: Дублированный BD CEEСубтитры: Русские, английскиеПродолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C92EC34582A483D4EE564C32D2594CC9E89E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266251   (270785) от 01.12.2018
-
-Как женить холостяка / Destination Wedding (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Закоренелый холостяк Фрэнк и коварная соблазнительница Линдси приглашены на одну свадьбу. Странным образом они везде оказываются вместе: в самолете, такси, в соседних номерах и за столом. Похоже, кто-то придумал хитроумный план поймать их в любовные сети и наконец женить холостяка.Производство: США / Chapman-Leonard, CISS, Company 3Жанр: Драма, мелодрама, комедияРежиссер: Виктор ЛевинАктеры: Киану Ривз, Вайнона Райдер, Грег Люси, Тед Дюбо, Д. Рош Райт, Курт Дюбо, Донна Линн Джонс, Джеймс Галлардо, Скотт ЭндрюсПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2458A303E38DAAC63EE55B9FB3CA4596CCF7B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189074   (270775) от 01.12.2018
 
 Широко шагая / Walking Tall (2004) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270775.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270771.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270767.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270746.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270729.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270708.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270705.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270690.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270681.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270668.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270623.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270590.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_270473.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270378.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270373.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270370.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270322.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270300.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270296.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_270260.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270257.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270210.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270208.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_270114.jpg" />
 </div>
 
 
@@ -679,6 +627,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE5A11D62959FA1BDAB6488E462F813E25F2CA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189645   (270111) от 06.12.2017
+
+В гостях у Элис / Home Again (2017) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь матери-одиночки из Лос-Анджелеса неожиданно меняется, когда она разрешает трем парням пожить у нее.Производство: США, Black Bicycle EntertainmentЖанр: Драма, мелодрама, комедияРежиссер: Холли Мейерс-ШайерАктеры: Риз Уизерспун, Майкл Шин, Нат Вулф, Лэйк Белл, Пико Александр, Кэндис Берген, Лола Флэнери, Джон Рудницкий, Кристин Вудс, Рейд СкоттПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E30782240F2D4AB833E327A7AA606448513048D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189461   (270057) от 06.12.2017
+
+Калифорнийский дорожный патруль / CHIPS (2017) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР, специалист по работе под прикрытием и охмурению женщин, и получает новое задание — провести внутренне расследование в калифорнийском дорожном патруле. Банда на скоростных мотоциклах грабит инкассаторские автомобили, и ФБР подозревает, что им помогает кто-то из своих. Новую личность агента под прикрытием зовут Френк Пончарелло, и теперь он патрулирует дороги (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедия, криминалРежиссер: Дэкс ШепардАктеры: Майкл Пенья, Дэкс Шепард, Джессика МакНэми, Адам Броди, Райан Хансен, Кристен Белл, Джэми Бок, Джастин Чатвин, Камерон Крус, Клэй КалленПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6207E720B0406316B0A20203EC9BBC3B5D2AC389
 ```
 
 https://mybot314.ru/tekegram_catalog/

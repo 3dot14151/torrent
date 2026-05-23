@@ -1,57 +1,3 @@
-###  Публикация: 475725   (85344) от 30.03.2012
-
-Захват / Carjacked (2011) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молодую женщину с ребёнком в её же собственной машине берёт в заложницы грабитель банка.Производство: США | Daniel Grodnik ProductionsЖанр: ТриллерРежиссер: Джон БонитоАктеры: Мария Белло, Стивен Дорфф, Джоанна Кэссиди, Кристен Кер,р Катрин Дент, Тим Гриффин, Молли МакКуин, Гэри Граббс, Дэвид Дженсен, Анджелл БруксПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0ECDA1E1F0317C0786F1A35687F4DB02854ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475312   (85342) от 30.03.2012
-
-Синоптик / The Weather Man (2004) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Дэйв Спиртс — один из тех счастливчиков, которым принято завидовать. Популярный ведущий прогноза погоды, он получает приглашение работать в крупном нью-йоркском телешоу. Деньги, признание, отличные перспективы — удача явно на его стороне. Но мысль об этом почему-то больше не греет.
-
-Пока «глашатай морозов и дождей» покорял профессиональные вершины, его личная жизнь (   Читать дальше...   )Производство: США, ГерманияЖанр: Драма, КомедияРежиссер: Гор Вербински/Gore VerbinskiАктеры: Николас Кейдж /Nicolas Cage/, Майкл Кейн /Michael Caine/, Хоуп Дэвис /Hope Davis/, Николас Холт /Nicholas Hoult/, Джудит МакКоннелл /Judith McConnell/, Джил Беллоуз /Gil BellowsПеревод: Профессиональный (многоголосый, закадровый)Формат: АVIПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA2F4AEEAC7F4E1E1A005A6B591D1080D0FD164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475541   (85337) от 30.03.2012
 
 Талантливый мистер Рипли / The Talented mr. Ripley (1999) DVDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85337.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85335.jpg" />
 </div>
 
 
@@ -116,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85334.jpg" />
 </div>
 
 
@@ -143,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85307.jpg" />
 </div>
 
 
@@ -169,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85306.jpg" />
 </div>
 
 
@@ -195,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85271.jpg" />
 </div>
 
 
@@ -221,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85256.jpg" />
 </div>
 
 
@@ -250,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85203.jpg" />
 </div>
 
 
@@ -276,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85200.jpg" />
 </div>
 
 
@@ -302,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85188.jpg" />
 </div>
 
 
@@ -330,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85180.jpg" />
 </div>
 
 
@@ -358,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85161.jpg" />
 </div>
 
 
@@ -385,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85155.jpg" />
 </div>
 
 
@@ -411,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85149.jpg" />
 </div>
 
 
@@ -439,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85090.jpg" />
 </div>
 
 
@@ -465,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85074.jpg" />
 </div>
 
 
@@ -492,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85069.jpg" />
 </div>
 
 
@@ -519,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85068.jpg" />
 </div>
 
 
@@ -545,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85033.jpg" />
 </div>
 
 
@@ -571,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85022.jpg" />
 </div>
 
 
@@ -598,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85014.jpg" />
 </div>
 
 
@@ -624,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84981.jpg" />
 </div>
 
 
@@ -650,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84975.jpg" />
 </div>
 
 
@@ -676,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84967.jpg" />
 </div>
 
 
@@ -687,6 +633,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E93B8A22AFE2FBEB4C8FBAABD270DB1B90555C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473895   (84958) от 28.03.2012
+
+Прислуга / The Help (2011) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский Юг, на дворе 1960-е годы. Скитер только-только закончила университет и возвращается домой, в сонный городок Джексон, где никогда ничего не происходит. Она мечтает стать писательницей, вырваться в большой мир. Но для приличной девушки с Юга не пристало тешиться столь глупыми иллюзиями, приличной девушке следует выйти замуж и хлопотать по дому.
+
+Мудрая Эйбилин на тридцать лет старше Скитер, она прислуживает в домах белых всю свою жизнь, вынянчила семнадцать детей и давно уже ничего не ждет от жизни, ибо сердце ее разбито после смерти единственного сына.
+
+Минни — самая лучшая стряпуха во всем Джексоне, а еще она самая дерзкая служанка в городе. И острый язык не раз уже сослужил ей плохую службу. На одном месте Минни никогда подолгу не задерживается. Но с Минни лучше не связываться даже самым высокомерным белым дамочкам. Двух черных служанок и белую неопытную девушку объединяет одно — обостренное чувство справедливости и желание хоть как-то изменить порядок вещей. Смогут ли эти трое противостоять целому (   Читать дальше...   )Жанр: ДрамаРежиссер: Тейт ТейлорАктеры: Эмма Стоун, Виола Дэвис, Брайс Даллас Ховард, Октавия Спенсер, Джессика Честейн, Ана О’Райли, Эллисон Джэнни, Анна Кэмп, Элинор Генри, Эмма ГенриПеревод: Многоголосый закадровыйЯзык субтитров: русский, английский, украинский,  португальский, испанский, греческий, арабский, румынскийПродолжительность: 02:20:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473508   (84950) от 28.03.2012
+
+Что гложет Гилберта Грейпа? / What's Eating Gilbert Grape (1993) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гилберт Грейп живет в штате Айова, в крошечном городке с населением в тысячу жителей. У него две сестры, слабоумный брат и толстуха-мать. Гилберт тянет лямку в магазине и крутит роман с замужней дамой. Но все меняется, когда в городок приезжает красивая молодая женщина по имени Беки.Жанр: Драма, Семейный, ТриллерРежиссер: Лассе ХалльстрёмАктеры: Джонни Депп, Леонардо ДиКаприо, Джульетт Льюис, Мэри Стинберген, Дарлен Кэйтс, Лора Хэррингтон, Мэри Кейт Шеллхардт, Кевин Тай, Джон С. Рейли, Криспин ГловерПеревод: Многоголосый закадровый,профессиональный+Профессиональный двухголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:57:42
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

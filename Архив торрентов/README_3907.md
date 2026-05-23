@@ -6,7 +6,7 @@ Keysight Advanced Design System 2023 Update 1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207194.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Topaz Photo AI 1.5.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207192.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wise Memory Optimizer 4.1.9.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207191.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ KStars 3.6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207176.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.09) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207172.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Firefox Browser 116.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207167.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207162.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Topaz Photo AI 1.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207155.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Google Chrome 110.0.5481.104 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207146.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ PIDKey Lite 1.64.4 b30 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207144.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Microsoft Edge WebView2 Runtime 1.3.173.45 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207137.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Opera Crypto Browser 95.0.4635.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207136.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ ImgDrive Free 2.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207118.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ LosslessCut 3.52.0 Standantalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207111.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Avidemux 2.8.2 Nightly(r230212) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207108.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ JetBrains Rider for Mac 2023.1.4 Intel/Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207099.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ HomeBank 5.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207093.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ NewFileTime 7.07 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207090.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.0 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207085.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Ashampoo UnInstaller 12.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207083.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SteerMouse 5.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207069.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Floorp Browser 11.1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207063.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.2.3172 Full / Lite RePack by KpoJIuK  [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207060.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Universal USB Installer 2.0.1.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207037.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wondershare UniConverter Ultimate 15.0.1.5 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207036.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Corel VideoStudio Ultimate 2022 25.2.0.566 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207032.jpg" />
 </div>
 
 

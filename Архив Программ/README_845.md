@@ -6,7 +6,7 @@ Free Video to Nokia Phones Converter 5.0.15.706 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_618548.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Acronis Backup 12.0.3500 + SharePoint Explorer + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618516.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KMSAuto Net 2015 1.4.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618514.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Junkware Removal Tool 7.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618506.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Junkware Removal Tool 7.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618491.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Visual Studio 2019 Enterprise 16.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618456.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FreeFileSync 11.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618406.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FPS Monitor 5070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618378.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Nero Kwik Media Free v.11.2.01100 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_618334.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wise JetSearch 2.03.87 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618321.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Bandicam 5.4.2.1921 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618303.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ant Download Manager Pro 2.7.0 Build 80995 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618299.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Balabolka 2.15.0.816 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618295.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ O&O DiskImage Professional 17.4 Build 470 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618290.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Adobe Photoshop Lightroom Classic CC 2019 (8.2.1.10) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618267.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ ACDSee Photo Manager 14.3 Build 168 RePack by KpoJIuK [Русский/Англи
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_618168.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618155.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Wise Data Recovery 3.71.195 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618144.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Wise Program Uninstaller 1.71.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618143.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ USDownloader 1.3.5.9 (22.06.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618142.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BitDefender Antivirus Free Edition 1.0.18.1047 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618103.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Wise Auto Shutdown 1.46.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618035.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Q-Dir 6.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618025.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Wise Memory Optimizer 3.35.89 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618021.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Wise Folder Hider Free 3.18.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618019.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Adobe Character Animator 2022 22.3.0.65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617999.jpg" />
 </div>
 
 

@@ -1,30 +1,3 @@
-###  Публикация: 1045025   (562719) от 21.08.2016
-
-Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона Земли (2015) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На дворе – весна 1958 года. Неутомимые сыщики и искатели приключений, Братья-Пилоты узнают из газеты о том, что на далеком острове Тасмания стремительно уменьшается популяция голубых полосатых слонов.
-Учитывая, что Тасмания - единственное место на Земле, где водятся эти редкие животные, и что в прошлом братьям уже приходилось иметь дело с одним из них, Шеф и Коллега (   Читать дальше...   )Тип издания: RepackРазработчик: 1C WirelessЖанр: Adventure, CasualЯзык озвучки: Русский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9153754E810F9710653FFB1E106B81175B461CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044858   (562717) от 21.08.2016
 
 Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
@@ -33,7 +6,7 @@ Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562717.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Riptide GP: Renegade (2016) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562716.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Sea Of Lies 4: Tide Of Treachery (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562706.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Warhammer 40,000: Space Marine (2012) [Ru/Multi] (1.0.165.0/dlc) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562623.jpg" />
 </div>
 
 
@@ -138,7 +111,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) Repack =nemos= [Complete Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562603.jpg" />
 </div>
 
 
@@ -164,7 +137,7 @@ Pirate Jigsaw (2015) [En] (1.0) Repack ZEKE
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562518.jpg" />
 </div>
 
 
@@ -190,7 +163,7 @@ Witches Legacy 3: Hunter and the Hunted / Наследие ведьм 3: Охо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562461.jpg" />
 </div>
 
 
@@ -216,7 +189,7 @@ Fort Meow (2015) [En] (1.0.0) Repack ZEKE
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562371.jpg" />
 </div>
 
 
@@ -242,7 +215,7 @@ Prototype 2 [Ru/En] (RePack) 2012 l R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562316.jpg" />
 </div>
 
 
@@ -270,7 +243,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru/Multi2] (Steam-Rip/1.00.2) 2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562308.jpg" />
 </div>
 
 
@@ -302,7 +275,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562296.jpg" />
 </div>
 
 
@@ -329,7 +302,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561795.jpg" />
 </div>
 
 
@@ -355,7 +328,7 @@ X4: Foundations (2018) [Ru/Multi] (2.21) Repack R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561406.jpg" />
 </div>
 
 
@@ -381,7 +354,7 @@ Cursed Cases: Murder At The Maybard Estate / Проклятые дела: Уби
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561325.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ Wanderlust 2: The City Of Mists / Жажда странствий 2: Город 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561277.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561276.jpg" />
 </div>
 
 
@@ -459,7 +432,7 @@ Spec Ops: The Line (2012) [Ru] (1.0.6890.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561163.jpg" />
 </div>
 
 
@@ -485,7 +458,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.2.5/dlc) Repack R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561160.jpg" />
 </div>
 
 
@@ -511,7 +484,7 @@ Incredible Dracula: The Last Call / Невероятный Дракула II. П
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561004.jpg" />
 </div>
 
 
@@ -537,7 +510,7 @@ Super Cloudbuilt (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560937.jpg" />
 </div>
 
 
@@ -563,7 +536,7 @@ Chase for Adventure: The Lost City / Погоня за приключениям�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560883.jpg" />
 </div>
 
 
@@ -589,7 +562,7 @@ Door to Door (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560876.jpg" />
 </div>
 
 
@@ -615,7 +588,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License PROPHET [Complete E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560865.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ Invasion: Lost in Time (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560802.jpg" />
 </div>
 
 
@@ -667,7 +640,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack =nemos= [Colle
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560772.jpg" />
 </div>
 
 
@@ -678,6 +651,32 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack =nemos= [Colle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC25BFB15E620C7D687AFBD222D46EDAB64D46A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924142   (560654) от 02.08.2015
+
+Maze: Subject 360 (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистическая история втянет Вас в захватывающее, леденящие кровь приключение - Вам предстоит выбраться из ужасного Лабиринта, хранящего множество смертельных ловушек и секретов. Здесь, в Лабиринте, Вы столкнетесь с Вашими страхами, и только от Вас зависит сумеете ли Вы их преодолеть! Амулет "Ловец Снов" поможет справиться с трудностями, но именно Вам придется (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639FD7EA7A8D55F07D78972B0DAA97F68403D873
 ```
 
 https://mybot314.ru/tekegram_catalog/

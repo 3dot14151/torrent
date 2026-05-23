@@ -1,31 +1,3 @@
-###  Публикация: 424054   (365070) от 28.10.2015
-
-VA - Metal Compilation - Cover (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock, Cover>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Amenti - Медляк(Credo cover)
- 02. Lady Gaga - Bad Romance
- 03. Nevergreen - FrozenЖанр: Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock, CoverПродолжительность: 04:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FE18E368ACDE55973F536177A2C06DC755A243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951179   (365068) от 28.10.2015
 
 VA - 1000 Original Hits Vol. 2 (Golden Metal Ballads) (2003) [MP3|256 кб/с]<Rock, Metal>
@@ -34,7 +6,7 @@ VA - 1000 Original Hits Vol. 2 (Golden Metal Ballads) (2003) [MP3|256 кб/с]<R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365068.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ VA - Рок в Авто (Русский vol.2) (2012) [MP3|320 кб/с]<Pop Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364946.jpg" />
 </div>
 
 
@@ -92,7 +64,7 @@ VA - Танцевальная клубничка Клубный выпуск (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364716.jpg" />
 </div>
 
 
@@ -121,7 +93,7 @@ VA - Lounge At The Seashore 19 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Deep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364589.jpg" />
 </div>
 
 
@@ -150,7 +122,7 @@ VA - BacauHouseMafia Vol.14 (2016) [MP3|320 Kbps] <Vocal Trance, Progressive Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364568.jpg" />
 </div>
 
 
@@ -179,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364564.jpg" />
 </div>
 
 
@@ -208,7 +180,7 @@ VA - Осенний хит-отрыв. Русский выпуск (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364557.jpg" />
 </div>
 
 
@@ -237,7 +209,7 @@ VA - Музыкальные новинки mp3 50/50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364480.jpg" />
 </div>
 
 
@@ -266,7 +238,7 @@ VA - Afternoon Acoustic Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ins
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364477.jpg" />
 </div>
 
 
@@ -295,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364475.jpg" />
 </div>
 
 
@@ -324,7 +296,7 @@ VA - Trancern 38.2: Official Compilation (November 2012) (2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364441.jpg" />
 </div>
 
 
@@ -356,7 +328,7 @@ VA - Relax To House Vol. 4 (2016) [MP3|319-320 Kbps] <Deep House, Club House, Vo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364416.jpg" />
 </div>
 
 
@@ -385,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364415.jpg" />
 </div>
 
 
@@ -414,7 +386,7 @@ VA - Oceanic Trance Volume 9 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364341.jpg" />
 </div>
 
 
@@ -447,7 +419,7 @@ VA - Осенняя Музыкальная сенсация (2012) [MP3|128 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364340.jpg" />
 </div>
 
 
@@ -482,7 +454,7 @@ VA - Зажигательная Dance Тусовка. Зарубежный (2012
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364339.jpg" />
 </div>
 
 
@@ -517,7 +489,7 @@ VA - Exotic Wafture #31 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364336.jpg" />
 </div>
 
 
@@ -550,7 +522,7 @@ VA - Осенняя Московская Дискотека (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364218.jpg" />
 </div>
 
 
@@ -585,7 +557,7 @@ VA - Хитовая жажда 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364210.jpg" />
 </div>
 
 
@@ -620,7 +592,7 @@ VA - Звездный осенний хит 24 Зарубежный (2012) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364209.jpg" />
 </div>
 
 
@@ -655,7 +627,7 @@ VA - Танцы До Упаду (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364084.jpg" />
 </div>
 
 
@@ -690,7 +662,7 @@ VA - До 19 и старше 27 Русский (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364071.jpg" />
 </div>
 
 
@@ -725,7 +697,7 @@ VA - Permanent Rock Blues (2018) [MP3|320 Kbps] <Rock, Rock Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363969.jpg" />
 </div>
 
 
@@ -754,7 +726,7 @@ VA - Music News vol.216 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363847.jpg" />
 </div>
 
 
@@ -783,7 +755,7 @@ VA - Звёздный удар от Русского радио. Сборник 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363782.jpg" />
 </div>
 
 
@@ -803,6 +775,50 @@ VA - Звёздный удар от Русского радио. Сборник 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661A7DFA64CED3A377277AC5D8AA4E496495D699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576859   (363744) от 17.11.2012
+
+VA - Plexus Relax Sector (2011-2012) [MP3|320 кб/с]<Chill Out, Ambient, Psy Chill, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereobaza - Chessboard (5:18)
+02. Int.Elect - When Day Becomes Night (6:46)
+03. Tim Katsman - Fo (3:14)
+04. Apheliont - Mirage To Reality (6:42)
+05. CJ Sailplane - Era (4:16)
+06. Germind - I Hate Love (5:02)
+07. Seaman - Feel The Sunrise (6:24)
+08. Нулев0й - Половины (4:06)
+09. Sober Spring - Abso Botly (6:05)
+10. VTibn - Stratospheric Uverture (6:05)01. Sober Spring - Lottery Ring (3:44)
+02. Igor Leontyev - Lala (3:56)
+03. Rassolodin - Overnight Journey (5:02)
+04. Ryb - Kseno (7:02)
+05. Soulalive - Butterflies (3:53)
+06. By RAgIN - Our Beautiful World (3:01)
+07. DJ Ger-Man - Spring (5:41)
+08. Plu-Ton - Ocean Of Sadness (5:50)
+09. Azonius - Пыль (4:05)
+10. Tenth Cloud - Cirrus Cloud (3:39)(   Читать дальше...   )Жанр: Chill Out, Ambient, Psy Chill, Downtempo, LoungeПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0E1394861789633BC7207DD9CF53F95AA1D0F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

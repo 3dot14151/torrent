@@ -6,7 +6,7 @@ Auslogics Windows Slimmer 4.0.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210684.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DesktopDigitalClock 4.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210683.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TweakNow WinSecret Plus! 4.8.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210680.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Process Monitor 3.94 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210673.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Plexim Plecs 4.7.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210669.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Slidepad 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210658.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ YouTube ReVanced 17.32.32 (RVP v2.33.2) Lite-Mod by inotia00 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210657.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Seal 1.10.0-beta.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210656.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ System Dashboard Pro 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210653.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PhotoMill X 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210651.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ OnlySwitch 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210649.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PdfFactory Std & Pro 8.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210640.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Simply Linux Live 10.1  [x86_64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210625.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ WPS Office + PDF 17.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210617.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Paint.NET 5.0.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210609.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ CCleaner Pro: ПО для очистки 6.10.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210604.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ W10Privacy 4.1.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210602.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Office Tool Plus 9.0.3.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210600.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Pixelmator Pro 3.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210594.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Master PDF Editor 5.9.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210593.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Always on Edge 7.9.7 Mod by AppModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210573.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Duolingo: изучай языки 5.109.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210568.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ PlayerPro Music Player 5.33 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210566.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MediaHuman YouTube Downloader 3.9.9.83 (2406) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210558.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Shotcut 23.06.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210556.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ MX Player Pro 1.63.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210550.jpg" />
 </div>
 
 

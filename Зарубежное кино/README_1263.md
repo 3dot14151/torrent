@@ -1,55 +1,3 @@
-###  Публикация: 1565942   (407446) от 03.09.2022
-
-Всё о зле / All About Evil (2010) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Робкая библиотекарша унаследовала старый дом-киностудию своего отца. Чтобы спасти семейный бизнес, она реанимирует серийного убийцу, снимает и предлагает поклонникам кино новые серии в жанре ужасов. Только фанаты хоррора не догадываются, что все убийства в кинофильмах слишком реальны потому, что совершаются взаправду...Производство: США, Backlash Films, Fog City PicturesЖанр: комедия, ужасыРежиссер: Пичес КристАктеры: Наташа Лионн, Томас Деккер, Кассандра Петерсон, Минк Стоул, Ноа Сеган, Джек Доннер, Джейд Рэмси, Никита Рэмси, Эриель Харт, Эшли ФинкПеревод: профессиональный двухголосый (НТВ+), авторский (Сергей Визгунов)Субтитры: английские SDHПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE85FA33820A852910A0D2653ABF8095169A1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574028   (407435) от 03.09.2022
-
-Дети Уиндермира / The Windermere Children (2020) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Август 1945 года. В Великобританию возвращаются дети, выжившие в фашистских концлагерях. Оставшиеся без родителей, они поступают на попечение государства в специальные учебные заведения...Производство: Великобритания, Германия | BBC Television Centre, Northern Ireland ScreenЖанр: драма, военныйРежиссер: Майкл СэмюэлсАктеры: Томас Кречман, Ромола Гарай, Иэн Глен, Тим Макиннерни, Марсель Сабат, Филипп Кристофер, Анна Шумахер, Константин Франк, Kacper Swietek, Marek WroblewskiПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: Английские (forced hardsub)Продолжительность: 01:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37D047032F60F984DFA551E001EA04B4B7E11C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565985   (407378) от 03.09.2022
 
 Голоса за кадром / Golden Voices (2019) WEBRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407378.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407360.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407326.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407323.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407319.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407290.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407289.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407285.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407284.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407281.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407278.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407277.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407259.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407235.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407219.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407195.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407179.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_407165.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407142.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407132.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407105.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407099.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407097.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407090.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AAB779D270C88E35AB9AF6C9F5A6C9689887C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560038   (407078) от 14.10.2012
+
+Что могло быть хуже? / What's the Worst That Could Happen? (2001) [H.264] DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407078.jpg" />
+</div>
+
+
+###  Подробнее
+
+И Кевина и Макса кормит воровство. Кевин (Мартин Лоуренс) - профессиональный вор, обожающий дорогие вещи, а миллиардер Макс Фербэнкс (Дэнни Де Вито) - беспринципный бизнесмен, не привыкший себе ни в чем отказывать. Кевин намеревается обчистить прибрежную виллу Макса, рассчитывая на отсутствие хозяина, но застает Макса в ванне с роскошной красоткой. Подоспевшая полиция арестовывает незадачливого грабителя, но Максу этого мало. Он снимает с руки закованного в наручники Кевина кольцо, уверяя полицейских, что это его собственность. Вор обкрадывает вора. На самом деле кольцо было подарено Кевину его подружкой, и он готов на все, чтобы его вернуть. Между двумя мошенниками развязывается настоящая война, в ходе которой возникают ситуации гораздо хуже и... смешнее, чем они могли себе представить...Жанр: Комедия, КриминалРежиссер: Сэм УайзманАктеры: Мартин Лоуренс, Дэнни ДеВито, Джон Легуизамо, Гленн Хедли, Кармен Эджого, Берни Мак, Ларри Миллер, Нора Данн, Ричард Шифф, Уильям Фихтнер, Ана Гастейер, Саша Нопф, Шиван Фэллон, ДжиКью, Ленни Кларк, Кевин Чэпмен, Майкл Малхерен, Райан Халл, Кэм Нили, Джордж Блюменталь, Стефани Клейман, Расселл Керри, Ричард Сэкстон, Керри Килбрайд, Тайлер Дж. Олсон, Ребека Арамини, Билл Моотос, Эрик Бруно Боргман, Джон ДиТомас, Кимбетт Фенол, Брайан Фрейтс, Трэйси Голд, Кенн Медеройс, Эдди Мейя, Тодд Подрье, Джон СэфирПеревод: Дублированный / Профессиональный многоголосый / Авторский одноголосый (Боровой (Карповский) Антон)Язык субтитров: Русские, английскиеПродолжительность: 01:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6003DDA7A1A7CA255ACD100AB4659B887CC0A19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407931   (407063) от 05.10.2020
+
+Ронин / Ronin (1998) WEB-DLRip [H.264] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407063.jpg" />
+</div>
+
+
+###  Подробнее
+
+У того, кто не смог уберечь своего хозяина от гибели, есть только один путь — стать наемником. Четверо бывших агентов спецслужб получают задание: они должны завладеть тщательно охраняемым кейсом с секретным содержимым. Но среди них есть предатель, разыгрывающий свою карту. Двум ронинам, чтобы выполнить заказ, придется вступить в смертельную схватку со всеми, кто (   Читать дальше...   )Производство: Великобритания, США, Франция / FGM Entertainment, United ArtistsЖанр: Боевик, Триллер, КриминалРежиссер: Джон ФранкенхаймерАктеры: Роберт Де Ниро, Жан Рено, Наташа МакЭлхоун, Стеллан Скарсгард, Шон Бин, Скипп Саддат, Микаэль Лонсдаль, Ян Тршиска, Джонатан Прайс, Рон ПеркинсПеревод: ДублированныйСубтитры: Русские (full), Английские (full)Продолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CF36D53782B84829843C17373D759EB3E48316
 ```
 
 https://mybot314.ru/tekegram_catalog/

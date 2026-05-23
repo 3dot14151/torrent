@@ -6,7 +6,7 @@ Firefox Browser 126.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109591.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 124.0.6367.208 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109584.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Icecream Screen Recorder Pro 7.41 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109579.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.36 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109552.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera One 110.0.5130.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109550.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft .NET 6.0.30 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109548.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Perfectly Clear WorkBench 4.6.1.2660 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109547.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft .NET 8.0.5 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109546.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ FanControl V190 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109544.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ventusky: Прогноз погоды v34.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109543.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Opera One 110.0.5130.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109542.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ RSS Guard 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109541.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.7 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109540.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ashampoo WinOptimizer 27.00.02 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109539.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Soul Browser 1.4.19 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109534.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Opera GX 109.0.5097.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109531.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ HWiNFO 8.03 Build 5445 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109530.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Vivaldi 6.7.3329.29 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109529.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Firefox Browser ESR 115.11.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109521.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Firefox Browser 126.0 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109519.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ PotPlayer 240514 (1.7.22230) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109518.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Soul Browser 1.4.19 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109514.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Soul Browser 1.4.19 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109512.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ PrivaZer Pro 4.0.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109507.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Viber 22.7.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109505.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Moon+ Reader Pro v9.4 (b904000) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109497.jpg" />
 </div>
 
 

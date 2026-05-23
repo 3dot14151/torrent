@@ -1,55 +1,3 @@
-###  Публикация: 1113806   (329545) от 02.10.2022
-
-Свободный штат Джонса / Free State of Jones (2016) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-События фильма разворачиваются во время гражданской войны в США. После участия в битве при Коринфе Ньютон Найт — бедный фермер из Миссисипи возглавляет группу дезертиров из армии Конфедерации, выступающих за отмену рабства. Вместе они обустраиваются в округе Джонс, и начинают борьбу против сил Конфедерации.Производство: США, Bluegrass Films, Larger Than Life Productions, Route One Films, Vendian EntertainmentЖанр: Боевик, Драма, Военный, Биография, ИсторияРежиссер: Гэри РоссАктеры: Мэттью МакКонахи, Гугу Мбата-Роу, Махершала Али, Кери Расселл, Кристофер Берри, Шон Бриджерс, Джейкоб Лофленд, Томас Мерфи, Билл Тангради, Брайан ФранклинПеревод: Одноголосый закадровый (Solod)Субтитры: Русские, английскиеПродолжительность: 02:19:55Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787DCEED1C94FF950DB7C7BE100200D1D8648A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580698   (329544) от 02.10.2022
-
-Бун / Boon (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бун — один из самых опасных наёмных убийц в Америке. После жестокой перестрелки его находит раненым мальчик-подросток, живущий с матерью Кэтрин. Благодаря её заботам Бун быстро встаёт на ноги. Он с удивлением узнаёт, что Кэтрин — пастор в протестантской общине и одновременно невольная соучастница преступной аферы. А всё из-за того, что её покойный муж задолжал бандитской (   Читать дальше...   )Производство: США / Muscular PuppyЖанр: Боевик, триллер, драма, криминал, детективРежиссер: Дерек ПрэслиАктеры: Нил Макдонаф, Томми Флэнаган, Кристина Очоа, Джейсон Скотт Ли, Гэбриэлль Картерис, Джеймс Мадио, Пэт Монахэн, Деметриус Гросс, Кристиана Сидел, Джон Патрик ДжорданПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские Jaskier, английскиеПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A902E8B159121271F58671A4C8813D4BA02CD0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580623   (329543) от 02.10.2022
 
 Альфа-разлом / Alpha Rift (2021) WEB-DLRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329543.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_329329.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329257.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329241.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329215.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329207.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329199.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329174.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329159.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329122.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329120.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329116.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329109.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329108.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329105.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329037.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328990.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328954.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328909.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328874.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328801.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328794.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328757.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328744.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39EC3002AB8EA6E11687EF536F99E33D01EF533C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580995   (328721) от 03.10.2022
+
+Дверной замок / Doeorak / Door Lock (2018) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная банковская сотрудница Кён-мин живёт одна в квартире в многоквартирном доме. Каждое утро девушка встаёт с легким головокружением и однажды замечает странность — как будто её дверной замок кто-то открывает. Кён-мин сообщает в полицию, но там считают, что она преувеличивает, и для беспокойства повода нет. Вскоре на работе происходит неприятный инцидент — один (   Читать дальше...   )Производство: Корея Южная / Studio PieonaЖанр: триллер, детектив, криминалРежиссер: Ли ГвонАктеры: Кон Хё-джин, Ким Е-вон, Ким Сон-о, Чо Бон-нэ, Ли Га-соп, Хан Джи-ын, Чан Нам-бу, Ким Джэ-хва, Чха Ёп, Ли Чхон-хиПеревод: Дублированный (лицензия)Субтитры: отсутствуютПродолжительность: 01:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F03810B46E6D14FC4066828C4A551C542E90C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580979   (328720) от 03.10.2022
+
+Летняя пора / Summering (2022) (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для четырех подруг Дины, Лолы, Дейзи и Мари летняя пора подходит к завершению. Они вот-вот разъедутся по домам и пойдут в среднюю школу. Но их последние летние выходные начинаются с того, что девочки обнаруживают тайну, которая превращает их уик-энд в невероятное приключение. Героини сделают серию открытий, которые не только помогут им разгадать тайну, но и поспособствуют (   Читать дальше...   )Производство: США / 3311 Productions/ A Bigger Boat/ Ninety-One BravesЖанр: драмаРежиссер: Джеймс ПонсольдтАктеры: Lia Barnett, Санай Виктория, Мадален Миллс, Эден Грейс Рэдфилд, Лейк Белл, Сара Купер, Эшли Мадекве, Меган Маллалли, Дэйл МакКил, Willow Corner-BettweiserПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Украинские, АнглийскиПродолжительность: 01:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CF613CA80465C607969B38BF8468F21FCB5895
 ```
 
 https://mybot314.ru/tekegram_catalog/

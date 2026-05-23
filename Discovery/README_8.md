@@ -6,7 +6,7 @@ Discovery:  Через Червоточину [Сквозь кроличью н�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_664445.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Северное море (2 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659445.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Северное море (3 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659437.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Северное море (1 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659398.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. Апокалипсис 2012: Откровения / Maya 2012 Prophec
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658922.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery. Как устроена Вселенная. Есть ли жизнь 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658590.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657770.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Северное море (8 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_657296.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Северное море (7 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_657257.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Северное море (6 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_657250.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: Аляска. Семья из леса / Alaskan Bush People (2014) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655108.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Загадки планеты Земля / What on Earth? (2015) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653054.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery. Кодекс Мафии: Взгляд Изнутри / Inside the Gan
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649218.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645536.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645526.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643683.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643670.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery: Утраченный символ. Секреты тайного бр
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643455.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery. Вселенная Ultra HD / Space's Deepest Secrets (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643358.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641914.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641908.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641904.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: Бесстрашная планета (6 серий) / Fearless Plane
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640853.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Discovery: Телескоп / Discovery: Telescope (2016) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637851.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Discovery: Земля восходов. Секреты Солнца / Sunrise Ea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637353.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Discovery. Вирусы / Virus: Invisible Killers (2017) HDTVRip [H.264/720p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637226.jpg" />
 </div>
 
 

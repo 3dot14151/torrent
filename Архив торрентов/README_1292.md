@@ -6,7 +6,7 @@ DjVu Reader FS 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764484.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ TechSmith Snagit 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764477.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Accusonus - Regroover Pro 1.7.8 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764464.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ XYplorer 19.60.0000 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764461.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC 03.07.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764452.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Balabolka 2.15.0.747 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764450.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wise Care 365 Pro 5.5.5.550 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764449.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Privacy Eraser Free 5.19.0 Build 4122 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764413.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ GPU-Z 1.20.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764412.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WinCatalog 2017 17.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764406.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PrivaZer 3.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764405.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764399.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Viber 6.7.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764394.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Comodo IceDragon 64.0.4.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764392.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Opera 58.0.3135.53 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764384.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Wise System Monitor 1.4.9.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764382.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Permute 3 v3.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764378.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Loaris Trojan Remover 3.0.76.211 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764377.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Shadow Defender 1.4.0.680 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764365.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC 03.07.2020) RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764361.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ PrivaZer 4.0.37 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764351.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ RegCool 1.304 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764350.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Text Editor Pro 19.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764345.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Faderhead - Discography 40 Releases (2006-2021) [MP3|320 Kbps] <EBM, Synth-Pop, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764343.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ FreeFileSync 11.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764341.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Novicorp WinToFlash Professional 1.7.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764329.jpg" />
 </div>
 
 

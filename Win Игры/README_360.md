@@ -1,29 +1,3 @@
-###  Публикация: 1528720   (165389) от 15.12.2022
-
-Gamedec (2021) [Ru/Multi] (1.7.1.r70100/dlc) License GOG [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Gamedec – изометрическая RPG в жанре киберпанк для одного игрока, не имеющая боевой системы. Вы – игровой детектив, расследующий преступления в виртуальных мирах. Собирайте информацию у свидетелей и подозреваемых, чтобы перехитрить злодеев и раскрыть их замыслы, спасти невинные жизни и изучить необычные отношения между виртуальными мирами и их жителями. Игра постоянно (   Читать дальше...   )Тип издания: LicenseРазработчик: Anshar StudiosЖанр: Ролевая игра, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B328485534B59648222997FE0F410641E20FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345601   (165354) от 16.12.2019
 
 Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
@@ -32,7 +6,7 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165354.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165123.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Christmas Fables: Holiday Guardians (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164803.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164759.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164703.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164520.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164272.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Hamster on Rails (2023) [Ru/Multi] (1.0.44.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164025.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ AirportSim (2023) [Multi] (1.0.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163889.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163764.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163746.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163665.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Offroad Mechanic Simulator (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163655.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Oxygen (2023) [Ru/Multi] (1.027) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163645.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163566.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163507.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163501.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ BioShock Infinite (2013) [Ru] (1.0) Unofficial [Русификатор]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163393.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163382.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.1) Repack Bu
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163309.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163204.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163141.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163117.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162904.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162793.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F5BA81292C7D8BEAE5AFF2A17433892B2EC86B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628182   (162675) от 03.11.2023
+
+The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.1hf/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162675.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Mageseeker: A League of Legends Story - ролевое приключение, события которого переносят игроков во вселенную Лиги Легенд. Вместе с протагонистом и его друзьями предстоит исследовать королевство Демасия. Под предлогом защиты обычных людей охотники на магов выходят на тропу войны, искореняя всех, кто имеет хотя бы минимальные магические способности. Главным героем (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital SunЖанр: Экшны, Ролевая игра, ФэнтeзиЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D5C668BE679BF5E2124228913558F4F9502AE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

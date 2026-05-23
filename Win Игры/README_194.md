@@ -1,29 +1,3 @@
-###  Публикация: 1146108   (617587) от 27.06.2017
-
-F1 2016 (2016) [Ru/Multi] (1.8/dlc) Repack xatab
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-F1 2016, официальная видеоигра 2016 FIA FORMULA ONE WORLD CHAMPIONSHIP, содержит полный календарь сезона 2016, 21 трассу, 22 водителей и 11 команд. Насладитесь захватывающими моментами в карьере гонщика FORMULA ONE, также участвуя в закулисных сделках и разработке автомобилей. Это испытание продолжительностью в 10 сезонов. Проложите путь к победе и станьте чемпионом.Тип издания: RepackРазработчик: CodemastersЖанр: Sport, Racing, SimulatorЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47E09C7866464D732305E580E4DCA4D24FA50B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101837   (617583) от 27.06.2017
 
 Virginia (2016) [Ru/Multi] (1.02a) License GOG
@@ -32,7 +6,7 @@ Virginia (2016) [Ru/Multi] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617583.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Construction Machines Simulator 2016 (2015) [Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617342.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Audiosurf 2 (2015) [En] (1.0rls) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617341.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Bridge To Another World 5: Through The Looking Glass / Мост в другой 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617085.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617068.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Grim Legends 3: The Dark City (2016) [En] (1.0) Unofficial [Colleсtors's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617061.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Dark Tales 9 : Edgar Allan Poe's Metzengerstein (2016) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617058.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Midnight Calling 2. Jeronimo / Полуночный зов 2: Джеронимо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616956.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Edge Of Reality: Ring Of Destiny / Край реальности: Кольцо �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616943.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616872.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Lara Gates: The Lost Talisman / Лара Гейтс и секретный тал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616824.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Bohemian Killing (2016) [En/Pl] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616798.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Mahluk: Dark demon (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616792.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616790.jpg" />
 </div>
 
 
@@ -400,7 +374,7 @@ Crying is not Enough (2018) [Ru/Multi] (1.0/upd1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616474.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Heavy Metal Machines (2017) [Ru/Multi] (3.02.1037) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616447.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ The Haunted: Hells Reach (2011) [Multi] (1.0 Build 8564469/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616002.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615996.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Skulls of the Shogun (2013) [Ru/Multi] License FANiSO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615902.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615875.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Football Manager 2017 (2016) [Ru/Multi] (17.3.1/dlc) License STEAMPUNKS
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615817.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Football Manager Touch 2017 (2016) [Ru/Multi] (17.3.1/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615812.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Christmas Stories: Hans Christian Andersen's Tin Soldier / Рождествен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615777.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ RESCUE 2: Everyday Heroes (2015) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615536.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Full Mojo Rampage (2014) [Ru/En] (1.0.129D) Repack Mizantrop1337
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615073.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Full Mojo Rampage - аркада с ролевыми элементами, в к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5C508820E37BEBBF7F6D6D108505F54F44E726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037290   (615072) от 23.07.2016
+
+10 Second Ninja X (2014) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ниндзя - это круто, и это неоспоримый факт. Роботы-нацисты - это не круто, это нечто полностью противоположное. Их предводитель, Робот Гитлер, охотится за вами, первым ниндзя в мире. У вас есть 10 секунд на то, чтобы уничтожить всех роботов-нацистов в пределах видимости. Вызов брошен. Станьте величайшим ниндзя и нанесите сокрушительный удар по империи Робота Гитлера (   Читать дальше...   )Тип издания: RepackРазработчик: Four Circle InteractiveЖанр: Arcade, PlatformerЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EEF34CE77D03AC9BF9DDACD6F4BE0958190EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

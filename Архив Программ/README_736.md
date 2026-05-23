@@ -6,7 +6,7 @@ Icecream Slideshow Maker 1.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678167.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Format Factory 4.6.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678156.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nikon Capture NX-D 1.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678139.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hard Disk Sentinel Pro 5.40 Build 10482 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678130.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ UnHackMe 13.50.2022.0309 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678103.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Icecream Image Resizer 1.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678095.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Steinberg - Cubase Pro 12.0.0.205 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678094.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678079.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Avast Clear 12.1.3076 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678073.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5278.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678064.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Apowersoft Streaming Video Recorder 5.1.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678025.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Internet Download Manager 6.32.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678009.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Auslogics Disk Defrag Professional 4.8.0.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678002.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tor Browser Bundle 8.0.7 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678000.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Visual C++ 2015-2019 Redistributable 14.20.27508.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677997.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Apowersoft Streaming Audio Recorder 4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677990.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hard Disk Sentinel Pro 5.40 Build 10482 Final RePack (& Portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677983.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mozilla Firefox 47.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677961.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Viber 6.1.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677959.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.75.3900 Final + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677947.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ ACDSee Ultimate 9.3 Build 673 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677937.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dr.Web LiveDisk 9.0.0 CD USB (27.06.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677935.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Auslogics Disk Defrag Professional 4.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677934.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Visual Studio 2017 Enterprise 15.9.9 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677926.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Skype 8.41.0.54 Portable by Cento8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677915.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ foobar2000 1.3.19 Final DarkOne + DUIFoon Portable by MC Web (19.03.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677913.jpg" />
 </div>
 
 

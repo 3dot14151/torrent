@@ -6,7 +6,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171965.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ High-Logic FontCreator Professional 15.0.0.2943 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171934.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zoner Photo Studio X 19.2309.2.501 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171912.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ O&O DiskImage Professional 18.4 Build 332 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171911.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ n-Track Studio Suite 10.0.0.8098 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171910.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sumatra PDF 3.5.15741 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171906.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ XYplorer 25.00.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171905.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ExamDiff Pro Master Edition 14.0.1.15 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171902.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DxO PhotoLab Elite 7.0.2 build 83 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171896.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Viber 21.2.0.3 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171886.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ DVDFab StreamFab 6.1.4.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171878.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Resource Hacker 5.2.3.379 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171876.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ StartAllBack 3.6.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171874.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Room Arranger  9.8.1.641 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171867.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ StartAllBack 3.6.14 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171865.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ StartAllBack 3.6.14 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171862.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Malwarebytes Windows Firewall Control 6.9.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171860.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AIDA64 Extreme Edition 6.92.6618 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171858.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ DxO PhotoLab Elite 7.0.2 build 83 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171852.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Beyond Compare Pro 4.4.7.28397 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171845.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Psiphon 3 build 180 (20.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171844.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 10 Manager 3.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171842.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ GeoGebra 6.0.807.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171740.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Opera GX 102.0.4880.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171734.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Strawberry 1.0.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171711.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Nitro PDF 14.16.0.13 (x64) Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171701.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Junkware Removal Tool 7.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610976.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirillis Action! 1.6.0.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610950.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nitro PDF Professional 7.5.0.18 RePack by Boomer [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610945.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Junkware Removal Tool 7.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610889.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Planet VPN 1.3.3.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610866.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adobe Photoshop Lightroom Classic 11.3.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610863.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Adobe Photoshop 2021 22.5.7.859 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610851.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Easy Photo Recovery 6.7 Build 939 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610839.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ AzTorrent 0.8.9 Build 22 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610782.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Total Commander Ultima Prime 7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610778.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ DFX Audio Enhancer 10.140 (Winamp/Aimp3) RePack by elchupacabra [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610736.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Stop SMS Live - Boot v.2.7.19 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610730.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Boris RED 5.1.5.1161 (x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610720.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ FxSound Enhancer 13.008 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610715.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Maplesoft Maple 2017.1a Build 1238644 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610712.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Resource Hacker 4.2.1 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610691.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ QuickTextPaste 2.84 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610679.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ USDownloader 1.3.5.9 (26.06.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610678.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ EditPlus 3.80.1378 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610674.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Replay Media Catcher 4.4.3 [Multi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610648.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ iZotope - RX2 Advanced v.2.1.0.656 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610647.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Nik Software HDR Efex Pro 2.001.20203 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610640.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ FileZilla Server 0.9.53 beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610615.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Download Master 6.5.1.1471 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610611.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Process Lasso Pro 8.2.0.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610607.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Vivaldi 1.15.1147.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610576.jpg" />
 </div>
 
 

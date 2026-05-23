@@ -1,56 +1,3 @@
-###  Публикация: 1808901   (10160) от 27.07.2025
-
-Реинкарнация. Возвращение ведьмы / I Will Never Leave You Alone (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Заключенного Ричарда могут выпустить из тюрьмы с условием, что он должен провести неделю в доме, где по слухам обитает дух ведьмы. Казалось бы, легкое задание для человека с крепкими нервами. Однако Ричарда кое-что настораживает: предыдущие «смотрители» не выдерживали в доме и пяти дней. Уже после первой ночи становится ясно, что оставшееся время превратится для мужчины (   Читать дальше...   )Производство: США / RoleCallЖанр: ужасыРежиссер: Д.В. МедоффАктеры: Кеннет Трухильо, Катерина Эйхенбергер, Кристофер Дженовезе, Эмма Энн Ведемайер, Кимберли Максвелл, Пирс Лэки, Кэти Уилсон, Фрэнк Аморозо, Малик Джонс, Кен МаклафлинПеревод: Дублированный (Moygolos)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6B32C86FB50DFC3159F74FF775B18A2D4C1E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808894   (10142) от 27.07.2025
-
-Патруль времени / Timecop (1994) UHD BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Передвижения во времени породили новый тип преступлений. Можно изменять события прошлого, контролировать финансовые рынки и даже уничтожать целые народы. Правительство США создаёт специальное полицейское подразделение — патруль времени.
-Продажный сенатор, рвущийся к президентскому креслу, отправляется в прошлое, чтобы изменить ход истории. Вслед за ним отправляется (   Читать дальше...   )Производство: Япония, США / Dark Horse Entertainment, JVC Entertainment, Largo Entertainment, Largo International N.V., Renaissance Pictures, Signature PicturesЖанр: фантастика, боевик, триллер, криминалРежиссер: Питер ХайамсАктеры: Жан-Клод Ван Дамм, Миа Сара, Рон Сильвер, Брюс Макгилл, Глория Рубен, Скотт Беллис, Джейсон Шомбинг, Скотт Лоуренс, Кеннет Уэлш, Брент ВулсиПеревод: профессиональный многоголосый (Супербит, СВ Студия, СТС, ТНТ, ОРТ), профессиональный двухголосый (Премьер Видео Фильм), авторский (Михаил Яроцкий, Александр Кашкин, Сергей Визгунов, Юрий Живов)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF19B26E5C2F50C883175EE367A382031E86340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194656   (10130) от 28.07.2025
 
 Взрывная блондинка / Atomic Blonde (2017) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10130.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10129.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10099.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10041.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10011.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10005.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10003.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9991.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9973.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9964.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9884.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9804.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9768.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9756.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9715.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9692.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9648.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9638.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9492.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9476.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9453.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9413.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9412.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9393.jpg" />
 </div>
 
 
@@ -670,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A66F1CE879049714A947697D7D7CE66D50AB67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810459   (9381) от 04.08.2025
+
+Разрушитель / Demolition Man (1993) UHD BDRip [H.265/1080p] [10-bit] [Taco Bell Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9381.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2032 году в крио-тюрьме после 35-летней заморозки пробуждается один из самых опасных преступников Саймон Феникс и решает взять приступом спокойный, свободный от всякого насилия Сан-Анджелес.
+Неспособные справиться с жестокими повадками 1990-х годов, свойственными Фениксу, официальные власти ищут полицейского тех лет, который смог бы одержать верх над преступником (   Читать дальше...   )Производство: США / Silver Pictures, Warner Bros. PicturesЖанр: фантастика, боевик, триллерРежиссер: Марко БрамбиллаАктеры: Сильвестр Сталлоне, Уэсли Снайпс, Сандра Буллок, Найджел Хоторн, Бенджамин Брэтт, Боб Гантон, Гленн Шэдикс, Дэнис Лири, Гранд Л. Буш, Пэт СкипперПеревод: дублированный официальный (Мост-Видео, «Ленфильм»), профессиональный многоголосый (РТР, ОРТ), профессиональный двухголосый (GoodTime Media, TV1000, SDI Media, LNT, НТВ+), авторский (Андрей Гаврилов, Михаил Чадов, Леонид Володарский, Андрей Дольский)Язык озвучки: русский, английскийСубтитры: русские (full, forced), украинские, английские (full, SDH)Продолжительность: 01:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45232F27A6B49822D91EA505D62373D0ECB25348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810440   (9365) от 04.08.2025
+
+Обычный человек / A Common Man (2013) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справедливость общества, которая должна быть справедливостью и для отдельных людей, часто не является таковой. И тогда любой обычный человек в борьбе за свою справедливость может быть вынужден стать террористом, поставить себя вне закона. Этот фильм об одном из таких частных примеров, когда человек, издевательски хорошо знающий систему, оригинальным способом решил (   Читать дальше...   )Производство: США, Шри-Ланка / Asia Digital Entertainment, Asia Digital Entertainment, Gemini IndustriesЖанр: драма, криминал, детектив, триллерРежиссер: Чандрам РутнамАктеры: Бен Кингсли, Бен Кросс, Нумая Сиривардена, Патрик Рутнам, Джеймс Кох, Джером Де Силва, Душиянтх Вираман, Мохамед Адамали, Киан О’Грэйди, Сьюзэн ЗаринаПеревод: профессиональный многоголосый (студия Кириллица), профессиональный двухголосый (HTB+), любительский одноголосый (den904)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416333C00522A7D50F28310DC9D4F199980BFA7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

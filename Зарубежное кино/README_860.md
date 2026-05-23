@@ -1,56 +1,3 @@
-###  Публикация: 904447   (654087) от 03.06.2015
-
-Законопослушный гражданин / Law Abiding Citizen (2009) BDRemux [H.264/1080p] [Theatriacal cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Добропорядочный житель Филадельфии Клайд Шелтон теряет семью в результате бандитского нападения. Но когда преступники оказались в руках правосудия, выяснилось, что юридической Системе удобнее пойти на сделку с одним из бандитов, чтобы дать высшую меру другому.
-Помощник окружного прокурора Ник Райс идет на эту сделку, вопреки протестам возмущенного Шелтона, свято (   Читать дальше...   )Производство: USA / Film Department, The, Gerard Butler Alan Siegel Entertainment, Warp FilmsЖанр: триллер, драма, криминалРежиссер: Ф. Гэри ГрейАктеры: Джейми Фокс, Джерард Батлер, Колм Мини, Брюс МакГилл, Лесли Бибб, Майкл Ирби, Грегори Итцин, Реджина Холл, Эмиральд Янг, Кристиан СтолтеПеревод: Дублированный , Многоголосый закадровыйЯзык субтитров: Русский , АнглийскийФормат: BDAVПродолжительность: 01:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E0EB9D210387EC939DFB592516E63F88189B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904094   (654067) от 03.06.2015
-
-2012: Замерзший мир / 2012: Ice Age (2011) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-То, чего мы так давно боялись, случилось! На Земле стремительно началось похолодание! Лед сковывает мировые океаны, а бесконечно падающий снег превращает огромные города в снежные равнины! Люди отчаянно пытаются избежать надвигающегося ледникового периода, но у них практически нет шанса выжить на ледяной планете…Производство: США, The AsylumЖанр: Фантастика, БоевикРежиссер: Трэвис ФортАктеры: Патрик Лабьорто, Джули МакКалло, Ник Афанасьев, Кэти Уилсон, Кайл Моррис, Джералд Уэбб, Тед Монте, Джесси Дэйли, Шон КориПеревод: Многоголосый закадровый, профессиональный двухголосыйСубтитры: Вшитые отключаемыеЯзык субтитров: Датские, финские, норвежские, шведскиеПродолжительность: 01:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D1BD87E094C211CB425641103F1877EB99E671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904578   (654059) от 03.06.2015
 
 Робот по имени Чаппи / Chappie (2015) BDRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654059.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654057.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654050.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653995.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653913.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653907.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653735.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ ZOR (2017) WEB-DLRip
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653687.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653680.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653678.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653632.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ CODA: Ребенок глухих родителей / CODA (2021) BDRip [H.264/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653629.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653586.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653579.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653569.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653561.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653553.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653541.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653496.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653491.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653489.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653471.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653470.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653467.jpg" />
 </div>
 
 
@@ -672,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01E9B5B7CC2190F3E90099FBA3D63B272DE5946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140974   (653466) от 08.06.2017
+
+Голос из камня / Voice from the Stone (2017) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653466.jpg" />
+</div>
+
+
+###  Подробнее
+
+50-е годы прошлого века. Таинственный старинный замок в Тоскане. Сюда приезжает Верена, молодая няня, обладающая редким даром возвращать к нормальной жизни психологически травмированных детей. Она умеет найти с ними тесный контакт. Верена — последняя надежда 40-летнего вдовца Клауса, чей сын Джейкоб в течение нескольких месяцев, после смерти матери, не произнес ни (   Читать дальше...   )Производство: США, ИталияЖанр: Триллер, ДрамаРежиссер: Эрик Д. ХауэллАктеры: Эмилия Кларк, Мартон Чокаш, Катерина Мурино, Кейт Линдер, Ремо Джироне, Лиза Гастони, Эдвард Дринг, Джампьеро Джудика, Николь Кадедду, Антонелла БриттиПеревод: Дублированный (iTunes)Субтитры: английские (полные)Продолжительность: 01:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883E674D492AF8712B45519CCE51CEC5EEB29022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344936   (653395) от 01.06.2011
+
+127 часов / 127 Hours (2010) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_653395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудержимый скалолаз и любитель спрятанных в каньонах пещер в очередной раз в одиночестве едет в горы и оказывается в смертельной ловушке. 127 часов без еды, без питья и практически без надежды выжить. Тут-то и проявляется сила характера…Жанр: Драма, Триллер, ПриключенияРежиссер: Дэнни БойлАктеры: Джеймс Франко, Эмбер Тэмблин, Кейт Мара, Клеманс Поэзи, Кейт Бертон, Лиззи КапланПеревод: ДублированныйСубтитры: Русские, Английские, Украинские, Эстонские, Латвийские, ЛитовскиеПродолжительность: 01:29:53
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

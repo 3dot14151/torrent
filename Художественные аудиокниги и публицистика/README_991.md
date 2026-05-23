@@ -1,81 +1,3 @@
-###  Публикация: 1821548   (63978) от 02.10.2025
-
-Юлия Лавряшина | Тень Логова (Книга 1). Взгляд со дна (2024) [MP3, Варвара Кошкина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Взгляд со дна» – это увлекательный психологический детектив с проработанными персонажами. Писательница Юлия Лавряшина создает такую атмосферу, в которую легко можно погрузиться с головой. Повороты сюжета непредсказуемы, и читатели могут следовать за Артуром Логовым в поисках жестокого убийцы, который оказывается всегда на шаг впереди. Или почти всегда?..Жанр: детективИздательство: ЭксмоПродолжительность: 08:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975C2CF16D81D69CED3925A877A31BDB3053E5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821551   (63977) от 02.10.2025
-
-Юлия Лавряшина | Тень Логова (Книга 2). Шаги в пустоте (2025) [MP3, Варвара Кошкина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Шаги в пустоте» – это увлекательный и динамичный детектив, расследование в котором ведут профи в своем деле Артур Логов и девочка-подросток, недавно потерявшая маму. Казалось бы, этих людей ничего не связывает, но они вытягивают друг друга из тьмы. Писательница Юлия Лавряшина перенесет читателей на живописные улочки Kpымa и предложит им отыскать убийцу Общее горе (   Читать дальше...   )Жанр: детективИздательство: ЭксмоПродолжительность: 09:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DC1E73616C4E888FF02778894C138DE0D2375D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821552   (63976) от 02.10.2025
-
-Юлия Лавряшина | Тень Логова (Книга 3). Сгоревшая жизнь (2025) [MP3, Варвара Кошкина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Сгоревшая жизнь» – третья книга в цикле психологических детективов Юлии Лавряшиной. В этой книге Артура и Сашу ждут новые испытания, особенно сложные и болезненные, так как им предстоит иметь дело с пациентами психиатрической больницы. И здесь непредсказуемые «игры разума» будут особенно опасными.Жанр: детективИздательство: ЭксмоПродолжительность: 08:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259EAF3301279B5A65C19559E5224DB642A4C852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821553   (63975) от 02.10.2025
 
 Юлия Лавряшина | Тень Логова (Книга 4). Части ее тела (2025) [MP3, Екатерина Гусихина]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63975.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63974.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63973.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63972.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63963.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63962.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63961.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63960.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63959.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63957.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63956.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63955.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63954.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63953.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63952.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63951.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63950.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63949.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63948.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63947.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63946.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63945.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63902.jpg" />
 </div>
 
 
@@ -669,6 +591,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26782E5F8AEC8B536D12EB62D1A5DAE0FC53C77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821725   (63878) от 03.10.2025
+
+Сергей Есенин | Чёрный человек. Поэмы, проза (2024) [MP3, Станислав Концевич]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Всемирная литература».
+Сергей Александрович Есенин (1895–1925) – один из ключевых поэтов своей эпохи. Кажется, еще при жизни поэтические тексты Есенина обрели статус культовых. Его стихи не просто проходят в школах, после чего навсегда забывают, нет – эти стихи давно стали родными для каждого отечественного читателя. В настоящее издание вошли подлинные (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, прозаИздательство: ЭксмоПродолжительность: 07:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A598363B8148533DF12A2D861E86E652FC64DD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821709   (63875) от 03.10.2025
+
+Павел Чук | Отставник 2 (Книга 2) (2025) [MP3, Олег Троицкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бежав из плена, капитан Глен - он же Гена Бес, осознаёт, что Земляне встретились со страшным врагом - анторсами, что безжалостны к другим расам. Их цель - захват интересующей их планеты и полное истребление аборигенов. Тяжелейшее ранение, что его отправило в отставку не останавливает Беса. Он вновь в строю.Жанр: Героическая фантастика , Пришельцы , Альтернативная фантастикаИздательство: ЛитресПродолжительность: 07:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E992E49A6A975EFFD8173D92BB8E0E3C894775E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821705   (63873) от 03.10.2025
+
+Андрей Волковский | Убийство в зачарованном городе (Книга 4). Убийство в приграничном замке (2025) [MP3, Владислав Андрейченко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следы загадочного артефакта, вытягивающего магическую силу, ведут в приграничный замок Гарт де Монт. Тайная служба поручает волшебнику Скаю с друзьями отправиться туда под видом путешественников и вычислить заказчика, но в первую же ночь в замке происходит убийство. Отравлен слуга, и это явно не случайность: кто-то заметает следы или хочет подставить Ская? Ему придется (   Читать дальше...   )Жанр: детектив, фэнтезиИздательство: ЭксмоПродолжительность: 07:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5883ABB63FED3AB09D103542C78E266BAEF2A209
 ```
 
 https://mybot314.ru/tekegram_catalog/

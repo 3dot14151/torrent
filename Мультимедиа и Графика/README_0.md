@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 33 beta 3 Portable by 7997 [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069806.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boris FX VEGAS Pro 2026.0 Build 105 Portable by 7997 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069795.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Illustrator 2025 29.8.7.1 + Plugins Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069747.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Clip Studio Paint EX 5.0.4 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069732.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Room Arranger 11.0.0.776 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069717.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ DCP-o-matic 2.18.40 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069706.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Toon Boom Harmony Premium 25.0.1 Build 24106 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069540.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PhoXoSee 1.12 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069518.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ImageGlass 9.5.0.515 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069475.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 33 beta 3 RePack by KpoJIuK 
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069471.jpg" />
 </div>
 
 
@@ -265,32 +265,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871000   (1069466) от 
-
-BluffTitler Ultimate 17.0.0.3 RePack (& Portable) by elchupacabra + Content [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-BluffTitler - программа для создания красивых текстовых 3D эффектов и простейшей мультипликации, применяемых при монтаже видео. Результат можно просматривать в реальном времени с последующим экспортом в картинку или видео-формат. Вся создаваемая анимация состоит из слоев, которые могут модифицироваться независимо.BluffTitler поддерживает большое количество различных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B76A0A9631C818A2EC3E15B202FAF350EFD972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871002   (1069460) от 
 
 Affinity Studio 3.2.1.4425 RePack by KpoJIuK [Multi/Ru]
@@ -299,7 +273,7 @@ Affinity Studio 3.2.1.4425 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069460.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ MKVToolNix 98.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069459.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ Winxvideo AI 4.9 RePack (& Portable) by elchupacabra (DC 2026.05.07) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069454.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ reaConverter Pro 8.0.220 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069444.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ Adobe Illustrator 2025 29.8.7.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069435.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Perfectly Clear WorkBench 5.1.0.3209 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069359.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ Capture One 23 Enterprise 16.7.8.3529 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069317.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ Topaz Photo 1.6.0 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069314.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ IrfanView 4.75 + Plugins [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069304.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ Easy Cut Studio 6.020 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069265.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ Simple Audio Sweeper 2.0078.341 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069249.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ reaConverter Pro 8.0.220 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069202.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ Wondershare UniConverter 17.3.5.562 RePack by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069201.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ Boris FX Sequoia 2026 18.0.2.26013 Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069200.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ Kdenlive 26.04.1 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069198.jpg" />
 </div>
 
 
@@ -682,6 +656,32 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F59D983BC7F5C3E4BCF571B5E6BCBDDCFA17337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870468   (1069120) от 
+
+Fast Video Cutter Joiner 7.1.0 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DB0396ECEB3AEDAA64C40E1D7CB94D278B5DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

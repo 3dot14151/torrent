@@ -6,7 +6,7 @@ Aml Maple 5.05 Build 688 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820541.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Uninstaller Pro 6.3.0.17 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820539.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ O&O ShutUp10 1.4.1388 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820538.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hetman NTFS Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820536.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Daum PotPlayer 1.7.1150 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820535.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Hetman Photo Recovery 4.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820534.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Ummy Video Downloader 1.8.3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820528.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Topaz Video Enhance AI 1.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820494.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Pegasun System Utilities 4.30 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820426.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Foundry MODO 11.2v2 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820413.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows Firewall Control 5.0.1.19 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820412.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Alien Skin Exposure X3 Bundle 3.0.5.157 Revision 39088 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820408.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PDF-XChange PRO 8.0.339.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820395.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Bandicam 4.1.0.1362 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_820322.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SamDrivers 20.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820289.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Alcohol 120% 2.0.3.9811 Free Edition RePack by KpoJIuK (20.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820226.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Auslogics Disk Defrag Professional 4.8.1.0 Final RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820217.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Hetman Partition Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820137.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AVG AntiVirus Free 2017 17.2.3008 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820129.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MediaInfo 0.7.63 Final RePack by nikollo2013 [Русский/Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819941.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mozilla Firefox 46.0 beta 11 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819646.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ YouTube Video Downloader PRO 5.4 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819544.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ IObit Uninstaller Free 11.1.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819478.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ GPU-Z 0.8.7 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819437.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ GeoGebra 6.0.671.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819389.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ BluffTitler Ultimate 15.5.0.1 (x64) RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819383.jpg" />
 </div>
 
 

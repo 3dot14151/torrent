@@ -6,7 +6,7 @@ Cockos - REAPER 5.973 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694063.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 8.41.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694057.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Legiac (Funckarma) - Mings Feaner (2007) [FLAC|Lossless|CD]<IDM, Experimental, A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694054.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ CrystalDiskInfo 7.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694053.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ GOM Player 2.3.3 Build 5254 Final Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694050.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ DxO Optics Pro 11.0.0 Build 11397 Elite [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694038.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ XnViewMP 0.96.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694031.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SIV (System Information Viewer) 5.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694023.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Balabolka 2.15.0.751 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694019.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AOMEI Backupper Technician Plus 6.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694012.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AIMP 5.02 Build 2366 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694008.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CPU-Z 2.00.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694007.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Reg Organizer 8.86 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694006.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PotPlayer 1.7.21612 (220302) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694004.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Disk Drill Enterprise 4.6.380 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693998.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Google Chrome 99.0.4844.51 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693996.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693977.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ NG: В глубинах Млечного Пути / Inside the Milky Way (2010) 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693962.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Shlohmo - Emerge From Smoke / Ode 2 Tha Whip (2015) [FLAC|Lossless|Vinyl]<Experi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693952.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ RecFrag - Burning Rime (2015) [FLAC|Lossless|WEB-DL]<IDM, Industrial, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693945.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Synth-Etik - Function (2015) [MP3|~278 кб/с (V0)]<Rhythmic Noise, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693943.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ MNP Helper 1.0.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693938.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Silent Servant - Shadows of Death and Desire (2018) [FLAC|Lossless|tracks + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693931.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VueScan Pro 9.6.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693930.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Adobe Flash Player 32.0.0.156 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693920.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Any Video Converter Professional 6.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693917.jpg" />
 </div>
 
 

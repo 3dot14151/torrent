@@ -6,7 +6,7 @@ Adobe XD v40.0.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015469.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe InCopy 2021 v16.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015456.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ashampoo Burning Studio 22.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015454.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ foobar2000 1.6.6 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015453.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ HWiNFO 7.04 Build 4480 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015449.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MetaProducts Offline Explorer Enterprise 8.1.4896 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015445.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Adobe Media Encoder 2021 v15.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015437.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Adobe InDesign 2021 v16.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015434.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ FurMark 1.26.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015432.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015426.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ RadioBOSS Advanced 6.0.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015424.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WinRAR 6.02 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015417.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ uTorrent 3.5.5 Build 46020 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015404.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PlayerPro Music Player 5.25 Mod by ALEX6301, CMAPTOC [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015378.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Premiere Pro 2021 v15.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015370.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe Acrobat Pro DC v21.001.20155 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015367.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Meta 2.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015350.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ GlanceCal 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015349.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Network & Battery 12.2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015348.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Feeder 4 v4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015347.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Meta 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015342.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Donemax DMmenu 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015338.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ File Cabinet Pro 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015335.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Data Extractor 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015322.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.38 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015321.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ TechSmith Snagit 2021.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015312.jpg" />
 </div>
 
 

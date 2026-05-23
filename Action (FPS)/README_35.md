@@ -6,7 +6,7 @@ Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226651.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226502.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224502.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224409.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223144.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222178.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Chronicles of Riddick: Escape from Butcher Bay [Ru/En] (RePack) 2004 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221893.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220475.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220182.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ ARAYA (2016) [En/Th] (1.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217319.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.4.35442) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217119.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217046.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Madness Beverage (2021) [En] (7802120) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216248.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Aim Hero (2016) [Ru/En] (0.158) Portable Devint
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215532.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Behind the Memory (2016) [En/Es] (1.1.4.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215247.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7/MP) Rip =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214983.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214617.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213527.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212529.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Heretic + Hexen (2025) [Ru/Multi] (Update 1) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212166.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212143.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Soldier of Fortune II (2): Double Helix (2003) [Multi] (1.03hf) License GOG [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211299.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Hotel (2022) [Ru/Multi] (1.1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211142.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Nightmare Reaper (2019) [En] (2.30) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211081.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ CyClones (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210041.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Exorcism Ritual (2023) [En] (1.0) Scene DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206601.jpg" />
 </div>
 
 

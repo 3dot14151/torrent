@@ -6,7 +6,7 @@ Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061755.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060519.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты жив
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060518.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060093.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059504.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ ChaO | Чао [2025, Movie] WEBRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059343.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chou Kaguya-hime! / Cosmic Princess Kaguya! / Суперпринцесса Ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058580.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058154.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Haikara-san ga Tooru | Smart-san | Современная девушка | Го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058005.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057998.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Alma-chan wa Kazoku ni Naritai | Alma-chan Wants to Be a Family! | Альма х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057983.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Attack No.1 | Attack Number One | Mila Superstar | Лучшая подача [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057947.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056577.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Tensei Akujo no Kurorekishi | The Dark History of the Reincarnated Villainess | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055859.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Onee-chan Gokko | Playing Sister | Играя роль старшей сестр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055473.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Little Witch Academia | Академия ведьмочек (фильм перв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055200.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054391.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Momotarou: Umi no Shinpei | Momotaro Sacred Sailors | Momotaro's Divine Sea Warr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054050.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054011.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Kumo to Tulip | Spider and Tulip | Паук и тюльпан [1943, Movie] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053853.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Eiga Kobayashi-san Chi no Maidragon: Samishigariya no Ryuu | Miss Kobayashi's Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053387.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Hell Mode: Yarikomi Suki no Gamer wa Hai Settei no Isekai de Musou Suru | Hell M
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052910.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Sousou no Frieren (2026) | Frieren: Beyond Journey's End (2026) | Фрирен [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052812.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Prism Rondo | Love Through a Prism | Любовь сквозь призму [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052549.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Undead Unluck: Winter Hen | Undead Unluck: Winter Arc | Нежить и Неуд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052533.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052497.jpg" />
 </div>
 
 

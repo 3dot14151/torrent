@@ -6,7 +6,7 @@ Sexy Girls Pack Wallpapers (09.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155244.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sexy Girls Wallpapers (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155241.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sketch 61.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155239.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ DriverPack Solution 16.12 DVD-9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155237.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GrandTotal 7 v7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155233.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Bat! Professional Edition 9.0.14 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155226.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.2 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155225.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ K-Lite Codec Pack 11.8.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155221.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Middle 1.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155220.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Gilrs Wallpaper (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155216.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PrefEdit 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155208.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Total Commander 11.02 MAX-Pack 2023.11.11 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155201.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155198.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PDF Search 10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155195.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Keep It 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155189.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - One Night in Aspen (Pure Progressive Clubsounds) (2012) [MP3|320 кб/с]<P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155176.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Posterino 3 v3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155175.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Arturia - Pigments 1.0.0.473 VSTi, VSTi3, AAX (x86/x64) RePack by R2R (19.12.201
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155171.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ AutoRuns 14.07 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155167.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ashampoo Burning Studio 21.3.0.42 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155161.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Freemake Video Converter 4.1.13.112 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155160.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Duplicate File Finder Pro 6.12  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155152.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Net Radar 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155145.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Airtool 2 v2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155139.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Google Chrome 96.0.4664.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155133.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155127.jpg" />
 </div>
 
 

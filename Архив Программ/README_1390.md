@@ -6,7 +6,7 @@ GPU Caps Viewer 1.47.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332416.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EagleGet 2.0.4.6 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332403.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soft Organizer 5.01 Final RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332396.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Glary Utilities Pro 5.129.0.155 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332344.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BurnAware Professional 8.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332335.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinToUSB Free 2.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332331.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GreenCloud Printer Pro 7.7.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332326.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Panda Free Antivirus 2016 16.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332324.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 10 Manager 3.3.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332297.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Bootstrap Studio 5.4.3 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332294.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ EssentialPIM Pro Business Edition 8.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332260.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Artweaver Free 5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332227.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332226.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Raxco PerfectDisk Professional Bussines 14.0 Build 880 RePack by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332219.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC2020-11-01) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332204.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Torch Browser 69.0.0.2985 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332169.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Kinza Browser 5.8.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332157.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Movavi Slideshow Maker 6.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332155.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mirillis Action! 3.10.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332154.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332144.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FontCreator Professional 9.0.0 build 1916 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332091.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VirtualBox 5.0.10 r104061 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332086.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ IObit Malware Fighter Pro 3.4.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332085.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ UC Browser 5.5.7045.1004 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332083.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 01.11.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332070.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ RizomUV Virtual Spaces / Real Space 2020.0.89 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332061.jpg" />
 </div>
 
 

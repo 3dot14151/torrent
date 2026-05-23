@@ -1,55 +1,3 @@
-###  Публикация: 1658947   (190452) от 10.09.2023
-
-Дневник артериального давления v3.2.4 Mod by cenzo [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Дневник артериального давления Pro — это продвинутый инструмент для регулярной записи и анализа измерений артериального давления. Это приложение окажется полезным для людей, страдающих заболеваниями кровеносной системы (например, гипертонией или гипотонией), а также имеющих предрасположенность к таким заболеваниям. Приложение может быть использовано как во время (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.09.2023Разработчик: FRUCTПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A91CC57EBDF331FCC61627016BAE53E41AE9E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658942   (190413) от 10.09.2023
-
-TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Это приложение для просмотра TrackView. Он может отслеживать приложения TrackView на других платформах, например. iOS и ПК. TrackView разработан для обеспечения безопасности семьи. Он превращает ваши смартфоны, планшеты и ПК в подключенную IP-камеру с GPS-локатором, обнаружением событий, оповещениями и возможностями записи в облаке/маршруте. Версии для Windows и (   Читать дальше...   )Тип издания: PlatinumРелиз состоялся: 07.09.2023Разработчик: TrackViewПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF7ED8E20A9FB0040BF223DC5225B58E2617535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659517   (190008) от 11.09.2023
 
 Picture Bird - Bird Identifier v2.9.25 Mod by youarefinished [Ru/Multi]
@@ -58,7 +6,7 @@ Picture Bird - Bird Identifier v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190008.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Picture Mushroom - Mushroom ID v2.9.20 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189970.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ Garmin: City Navigator Europe NTU 2024.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189956.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189882.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189862.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ Moon+ Reader Pro 8.4 (804001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189752.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ VPN Monster - Secure VPN Proxy 2.0.1.5 Mod by RBMods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189592.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ Turbo VPN - Secure VPN Proxy / безопасный ВПН 3.9.7.5 Mod by Brown 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189552.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189233.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189054.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189045.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ AccuBattery Pro 2.1.2 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188768.jpg" />
 </div>
 
 
@@ -377,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188214.jpg" />
 </div>
 
 
@@ -403,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188200.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ CarBit ELM327 OBD2 v3.5.2 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188186.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ OSM Travel - Map West Russia for Garmin (Март 2022 года)
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188146.jpg" />
 </div>
 
 
@@ -485,7 +433,7 @@ Vanced Tube v5.5.80.115 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188093.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188091.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ WiFi Analyzer v6.6 (b104) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188090.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ Persona: Бьюти-камера v1.6.52 Mod by Alien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187976.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ GPS АнтиРадар v38.0 Mod by Dymonyxx [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187972.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ Sample VPN - Fast and Safe VPN 1.0.2 b5 Mod by AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187659.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187468.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ vRGB LED IR Remote Control v4.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187463.jpg" />
 </div>
 
 
@@ -679,6 +627,59 @@ vRGB LED IR Remote Control v4.7 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD4C3F23DA3D17916117BE72DEAA2BACE184DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591255   (187442) от 17.11.2022
+
+Ocean Aquarium v1.1 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ocean Aquarium - это живые обои. Вы можете увидеть 3D рыб в реальном времени!
+Смотри, расслабься и успокойся. Лучше всего для телефонов. Портретный режим.Тип издания: ProРелиз состоялся: 06.08.2020Разработчик: maxelus.netПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ED5B2F40A0C53EF6407905F27A7039294629F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662486   (187433) от 19.09.2023
+
+Universal Copy v6.3.5 Мод by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Copy — это самый быстрый способ копировать текст на Android, даже из приложений, которые не позволяют вам копировать, или внутри изображений. Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.09.2023Разработчик: Camel CorporationПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A551C1F644AECC9E8AEE39C007FB19ED37AC3435
 ```
 
 https://mybot314.ru/tekegram_catalog/

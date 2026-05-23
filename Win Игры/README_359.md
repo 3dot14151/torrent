@@ -1,29 +1,3 @@
-###  Публикация: 1345047   (167677) от 13.12.2019
-
-Phoenix Point (2019) [Ru/Multi] (1.0.54518) Repack R.G. Механики
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Phoenix Point - это новая стратегическая игра от создателя оригинальной серии X-COM. Игра состоит из пошаговых тактических боев и глобальной стратегии в битве против ужасающей, чужеродной угрозы. В Phoenix Point игрокам предстоит вступить в отчаянную схватку, чтобы защитить Землю от мутирующей инопланетной угрозы. В Phoenix Point вас ждут пошаговые тактические бои (   Читать дальше...   )Тип издания: RepackРазработчик: Snapshot GamesЖанр: Strategy (TBS), Tactical, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B8211420999A396C9CE8B9529C8572E29DA4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515988   (167651) от 09.12.2021
 
 The Christmas Spirit 5: Golden Ticket (2021) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ The Christmas Spirit 5: Golden Ticket (2021) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167651.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Vengeance of Mr. Peppermint (2023) [En] (226) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167584.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Citizens: On Mars (2023) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167519.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167497.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Fermi Paradox (2021) [En] (0.70.v.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167487.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Spirit Legends 3: Time for Change (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167367.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Train Sim World 6 (2025) [Ru/Multi] (Build 487/dlc) Repack FitGirl [Special Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167366.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Unsolved Case: Fatal Clue / Нераскрытое дело: Роковая ул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167229.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167222.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Yuletide Legends 3: Who Framed Santa Claus / Рождественская ист
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167167.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167070.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167008.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166497.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166310.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166227.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166170.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166018.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165987.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165823.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Legacy: Witch Island 4 Last Bastion (2022) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165759.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.10) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165714.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ INMOST (2020) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165696.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165688.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Book Travelers: A Victorian Story / Книжные Странники: Викт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165654.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Terminator: Resistance / Терминатор: Сопротивление (2019)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165619.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Terminator: Resistance – шутер от первого лица во врем
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBFA32DA11DBFEF83A4A67F6EDFA7CA4E359B380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528720   (165389) от 15.12.2022
+
+Gamedec (2021) [Ru/Multi] (1.7.1.r70100/dlc) License GOG [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gamedec – изометрическая RPG в жанре киберпанк для одного игрока, не имеющая боевой системы. Вы – игровой детектив, расследующий преступления в виртуальных мирах. Собирайте информацию у свидетелей и подозреваемых, чтобы перехитрить злодеев и раскрыть их замыслы, спасти невинные жизни и изучить необычные отношения между виртуальными мирами и их жителями. Игра постоянно (   Читать дальше...   )Тип издания: LicenseРазработчик: Anshar StudiosЖанр: Ролевая игра, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B328485534B59648222997FE0F410641E20FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

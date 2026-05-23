@@ -1,29 +1,3 @@
-###  Публикация: 1640417   (49888) от 16.07.2024
-
-Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Холст в ожидании последних штрихов. Исполнителя главной роли ждут на сцене. Роману не хватает лишь последней главы. Пришло время столкнуться со своими страхами в последний раз. Серия, оставившая глубокий след в жанре психологических хорроров от первого лица с упором на сюжет, вновь возвращается на экраны, чтобы рассказать заключительную леденящую кровь историю в (   Читать дальше...   )Тип издания: LicenseРазработчик: Anshar Studios, Bloober TeamЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4762B82EEE5070EE4DF22606D554433725A596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737220   (49865) от 16.07.2024
 
 Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
@@ -32,7 +6,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49865.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49863.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49853.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49840.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Criminal Archives 4: Blade of Deceit / Криминальные архивы 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49833.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Antichamber (2013) [Ru/En] (build 296940) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49830.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Astro Looter: Survivor (2024) [Ru/Multi] (16072024) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49794.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Founders' Fortune (2020) [Ru/Multi] (1.2.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49768.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49695.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49693.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49686.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Butanooo! Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49668.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49665.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ TerraScape (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49663.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49650.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49643.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49641.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49587.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Thaumaturge (2024) [Ru/Multi] (73424/dlc) License GOG [Digital Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49477.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49476.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49460.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Asterix & Obelix Slap Them All! 2 (2023) [Multi] (2023121101) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49458.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49452.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.52-267364) Repack Other s [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49450.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Classified: France '44 (2024) [Multi] (20240718/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49447.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Classified: France ‘44 - это пошаговая стратегическа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:430E4B17CEE02C079E232A241E37DBDE4A958A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737912   (49443) от 20.07.2024
+
+Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Scene PROPHET
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Cartel - игра-вестерн от первого лица. Играйте за работника правоохранительных органов в городе Лос-Анджелес. Сюжет разворачивается из-за одного террористического действия, подстроенного крупным наркоторговцем. Пострадало много невинных людей, и полиция решает не терпеть более подобных выходок.Тип издания: SceneРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5384F20094FAAA66C79339D2715F144D2A89931
 ```
 
 https://mybot314.ru/tekegram_catalog/

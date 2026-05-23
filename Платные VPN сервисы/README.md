@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_376474.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270112.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NoBorderVPN — анонимный и стабильный VPN. 3 дня бес�
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_675.jpg" />
 </div>
 
 

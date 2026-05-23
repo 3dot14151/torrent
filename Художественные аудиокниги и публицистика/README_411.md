@@ -1,83 +1,3 @@
-###  Публикация: 1540807   (650577) от 31.03.2022
-
-Глен Кук | «Приключения Гаррета» Книга 6. Ночи кровавого железа (2020) [MP3, Сергей Царегородцев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Танфере происходит серия таинственных убийств. Все жертвы - черноволосые девушки - убиты самым жестоким образом, видимо, в ходе какого-то ритуала. Стража просит Гаррета о помощи, и он помогает. Но через некоторое время убийства возобновляются...
-
-Приключения Гаррета — серия книг Глена Кука, о частном детективе Гаррете. Романы написаны в стиле нуар, содержат элементы (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтези, Зарубежное фэнтезиПродолжительность: 09:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218CE49703A6176C031B49ACA1C8B53A2DA90C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540823   (650475) от 31.03.2022
-
-Евгений Шалашов | «Чекист» Книга 4. Новое назначение (2022) [MP3, Casper Valter]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Приключения Владимира Аксенова не закончились. Но теперь он уже не рядовой чекист-разведчик, а почти всемогущий начальник Архангельского ЧК, да еще и Председатель правительственной комиссии.Жанр: Исторические приключения, ПопаданцыПродолжительность: 06:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A311F19CB42B88E790C9F6A61F2DD5F40BE4C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227112   (650403) от 24.05.2018
-
-Всеволод  Кочетов | Журбины (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роман «Журбины» хорошо известен советскому читателю. Он посвящен рабочему классу, великому классу творцов. В нем рассказывается о рабочей династии кораблестроителей, о людях, вся жизнь которых связана с любимым делом, с заводом, который стал для них родным. В образах героев романа писатель показывает новый тип советского рабочего человека с его широким кругозором, (   Читать дальше...   )Жанр: РоманПродолжительность: 15:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95C20857F33C66884E673AB65B25AB9FC6F2D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540721   (650358) от 31.03.2022
 
 Вадим Фарг | Система возрождения (Книга 1). Лишний игрок (2022) [MP3, Владислав Горбылев]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650358.jpg" />
 </div>
 
 
@@ -113,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650320.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650306.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650187.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650092.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650088.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650083.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649869.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649814.jpg" />
 </div>
 
 
@@ -321,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649787.jpg" />
 </div>
 
 
@@ -347,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649685.jpg" />
 </div>
 
 
@@ -373,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649682.jpg" />
 </div>
 
 
@@ -399,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649671.jpg" />
 </div>
 
 
@@ -425,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649541.jpg" />
 </div>
 
 
@@ -451,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649493.jpg" />
 </div>
 
 
@@ -477,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649430.jpg" />
 </div>
 
 
@@ -503,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649423.jpg" />
 </div>
 
 
@@ -529,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649379.jpg" />
 </div>
 
 
@@ -556,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649346.jpg" />
 </div>
 
 
@@ -582,7 +502,7 @@ Bethesda Softworks | Тамриэльские Хроники (2015) [MP3] (12 и
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649257.jpg" />
 </div>
 
 
@@ -609,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649109.jpg" />
 </div>
 
 
@@ -635,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648698.jpg" />
 </div>
 
 
@@ -661,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648647.jpg" />
 </div>
 
 
@@ -673,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B43E49945DCC2EFC8CB5A4835A387B235C2DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141837   (648613) от 11.06.2017
+
+Эдгар По | Очки (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648613.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Некогда принято было насмехаться над понятием "любовь с первого взгляда"; однако люди, способные мыслить, равно как и те, кто способен глубоко чувствовать, всегда утверждали, что она существует. И действительно, новейшие открытия в области, так сказать, нравственного магнетизма или магнетоэстетики заставляют предполагать, что самыми естественными, (   Читать дальше...   )Жанр: рассказ, мистикаПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42026F56CD6DE50122F71BCDFEDB77A9134D24BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141827   (648603) от 11.06.2017
+
+Ариадна Борисова | Манечка, или Не спешите похудеть (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее избыточный вес и невысокий рост дополняло крапленное веснушками круглое лицо. Ее называли Маняшей, и никто не верил, что это человеческое недоразумение, дожившее уже до тридцати трех лет, способно обрести женское счастье. Но как часто за неказистым на первый взгляд фасадом скрывается по-настоящему тонкая и прекрасная душа!.. И удивительно, что судьбе совсем не (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 03:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF1E03E50C65EB14A01F95972D848AFEBDB2185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541068   (648543) от 01.04.2022
+
+Сирил Хейр | Самоубийство исключается (2022) [MP3, Валерий Стельмащук]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отпуск инспектора Маллета не задался с самого начала: его соседа по столику, мистера Дикинсона, нашли мертвым в номере. Местная полиция подозревает самоубийство, однако Маллет другого мнения. Он убежден: чтобы разгадать тайну гибели Дикинсона, необходимо внимательнее присмотреться к членам его весьма респектабельной, на первый взгляд, семьи…Жанр: ДетективПродолжительность: 09:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B419381D572C2F4B87C92B4A47C25AF17EC869
 ```
 
 https://mybot314.ru/tekegram_catalog/

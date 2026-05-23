@@ -6,7 +6,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,270) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20966.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20908.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20858.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20729.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20721.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20666.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20664.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16.269) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20630.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20570.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20450.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20416.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20349.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20293.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20255.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Stone of Madness (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20251.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ CyberCorp (2024) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20234.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20178.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20139.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20031.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hero's Hour (2022) [Ru/Multi] (2.8.1b/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20030.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20014.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.b314.r63560/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20009.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20005.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20002.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19984.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19907.jpg" />
 </div>
 
 

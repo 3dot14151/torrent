@@ -1,57 +1,3 @@
-###  Публикация: 1269869   (214779) от 17.12.2018
-
-Гарри Поттер и Принц-полукровка / Harry Potter and the Half-Blood Prince (2009) WEB-DLRip [H.264/720p-LQ] [Open Matte] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного романа Дж. К. Роулинг. Теперь не только мир волшебников, но и мир маглов ощущает на себе все возрастающую силу Волан-де-Морта, а Хогвартс уже никак не назовешь надежным убежищем, каким он был раньше. Гарри подозревает, что в самом замке затаилась некая опасность, но Дамблдор больше сосредоточен на том, чтобы подготовить его к финальной схватке, (   Читать дальше...   )Производство: США, Великобритания / Warner Bros. Pictures Inc, Heyday FilmsЖанр: Фэнтези, Детектив, Приключения, СемейныйРежиссер: Дэвид ЙейтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Джим Бродбент, Эларика Галлахер, Робби Колтрейн, Майкл Гэмбон, Мэгги Смит, Алан Рикман, Бонни РайтПеревод: ДублированныйСубтитры: Русские (форс., полные), английскиеПродолжительность: 02:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D416184734AD199E518CF4AAB43EF5F5A8B4E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269785   (214774) от 17.12.2018
-
-Гарри Поттер и Кубок огня / Harry Potter and the Goblet of Fire (2005) WEB-DLRip [H.264/720p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Гарри Поттер, Рон и Гермиона возвращаются на четвертый курс школы чародейства и волшебства Хогвартс. При таинственных обстоятельствах Гарри отобран в число участников опасного соревнования — Турнира Трех Волшебников, однако проблема в том, что все его соперники — намного старше и сильнее.
-
-К тому же, знаки указывают на возвращение Лорда Волдеморта. Вскоре Гарри предстоит (   Читать дальше...   )Производство: США, Великобритания / Heyday Films, Patalex IV Productions Limited, Warner Bros. PicturesЖанр: Фэнтези, Детектив, Приключения, СемейныйРежиссер: Майк НьюэллАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Брендан Глисон, Алан Рикман, Майкл Гэмбон, Рэйф Файнс, Роберт Паттинсон, Робби Колтрейн, Мэгги Смит, Станислав Яневский, Клеманс ПоэзиПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECAC714D5D9825F0F21326ABEE187128B0A3073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514685   (214772) от 04.12.2021
 
 Клаустрофобы 2: Лига выживших / Escape Room: Tournament of Champions (2021) BDRip [H.264/1080p] [Extended Cut]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214772.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214754.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214714.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214702.jpg" />
 </div>
 
 
@@ -166,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214646.jpg" />
 </div>
 
 
@@ -192,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214592.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214565.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214556.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214529.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214480.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214451.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214414.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214404.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214352.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214339.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214325.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214305.jpg" />
 </div>
 
 
@@ -508,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214303.jpg" />
 </div>
 
 
@@ -534,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214289.jpg" />
 </div>
 
 
@@ -560,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214279.jpg" />
 </div>
 
 
@@ -586,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214277.jpg" />
 </div>
 
 
@@ -613,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214255.jpg" />
 </div>
 
 
@@ -639,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214210.jpg" />
 </div>
 
 
@@ -665,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214201.jpg" />
 </div>
 
 
@@ -676,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7A3C352203B90836356D739B0104B7B92A514E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343780   (214183) от 08.12.2019
+
+Самый быстрый «Индиан» / The World's Fastest Indian (2005) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214183.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни знаменитого новозеландца Берта Монро, который потратил десятилетия жизни на переоснащение своего любимого мотоцикла марки «Индиан» 1920 года выпуска с максимальной скоростью в 58 миль/ч в гоночный болид для установления рекорда скорости.Производство: Новая Зеландия, Япония, США / OLC / Rights Entertainment, Tanlay, New Zealand Film Production FundЖанр: драма, биография, спортРежиссер: Роджер ДональдсонАктеры: Энтони Хопкинс, Айэйн Ри, Тесса Митчел, Аарон Мерфи, Тим Шэдболт, Энни Уиттл, Грег Джонсон, Энтони Старр, Кейт Салливан, Крэйг ХоллПеревод: Дублированный, авторский одноголосыйСубтитры: ОтсутствуютПродолжительность: 02:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D636EAFA263CFD0AEB2CA3D11115CFE881C8E873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576267   (214173) от 28.10.2022
+
+Икс / X (2022) BDRip [H.264/1080p-LQ] [MVO]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214173.jpg" />
+</div>
+
+
+###  Подробнее
+
+1979 год, Техас. Компания из шести человек арендует небольшой дом у пожилой пары фермеров, чтобы снимать фильм для взрослых. Хотя хозяин недвижимости сразу предупреждает, чтобы приезжие не шумели и вели себя прилично, продюсер, разумеется, пренебрегает его просьбой. Вскоре выяснится, что старички не такие безобидные, как казалось на первый взгляд.Производство: США, Канада / A24, BRON Studios, MAD SOLARЖанр: ужасыРежиссер: Тай УэстАктеры: Миа Гот, Дженна Ортега, Бриттани Сноу, Кид Кади, Мартин Хендерсон, Оуэн Кэмпбелл, Стефан Уре, Джеймс Гэйлин, Саймон Праст, Джофф ДоланПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Русские, английские (Full, SDH)Продолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70105978C3CAB677B738D375ACA39F713C9B9D40
 ```
 
 https://mybot314.ru/tekegram_catalog/

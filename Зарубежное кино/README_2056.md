@@ -1,59 +1,3 @@
-###  Публикация: 473895   (84958) от 28.03.2012
-
-Прислуга / The Help (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Американский Юг, на дворе 1960-е годы. Скитер только-только закончила университет и возвращается домой, в сонный городок Джексон, где никогда ничего не происходит. Она мечтает стать писательницей, вырваться в большой мир. Но для приличной девушки с Юга не пристало тешиться столь глупыми иллюзиями, приличной девушке следует выйти замуж и хлопотать по дому.
-
-Мудрая Эйбилин на тридцать лет старше Скитер, она прислуживает в домах белых всю свою жизнь, вынянчила семнадцать детей и давно уже ничего не ждет от жизни, ибо сердце ее разбито после смерти единственного сына.
-
-Минни — самая лучшая стряпуха во всем Джексоне, а еще она самая дерзкая служанка в городе. И острый язык не раз уже сослужил ей плохую службу. На одном месте Минни никогда подолгу не задерживается. Но с Минни лучше не связываться даже самым высокомерным белым дамочкам. Двух черных служанок и белую неопытную девушку объединяет одно — обостренное чувство справедливости и желание хоть как-то изменить порядок вещей. Смогут ли эти трое противостоять целому (   Читать дальше...   )Жанр: ДрамаРежиссер: Тейт ТейлорАктеры: Эмма Стоун, Виола Дэвис, Брайс Даллас Ховард, Октавия Спенсер, Джессика Честейн, Ана О’Райли, Эллисон Джэнни, Анна Кэмп, Элинор Генри, Эмма ГенриПеревод: Многоголосый закадровыйЯзык субтитров: русский, английский, украинский,  португальский, испанский, греческий, арабский, румынскийПродолжительность: 02:20:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473508   (84950) от 28.03.2012
-
-Что гложет Гилберта Грейпа? / What's Eating Gilbert Grape (1993) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Гилберт Грейп живет в штате Айова, в крошечном городке с населением в тысячу жителей. У него две сестры, слабоумный брат и толстуха-мать. Гилберт тянет лямку в магазине и крутит роман с замужней дамой. Но все меняется, когда в городок приезжает красивая молодая женщина по имени Беки.Жанр: Драма, Семейный, ТриллерРежиссер: Лассе ХалльстрёмАктеры: Джонни Депп, Леонардо ДиКаприо, Джульетт Льюис, Мэри Стинберген, Дарлен Кэйтс, Лора Хэррингтон, Мэри Кейт Шеллхардт, Кевин Тай, Джон С. Рейли, Криспин ГловерПеревод: Многоголосый закадровый,профессиональный+Профессиональный двухголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:57:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474477   (84942) от 28.03.2012
 
 Мужчины в большом городе 2 / Mannerherzen... und die ganz ganz grobe Liebe (2011) DVD5
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84942.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84927.jpg" />
 </div>
 
 
@@ -116,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84898.jpg" />
 </div>
 
 
@@ -142,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84896.jpg" />
 </div>
 
 
@@ -168,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84894.jpg" />
 </div>
 
 
@@ -194,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84836.jpg" />
 </div>
 
 
@@ -220,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84816.jpg" />
 </div>
 
 
@@ -246,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84803.jpg" />
 </div>
 
 
@@ -272,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84800.jpg" />
 </div>
 
 
@@ -298,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84793.jpg" />
 </div>
 
 
@@ -324,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84791.jpg" />
 </div>
 
 
@@ -350,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84778.jpg" />
 </div>
 
 
@@ -377,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84776.jpg" />
 </div>
 
 
@@ -405,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84767.jpg" />
 </div>
 
 
@@ -431,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84756.jpg" />
 </div>
 
 
@@ -457,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84754.jpg" />
 </div>
 
 
@@ -483,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84753.jpg" />
 </div>
 
 
@@ -509,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84742.jpg" />
 </div>
 
 
@@ -535,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84727.jpg" />
 </div>
 
 
@@ -561,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84715.jpg" />
 </div>
 
 
@@ -587,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84701.jpg" />
 </div>
 
 
@@ -615,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84700.jpg" />
 </div>
 
 
@@ -641,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84698.jpg" />
 </div>
 
 
@@ -667,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84685.jpg" />
 </div>
 
 
@@ -678,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D81FAF40D822478F3AB2F96BDA04D5E9F9EA09F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471575   (84571) от 26.03.2012
+
+Домашняя работа / The Art of Getting By (2011) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж — одинокий и замкнутый в себе подросток, которого в жизни мало что интересует. У него есть талант к рисованию, однако этот талант пропадает впустую, также как и школьное образование парня, уже давно переставшего слушать учителей и делать домашнюю работу. Но однажды Джордж знакомится с девушкой Салли, которая проявляет к нему дружеский интерес. Со временем (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Гэвин ВьесенАктеры: Фредди Хаймор, Эмма Робертс, Саша Спилберг, Маркус Карл, Франклин Энн Дауд, Майя Ри Санчез, Блэр Андервуд, Энн Харада, Рита Уилсон, Ярлат КонройПеревод: ДублированныйСубтитры: Русские (форсированные R5), Русские (полные R5), АнглийскиеПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473468   (84559) от 26.03.2012
+
+Таинственная река / Mystic River (2003) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джимми Маркум, Дейвид Бойл и Шон Девин — неразлучные приятели с детства. Они вместе играют в хоккей, взрослея на знакомых неспокойных улицах Бостона. Уже будучи взрослыми мужчинами, судьба сталкивает их вместе перед лицом трагедии: зверского убийства дочери Джимми Маркума — Кэтти.
+Для Джимми, мошенника в прошлом и владельца бакалейной лавки в настоящем, главным в жизни становится месть. Полицейский, которому поручают расследовать дело, — не кто иной, как Шон Девин, который уверен в одном: главный подозреваемый в убийстве — Дейв Бойл.Жанр: Триллер, Драма, КриминалРежиссер: Клинт ИствудАктеры: Шон Пенн, Тим Роббинс, Кевин Бейкон, Лоренс Фишбёрн, Марша Гэй Харден, Лора Линни, Кевин Чэпмен, Том Гайри, Эмми Россам, Спенсер Трит Кларк ...Перевод: ДублированныйПродолжительность: 02:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD2F78454E3E3847CBB319F6062B8E1B76A76C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

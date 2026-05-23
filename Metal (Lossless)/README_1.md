@@ -6,7 +6,7 @@ Cryptic Shift - Overspace & Supertime (2026) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065802.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sodom - Get What You Deserve (1994) 3XCD, Reissue, Remastered, 2026, Bmg Rights 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065569.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alter Bridge - Alter Bridge (2026) [FLAC|Lossless|image + .cue] <Alternative Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065438.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Schattenvald - Alle Hernach (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065305.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Myrath - Wilderness Of Mirrors (2026) [FLAC|Lossless|image + .cue] <Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065287.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gorguts - Colored Sands (2013) [FLAC|Lossless|image + .cue] <Death Metal, Experi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065247.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hellripper - Coronach (2026) [FLAC|Lossless|image + .cue] <Thrash Metal, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065245.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Tailgunner - Midnight Blitz (2026) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065230.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The Texas Chainsaw Massacre - The Album (2003) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065216.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Aryem - Agnes (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064953.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Atrocity - Hallucinations (1990) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064796.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nukem - The Grave Remains (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064746.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Immolation - Descent (2026) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064694.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Iron Savior - Awesome Anthems Of The Galaxy (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064256.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Timeless Rage - My Kingdom Come (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064200.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Defacing God - Darkness Is My Crown (2026) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064010.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ One Day In Pain - Imperial Fires (2020) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063998.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ One Day In Pain - In Pain We Trust (2023) Japan [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063995.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Thrash Bombz - Bio Decay (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063957.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Karmian - Horror Vacui (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063839.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Soen - Reliance (2026) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063829.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Poet - Emily (2020) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063775.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Aedan Sky - The Universal Realm (2025) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063774.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Kekht Arach - Morning Star (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Am
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063744.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Corrosion Of Conformity - Good God / Baad Man (2026) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063683.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Black Label Society - Engines of Demolition (2026) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063670.jpg" />
 </div>
 
 

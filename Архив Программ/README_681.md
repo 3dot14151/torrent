@@ -6,7 +6,7 @@ Ad-Aware Free Antivirus+ 11.11.898.9090 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705766.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Autorun Organizer 4.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705686.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 38.0.2220.31 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705677.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705666.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wise Disk Cleaner 10.3.1.782 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705610.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Opera 70.0.3728.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705605.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IObit Smart Defrag Pro 5.1.0.788 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705599.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Hotspot Shield Elite 5.20.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705598.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ScreenPresso Pro 1.6.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705597.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wondershare Filmora 7.3.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705592.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705587.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Easy CD-DA Extractor 2011.3.0.0 Ultimate Final [Мульти/Русский] | R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705581.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Soft Organizer Pro 8.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705502.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Topaz A.I. Gigapixel 5.0.4.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705500.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 07.08.2020) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705482.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Android Studio 2.1.2 Build #AI-143.2915827 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705469.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AusLogics BoostSpeed 9.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705466.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ FileZilla 3.41.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705361.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ KinoScreen 1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705320.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinToUSB Technician 5.6 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705308.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mp3tag 2.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705204.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Master PDF Editor 5.3.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705201.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Acoustica Premium Edition 7.1.15 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705196.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Sumatra PDF 3.4.14276 Pre-release + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705174.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Zortam Mp3 Media Studio Pro 29.25 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705170.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ CrystalDiskMark 4.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705167.jpg" />
 </div>
 
 

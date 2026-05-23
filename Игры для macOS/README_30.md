@@ -6,7 +6,7 @@ Alpha Prime (2007) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154376.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Red Faction: Guerrilla v1.0 (2008) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153883.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ D&D: Lords of Waterdeep 2.0.4 (2017) [En] [macOS Native game]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153223.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ IOQuake3 (Quake III Arena) (2009) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152129.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Prince of Persia: Warrior Within (2004) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151841.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Prince of Persia: The Two Thrones (2005) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151819.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Unmechanical: Extended 2.1.0.3 (2012) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151808.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Prince of Persia (2008) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151755.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ A Stroke Of Fate [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151016.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ F.E.A.R. [Platinum Collection] (2005-2007) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149313.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Far Cry (2004) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149147.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Fallout 3: Game of the Year Edition v1.7 (2008) [Ru] [macOS Cider]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148162.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Surviving Mars v.1.4 Merbold 1010784 (51924) (2018) [Multi/Ru] [macOS Native gam
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147826.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ZED (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147180.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Asterix & Obelix XXL 3: The Crystal Menhir v1.56 (2019) [Multi/Ru] [macOS Native
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145876.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Resolutiion v1.3.0.1 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144772.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Detention (2021) v1.0 [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143479.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Townscaper v1.0 (49525) (2021) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143386.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ The Whispered World: Special Edition v.3.2.0418 (2014) [Multi/Ru] [macOS Native 
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143358.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mosaic v.1.1.8 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143229.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Planetary Dustoff v.1.0.2 (2019) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143186.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Fell Seal: Arbiter's Mark v.1.0.2 (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143167.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Felix: The Reaper v.1.12.0 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143136.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Brigador: Up-Armored Edition v.1.5v2 (2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143074.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Door Kickers v.1.0.9 (2015) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142574.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ FlowScape v.1.5 (2019) [En] [macOS Native game]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142527.jpg" />
 </div>
 
 

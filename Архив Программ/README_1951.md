@@ -6,7 +6,7 @@ Cent Browser 4.3.9.241 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145719.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Substance Painter 2.4.1 build 1383 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145687.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Total Commander 9.0a Final MAX-Pack Extended 2016.12.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145676.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adguard 7.3.3048.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145637.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AnyDesk 3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145587.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 26.12.2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145584.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RegCool 1.301 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145582.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soft Organizer Pro 8.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145575.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Firefox Browser ESR 115.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145556.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Sandboxie 5.55.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145508.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FBackup 9.8.840 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145491.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Cyberlink ColorDirector Ultra 12.0.11.3503 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145475.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Apowersoft Screen Capture Pro 1.5.3.0 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145465.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Firefox Browser ESR 102.15.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145458.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TapinRadio 2.15.96.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145453.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe AIR 20.0.0.233 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145448.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adguard Premium 7.3.3048.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145445.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ xrecode II + portable Build 1.0.0.198 + xrecode2 shell 1.0.0.7 [Multi/Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145436.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Firefox Browser 120.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145420.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Aiseesoft Screen Recorder 2.9.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145410.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ ScreenToGif 2.35.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145407.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145380.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ DVDFab 9.2.2.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145379.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ApowerREC 1.6.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145374.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ CyberLink PowerDirector Ultimate 22.0.2313.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145303.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ FileZilla Server 1.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145293.jpg" />
 </div>
 
 

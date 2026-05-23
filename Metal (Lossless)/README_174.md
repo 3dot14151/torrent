@@ -6,7 +6,7 @@ Parkway Drive - Darker Still (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377097.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Napalm Death - Throes Of Joy In The Jaws Of Defeatism (2020) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376984.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376903.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Roadrunner United - The All-Star Sessions (2005) [WavPack|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376728.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pretty Maids - First Cuts...And Then Some (1999) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376244.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lethian Dreams - Season Of Raven Words (2012) [FLAC|Lossless]<Doom Metal, Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_376235.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Helloween - Burning Sun (CD Single) (2012) [FLAC|Lossless]<Power Metal, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375656.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Tiamat - The Scarred People (Limited Edition) (2012) Scene [FLAC|Lossless]<Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375648.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mighty D. - The Last Rise (2004) [FLAC|Lossless|image + .cue] <Atmospheric Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375491.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Messticator - Forthcoming Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375490.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Mighty D. - In the Sad Valley of Tears (2000) Reissue, 2018, Self-released [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375489.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Monasterium - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375488.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Kalmah - Seventh Swamphony (2013) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375487.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Craft - 5 Albums (2000 - 2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375133.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dragony - Masters of the Multiverse (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375130.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Seven - Freedom Call (2011) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373990.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FireLake - Radioactive (2014) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373770.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Mordor - Nothing... (Demo) (1992) Reissue, 2016, Witching Hour Productions [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373373.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Steel Engraved - Steel Engraved (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373370.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Darkness - First Class Violence (2018) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373336.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Stormwitch - Bound To The Witch (2018) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373260.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Dream Theater - Lost Not Forgotten Archives: Live in Berlin, 2019 (2022) 2xCD [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373243.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Amaranthe - Manifest (2020) Bonus Version, 2022, Nuclear Blast [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373233.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Ossuaire - Premiers Chants (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372622.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Arctos - Beyond the Grasp of Mortal Hands (2019) [FLAC|Lossless|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372621.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Degraey - Chrysalis (2016) [FLAC|Lossless|image + .cue] <Post Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372619.jpg" />
 </div>
 
 

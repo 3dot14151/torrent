@@ -1,29 +1,3 @@
-###  Публикация: 955988   (332461) от 12.11.2015
-
-Fear for Sale 7: City of the Past (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Узнав об исчезновении своего коллеги Джека, журналистка Эмма Робертс отправляется на его поиски. Обстоятельства исчезновения Джека приводят её в дом талантливого скульптора и художника Алекса Дина, который несколько лет назад оборвал все связи с миром и стал вести жизнь затворника.Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D05F0E022BC565BA68FF15B3E1656208943FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955918   (332405) от 12.11.2015
 
 Mystery Case Files 12: Key To Ravenhearst (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Mystery Case Files 12: Key To Ravenhearst (2015) [En] Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332405.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Halloween Chronicles 3: Cursed Family / Хроники Хэллоуина 3: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332367.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Lost Lands 3:The Golden Curse (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332325.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332196.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Sacred Almanac: Traces of Greed / Священный Альманах: След�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332088.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Redemption Cemetery 7: Clock of Fate / Кладбище искупления 7: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332084.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Mystery of a Lost Planet / Тайна затерянной планеты (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331943.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331907.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Campfire Legends: The Babysitter / Страшилки у костра. Прих�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_331643.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Prodeus (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330463.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Sherlock Holmes and the Hound of the Baskervilles Collector's Edition (L) [En] 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_329738.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ UNDETECTED (2022) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329542.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Jack Move (2022) [Ru/Multi] (1.0.5-118) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329541.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Left to Survive (20.09.22) [Ru] (26052) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329538.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328143.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Apache: Air Assault [Ru/En] (Repack) 2010 l R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_327814.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ Evil Defenders (2015) [Ru/Multi] (1.0) SteamRip R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327199.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Bus World (2022) [Ru/Multi] (Build 9649353) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326967.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ NERO (2022) [En] (1.5) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326957.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Gamedec (2021) [Ru/Multi] (1.7.0.r64951/dlc) Repack Other s [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326030.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Halloween Stories 6: Mark on the Bone (2022) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325362.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325061.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Cyber Hook (2020) [Ru/Multi] (1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324205.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Duskless: The Clockwork Army / Бессумеречный город: Механ
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322854.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ My Memory of Us (2018) [Ru/Multi] (1.2990) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322852.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ My Memory of Us – это воспоминание о дружбе между �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B537EC939809312DBDED78CFB50B519ED59A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075124   (322603) от 21.11.2016
+
+Armello: The Usurpers (2015) [Ru/Multi] (1.00) License TiNYiSO
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armello – красочная пошаговая стратегия с элементами RPG и использованием карт, действие которой разворачивается в фэнтезийном королевстве Армелло, населенном антропоморфными созданиями. Когда король поддался влиянию темной силы, представители различных кланов начали соревноваться за трон.Тип издания: LicenseРазработчик: League of GeeksЖанр: Logic (Board,Classic), 3D, Isometric, StrategyЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391A98370F2FAEBF29992B155ACBAC519A44F549
 ```
 
 https://mybot314.ru/tekegram_catalog/

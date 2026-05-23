@@ -1,56 +1,3 @@
-###  Публикация: 884385   (806938) от 03.04.2015
-
-Репли-Кейт / Repli-Kate (2002) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сотрудник лаборатории по клонированию Макс встретил "идеальную женщину" - красивую, умную и очень сексуальную репортершу Кейт. К его несчастью она не обращает внимания на упертых в науку "ботаников" типа Макса. Но ему совершенно случайно удается клонировать Кейт. На пару со своим приятелем Генри Макс превращает свою Репли-Кейт в совершенно потрясающую (   Читать дальше...   )Производство: Германия, США, Helkon Media AG, Zide-Perry Productions, Silver Nitrate PicturesЖанр: Фантастика, КомедияРежиссер: Фрэнк ЛонгоАктеры: Эли Ландри, Джеймс Родэй, Десмоннд Аскью, Юджин Леви, Райан Алосио, Тодд Роберт Андерсон, Курт Фуллер, Айми Аллен, Аманда Рейн, Мелисса Гринспен, Джастин Шилтон, Нед Броуер, Кент Дэвис, Эмилио Борели, Дэвид Кларк, Дженнифер Экхолс, Джоэль, Майкли, Кевин Бэйлдс, Джереми Попофф, Аллен Шелленбергер, Джордж АланПеревод: Многоголосый закадровый, Профессиональный - Екатеринбург-Арт
-Двухголосый закадровый, Профессиональный - R5Продолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6352F875FD969E3A42300E1833EC5E197F1552E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883453   (806789) от 03.04.2015
-
-187 / One Eight Seven (1997) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Где обитают ублюдки? Учитель из Бруклина Тревор Гарфилд видит их каждый день в школе. Это готовые бандиты, от которых можно ждать чего угодно. Один из них из мести совершает попытку убить Гарфилда. После этого Гарфилд переезжает в Лос-Анджелес и оказывается в таком же дерьме. Когда его терпению пришел конец, он заставил подонков расплачиваться кровью за каждый совершенный (   Читать дальше...   )Производство: США | Icon Entertainmnet International, R U Dun ProductionsЖанр: Триллер, ДрамаРежиссер: Кевин РейнольдсАктеры: Сэмюэл Л. Джексон, Клифтон Коллинз, Тони Плана, Энтвон Тэннер, Ричард Рили, Келли Роуэн, Карина Арройяве, Лобо Себастьян, Джек Келер, Джона Руни, Деметриус Наварро, Эбони Моника Соломон, Джонни Богрис, Доминик ХоффманПеревод: Профессиональный двухголосый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92439197BF218FAECA53148974C399C20780E8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 657809   (806759) от 19.05.2013
 
 Охота / Jagten (2012) BDRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806759.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806749.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806718.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806716.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806692.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806647.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806629.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806609.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806604.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806600.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806570.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806567.jpg" />
 </div>
 
 
@@ -375,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806565.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806560.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806554.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806547.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806393.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806384.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806251.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806230.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806189.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806155.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806141.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806118.jpg" />
 </div>
 
 
@@ -672,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CB9CF613C5267081EB0CD9BCA25D3F02D41B706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198494   (806051) от 12.01.2018
+
+Ливан / Lebanon (2009) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Июнь, 1982г. Первая ливанская война. Израильский танк под управлением четырех молодых солдат призван обеспечить огневое прикрытие немногочисленного десантного штурмового отряда. В их задачу входит зачистка вражеского города, по которому ранее был нанесен авиаудар.
+Но простая, на первый взгляд, миссия очень скоро превращается в настоящий ад. Прямо на глазах фактически (   Читать дальше...   )Производство: Израиль , Франция , Ливан , Германия / Ariel Films, Arsam International, Arte FranceЖанр: Драма, ВоенныйРежиссер: Самуэль МаозАктеры: Йоав Донат, Итай Тиран, Ошри Коэн, Майкл Мошонов, Зохар Штраусс, Дуду Тасса, Ашраф Бархом, Фарес Хананья, Рэймонд АмсалемПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899DE15C45EE27340A7923C129265697FFAFBFFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383897   (806023) от 18.05.2020
+
+Любовь к собакам обязательна / Must Love Dogs (2005) WEB-DLRip [H.264/720p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учительница Сара Нолан недавно развелась со своим мужем. Ее сестры Кэрол и Кристин начинают подыскивать ей потенциального спутника жизни. Их поддерживает овдовевший отец Билл, который, найдя по Интернету подружку, всячески восхваляет такой способ знакомства. Кэрол решает сама сделать первый шаг и от имени Сары размещает на одном из сайтов ее резюме с припиской: «любовь (   Читать дальше...   )Производство: США / Team Todd, Ubu Productions, Warner Bros. Pictures Co.Жанр: мелодрама, комедияРежиссер: Гари Дэвид ГолдбергАктеры: Дайан Лэйн, Джон Кьюсак, Элизабет Перкинс, Кристофер Пламмер, Дермот Малруни, Стокард Чэннинг, Али Хиллис, Брэд Хенке, Джули Гонсало, Гленн ХоуертонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526338A5D7F5D29DC13060E45A6577A19FAA517B
 ```
 
 https://mybot314.ru/tekegram_catalog/

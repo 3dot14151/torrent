@@ -1,55 +1,3 @@
-###  Публикация: 500558   (257226) от 23.05.2012
-
-Охотник / The Hunter (2011) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Психологическая драма, основанная на известном романе Джулии Ли «Охотник», рассказывающая историю Мартина, отправленного из Европы таинственной биотехнологической компанией в пустыню Тасмании на охоту за последним тасманским тигром.Жанр: Драма, приключенияРежиссер: Дэниел НеттхеймАктеры: Уиллем Дефо, Сэм Нил, Фрэнсис О’Коннор, Салливан Степлтон, Моргана Дейвис, Каллэн Мулвей, Яцек Коман, Дэниэл Уилли, Джон Брамптон, Джэйми ТимониПеревод: Многоголосый закадровыйПродолжительность: 01:44:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500011   (257082) от 22.05.2012
-
-Путешествие 2: Таинственный остров / Journey 2: The Mysterious Island (2012) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Шон Андерсон получает закодированный сигнал с просьбой о помощи, причем с загадочного острова, из места, где никакого острова и быть не может. Там обитают странные формы жизни, скрываются горы золота, смертоносные вулканы и не одна ошеломляющая тайна. Отчиму Шона, не сумевшему остановить его, ничего не остается, как тоже присоединиться к поискам. Вместе с пилотом вертолета и его прекрасной и решительной дочерью им предстоит найти остров, спасти его одинокого обитателя и немедленно покинуть это место, прежде чем землетрясение скроет остров под водой и похоронит навеки его сокровища.Жанр: Фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Брэд ПейтонПродюсер: Бо Флинн, Шарлотта Клэй Хаггинс, Трип ВинсонАктеры: Дуэйн Джонсон, Майкл Кейн, Джош Хатчерсон, Ванесса Энн Хадженс, Луис Гузман, Кристин Дэвис, Анна Колвелл, Стивен Кодилл, Брэнском Ричмонд, Уолтер БэнксонПеревод: ДублированныйЯзык субтитров: Английский, французский, испанскийПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500046   (257054) от 22.05.2012
 
 Джей и молчаливый Боб наносят ответный удар / Jay and Silent Bob Strike Back (2001) [720p] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257054.jpg" />
 </div>
 
 
@@ -87,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257044.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257037.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257034.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257030.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257029.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257024.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257012.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256988.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256986.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256968.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256953.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256843.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256837.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256781.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256692.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256688.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256680.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256633.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256632.jpg" />
 </div>
 
 
@@ -588,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256631.jpg" />
 </div>
 
 
@@ -614,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256627.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256595.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256580.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A13901EBCF0E758E8C721147F10D8742122DAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837245   (256579) от 15.11.2025
+
+Ужасы Токио 4 / Yami Douga 4 / Tokyo Videos of Horror 4 (2012) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртая часть антологии ужасов в стиле «найденной плёнки», состоящая из нескольких независимых историй. Фильм не имеет единого сквозного сюжета, а вместо этого представляет собой сборник коротких, жутких эпизодов, снятых якобы на любительские камеры. В отличие от многих фильмов ужасов, Yami Douga не полагается на дешёвые трюки или внезапные пугающие моменты. Он (   Читать дальше...   )Производство: ЯпонияЖанр: ужасы, триллерРежиссер: Кадзу КодамаАктеры: Саки Миками, Юта Сасаки, Акико НагатаПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F954CE1A2A907B3E7B9359B4CE98FE3C61049CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499332   (256526) от 21.05.2012
+
+Право на «лево» / Les infideles (2012) [H.264] DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужская неверность, во всех ее отчаянно абсурдных, умопомрачительно смешных проявлениях — чем не тема для новой комедии? Жан и Жиль в погоне за приключениями готовы на все. Жизнь их изрядно помотала, калейдоскопом меняя декорации вокруг: небольшой отель на окраине города сменялся клиникой для сексуально зависимых, а шикарный парижский ночной клуб роскошными казино Лас-Вегаса… Испробовав все возможные прелести бытия, приятели решают поближе заняться прекрасным полом, соблазняя и заманивая девушек в постель…Жанр: КомедияРежиссер: Эмманюэль Берко, Фред Кавайе, Александр КортесПродюсер: Жан Дюжарден, Марк Дюжарден, Эрик ХаннецоАктеры: Жан Дюжарден, Жиль Леллуш, Лионель Абелански, Фабрис Агоге, Пьер Бенуа, Вайолетт Бланкер, Венсан Боннассо, Бастьен Буллон, Гийом Кане, Селестин ШапленПеревод: ДублированныйПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363453150417AD83EF967C3F993790964BAFCDF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

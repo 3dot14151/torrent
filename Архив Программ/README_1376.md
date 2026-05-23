@@ -6,7 +6,7 @@ WinMerge 2.16.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338583.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ HyperSnap 8.24.01 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338570.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PDF-XChange Editor Plus 9.4.363.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338567.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Twinkstar 4.8.3000.1810 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338544.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Rob Papen - RAW-Kick 1.0.0 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338540.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MiniTool Power Data Recovery 8.6.0 Technician RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338533.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AOMEI Backupper Technician Plus 5.3.0 DC 08.10.2019 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338528.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Brave Browser 0.55.20 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338512.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mozilla Firefox ESR 45.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338424.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Glary Disk Explorer 5.27.1.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338420.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Honeyview 5.49 Build 6173 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338414.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ DP Animation Maker 3.5.11 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338412.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ableton - Live Suite 11.2 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338409.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ XYplorer 23.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338404.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Opera 56.0.3051.88 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338377.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Glary Utilities Pro 5.108.0.133 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338368.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ XYplorer 19.30.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338366.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Opera 56.0.3051.88 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338350.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Loaris Trojan Remover 3.0.67.202 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338346.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Revo Uninstaller Pro 4.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338338.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ PDF24 Creator 8.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338303.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Simple Sticky Notes 4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338236.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ SoftPerfect Network Scanner 7.1.8 DC 27.10.2018 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338230.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Directory Lister Pro 2.32 Enterprise Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338224.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Ashampoo Burning Studio 19.0.2.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338215.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Mozilla Firefox 50.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338192.jpg" />
 </div>
 
 

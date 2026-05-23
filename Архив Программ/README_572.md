@@ -6,7 +6,7 @@ HitmanPro 3.8.26.322 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764113.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ McAfee Endpoint Security 10.7.0.1260.12 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764100.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Firefox 53.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764095.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daum PotPlayer 1.7.1916 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764091.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Malwarebytes AdwCleaner 7.2.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764043.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 11 (v21h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764025.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows 11 21Н2 (build 22000.376) (20in1) by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764013.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.01.03 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764008.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Pale Moon 27.8.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763979.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Vivaldi 1.14.1077.60 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763977.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ReviverSoft Registry Reviver 4.19.4.4 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763975.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ FastStone Capture 8.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763971.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FastStone Capture 8.9 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763945.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Telegram Desktop 1.2.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763938.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Driver Easy Pro 5.6.1.14162 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763937.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Opera 52.0.2871.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763935.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NetLimiter 4.0.33.0 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763933.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Android Studio 3.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763931.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Skype 7.41.32.101 by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763901.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Revo Uninstaller Pro 3.2.1 RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763847.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ EASEUS Partition Master 12.9 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763843.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Magic Soft 2010 v22.05  [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763789.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Advanced Installer 17.2 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763724.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ eM Client Pro 8.0.2820 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763685.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ BELOFF [dp] 2020.06.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763674.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763670.jpg" />
 </div>
 
 

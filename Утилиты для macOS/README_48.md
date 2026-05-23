@@ -6,7 +6,7 @@ Cocktail Catalina Edition 13.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164268.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cocktail High Sierra Edition 11.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164225.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MaxCommander 2.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164202.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Apeaksoft iPhone Data Recovery 1.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164152.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ DjVu Reader Pro 2.4.4 [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164050.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ DuplicateViewer Pro 3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163831.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Untouch 1.2.3 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163775.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Big Mean Folder Machine 2 v2.43 fix [EN]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163727.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Typinator 8 v.8.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163701.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Donemax Data Recovery 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163615.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Typinator 9 v.9.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163518.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Paste 2.5.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163439.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ BetterZip 5 v5.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163371.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ iTrash 5 v5.3.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163288.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hookshot 1.23.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163047.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Synalyze It! Pro 1.32 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162728.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Awaken 6.4.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162646.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Dropzone 3 v3.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162443.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Combo Cleaner Premium 1.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162187.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Magnet 2.13.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162035.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ PhoneRescue for Android 3.8.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162033.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Mac FoneTrans for iOS 9.0.60 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161836.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ App Cleaner & Uninstaller Pro 8.0.4 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161637.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Tenorshare iCareFone for WhatsApp Transfer 2.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161562.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Cardhop 2.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161483.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ KeyTrails 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161467.jpg" />
 </div>
 
 

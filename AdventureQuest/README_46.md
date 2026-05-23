@@ -1,29 +1,3 @@
-###  Публикация: 1177858   (359987) от 26.10.2017
-
-Shiver (2017) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вы будете играть роль своенравного сына, отправившегося навестить своего стареющего отца в отдаленном доме перед его выходом на пенсию. В пути вы попадаете в аварию и оказываетесь на территории заброшенного национального парка Windy Oaks. Используя свои умения и упорство, вы должны найти способ связаться с помощью и убежать, прежде чем парк вас поглотит.Тип издания: RepackРазработчик: Kowai Sugoi StudiosЖанр: Adventure (Horror, Point-and-Click), PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF81D35C189934813B44ED90B929DB373C7891FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417104   (359719) от 19.10.2020
 
 9 Monkeys of Shaolin (2020) [Ru/Multi] (1.0) License DARKSiDERS
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359719.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358846.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Fall: Mutant City [Ru/Ge] (RePack) 2011 | R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356990.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356989.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Reigns: Game of Thrones (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355826.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354097.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Lifeless Planet (2014) [Ru/Multi] (1.5) License GOG [Premier Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353799.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353568.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Return of the Obra Dinn (2018) [Ru/Multi] (1.0.86) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353566.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352672.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Syberia. Cold Edition / Сибирь. Специальное издание (С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350545.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349370.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349240.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Remothered: Broken Porcelain (2020) [Multi] (0.14.43) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348543.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348497.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/En] (1.0) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347298.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347248.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347081.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ Firewatch (2016) [Ru/Multi] (1.04) Repack R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346868.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346761.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ Cognition: An Erica Reed Thriller (2013) [Multi] (2.1.0.9/dlc) License GOG [GOTY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346462.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345113.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345038.jpg" />
 </div>
 
 
@@ -644,7 +618,7 @@ Tales (2016) [Ru/Multi] (1.0.1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344490.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344478.jpg" />
 </div>
 
 
@@ -681,6 +655,32 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:708E4BA1AA248B9B490DB957EA69D78D927C9C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071754   (344367) от 16.11.2016
+
+Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя новейшее приключение от Pendulo Studios, создателей серии Runaway! 1481. Юного Джона унижают и публично тащат по улице. Он обвинен в колдовстве испанской инквизицией и брошен в тюрьму, где его подвергнут пыткам. Позже с ним произойдет алхимическая трансмутация, благодаря которой он обретет бессмертие.Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: Violent, AdventureЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D2941DD3E030FF9F6D477D3FC2AE92EE1BB4B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

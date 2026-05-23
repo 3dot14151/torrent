@@ -6,7 +6,7 @@ Mum & Dad - Castle Heights (2001) Single [FLAC|Lossless|tracks + .cue] <Folk Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787024.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ TrashMe 2.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787020.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Annie Moscow - Passing Trains (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787016.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Ultra Mood - Gatherings (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787011.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - Fokuz Recap (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787010.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787003.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Hardstyle Classics Part 4 (2019) [MP3|320 Kbps] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786979.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Detwinner 2.03.010 (& Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786971.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Comedy Баттл (2019.01.18) WEB-DL [H.264/720p-LQ] (сезон 9, выпус�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786968.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786928.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786923.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Alien Skin Exposure X4 Bundle v4.0.1.26 49029 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786922.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Final Cut Pro X 10.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786911.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Artstudio Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786908.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Microsoft Visual Studio 2019 Professional 16.5.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786869.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Microsoft Visual Studio 2019 Community 16.5.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786866.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786864.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Calibre 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786846.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Comedy Баттл. Новый сезон (05.06.2020) WEB-DLRip [H.264/1080p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786819.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ WinUtilities Pro 15.74 (comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786816.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786781.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ K-Lite Codec Pack Update 15.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786747.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Microsoft Edge 84.0.522.11 Beta (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786725.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ MediBang Paint Pro 25.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786712.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Unity Pro 2018.4.23f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786711.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Chuunibyou demo Koi ga Shitai! Ren | Чудачество Любви не Пом
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786708.jpg" />
 </div>
 
 

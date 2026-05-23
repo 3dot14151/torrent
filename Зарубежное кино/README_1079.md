@@ -1,56 +1,3 @@
-###  Публикация: 928144   (523128) от 15.08.2015
-
-Безумный Макс: Дорога ярости / Mad Max: Fury Road (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Преследуемый призраками беспокойного прошлого, Макс уверен, что лучший способ выжить — скитаться в одиночестве. Несмотря на это, он присоединяется к бунтарям, бегущим через всю пустыню на боевой фуре, под предводительством военачальника Фуриосы.
-Они пытаются сбежать из Цитадели, страдающей от тирании Несмертного Джо, у которого они забрали кое-что очень ценное. Разъярённый (   Читать дальше...   )Производство: Австралия, США / Kennedy Miller Productions, Village Roadshow PicturesЖанр: боевик, фантастика, приключенияРежиссер: Джордж МиллерАктеры: Том Харди, Шарлиз Терон, Николас Холт, Хью Кияс-Бёрн, Джош Хелман, Нэйтан Джонс, Зои Кравиц, Роузи Хантингтон-Уайтли, Райли Кио, Эбби ЛиПеревод: Профессиональный (полное дублирование) (BLUEBIRD), авторский (одноголосый, закадровый) х2Язык субтитров: Русский (forced, full), английский (full, SDH)Продолжительность: 02:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A849BC937CD8B89DA6FE85974258353945A5A064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928204   (523123) от 15.08.2015
-
-Обратная сторона брака / Shaadi Ke Side Effects (2014) HDRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сид и Триша — счастливая семейная пара, наслаждаются обществом друг друга, и все, казалось бы, хорошо в их отношениях, пока в семье не появляется ребенок. Триша решает бросить работу и заниматься только дочкой, а Сид прилагает максимум усилий, чтобы уравновесить личную жизнь и карьеру. В этих новых обстоятельствах герои берутся за практически невыполнимую задачу (   Читать дальше...   )Производство: Индия, Balaji Motion Pictures, Pritish Nandy Communications (PNC)Жанр: Мелодрама, КомедияРежиссер: Сакет ЧаудхариАктеры: Фархан Ахтар, Видья Балан, Вир Дас, Рэм Капур, Гаутами Капур, Рати Агнихотри, Ила Арун, Пураб Кохли, Ранглани АшишПеревод: Многоголосый закадровый
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318D8CACFD67B691DAC1A4706F040900683E57C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928223   (523090) от 15.08.2015
 
 Безумный Макс: Дорога ярости / Mad Max: Fury Road (2015) BDRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523090.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523088.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523077.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523075.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523044.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523004.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523001.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522916.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522913.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522856.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522821.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522816.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522809.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522803.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522801.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522800.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522764.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522722.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ John Wick: Chapter 3 - Parabellum (2019) HDRip [H.264] [EN / EN Sub]
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522690.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522649.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522648.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522641.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522623.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522598.jpg" />
 </div>
 
 
@@ -668,6 +615,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB6429FEF5FD8997CEA8C537F19C9F82F59AA508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560001   (522578) от 27.06.2022
+
+Полицейская история 2 / Ging chaat goo si juk jaap / Police Story 2 (1988) BDRip [H.264/1080p-LQ] [Extended Cut] [Remastered] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522578.jpg" />
+</div>
+
+
+###  Подробнее
+
+На свободу выходит босс наркомафии Ку, но наркоторговля не остановлена, и первой его мыслью после заключения - отомстить полицейскому Кевину Чану, упрятавшему его за решетку. Ку нанимает киллера, который, впрочем, явно не в себе.Производство: Гонконг / Golden Way Films Ltd., Paragon Films Ltd.Жанр: боевик, триллер, комедия, криминалРежиссер: Джеки ЧанАктеры: Джеки Чан, Мэгги Чун, Лам Квок-Хун, Билл Тун, Бенни Лай, Джон Чун, Чарли Чо, Чо Юэнь, Бен Лам, Чан Чи Фай СанниПеревод: Профессиональный многоголосый, закадровый (Интер / Хлопушка + вставки Японца), Профессиональный двухголосый (НТВ / РТР + вставки Японца, REN-TV / СТС / ТНТ + вставки Японца)Субтитры: АнглийскиеПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC7AEBB7846073E7034AFA3EABE49297B66E83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928371   (522482) от 16.08.2015
+
+Парень с Белой реки / The White River Kid (1999) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наглые шулеры и прохвосты Брат Эдгар и Моралес Питтман странствуют по Америке, успешно облапошивая обывателей под видом святош, пока не оказываются заложниками отчаянного Парня С Белой Реки. Незадачливым мошенникам предстоит отвезти этого маньяка-убийцу в родной город его эксцентричной невесты.
+Друзья уже готовы расстаться с жизнью, но им следует благодарить судьбу, (   Читать дальше...   )Производство: США / Franchise Pictures, St. Mortimer Productions Inc.Жанр: КомедияРежиссер: Арн ГлимчерАктеры: Боб Хоскинс, Антонио Бандерас, Эллен Баркин, Уэс Бентли, Ким Диккенс, Рэнди Трэвис, Свузи Кёрц, Бо Бриджес, Майкл Масси, Чэд ЛиндбергПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37DA1DC8F65DFFBE42090B953079B4C333B8D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

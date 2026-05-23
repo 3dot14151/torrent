@@ -6,7 +6,7 @@ Wise Care 365 Pro 7.2.3.696 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24667.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iTubeGo YouTube Downloader 10.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24640.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Display Driver Uninstaller 18.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24620.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FurMark 2.7.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24607.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MobaXterm 25.1 build 5288 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24606.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ DigiKam 8.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24596.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Emurasoft EmEditor Professional 25.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24588.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ EF Commander 25.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24574.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AIMP 5.40 Build 2668 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24560.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Alfa eBooks Manager 9.1.30 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24559.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 03.2025 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24552.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adguard 7.20.2 (7.20.4988.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24529.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ SketchUp Pro 2025 25.0.575 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24524.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CopyQ 9.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24516.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 12.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24496.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AIMP 5.40 Build 2668 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24493.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24440.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Clip Studio Paint EX 4.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24425.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NetLimiter 5.3.23.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24409.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ MKVToolNix 91.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24391.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ AIMP 5.40.2668 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24388.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Perfectly Clear WorkBench 4.6.1.2732 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24368.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dashcam Viewer 4.0.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24365.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Process Lasso Pro 15.1.1.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24362.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ StartAllBack 3.9.6 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24345.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24344.jpg" />
 </div>
 
 

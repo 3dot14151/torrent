@@ -1,55 +1,3 @@
-###  Публикация: 481404   (87908) от 11.04.2012
-
-Опасный метод / A Dangerous Method (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет закручен вокруг персон основателей психоанализа Карла Густава Юнга и Зигмунда Фрейда и их сложных взаимоотношений с умной и красивой пациенткой Сабиной Шпильрейн.Жанр: Триллер, Драма, БиографияРежиссер: Дэвид КроненбергПродюсер: Джереми Томас, Тиана Александра, Питер УотсонАктеры: Кира Найтли, Вигго Мортенсен, Майкл Фассбендер, Венсан Кассель, Сара Гэйдон, Андре Хеннике, Арндт Шверинг-Сонри, Миньон Реме, Мареике Карьер, Франциска АрндтПеревод: Профессиональный (полное дублирование)Продолжительность: 01:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3728BEE10EC02D66D381AC4D3EAFD8D2E903DC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481425   (87881) от 11.04.2012
-
-Нежность / La delicatesse (2011) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В один прекрасный день сказочно обворожительная Натали целует молодого коллегу Маркуса. Без особых на то причин, просто так. И даже не придает этому никакого значения. Но Маркус ошеломлен: случайный поцелуй перевернул его жизнь! Теперь он не может думать ни о ком, кроме Натали. Молодому человеку предстоит завоевать сердце коллеги, которая его почти не замечает…Жанр: Мелодрама, КомедияРежиссер: Давид Фонкинос, Стефан ФонкиносПродюсер: Ксавьер Риго, Марк-Антуан Роберт, Андре ЛогиАктеры: Одри Тоту, Франсуа Дамиенс, Бруно Тодескини, Мелани Бернье, Жозефин де Мо, Пио Мармай, Моник Шометт, Марк Китти, Александр Павлофф, Виттория СконьямильоПеревод: ДублированныйПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC8877B092C57DE2A84CDBC24DC8F6D2E819C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481488   (87859) от 11.04.2012
 
 Опасный метод / A Dangerous Method (2011) [1080p] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87859.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87855.jpg" />
 </div>
 
 
@@ -114,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87851.jpg" />
 </div>
 
 
@@ -144,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87847.jpg" />
 </div>
 
 
@@ -170,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87846.jpg" />
 </div>
 
 
@@ -197,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87844.jpg" />
 </div>
 
 
@@ -223,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87839.jpg" />
 </div>
 
 
@@ -249,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87834.jpg" />
 </div>
 
 
@@ -275,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87827.jpg" />
 </div>
 
 
@@ -301,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87824.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87823.jpg" />
 </div>
 
 
@@ -353,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87816.jpg" />
 </div>
 
 
@@ -380,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87803.jpg" />
 </div>
 
 
@@ -406,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87795.jpg" />
 </div>
 
 
@@ -432,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87773.jpg" />
 </div>
 
 
@@ -458,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87712.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87700.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87677.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87672.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87671.jpg" />
 </div>
 
 
@@ -588,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87611.jpg" />
 </div>
 
 
@@ -614,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87610.jpg" />
 </div>
 
 
@@ -640,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87584.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87577.jpg" />
 </div>
 
 
@@ -678,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481214   (87563) от 10.04.2012
+
+[Sw / Ru Sub] Игра / Play (2011) DVDRip
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наблюдение, основанное на реальных случаях травли подростками друг друга. В центре Гетеборга группа мальчишек от 12 до 14 лет с 2006 по 2008 год совершила около 40 ограблений других детей. Для этого ворами применялась тщательно продуманная схема под названием «трюк с братом», основанная скорее на продвинутой ролевой игре и бандитских понятиях, нежели на физическом насилии.Жанр: Драма, КриминалРежиссер: Рубен ОстлундАктеры: Анас Абдирахман, Себастиан Бликерт, Янник Диаките, Себастиан Хегмар, Абдиазиз ХилоулеПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 01:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8197F3D2D9A19EA6CD38AA9CA09F570D437B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480495   (87477) от 09.04.2012
+
+Стыд / Shame (2011) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — житель Нью-Йорка, страдающий от эротомании и неспособный контролировать свою сексуальную жизнь. Он пытается обрести поддержку своих родных, а также ищет помощи у сотрудников.Жанр: ДрамаРежиссер: Стив МакКуинАктеры: Майкл Фассбендер, Люсиль Уолтерс, Мари-Анхе Рамирес, Джеймс Бэдж Дэйл, Николь Бихэйр, Алекс Манетт, Ханна Уэр, Элизабет Масуччи, Рэйчел Фаррар, Лорен ОмерПеревод: Профессиональный (полное дублирование)Язык субтитров: АнглийскийПродолжительность: 01:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCD7B81FCCA1ED3AFB406992C5E67F299BDD6FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,3 @@
-###  Публикация: 1303696   (568692) от 23.05.2019
-
-Александра Лисина | Дикий пёс (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Дикий пес» – фантастический роман Александры Лисиной, вторая книга цикла «Темный лес», жанр героическая фантастика, приключенческое фэнтези.
-Дикие псы – одна из самых красивых легенд Обитаемых земель, но после пятисот лет мира даже она готова превратиться в обычную сказку. Однако Стрегону и его побратимам повезло. У них появилась редкая возможность заглянуть за (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 11:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D536D5A5F0F929E14CA76EC1210F636C62B977C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044140   (568663) от 18.08.2016
-
-Олег Гончаров | Неизвестная. [Книга первая] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Зимой 1918 года в руки чекистов попадает девушка с необычными способностями. Спустя двадцать лет, накануне войны, Лаврентий Берия поручает капитану госбезопасности Данилову отыскать эту девушку. Поиски приводят Данилова к самой секретной лаборатории Страны Советов.Жанр: Детектив, приключенияПродолжительность: 11:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF12D132272F183F63E4D343BB49274FF49887B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044163   (568650) от 18.08.2016
-
-Ольга Громыко | Космоолухи: до, между, после (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Космоолухи были, есть и будут!
-Чем занимаются отважные космолетчики в перерывах между приключениями? Правильно, попадают в приключения помельче! Оригинальные грузы не дают команде расслабиться, шоаррские товары подтверждают свое высокое (или хотя бы уникальное!) качество, мама Полины отправляется на битву за урожай, Роджер Сакаи пытается завоевать сердце возлюбленной, (   Читать дальше...   )Жанр: Юмористическая фантастикаПродолжительность: 12:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9CC52FDC8132EF0D8ABA1F27F1E9F7CFD39BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043836   (568629) от 18.08.2016
 
 Джек Лондон | Межзвёздный скиталец (2014) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568629.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568615.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568610.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568509.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568488.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568366.jpg" />
 </div>
 
 
@@ -247,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568362.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568204.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568190.jpg" />
 </div>
 
 
@@ -327,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568183.jpg" />
 </div>
 
 
@@ -355,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568179.jpg" />
 </div>
 
 
@@ -382,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568172.jpg" />
 </div>
 
 
@@ -409,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568144.jpg" />
 </div>
 
 
@@ -435,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568127.jpg" />
 </div>
 
 
@@ -461,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568068.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568055.jpg" />
 </div>
 
 
@@ -513,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568017.jpg" />
 </div>
 
 
@@ -542,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568016.jpg" />
 </div>
 
 
@@ -568,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568013.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567981.jpg" />
 </div>
 
 
@@ -621,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567973.jpg" />
 </div>
 
 
@@ -647,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567921.jpg" />
 </div>
 
 
@@ -674,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567838.jpg" />
 </div>
 
 
@@ -685,6 +605,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70CD79ACF2F4AFB7F0B8E1D334BC14C479031D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234631   (567595) от 07.07.2018
+
+Алексей Осадчук | Сумеречный Обелиск (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений в мире он-лайн игры «Зазеркалье».
+Олег с горсткой неписей направляется на поиски Запретного города. В пути его ждет много испытаний. Отправляясь в путешествие, он еще не знает, что из долины Серебряных гор, к ним идет орда ноктов. Армия Темных кланов пересекла Черный поток. Светлые уже на границе Ледяного леса. Олег понимает, что спасти жизни (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 09:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3387FA4CC812EE1A397C7956E1B0CAA06FD07C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152034   (567498) от 22.07.2017
+
+Мегги О`Фаррелл | Рука, что впервые держала мою (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда перед юной Лекси словно из ниоткуда возникает загадочный и легкомысленный Кент Иннес, она осознает, что больше не выдержит унылого существования в английской глуши. Для Лекси начинается новая жизнь в лондонском Сохо. На дворе 1950-е — годы перемен. Лекси мечтает о бурной, полной великих дел жизни, но поначалу ее ждет ужасная комнатенка и работа лифтерши в шикарном (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705E7E700B2EEDBCB5BCD8EA88301E8F0A712A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152227   (567492) от 22.07.2017
+
+Дмитрий Орехов | Будда из Бенареса (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как возникло учение о переселении душ? Как выходцам из воинской касты, ощутившим тягу к аскезе и медитации, удалось потеснить сословие брахманов?
+Увлекательное, живое и красочное повествование Дмитрия Орехова погружает читателя в волшебный мир древнеиндийской духовности.Жанр: Современная прозаПродолжительность: 06:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560DF690CC3B8E6F4AF68C33837224389691938E
 ```
 
 https://mybot314.ru/tekegram_catalog/

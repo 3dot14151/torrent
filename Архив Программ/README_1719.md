@@ -6,7 +6,7 @@ EZ CD Audio Converter 11.1.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203394.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DesktopSnowOK 6.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203390.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HWiNFO 7.61 Build 5185 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203378.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser ESR 115.2.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203358.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NoMachine 8.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203357.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Firefox Browser 117.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203356.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AutoHideDesktopIcons 6.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203353.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adguard 7.12.0 (7.12.4170.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203332.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adguard 7.12.0 (7.12.4170.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203328.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Vivaldi 6.2.3105.43 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203300.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Kaspersky Tweak Assistant 23.1.30.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203299.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ IObit Driver Booster Pro 10.2.0.110 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203289.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Uninstall Tool 3.7.2 Build 5701 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203283.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AIDA64 Extreme Edition  6.85.6329 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203264.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Windows 10 Manager 3.8.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203258.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Google Earth Pro 7.3.6.9345 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203252.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ TeamViewer 15.37.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203246.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ qBittorrent 4.5.5 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203237.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ DxO PureRAW 3.5.0 build 19 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203233.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ FurMark 1.33.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203227.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.34.31938.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203224.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ PotPlayer 230831 (1.7.21993) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203220.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ PotPlayer 230831 (1.7.21993) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203218.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ RAM Saver Professional 23.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203213.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Bandizip 7.31 Build 64426 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203207.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203200.jpg" />
 </div>
 
 

@@ -1,84 +1,3 @@
-###  Публикация: 1670183   (172276) от 19.10.2023
-
-Александр Изотов | Убить топа (Книга 4) (2023) [MP3, Дмитрий Чепусов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Александр Изотов – популярный писатель-фантаст, работающий в различных направлениях жанра фэнтези. Представляем в аудиоформате четвёртую книгу его цикла «Убить топа», созданного в антураже ЛитРПГ.
-Виртуальный мир Патриам многогранен. Здесь собрались миллионы игроков, имеется собственная экономика, возможностей – море. Но Антон выбирает весьма своеобразную специализацию. (   Читать дальше...   )Жанр: Боевая фантастика, Героическое фэнтези, Книги о приключенияхИздательство: 1С-ПаблишингПродолжительность: 08:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35B4EC8E432BB7453496048BAE743C4EAB290EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670222   (172266) от 19.10.2023
-
-Юрий Погуляй | Шут из Бергхейма (Книга 3). Слуги Еммануила (2023) [MP3, Дмитрий Горячкин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Чаще всего люди попадают в виртуальные миры добровольно, чтобы отвлечься от бытовых неурядиц. Но бывают исключения. Где-то в глуши есть отапливаемый ангар, заполненный игровыми капсулами. Игроки оказались здесь не по доброй воле, а тот, кто их переместил сюда, позаботился о том, чтобы пропавших не искали. Он создал этот жуткий виртуальный мир и дал ему название Мир (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Юмористическое фэнтезиИздательство: 1С-ПаблишингПродолжительность: 15.23.56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B008BDCD09513518148B81F17314481A32E1028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670189   (172256) от 19.10.2023
-
-Алекс Рудин | Егерь: Назад в СССР (Книга 2) (2023) [MP3, Олег Троицкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Судьба подарила мне второй шанс – прожить жизнь в любимой, хоть и давно исчезнувшей стране. Я сделаю всё, чтобы эта жизнь не была напрасной… А ещё исполню свою детскую мечту.
-
-Продолжаются приключения егеря Андрея Синицына. Скоро открытие сезона летне-осенней охоты!Жанр: Альтернативная история,  ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 07:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD5062E817B10D89A24D6C49423EB8329668C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670193   (172246) от 19.10.2023
 
 Алекс Рудин | Егерь: Назад в СССР (Книга 3) (2023) [MP3, Олег Троицкий]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172246.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172227.jpg" />
 </div>
 
 
@@ -143,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172226.jpg" />
 </div>
 
 
@@ -172,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172225.jpg" />
 </div>
 
 
@@ -198,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172224.jpg" />
 </div>
 
 
@@ -224,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172223.jpg" />
 </div>
 
 
@@ -252,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172222.jpg" />
 </div>
 
 
@@ -278,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172221.jpg" />
 </div>
 
 
@@ -306,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172220.jpg" />
 </div>
 
 
@@ -335,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172219.jpg" />
 </div>
 
 
@@ -363,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172218.jpg" />
 </div>
 
 
@@ -391,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172215.jpg" />
 </div>
 
 
@@ -419,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172214.jpg" />
 </div>
 
 
@@ -447,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172209.jpg" />
 </div>
 
 
@@ -473,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172208.jpg" />
 </div>
 
 
@@ -501,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172206.jpg" />
 </div>
 
 
@@ -527,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172205.jpg" />
 </div>
 
 
@@ -554,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172202.jpg" />
 </div>
 
 
@@ -582,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172198.jpg" />
 </div>
 
 
@@ -611,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172193.jpg" />
 </div>
 
 
@@ -637,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172188.jpg" />
 </div>
 
 
@@ -663,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172183.jpg" />
 </div>
 
 
@@ -691,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172121.jpg" />
 </div>
 
 
@@ -703,6 +622,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C618E72D6CA27E01DDA57217F011081AD524E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670412   (172084) от 20.10.2023
+
+Виктор Глебов | Эргоном (Книга 1). Последний ассасин (2023) [MP3, Юрий Гуржий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из киллера в мага! Чего же не сделаешь ради того, чтобы выжить в мире, где каждый враг жаждет твоей смерти?!
+
+Моё кредо – эргономичность во всём. Этого требует моя профессия, ведь я – киллер экстра-класса. Вот только не ожидал, что меня подставит контора, на которую я работал пятнадцать лет! А что окажусь в другом мире, где правят аристократические кланы, а окружённый (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 09:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDBF20DDD6861F89F2A900D3D674B580767DAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670378   (172047) от 20.10.2023
+
+Дмитрий Дашко | Мент (Книга 5). Москва (2023) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый город, новое назначение, новые дела в составе сводной «летучей» бригады. И снова нет покоя оперу из будущего, которого перенесло в двадцатые годы прошлого столетия. Их ведь не зря прозвали «ревущими».Жанр: ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 05:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F66A1103DF12E613062D91A37B5DBFB4E7B8ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356973   (172025) от 20.10.2023
+
+Евгений  Шварц | Тень (2007) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Литературные чтения.
+
+Пьесы Евгения Львовича Шварца (1896–1958) одинаково любимы и детьми, и взрослыми по книгам, спектаклям и экранизациям: «Золушка», «Снежная королева», «Тень», «Обыкновенное чудо». Это не столько сказки, сколько философские притчи о любви и ненависти, добре и зле, в которых необыкновенное, сказочное сочетается с реальным и узнаваемым. Пьеса (   Читать дальше...   )Жанр: ПьесаИздательство: Студия «АРДИС»Продолжительность: 03:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7807DE5F49BF1C476F48298485086192C8B16272
 ```
 
 https://mybot314.ru/tekegram_catalog/

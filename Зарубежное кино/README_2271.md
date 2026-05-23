@@ -1,56 +1,3 @@
-###  Публикация: 1438638   (4881) от 01.09.2025
-
-Школа рока / The School of Rock (2003) BDRip [H.265/1080p-LQ] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-После нескольких лет подъема блестящая карьера рок-звезды Дьюи Финна заканчивается полным провалом. Все, что его теперь ждет, это неоплаченные долги и тяжелая депрессия. Но, перехватив не предназначавшийся ему телефонный звонок и придя в изумление от зарплаты (650 долларов в неделю), Дьюи устраивается работать в частную школу.
-Его отношение к музыке и детям творит (   Читать дальше...   )Производство: США, Германия / Paramount Pictures, Scott Rudin Productions, MFP Munich Film Partners GmbH & Company I. Produktions KG, New Century, Sor ProductionsЖанр: комедия, музыкаРежиссер: Ричард ЛинклейтерАктеры: Джек Блэк, Джоан Кьюсак, Майк Уайт, Сара Силверман, Адам Паскаль, Лукас Папаэлиас, Крис Стэк, Лукас Бабин, Джордан-Клэр Грин, Вероника АффлербахПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийСубтитры: русскиеПродолжительность: 01:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F61E1A83A1052E5010A329E8774DBE65E227339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815912   (4862) от 01.09.2025
-
-Мидуэй / Midway (2019) UHD BDRip [H.265/1080p] [10-bit] [CAN Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-История одного из самых масштабных и стратегически важных морских сражений на Тихом океане Второй мировой войны. После разгрома японской авиацией большей части флота США в Перл-Харборе до этого придерживавшаяся нейтралитета Америка вступает в войну. В июне 1942 года остатки американского флота под командованием адмирала Честера Нимица сражаются с Императорским флотом (   Читать дальше...   )Производство: США, Китай, Канада, Гонконг / AGC Studios, Centropolis Entertainment, Entertainment OneЖанр: военный, боевик, история, биографияРежиссер: Роланд ЭммерихАктеры: Эд Скрейн, Патрик Уилсон, Вуди Харрельсон, Люк Эванс, Мэнди Мур, Люк Клеинтенк, Дэннис Куэйд, Аарон Экхарт, Киан Джонсон, Ник ДжонасПеревод: дублированный официальный (СинеЛаб СаундМикс)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (forced, full, SDH)Продолжительность: 02:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5F521CF5C638EF16727B5BBD63C3A01877D4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815824   (4861) от 01.09.2025
 
 Близкие встречи с женщинами любого типа / Encuentros muy cercanos con senoras de cualquier tipo (1978) VHSRip [H.264/720p] [SPA]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4861.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4837.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4741.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4728.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4722.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4720.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4710.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4702.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4699.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4695.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4675.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4674.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4649.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4590.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4557.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4553.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4461.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4453.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4449.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4437.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4427.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4418.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4403.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4382.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB15669F62A863BD769C55F5FD8A18C0BA3FCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816464   (4351) от 05.09.2025
+
+Сверху вниз / Рай и ад / Highest 2 Lowest (2025) WEB-DL [H.264/1080p] [EN / RU, EN, UKR and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный музыкальный магнат Дэвид Кинг, прославившийся безупречным слухом, пытается сохранить контроль над звукозаписывающей компанией и вкладывает все средства в покупку контрольного пакета акций. Вскоре группа преступников похищает сына Дэвида и требует выкуп.Производство: США, Япония / 40 Acres & A Mule Filmworks, A/Vantage Pictures, A24Жанр: триллер, драма, криминал, детективРежиссер: Спайк ЛиАктеры: Дензел Вашингтон, Ильфенеш Хадера, Обри Джозеф, Джеффри Райт, Элайджа Райт, Рик Фокс, Rod Strickland, Нури Хаззард, Jensen McRae, Джейд КейнПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др. (см. MediaInfo)Продолжительность: 02:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B68269D61C8B51F4ABCD73960114D1B5C4C525C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678444   (4268) от 06.09.2025
+
+Магнолия / Magnolia (1999) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история произошла в долине Сан-Фернандо в дождливый день, когда на небе не было ни облачка. Благодаря вмешательству высших сил, а также нагромождению совпадений, случайностей, действий разных людей, их жизни и судьбы переплетутся и проникнут друг в друга в течение одного дня, финал которого будет незабываемым.Производство: США / New Line CinemaЖанр: ДрамаРежиссер: Пол Томас АндерсонАктеры: Том Круз, Филип Бейкер Холл, Филип Сеймур Хоффман, Джулианна Мур, Уильям Х. Мэйси, Джон Си Райли, Джейсон Робардс, Альфред Молина, Мелора Уолтерс, Майкл БоуэнПеревод: Многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 03:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3715850ED48927B3EA5FEC407A60526603E3C7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

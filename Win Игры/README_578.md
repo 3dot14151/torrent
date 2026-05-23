@@ -1,29 +1,3 @@
-###  Публикация: 1702251   (9816) от 31.07.2025
-
-Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Repack FitGirl
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Terminator: Dark Fate – Defiance позволяет окунуться в суровый мир боевых действий, что происходит на территории разрушенных городов. Игра выполнена в сеттинге постапокалипсиса, где между человечеством и сетью интеллектуальных машин Legion происходит конфликт. Люди вынуждены сопротивляться восставшим роботизированным киборгам, чтобы положить конец наступлению противника (   Читать дальше...   )Тип издания: RepackРазработчик: Slitherine Ltd.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597362   (9809) от 31.07.2025
 
 Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) License GOG
@@ -32,7 +6,7 @@ Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9809.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Call of Duty: Modern Warfare (2019) [Ru/Multi] (8.67) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9801.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ ASTRONEER (2016) [Ru/Multi] (1.34.47.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9795.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack EXROW [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9792.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Girls Made Pudding (2025) [Multi] (1.2.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9775.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9774.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9762.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Miami Hotel Simulator (2025) [Ru/Multi] (0.13.345.pa) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9696.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9695.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Day of the Shell (2025) [Ru/Multi] (build 19397550) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9690.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Unravel Two (2018) [En] (1.0.0.47008) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9676.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9662.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9653.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Relaxing Time: Paradise Resort / Время отдыха: Райский кур�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9623.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Relaxing Time 2: Italy Tour / Время отдыха 2: Итальянское 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9621.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9612.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Killing Floor 3 (2025) [Ru/Multi] (Build 19273238/dlc) Repack Other s [Elite Nig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9595.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.4R/dlc) Repack FitGirl [Complete]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9574.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9571.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9560.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ NINJA GAIDEN: Ragebound (2025) [Ru/Multi] (CS36158) Repack FitGirl [Soundtrack E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9556.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9525.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9511.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9508.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9507.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:893840B60CB36C013F46CDD306EB6FFB7FA4D912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727984   (9505) от 03.08.2025
+
+ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Survivor Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир - ARK: Survival Evolved - это полный опасностей сеттинг, в котором не только динозавры, но и прочие существа будут пытаться вас убить. Особенно опасными становятся люди. В игре нет никакого интересного сюжета, зато есть огромный открытый мир, в котором вам предстоит строить свою базу, охотиться с группой людей (ваших друзей), атаковать, обороняться, делать оружие (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Wildcard, Instinct Games, Efecto Studios, Virtual Basement LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

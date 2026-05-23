@@ -6,7 +6,7 @@ Phase One Capture One 23 Enterprise 16.2.1.1384 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197949.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tixati 3.19 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197947.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIDA64 Extreme Edition 6.88.6423 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197939.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LIII BitTorrent Client  0.1.1.19 (Pre-Release) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197936.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PotPlayer 230523 (1.7.21916) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197933.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v8 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197916.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Everything 1.4.1.1024 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197880.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 7 (3in1) x64 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197866.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ PotPlayer 230523 (1.7.21916) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197862.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ qBittorrent 4.5.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197827.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WinToUSB Free / Pro / Enterprise / Technician 7.9 Release 1 RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197826.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows 11 Debloater 1.9.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197814.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v8 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197804.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ ChrisPC Win Experience Index 7.17.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197803.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ qBittorrent 4.5.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197795.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ The Bat! Professional 10.4.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197791.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ TreeSize Pro 9.0.0.1822 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197767.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ KeePassXC 2.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197760.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197748.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Adobe InDesign 2023 18.3.0.50 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197745.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ NVIDIA GeForce Desktop Game Ready 535.98 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197734.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Windows 7 (3in1) x86 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197725.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ R-Drive Image Technician 7.1 Build 7107 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197724.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197720.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Bat! Professional 10.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197719.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Firefox Browser ESR 102.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197713.jpg" />
 </div>
 
 

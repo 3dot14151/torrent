@@ -1,29 +1,3 @@
-###  Публикация: 1661826   (171112) от 25.10.2023
-
-WWE 2K23 (2023) [Multi] (1.18/dlc) Scene Rune [Icon Edition]
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-WWE 2K23 – это симулятор профессионального рестлинга. В нём сочетается аркадность и реализм. Благодаря наличию лицензий видеоигра позволяет участвовать в официальных ивентах и управлять настоящими рестлерами. Причем в этом продолжении девелоперы заметно расширили звездный состав. Также создатели улучшили в графику и переработали старые режимы. Здесь можно встретить (   Читать дальше...   )Тип издания: SceneРазработчик: Visual ConceptsЖанр: Sports, WrestlingЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2305CDF0FBDB5CD2A2197A96AFD848AD6FAB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654237   (171110) от 25.10.2023
 
 En Garde! (2023) [Multi] (1.0.5) Scene Rune
@@ -32,7 +6,7 @@ En Garde! (2023) [Multi] (1.0.5) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171110.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ City of Stories: Stephan's Journey (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170984.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170870.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170801.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170792.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170782.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Christmas Spirit 4: Journey Before Christmas (2020) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170695.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170688.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170623.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170581.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Christmas Stories 8: Enchanted Express / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170353.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170202.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170083.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.9.1.0) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170035.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Detective Olivia: The Cult of Whisperers / Детектив Оливия: Кул
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169992.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169976.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Castle on the Coast (2021) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169938.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169912.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169905.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Street Outlaws 2: Winner Takes All (2021) [En] (7729942) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169860.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169833.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Grand Theft Auto III (2021) [Ru/Multi] (1.14718) Repack Other s [The Definitive 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169822.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Airport CEO (2021) [Ru/Multi] (1.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169783.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ X-Force Under Attack (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169633.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169624.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7778504A9FEC33691B3651CD9717A29C41F1C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596418   (169460) от 10.12.2022
+
+NecroBouncer (2022) [Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьми свой волшебный посох и стань некромантом, работающим вышибалой в ночном клубе. Самозабвенно ползайте по клубу подземелий и сталкивайтесь с множеством пьяных монстров, готовых приветствовать вас после каникул. Пришло время приступить к работе. Прорвитесь сквозь толпу и расправьтесь с несколькими боссами. Используйте силы, скрытые в драгоценных камнях, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Alchemy SheepЖанр: Экшны, RoguelikeЯзык субтитров: Английский, Немецкий, Испанский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1113D74068382CDF6E25A649D112A331A25182
 ```
 
 https://mybot314.ru/tekegram_catalog/

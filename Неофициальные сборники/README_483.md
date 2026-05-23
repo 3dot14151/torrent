@@ -1,32 +1,3 @@
-###  Публикация: 1328292   (366215) от 29.09.2019
-
-VA - Sunshine People (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Alton Ellis - Too Late To Turn Back Now
-002. Reggae Roast - Sensi Skank Reloaded
-003. Razor B - Sidung
-004. Popcaan - A Wha Suh(   Читать дальше...   )Жанр: Dancehall, Reggae, LatinПродолжительность: 11:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2449F9FA5374F9F4FCC8A80C78B48F848153C33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951045   (366195) от 28.10.2015
 
 VA - More Than Ever (2015) [MP3|320 кб/с]<Uplifting Trance, Club, Electro>
@@ -35,7 +6,7 @@ VA - More Than Ever (2015) [MP3|320 кб/с]<Uplifting Trance, Club, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366195.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Chillhouse Excitation One - 25 Smooth & Tasty House Tunes (2013) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366193.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - I Love HardHouse (2015) [MP3|320 кб/с]<Club, Electro, Progressive House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366185.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Chillhouse Excitation Two - 25 Smooth & Tasty House Tunes (2015) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366183.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Улетная сотня осеннего Trance vol.12 (2012 год) [MP3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_366124.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ Rie Sinclair - Collection (2006-2013) (2018) [MP3|256 Kbps] <Indie, Pop Rock Bal
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366060.jpg" />
 </div>
 
 
@@ -215,7 +186,7 @@ VA - New Music Releases Week 41 (2018) [MP3|192-320 Kbps] <Dance, Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366051.jpg" />
 </div>
 
 
@@ -244,7 +215,7 @@ VA - Madness R&B: Sunny Radio Collection (2019) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366034.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ VA - Beautiful Dubstep (2009-2011) [MP3|320 kbps]<Dubstep>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_366008.jpg" />
 </div>
 
 
@@ -308,7 +279,7 @@ VA - Hits The Coast Of Miami (2015) [MP3|96-320 кб/с]<Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365991.jpg" />
 </div>
 
 
@@ -337,7 +308,7 @@ VA - Acoustic (2015) [MP3|320 кб/с]<Pop, Acoustic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365985.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ VA - Modern Vocal Trance (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365984.jpg" />
 </div>
 
 
@@ -395,7 +366,7 @@ VA - Самые Горячие Хиты Авторадио 3 (2012) [MP3|128 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365929.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ VA - Rap Battle 200 (2018) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365895.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365888.jpg" />
 </div>
 
 
@@ -488,7 +459,7 @@ VA - The Best of Trance 68 (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365886.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ VA - Options Remake Of Tracks October -A- (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365885.jpg" />
 </div>
 
 
@@ -546,7 +517,7 @@ VA - Greatest Sounds: Deep House October Set (2018) [MP3|320 Kbps] <Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365729.jpg" />
 </div>
 
 
@@ -575,7 +546,7 @@ VA - Piano Acoustic Version (2015) [MP3|320 кб/с]<Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365644.jpg" />
 </div>
 
 
@@ -604,7 +575,7 @@ VA - Promising Trance: Cosmic Party (2018) [MP3|320 Kbps] <Trance, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365559.jpg" />
 </div>
 
 
@@ -633,7 +604,7 @@ VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365485.jpg" />
 </div>
 
 
@@ -662,7 +633,7 @@ VA - Hits of My Soul Vol. 50 (2019) [MP3|320 кб/с]<Trap, Electronic, DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365378.jpg" />
 </div>
 
 
@@ -694,7 +665,7 @@ The Beatles - White Album De-Noised From Demos & Takes 2CD (2019) Bootleg [MP3|3
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365372.jpg" />
 </div>
 
 
@@ -726,7 +697,7 @@ VA - Metal Compilation - Best (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365335.jpg" />
 </div>
 
 
@@ -752,7 +723,7 @@ VA - Наше Радио: Лучшее и Новое (2012) [MP3|128 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365282.jpg" />
 </div>
 
 
@@ -772,6 +743,34 @@ VA - Наше Радио: Лучшее и Новое (2012) [MP3|128 кб/с]<Р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BB5935F92B7790E8BCB5B239685AFB06709621A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 424054   (365070) от 28.10.2015
+
+VA - Metal Compilation - Cover (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock, Cover>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amenti - Медляк(Credo cover)
+ 02. Lady Gaga - Bad Romance
+ 03. Nevergreen - FrozenЖанр: Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock, CoverПродолжительность: 04:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FE18E368ACDE55973F536177A2C06DC755A243
 ```
 
 https://mybot314.ru/tekegram_catalog/

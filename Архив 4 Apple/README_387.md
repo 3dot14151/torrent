@@ -6,7 +6,7 @@ PDFelement Express 0.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427184.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SQLPro Studio 1.0.302 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427182.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Butler 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427115.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pixellu SmartAlbums 2 v2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426985.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Espresso 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426977.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Folx Downloader Pro 5 v5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426976.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ ChronoSync 4.8.0 & ChronoAgent 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426917.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ TechSmith Snagit 2018.2.3  (90457)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426883.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Rhinoceros 5 v5.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426875.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Cocktail Sierra Edition 10.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426795.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ SteerMouse 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426794.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ CloudTV 3.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426665.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Photomatix Pro 6.1.1 Standalone Program + Plugin for Lightroom[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426445.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ BusyContacts 1.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426390.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ ChronoSync 4.7.0 & ChronoAgent 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426374.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ummy Video Downloader 1.59 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426276.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Elements for iWork 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426261.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Graphic Styles 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426253.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Smultron 8.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426242.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Infographics for Pages 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426238.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ uBar 4 v4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426138.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Microsoft Office Standard 2019 v16.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426130.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ SQLPro Studio 2020.84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425978.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Adguard 2.5.0 (892) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425720.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Axure RP 9 v9.0.0.3717 Pro / Team / Enterprise Edition macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425575.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Dash 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425573.jpg" />
 </div>
 
 

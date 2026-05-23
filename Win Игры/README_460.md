@@ -1,29 +1,3 @@
-###  Публикация: 1728188   (44355) от 07.09.2024
-
-Three Kingdoms: The Last Warlord / Три королевства: Последний военачальник (2021) [Ru/Multi] (1.0.0.4003/dlc) Scene Tenoke
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Three Kingdoms: The Last Warlord - двумерная пошаговая стратегия, основанная на китайском историческом романе Троецарство. Три королевства: Последний военачальник рассказывает про разделение Китая между тремя государствами, среди которых Вэу, Шу и Ву. Каждая фракция имеет свои особенности, показывая различия между культурами. Стройте уникальные здания и применяйте (   Читать дальше...   )Тип издания: SceneРазработчик: LongYou Game StudioЖанр: Симуляторы, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B835D80CA5B43B014980C7248FC50A8DBA5DA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747843   (44348) от 07.09.2024
 
 Skoof Simulator / Симулятор Скуфа (2024) [Ru/En] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Skoof Simulator / Симулятор Скуфа (2024) [Ru/En] (1.0) Scene Tenok
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44348.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44344.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53803) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44339.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ WARCANA (2024) [Multi] (15354714) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44332.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Shadow of the Ninja Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44331.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44326.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Forklift Simulator (2024) [Ru/Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44316.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Perennial Order (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44309.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Don't Stare (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44289.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44273.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Fallout: London (2024) [En] (2.31r2) Repack/Mod FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44263.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44254.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44250.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Volgarr the Viking I + II (2) (2013, 2024) [Multi] (1.36c/1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44246.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Dark Deity (2021) [Multi] (1.58/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44234.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Wartales (2021) [Ru/Multi] (1.0.36897/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44223.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44184.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44179.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44168.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44141.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44069.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Beyond Hanwell (2024) [En] (0.4.4) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44063.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.2.3/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44043.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ PROTOCOL 11 - Episode 1 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44042.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Rising Star 2 (2020) [Multi] (2.98.342/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44026.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC89DAF7B6E2AC6FDAC07D58C39462916708855C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748598   (43998) от 10.09.2024
+
+Marenian Tavern Story: Patty and the Hungry God (2019) [Multi] (1.0.2) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marenian Tavern Story: Patty and the Hungry God - необычная японская игра, сочетающая в себе RPG и симулятор менеджмента. Главной героиней является девушка по имени Пэтти. Её младший брат залез в огромные долги и разорил семью, у которой в итоге забрали всё имущество, включая дом. Чтобы вернуть его и расплатиться со всеми долгами, Пэтти решает открыть таверну. Управляя (   Читать дальше...   )Тип издания: LicenseРазработчик: Rideon,Inc.Жанр: Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44C61DFD07E5663967A0FB1E21461DF778908B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

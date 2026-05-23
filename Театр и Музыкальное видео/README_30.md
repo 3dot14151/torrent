@@ -1,109 +1,3 @@
-###  Публикация: 1371285   (890090) от 31.03.2020
-
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) (Chodezilla Records) COVID-19 2020
-CDA Vermicide Violence - The Praxis of ProphylaxisПроизводство: Chodezilla RecordsЖанр: Death CoreПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A71A28FAE2320E8A8251047F4126F2F5AF317D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371231   (889948) от 31.03.2020
-
-Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) (2020) WEBRip [H.264/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-2020 Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) [2160p]Жанр: Альтернативный РокПродолжительность: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786DBAB82AE68873EDA60CF87772AF2BC50C5A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370708   (889900) от 31.03.2020
-
-Пневмослон - Катастрофический пипец (COVID-19) (2020) WEBRip [H.264/1080p-LQ] <Post-Punk>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип Пневмослон - Катастрофический пипец (COVID-19)
-CDA Пневмослон (2019) КонтрэволюцияЖанр: Post-PunkПродолжительность: 00:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125DD1A42F5CEA1B78DC4A4F872E9AEDA3658A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994076   (889533) от 08.03.2016
-
-Сольный концерт певицы Слава: Откровенно (2016.03.06) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-6 марта на телеканале СТС смотрите телевизионную версию сольного концерта певицы Славы «Откровенно» в Государственном Кремлевском Дворце!Телекомпания: СТСЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2219F9D1C60ECF0C8DC5AFE81ACA93596260CD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994077   (889519) от 08.03.2016
 
 Хор Турецкого. Мужской взгляд на любовь (2016.03.06) SATRip
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889519.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ Timeflies - I Choose U (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889506.jpg" />
 </div>
 
 
@@ -164,7 +58,7 @@ Metallica - The Night Before Concert at San Francisco’s AT&T Park (2016) WEBRi
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889400.jpg" />
 </div>
 
 
@@ -193,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889395.jpg" />
 </div>
 
 
@@ -222,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889092.jpg" />
 </div>
 
 
@@ -255,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888957.jpg" />
 </div>
 
 
@@ -281,7 +175,7 @@ Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888941.jpg" />
 </div>
 
 
@@ -307,7 +201,7 @@ Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887230.jpg" />
 </div>
 
 
@@ -333,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887110.jpg" />
 </div>
 
 
@@ -359,7 +253,7 @@ Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industri
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886991.jpg" />
 </div>
 
 
@@ -387,7 +281,7 @@ Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886980.jpg" />
 </div>
 
 
@@ -416,7 +310,7 @@ NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886814.jpg" />
 </div>
 
 
@@ -442,7 +336,7 @@ NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886643.jpg" />
 </div>
 
 
@@ -468,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886392.jpg" />
 </div>
 
 
@@ -494,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885733.jpg" />
 </div>
 
 
@@ -523,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885421.jpg" />
 </div>
 
 
@@ -549,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885256.jpg" />
 </div>
 
 
@@ -575,7 +469,7 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885242.jpg" />
 </div>
 
 
@@ -604,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885232.jpg" />
 </div>
 
 
@@ -630,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885111.jpg" />
 </div>
 
 
@@ -660,7 +554,7 @@ History of Rock (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884290.jpg" />
 </div>
 
 
@@ -686,7 +580,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884230.jpg" />
 </div>
 
 
@@ -698,6 +592,122 @@ A Hard Day's Night - первый битловский фильм, снятый 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA6E6E9B0D50F417600111F151B28EB3A094E03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995422   (884207) от 11.03.2016
+
+Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) HDTV [H.264/1080i] [En]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Stories (в пер. с англ. Призрачные истории) — шестой студийный альбом британской группы Coldplay, вышедший 16 мая 2014 года в Европе (на лейбле Parlophone) и 19 мая в Северной Америке (на лейбле Atlantic Records). Альбом записывался в период с 2013 по 2014 год на домашних студиях в Лондоне и Лос-Анджелесе. В продюсировании альбома принимали участие Авичи, Тимбалэнд, (   Читать дальше...   )1.	«Always in My Head»	Coldplay, Пол Эпворт, Дэниел Грин, Рик Симпсон	3:36
+2.	«Magic»	Coldplay, Эпворт, Грин, Симпсон	4:45
+3.	«Ink»	Coldplay, Эпворт, Грин, Симпсон	3:48
+4.	«True Love»	Coldplay, Эпворт, Грин, Симпсон	4:05(   Читать дальше...   )Производство: Великобритания, JA DigitalЖанр: КонцертРежиссер: Пол ДагдейлАктеры: Гай Берриман, Тодд Блад, Джон Баклэнд, Уилл Чемпион, Chris MartinПеревод: ОтсутствуетПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C25C94CBECEE1DB4C0A41B788AD5421B49E642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372669   (883628) от 04.04.2020
+
+Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Testament - Children Of The Next Level (2160) PCMПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8265FC9DCCB4E9CA444D1A61FDABD9EC1CFF02CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372777   (883626) от 04.04.2020
+
+Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM, Dark Electro>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2008 Hocico - Drowning - Banned (480)
+002 2009 Hocico - Born To Be (Hated) (Metetelo Por El Culo) (480)
+003 2011 Hocico - Bite Me! (1080)
+004 2015 Hocico - Bienvenido A La Maldad (1080)(   Читать дальше...   )Производство: Out Of LineЖанр: Aggrotech, EBM, Dark Electro, Electro-IndustrialПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9B8DF6AE67E058A3E5362ADD4324810DB1B6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 298549   (883262) от 20.02.2011
+
+Big Love Show. Грандиозный концерт ко Дню всех Влюбленных (2011.02.14) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздник, который приведет в чувство и заставит забыть обо всем, кроме любви и музыки.
+  Love Radio подарит москвичам ко дню влюбленных грандиозный концерт самой модной музыки - "BIG LOVE SHOW"!
+  Это настоящее событие для всей современной молодежи.
+(   Читать дальше...   )01.Макsим - Не отдам
+02.Dan Balan - Chica Bomb
+03.23:45 - Друг без друга
+04.Leonid Rudenko - Real life(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F372F9205977949393B1A2D62DDE07E149D798B
 ```
 
 https://mybot314.ru/tekegram_catalog/

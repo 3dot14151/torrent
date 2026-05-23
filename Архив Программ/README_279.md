@@ -6,7 +6,7 @@ Blender E-Cycles 2021.1 2.93.0 LTS Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918944.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gilisoft Privacy Protector 7.0.0 DC 17.02.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918937.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ WhatsApp 2.2132.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918927.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Kaspersky Virus Removal Tool 15.0.19.0 (20.02.2016) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918922.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ BitTorrent Free 7.9.5 Build 41822 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918919.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Reg Organizer 7.70 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918916.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Gilisoft Video Converter 9.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918914.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ NIUBI Partition Editor 7.5.0 Technician Edition Portable by zeka.k [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918913.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Macrorit Partition Expert 5.7.0 Unlimited Edition Portable by zeka.k [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918911.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Xilisoft Video Converter Ultimate 7.8.19 Build 20170122 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918910.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Stellar Phoenix Windows Data Recovery 6.0.0.1 Technical Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918909.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ K-Lite Codec Pack 12.8.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918905.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ GoldWave 6.51 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918898.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ReviverSoft Driver Reviver 5.33.2.6 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918897.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ QTranslate 6.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918887.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ WhatsApp 0.4.1299 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918884.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Mp3tag 2.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918878.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Reg Organizer 7.70 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918876.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Mandelbulb 3D 1.90 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918867.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Process Lasso Pro 8.9.6.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918865.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CCleaner 5.26.5937 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918816.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Gilisoft File Lock Pro 10.1.0 DC 17.02.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918800.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Auslogics Anti-Malware 1.21.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918778.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ GOM Player Plus 2.3.68.5332 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918777.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Snappy Driver Installer Origin R709 / Драйверпаки 20032 [Multi/Ru] (�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918757.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Comodo Cleaning Essentials 10.0.0.6111 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918700.jpg" />
 </div>
 
 

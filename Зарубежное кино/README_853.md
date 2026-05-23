@@ -1,56 +1,3 @@
-###  Публикация: 1139881   (657809) от 04.06.2017
-
-Чужая игра / Цирк / Circus (2000) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лео — идеальный игрок: он делает ход, просчитывая в уме несколько следующих. Но иногда и беспроигрышная комбинация может споткнуться о черную пешку… Лео был нанят, чтобы убить жену бизнесмена.
-Но когда киллер выполнил заказ, неожиданно выяснилось, что бизнесмен вообще не женат, никогда не был женат и не имеет никакого отношения к убитой женщине. Однако это было лишь (   Читать дальше...   )Производство: Великобритания, США | Circus Pictures, Film Development CorporationЖанр: Триллер, Криминал, КомедияРежиссер: Роб УолкерАктеры: Джон Ханна, Фамке Янссен, Петер Стормаре, Эдди Иззард, Фред Уорд, Брайан Конли, Том ’Тайни’ Листер мл., Аманда Донохью, Йен Берфилд, Нил СтьюкПеревод: Профессиональный (многоголосый закадровый)Субтитры: AнглийскиеПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C411D65BC0B0083851FC79EA4971BBF0E7B93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140113   (657805) от 04.06.2017
-
-От заката до рассвета 3: Дочь палача / From Dusk Till Dawn 3: The Hangman's Daughter (1999) BDRip [H.265/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Такие отчаянные бандиты, как Джонни, рано или поздно оказываются на виселице. На этот раз Джонни повезло: в безумной перестрелке таинственный незнакомец спасает его от смерти, и он бежит, похитив дочь своего палача — Эсмеральду. Взбешенный и опозоренный, палач бросается в погоню. И когда возмездие было почти неизбежным, яростные противники оказываются перед лицом (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Боевик, Триллер, КомедияРежиссер: П.Дж. ПешеАктеры: Марко Леонарди, Майкл Паркс, Темуэра Моррисон, Ребекка Гэйхарт, Ара Сели, Ленни Лофтин, Соня Брага, Орландо Джонс, Дэнни Трехо, Джордана СпироПеревод: Многоголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4753F168C33E6FA8DD4A58F827B6EE77FF11ACD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139845   (657802) от 04.06.2017
 
 Крик 4 / Scream 4 (2011) HDRip [H.264]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657802.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657752.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657749.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657728.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657705.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657686.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657663.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657659.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657645.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657615.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657607.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657567.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657542.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657541.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657537.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657535.jpg" />
 </div>
 
 
@@ -476,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657533.jpg" />
 </div>
 
 
@@ -502,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657479.jpg" />
 </div>
 
 
@@ -528,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657477.jpg" />
 </div>
 
 
@@ -554,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657437.jpg" />
 </div>
 
 
@@ -580,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657419.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657418.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657416.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657412.jpg" />
 </div>
 
 
@@ -671,6 +618,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64AF1A46F0F3D0621EE9C5E136E954DCDDCBFBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514944   (657411) от 24.06.2012
+
+Не пойман - не вор / Inside Man (2006) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657411.jpg" />
+</div>
+
+
+###  Подробнее
+
+История крутого полицейского, детектива Фрезьера, который сталкивается «на узкой дорожке» с хитрым грабителем банков Долтоном. Их противостояние выливается в напряженную драму с захватом заложников.
+По мере того, как развивается эта игра в «кошки-мышки», на горизонте появляется еще одна загадочная фигура — брокер Мадалина, роль которой в разворачивающихся событиях остается до поры до времени совершенно непонятной. Мадалина вносит еще больше хаоса и нестабильности в и без того чрезвычайно хрупкую ситуацию…Жанр: Триллер, Драма, КриминалРежиссер: Спайк ЛиПродюсер: Брайан Грейзер, Джонатан Филли, Карен КехелаАктеры: Дензел Вашингтон, Клайв Оуэн, Джоди Фостер, Уиллем Дефо, Чиветел Иджиофор, Кристофер Пламмер, Джеймс Рэнсон, Дэвид Браун, Мишель ДиБенедетти, Питер Герети, Кен ЛеунгПеревод: Профессиональный (полное дублирование)Язык субтитров: Русский, АнглийскийПродолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F07425D88AE0BB5B4A7304A9C5D2BB59A3E467C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514708   (657409) от 24.06.2012
+
+Гавр / Le Havre (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсель Маркс, в прошлом богемный писатель, переселяется в портовый город Гавр и становится чистильщиком сапог. Занятие, хоть и не очень хлебное, дает Марселю ощущение пользы для людей. Поставив крест на своих писательских амбициях, Марсель вполне доволен жизнью, проводя ее между работой, домом и ближайшим кабаком.
+
+Но однажды судьба сталкивает его с ребенком-иммигрантом из Черной Африки, а жена Марселя Арлетти тяжело заболевает. И вновь Марсель оказывается перед холодной стеной равнодушия и пробует победить слепую государственную машину, надвигающуюся на ребенка-беженца. Оружие Марселя — только врожденный оптимизм и поддержка многочисленных друзей. Сможет ли он победить в этой неравной борьбе?..Жанр: Драма, КомедияРежиссер: Аки КаурисмякиАктеры: Андре Вилмс, Кати Оутинен, Жан-Пьер Дарруссен, Блондин Мигель, Элина Сало, Эвелин ДидиПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: студия ОмикронПродолжительность: 01:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE7BC27DACE1D1929FE4B693350C5A8641716DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

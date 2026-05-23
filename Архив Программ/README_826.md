@@ -6,7 +6,7 @@ BurnAware Professional 5.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629080.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ MAGIX Vegas Pro 19.0 Build 550 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629038.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CCleaner 5.92.9652 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629036.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SandBoxie 5.20 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629019.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Aviz Studio ATiles Pro 2.52 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_629005.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ cFosSpeed 8.03 Build 1981 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628982.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Easy CD-DA Extractor 16.0.7.1 Final RePack (& portable) by KpoJIuK [Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628968.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Microsoft Enhanced Mitigation Experience Toolkit (EMET) 5.52.6156.38091 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628917.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.92.4300 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628916.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ MInstAll Release By StartSoft v.3 June-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628914.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 06.2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628907.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ uRex Video Converter Platinum  v 3.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628871.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Easy CD-DA Extractor 16.0.7.1 Final + RePack by elchupacabra [MULTi / Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628863.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Windows 7 PROFESSIONAL Black Edition MultiLite х86 by~putnik
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_628749.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ EssentialPIM Pro Network 5.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628735.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ XMedia Recode 3.1.1.4 Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628728.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Junkware Removal Tool 7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628474.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Mozilla Firefox 39.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628461.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Pavtube Video Converter Ultimate 4.8.6.7 Repack by 78Sergey [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628412.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Junkware Removal Tool 7.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628340.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Artweaver Plus 6.0.11.15126 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628241.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628193.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft Office 2013-2016 C2R Install 5.6 Full | Lite by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628178.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ BluffTitler Ultimate 14.1.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628148.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Opera 53.0.2907.88 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628076.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ K-Lite Codec Pack Update 14.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628075.jpg" />
 </div>
 
 

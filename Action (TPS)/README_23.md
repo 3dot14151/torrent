@@ -6,7 +6,7 @@ Lost: Via Domus / Lost. Остаться в живых [Ru/En] (RePack) 2008 | R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540275.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Blood Waves (2018) [Ru/En] (0.7) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540090.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mafia III / Мафия 3 (2016) [Ru] (1.090.0.1/dlc) Repack Other s [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538327.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537771.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Prototype Дилогия [Ru/En] (RePack) 2009-2012 | VANSIK
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537635.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Prototype 2 RedNet Edition [Ru/En] (LossLess RePack) 2012 l R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537632.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Shadow of the Tomb Raider (2018) [Ru] (1.0.292.0/dlc) Repack R.G. Catalyst [Crof
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537553.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Transformers: Devastation (2015) [Ru/En] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535969.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Transformers: Devastation (2015) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535957.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Blades of Time / Клинки Времени [Ru/En] (RePack/u5) 2012 | R.G. Shi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535885.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Hydrophobia: Prophecy [Multi9/Ru] (Steam-Rip/1.1) 2011 | R.G. GameWorks
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535878.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535755.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Star Wars: The Clone Wars - Republic Heroes (2009) [Ru/En] Repack R.G. Меха�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534685.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Orcs Must Die Дилогия [Ru/En/Multi9] (RePack) 2011-2012 l R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534112.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Prevent The Fall (2017) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533130.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Saints Row IV (2014) [Ru/En] (1.0.6.1/dlc) RePack =nemos= [Game of the Century E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532870.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532303.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532191.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.0.1) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528724.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DEAD RISING (2016) [Ru/Multi] (1.0.0.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528716.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mafia II / Мафия 2 (2010) [Ru/Multi] (1.0.0.1/dlc) SteamRip Let'sPlay [Digi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527705.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.0.1) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527704.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mafia II / Мафия 2 (2011) [Ru/Multi] (1.0.0.1/dlc) License PLAZA [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527702.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Surge (2017) [Ru/Multi] (1.0/dlc) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524291.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ American McGee's Alice / Америкэн Макги: Алиса (2000/2014) [Ru
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523772.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Assassin's Creed: Brotherhood / Assassin's Creed: Братство крови [R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523612.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046498.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kentum (2025) [Ru/Multi] (1.0.b114.cl75908) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046492.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SANABI (2023) [Ru/Multi] (1.3.49/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046467.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Shortest Trip to Earth (2019) [En] (1.3.7/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046378.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sable (2021) [Multi] (4.3.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046373.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Interrogation: You Will Be Deceived (2019) [En] (1.1.9.a1704342) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046307.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Star Dynasties (2021) [En] (1.0.4.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046301.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Exit the Gungeon (2020) [Ru/Multi] (2.1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046300.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Workshop Simulator (2022) [Ru/Multi] (1.3.13977) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046072.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ X-Blades HD (2022) [Ru/Multi] (1.0) License GOG [Gold]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045784.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Atomicrops (2020) [Ru/Multi] (1.6.1f1-g/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045782.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Two Worlds 2 (2010) [Ru/En] (2.0.6/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045698.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lara Croft Tomb Raider Trilogy (2006-2008) [Ru/Multi] Repack R.G Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045617.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045449.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ My Grandparents' Christmas Mystery (2022) [En] (Build 10272844) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045356.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Demons Roots (2023) [Multi] (1.01/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045131.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Flat Eye (2022) [Multi] (1.2.1v2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044787.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Spirit and the Mouse (2022) [Multi] (1.2c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044786.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ziggurat 2 (2021) [Ru/Multi] (09012023/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044783.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Chromosome Evil (2022) [Ru/En] (3.079/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044579.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.11.24193/dlc) License GOG [Special Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044457.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (1.0/dlc) License FLT
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044359.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044356.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Hero Siege (2014) [Ru/Multi] (5.6.0.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044102.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Project AURA (2018) [Ru/Multi] (1.1.8) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044090.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Blue Reflection: Second Light (2021) [Multi] (1.02/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043979.jpg" />
 </div>
 
 

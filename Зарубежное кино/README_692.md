@@ -1,55 +1,3 @@
-###  Публикация: 1395913   (751455) от 12.07.2020
-
-Брачная история / Marriage Story (2019) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Супруги - нью-йоркский театральный режиссёр Чарли и актриса его театра Николь - находятся в процессе развода. Чарли всё устраивало в их браке, но Николь считает, что потеряла себя и, забрав сына, переезжает к маме в Лос-Анджелес. Там ей уже предложили роль в сериале и посоветовали высококлассную адвокатессу по разводам. Теперь Чарли тоже придётся искать адвоката, (   Читать дальше...   )Производство: США / Heyday Films, NetflixЖанр: Драма, мелодрама, комедияРежиссер: Ноа БаумбакАктеры: Скарлетт Йоханссон, Адам Драйвер, Мерритт Уивер, Лора Дерн, Рэй Лиотта, Уоллес Шон, Джули Хэгерти, Алан Алда, Марк О Брайэн, Кайл БорнхаймерПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (Full), английские (Full)Продолжительность: 02:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7F5712007BBD141F8A3C009E4A9DDADDB471F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395898   (751453) от 12.07.2020
-
-Сержиу / Sergio (2020) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жизнь и карьера дипломата ООН Сержиу Виейра ди Меллу оказывается на волоске после вторжения армии США в Ирак.Производство: США / Black Rabbit Media, Anima Pictures, Desert Motion PicturesЖанр: ДрамаРежиссер: Грег БаркерАктеры: Вагнер Моура, Ана де Армас, Брайан Ф. О`Бирн, Гаррет Диллахант, Клеменс Шик, Уилл Далтон, Джейсон Каннинг, Кутаиба Абдельхак, Самира Асир, Алисе АссефПеревод: Многоголосый закадровый, профессиональный (IdeaFilm)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C8C23CFD9EE7250971511949468D1EEF141E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395723   (751452) от 12.07.2020
 
 Афера в Майами / Wasp Network (2019) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751452.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751443.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751438.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751436.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751384.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751383.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751380.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751377.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751370.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751330.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751299.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751294.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751270.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751221.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751210.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751195.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751191.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751186.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751120.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751117.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751115.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751074.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751072.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751067.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55DA4CE89E7733AE36C5FC1B7AE6723D4696D574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470445   (751065) от 08.02.2019
+
+Соучастник / Collateral (2004) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент - лощеный, интеллигентный и хладнокровный наемный убийца экстра-класса, прилетевший в Лос-Анджелес, чтобы выполнить крупный заказ. За одну ночь киллеру нужно отправить на тот свет сразу нескольких человек в разных концах огромного города. Для этого он берет в заложники ничего не подозревающего таксиста по имени Макс, который теперь под дулом пистолета будет (   Читать дальше...   )Производство: США / Paramount Pictures, DreamWorks, Parkes+MacDonald Image NationЖанр: триллер, драма, криминалРежиссер: Майкл МаннАктеры: Том Круз, Джеми Фокс, Джада Пинкетт Смит, Марк Раффало, Питер Берг, Брюс МакДжилл, Ирма П. Холл, Барри Шабака ХенлиПеревод: дублированный, двухголосый закадровый (Tycoon-studio)Субтитры: русские, английскиеПродолжительность: 01:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0375B36B179434866E9752D121FBBDD2F7DEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281478   (751062) от 08.02.2019
+
+Девушка, которая застряла в паутине / The Girl in the Spider's Web (2018) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_751062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хакер Лисбет Саландер и журналист Микаэль Блумквист оказываются втянуты в историю с участием шпионов, киберпреступников и коррумпированных чиновников.Производство: Великобритания, Германия, Швеция, Канада, США, Cantillon Company, The, Metro-Goldwyn-Mayer (MGM), New Regency Pictures, Pascal Pictures, Scott Rudin Productions, Sony Pictures Entertainment (SPE), Yellow Bird Films ABЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Федерико АльваресАктеры: Клер Фой, Сверрир Гуднасон, Сильвия Хукс, Лакит Стэнфилд, Стивен Мерчант, Камерон Бриттон, Вики Крипс, Фолькер Брух, Микаэл Персбрандт, Клас БангПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full)Продолжительность: 01:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785D4D833178B94BBE32CB0C012BAF4F2EACFA8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

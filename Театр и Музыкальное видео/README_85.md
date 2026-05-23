@@ -1,115 +1,3 @@
-###  Публикация: 550366   (458365) от 22.09.2012
-
-Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388575   (458069) от 17.09.2011
-
-Legends Disco Star-80 (2009) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Выступления звёзд дискотек 80х: Sandra, Thomas Anders, C.С. Catch, Samantha Fox, Chris Norman, Europe, Sabrina, Bad Boys Blue, Opus
-хркъSandra:
-Maria Magdalena
-The Night is Still Young
-ForeverЖанр: Музыкальное видео, клипыПродолжительность: 01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321700   (456558) от 25.08.2019
-
-Жара в Баку - Хиты 90 х (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Этот вечер посвящен музыке 1990-х. В ту эпоху рождались самые безудержные музыкальные хиты, которые и сегодня никого не оставят равнодушными.
-Концерт посвященный юбилею Любэ и самым ярким ХИТАМ 90-Х! Для вас выступят Валерия, Николай Басков, Филипп Киркоров, Фабрика, Леонид Агутин, Отпетые Мошенники, Григорий Лепс, EMIN, Алёна Свиридова, НА-НА, Александр Буйнов, (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87C488AB26534F779DA23FC1525591F953A7A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321667   (456447) от 25.08.2019
-
-Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
-01. La Bouche - Be My Lover
-02. Backstreet Boys - Everybody
-03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694859   (456154) от 27.09.2013
 
 LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
@@ -118,7 +6,7 @@ LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456154.jpg" />
 </div>
 
 
@@ -145,7 +33,7 @@ ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456112.jpg" />
 </div>
 
 
@@ -171,7 +59,7 @@ Foreigner - Rockin' At The Ryman (2010) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455837.jpg" />
 </div>
 
 
@@ -200,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455669.jpg" />
 </div>
 
 
@@ -235,7 +123,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455158.jpg" />
 </div>
 
 
@@ -264,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455017.jpg" />
 </div>
 
 
@@ -304,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454721.jpg" />
 </div>
 
 
@@ -333,7 +221,7 @@ The Bacon Brothers - No Food Jokes Tour (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454126.jpg" />
 </div>
 
 
@@ -362,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453773.jpg" />
 </div>
 
 
@@ -388,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453750.jpg" />
 </div>
 
 
@@ -414,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453574.jpg" />
 </div>
 
 
@@ -440,7 +328,7 @@ Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453457.jpg" />
 </div>
 
 
@@ -466,7 +354,7 @@ Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453324.jpg" />
 </div>
 
 
@@ -492,7 +380,7 @@ Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453319.jpg" />
 </div>
 
 
@@ -518,7 +406,7 @@ Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453317.jpg" />
 </div>
 
 
@@ -544,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453283.jpg" />
 </div>
 
 
@@ -570,7 +458,7 @@ Booba - Caramel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453120.jpg" />
 </div>
 
 
@@ -596,7 +484,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453100.jpg" />
 </div>
 
 
@@ -625,7 +513,7 @@ Heaven And Hell - Live from Radio City Music Hall (2007) [H.264] BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452981.jpg" />
 </div>
 
 
@@ -654,7 +542,7 @@ Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451422.jpg" />
 </div>
 
 
@@ -680,7 +568,7 @@ C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451413.jpg" />
 </div>
 
 
@@ -706,7 +594,7 @@ Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451408.jpg" />
 </div>
 
 
@@ -717,6 +605,119 @@ Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B9C9E62A2AA1B1AA402B0CCCE0588F40F1728A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942906   (451364) от 02.10.2015
+
+VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 02 октября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе использованы официальные видеоролики.01. Justin Bieber - What Do You Mean  (4:58)
+03. R. City - Locked Away ft. Adam Levine  (4:25)
+04. Calvin Harris & Disciples - How Deep Is Your Love  (4:21)
+05. The Weeknd - Can t Feel My Face  (3:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD40758EADD23E0671FFDD593EFFF1ABB53EEA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942985   (451185) от 02.10.2015
+
+Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Apres Vous
+02. Into The Fire
+03. Hard Lovin‘ Man
+04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBA7C6DD11DF4FD5CC662251ABFFDD187097003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247640   (451085) от 16.09.2018
+
+Квартирник на НТВ у Маргулиса. L’one (09.15.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451085.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту субботу в гости к Евгению Маргулису пришел знаменитый рэпер L’one. Он рассказал зрителям историю своего псевдонима и обсудил с ведущим дуэты и записанные совместно с Варварой Визбор песни. Также музыкант признался, что он ни разу до этого не играл на квартирниках. Рэпер поделился историями о жизни в Якутске, где играл в двух командах КВН: «Якутские первооткрыватели», (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F2D341D2F35823AB5ADE3A86443EC25039032F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705572   (449051) от 30.09.2013
+
+Архив русского рока (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Телевизор "Твой Папа — Фашист"
+02. Аквариум "Рыба"
+03. Егор Летов "Всё Идёт По Плану"
+04. Ноль "Я Люблю Буги-Вуги"(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50D93A0F64797AC0977B0A40D67D0DD05F4C230
 ```
 
 https://mybot314.ru/tekegram_catalog/

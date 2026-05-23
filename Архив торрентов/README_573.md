@@ -6,7 +6,7 @@ WiFi Explorer Pro 3 v3.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927225.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Substance 3D Designer 11.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927221.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ USB Disk Security 6.5.0.0 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927212.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Windows 8.1 Update Release By StartSoft 04-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927210.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ mAh Battery Pro v1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927154.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Vintage Culture - Live @ Ibirapuera Park Sao Paulo, Brazil (2021-08-03) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927149.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Tenorshare iCareFone 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927145.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Kosmos - Work Time Tracker v1.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927140.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ MAGIX Sound Forge Pro 14.0 Build 31 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927134.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rhinoceros 7 v7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927126.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Substance 3D Sampler 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927109.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ apulSoft - apQualizr2 2.2.4 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927108.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927100.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Antivirus Pack [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927093.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cleaner by Augustro v4.1PRO [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927081.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ MacCleaner 2 PRO 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927041.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Movavi Clips - Video Editor with Slideshows v3.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927030.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ FurMark 1.27.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927018.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Wondershare UniConverter 11.7.2.6 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927011.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ SpeedCommander 13.40.6300 (feSS Edition v1.05) (x86 и x64 версии)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926920.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Wise Memory Optimizer 3.6.7.111 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926903.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Machete 5.0 Build 55 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926899.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ DaisyDisk 4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926893.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ O&O Defrag Professional 23.0 Build 3579 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926883.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Beyond Compare Pro 4.4.0.25886 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926813.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Auslogics Disk Defrag Ultimate 4.11.0.6 Repack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926775.jpg" />
 </div>
 
 

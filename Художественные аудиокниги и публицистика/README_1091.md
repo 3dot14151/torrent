@@ -1,81 +1,3 @@
-###  Публикация: 1809175   (9944) от 29.07.2025
-
-Евгений Астахов | Сопряжение (Книга 4). Варлорд (2024) [MP3, Владимир Хлопов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В четвёртой книге герой продолжает своё восхождение в системе. Монстры становятся всё сильней, враги – всё опасней. Но и наш герой, как мы помним, не робкого десятка! Слушайте продолжение увлекательной истории.Жанр: фантастика, приключения, боевикИздательство: 1С-ПаблишингПродолжительность: 12:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB26E60BD12664726052F91B6D5304EC6C82AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809174   (9943) от 29.07.2025
-
-Евгений Астахов | Сопряжение (Книга 3). Маверик (2024) [MP3, Владимир Хлопов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В третьей книге герой решает расширить масштаб своей деятельности. Уничтожать монстров, окружающих его форпорст, – занятие скучное и бесперспективное. Гораздо интересней объединить несколько форпостов – и получить в управление целую армию. Но, чтобы выполнить эту задачу, придётся постараться.Жанр: фантастика, приключения, боевикИздательство: 1С-ПаблишингПродолжительность: 11:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0315AC7BCED7651B88125AF85D2C7A6B9B7210FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809263   (9942) от 29.07.2025
-
-Дмитрий Шатров | Мир взбесившихся порталов (Книга 4). Портальный прорыв (2024) [MP3, Алексей Семёнов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Злодейка судьба, но больше козни вздорной колдуньи, зашвырнули Эдика-Эддарда обратно на Землю. В то самое место, откуда всё начиналось. Заклинатель стихий, владетельный лорд, без пяти минут спаситель целого мира снова попал. Снова один. Снова без друзей, без владений, без магии. И нужно как-то выгребать из непростой ситуации. Искать дорогу домой. В Аркенсейл. В Альдерри.Жанр: Боевое фэнтези, попаданцыИздательство: Топ Груп БукПродолжительность: 07:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7E43BEF171C2ED440EC500C6BFA56F6A8095D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809268   (9940) от 29.07.2025
 
 Джек Лондон | Железная пята (2025) [MP3, Юлия Тархова]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9940.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9939.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9937.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9936.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9934.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9868.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9867.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9865.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9856.jpg" />
 </div>
 
 
@@ -326,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9848.jpg" />
 </div>
 
 
@@ -352,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9830.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9765.jpg" />
 </div>
 
 
@@ -407,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9764.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9763.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9758.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9753.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9749.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9747.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9744.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9742.jpg" />
 </div>
 
 
@@ -615,7 +537,7 @@ Lanpirot | Позывной Хоттабыч (Книга 9). Исчадие Кр
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9738.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9737.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ Lanpirot | Нахаловка (Книга 1) (2025) [MP3, Вадим Ерофе�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9733.jpg" />
 </div>
 
 
@@ -678,6 +600,89 @@ Lanpirot | Нахаловка (Книга 1) (2025) [MP3, Вадим Ерофе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EFB8B47F04EEDEAA0A79FD64310D8E888700A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809660   (9729) от 31.07.2025
+
+Ник Перумов, Ирина Черкашина | Восстание безумных богов. (Книга 2). Магия крови. (Части 1-4) (2025) [MP3, Роман Волков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая игра в Араллоре продолжается. Великие силы действуют чужими руками, но не все их орудия согласны оставаться лишь орудиями, ведь цена игры – существование самого Араллора.
+
+В движение пришла такая мощь, что сходят с ума и маги, и боги. Одни желают всеобщего блага, другие, напротив, – собственного могущества, третьи – возвращения из небытия, но за всеми ними (   Читать дальше...   )Жанр: ФэнтезиИздательство: ФениксПродолжительность: 30:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6045EEE1CA82E89E17F5012AEC1AF08570732D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809534   (9728) от 31.07.2025
+
+Сергей Карелин, Илья Савич | Инженер магических сетей (Книга 1) (2025) [MP3, Sibiryak]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я оказался в мире, где люди научились пускать магию по проводам и запасать в аккумуляторах. Здесь это главный источник энергии. А я как раз инженер-энергетик, ха-ха! Но за магией охотятся аристократы, корпораты и вражеские шпионы. А возле линий и подстанций бегают монстры-демоны… Ну, ничего. Инженер не первая моя профессия. И скоро мне понадобятся все навыки, какие (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 10:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B157B19757F5511E7FB66FCC0AAACD1A6E5468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809692   (9722) от 31.07.2025
+
+Тимофей Кулабухов | Системная нежить. (Том 1) (2025) [MP3, Иван Караваев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9722.jpg" />
+</div>
+
+
+###  Подробнее
+
+СИСТЕМА ИНИЦИИРОВАНА. ДОБРО ПОЖАЛОВАТЬ, ИГРОК.
+
+Прокачка, опыт, убийства, перспек…
+(   Читать дальше...   )Жанр: Фантастика, боевик, LitRPGИздательство: Пересадочная станцияПродолжительность: 09:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62FA72C6A8A9E4F2C01785003CC20D710E52372
 ```
 
 https://mybot314.ru/tekegram_catalog/

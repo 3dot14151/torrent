@@ -6,7 +6,7 @@ Volker Kriegel - Journal & Palazzo Blue (1981, 1987) 2CD, 2010, Inakustik [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370148.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Junior Mance Trio - Blue Mance (1994) Chiaroscuro [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370146.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ T-Bone Walker - The Complete Capitol/Black & White Recordings (1995) [MP3|320 к
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370060.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Zaz - Paris (2014) Limited Edition [FLAC|image + .cue]<Nu Jazz, Chanson>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369917.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ James Last/Astrud Gilberto - Plus (1986) [FLAC|Lossless]<Jazz, Bossa Nova>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369888.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Poncho Sanchez - Para Todos (1994) Concord [FLAC|Lossless|tracks + .cue] <Latin 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369866.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tito Puente - 50 Years Of Swing (1946 - 1995) 1997, 3CD, RMM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369863.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Donald Byrd - Places And Spaces (1975) 1992, Toshiba-EMI [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369858.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe Bonamassa - Blues Of Desperation (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369547.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Julio Botti Trio - Tango Blues (2018) El Cirko Sello Digital [FLAC 2.0|88.2/24|t
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369434.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Phat Phunktion - You and Me (2004) [APE|Lossless|image + .cue] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369381.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Benny Carter - 4 Albums From The MusicMasters Catalogue (1987-1989) 4CD, 2011, N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369380.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Arne Jansen - The Sleep of Reason Ode to Goya (2013) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369379.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Greg Adams - East Bay Soul: That's Life (2015) [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369375.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Buster Smith - The Legendary Buster Smith (1959) Remaster, 2012, Warner[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369374.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Otis Grand - Nothing Else Matters ... (1994) [FLAC|Lossless|image + .cue] <Moder
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369256.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Sebastien Texier Quartet - Dreamers (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369149.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Duke Robillard - Passport To The Blues (2010) [FLAC|Lossless|image + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369144.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Jimmy Thackery & The Drivers - Spare Keys (2016) [MP3|320 Kbps] <Blues-Rock, Ins
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369136.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Jonathan Zwartz - The Remembering & Forgetting Of The Air (2013) 2CD, Self-Relea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368437.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Joe Lovano & Dave Douglas Sound Prints - Scandal (2018) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368302.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sonny Rollins - The Prestige Years (1951 - 1956) 5CD, 2014, Enlightenment [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368167.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Club Des Belugas - Strange Things Beyond The Sunny Side (2019) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368001.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Tito Puente Featuring Maynard Ferguson - Special Delivery (1996) Concord [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367964.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Chano Dominguez - Piano Iberico (2010) Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367962.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Ray Barretto - Que Viva la Musica (1972) 1992, Fania Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367958.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stephen Bennett - Beatles Acoustic Guitar Solos (2005) [MP3|264~268 кб/с (V1)
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954559.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sax & Sex (2000) [APE|tracks+.cue]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954261.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Kool - Simple Meditation: The Art of Music, Vol. 1 (2016) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953875.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Enigmatica vol. 1 (2001) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953699.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Red Hot Chilli Pipers - Live At The Lake (2014) Live [MP3|320 Kbps] <Folk, W
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953653.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953612.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Enya - The Very Best of Enya (2009) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953564.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Origin
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953506.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Mambo (2000) 3CD box [FLAC|Lossless|tracks + .cue] <Mambo>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952901.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sirtaki Dance (1997) Instrumental [FLAC|Lossless|tracks + .cue] <Folklore>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952880.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952810.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Enya - The Memory Of Trees (1995) Remastered, Limited Edition, 2015, Chinese Dra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952771.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Danny Elfman - The Girl on the Train / Девушка в поезде (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951904.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Danny Elfman - The Girl on the Train / Девушка в поезде (Original 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951895.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Score) (2016) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951712.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA & Justin Hurwitz - La La Land  / Ла-Ла Ленд (Original Score) + (Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951614.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Soundtrack) (2016)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951610.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sacred Earth - The Way Home (2008) [MP3|320 кб/с] <New age, Meditative, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951571.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Los clasicos argentinos Tango - Vol.07 (1996) [MP3|128 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951408.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Лёд 2 (саундтрек к фильму) (2020) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950715.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950492.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950321.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950204.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950141.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950047.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949993.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Amsterdam Trance Sessions Vol.12 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435229.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DJ Ensamble - Trancing Queen (2005) [MP3|320 Kbps] <Trance, Eurodance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433886.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Utrecht Series - Vol XXVI (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432933.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Nothing But... The Future Sound Of Trance Vol 03 (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432757.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Trance Rave Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431387.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Pacific Trance Waves (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431384.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Future Trance 85 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,House,>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431198.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Paul Oakenfold - Generations - Three Decades Of Dance (2017) 3 CD[Box set] [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430611.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Trance International (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428655.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 September (2017) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428485.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - A State Of Trance Top 20 - September 2020 (Selected By Armin van Buuren) - 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427538.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Levitated Radio Top 20 (Selected by Manuel Rocca) (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427116.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Particle Of Emotions Chapter 017 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425602.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Uplifting Only Top 15: August  (Extended Mixes) (2022) [MP3|320 Kbps] <Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425588.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Big Room Bass Vol.5 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424863.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Lost In Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424862.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Summer Hits 2022 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423521.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - A State Of Trance, Ibiza 2022 (Mixed by Armin van Buuren) [MP3|320 Kbps] <U
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423384.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Aly & Fila - FSOE Top 20: September (2020) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423151.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Internal Sign CMPL (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421600.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Aly & Fila - Beyond The Lights (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421440.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 October (2015) [MP3|320 кб/�
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420700.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cosmo & Tom - Rich in Paradise 'Going Back To My Roots' (1998) Maxi-Single [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418033.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mosquito Headz - El Ritmo (1998) Maxi-Single, Promo [MP3|320 Kbps] <Trance, Hard
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417937.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Future Sound Of Egypt 550 - A World Beyond (Mixed by Aly & Fila & John 00 F
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417853.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Aleksey Litunov - 25 Ultra Uplifting Trance (2020) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416182.jpg" />
 </div>
 
 

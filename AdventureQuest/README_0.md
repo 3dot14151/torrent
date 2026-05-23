@@ -6,7 +6,7 @@ Millennium Dream (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060797.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Legends of Savvarah: Flowers and Scorpions (2026) [Ru/En] (Build 21632093) Repac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060786.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (3.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060684.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Out of Sight (2025) [Ru/Multi] (1.1.93/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060682.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Green Light (2026) [Ru/Multi] (0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060677.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Green Light (2026) [Ru/Multi] (0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060676.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.0/dlc) Repack dixen18 [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060606.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Log.in (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060139.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Choice of Life: Samosbor (2025) [Ru/Multi] (Build 21269692) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060136.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Onirism (2025) [Ru/Multi] (Build 2213289) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059989.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059986.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SHE WAS 98 (2026) [Ru/Multi] (Build 21510625) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059985.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack sel
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059983.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Neva (2024) [Ru/Multi] (Build 21964472/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059980.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Roots Devour (2026) [Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059840.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059733.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Children Of Morta (2019) [Ru/Multi] (1.3.376/dlc) Repack FitGirl [Complete Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059731.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.2.2) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059730.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059720.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Last Express (2013) [Multi] (1.0) License GOG [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059717.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (269) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059378.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dofamine (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059336.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.1180.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059062.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (2.0.38/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057698.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057611.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057531.jpg" />
 </div>
 
 

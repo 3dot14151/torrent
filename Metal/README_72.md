@@ -6,7 +6,7 @@ Soulemission - Tales Of Inevitable Death (2016) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383369.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Roads Of Glass - Deadking (2016) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383368.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Roads To Nowhere - Lifeless (2016) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383367.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Perzonal War - Inside the New Time Chaoz (2016) [MP3|320 Kbps] <Power Metal, Thr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383364.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Funeralizer - Funeralizer (2016) [MP3|320 Kbps] <Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383363.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Death Fetishist - Clandestine Sacrament (2016) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383362.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hellfrost - Pagan Son (2016) [MP3|320 Kbps] <Blackened Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383361.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ A Hero For The World - The Other Side (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383360.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Blackning - Alienation (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383359.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Straightout - Phobia (2016) [MP3|320 Kbps] <Melodic Death, Black Metal, Metalcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383358.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Engage The Unseen - A Storm Is Coming (2016) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383355.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Alligator Rodeo - Alligator Rodeo (2016) [MP3|320 Kbps] <Sludge, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383256.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Nurnean - Decay (2016) [MP3|320 Kbps] <Experimental Death Metal, Djent, Inst
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383255.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Junior Bruce - Endless Descent (2016) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383254.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fornicus - Hymns of Dominion (2016) [MP3|320 Kbps] <Black Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383252.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dehumanized - Beyond The Mind (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383250.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Unearthed Elf - Into The Catacomb Abyss (2016) [MP3|320 Kbps] <Epic Doom, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383244.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Scorching Winter - Victim (2016) [MP3|320 Kbps] <Symphonic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383242.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stagewar - Killing Fast (2016) [MP3|320 Kbps] <Thrash ‘n’ Roll>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383240.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Crowbar - The Serpent Only Lies (2016) [MP3|320 Kbps] <Doom Metal, Sludge>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383233.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Year of the Cobra - … In the Shadows Below (2016) [MP3|320 Kbps] <Psychedelic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383221.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Debustrol - Válka (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383112.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Theocracy - Ghost Ship (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383094.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Angina Pectoris - Seven Year Itch (2016) [MP3|320 Kbps] <Gothic Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383086.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Suffocate for Fuck sake - In my blood (2016) [MP3|320 Kbps] <Post-Metal, Post-Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382981.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Hammer King - King Is Rising (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382971.jpg" />
 </div>
 
 

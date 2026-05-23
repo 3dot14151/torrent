@@ -6,7 +6,7 @@ Advanced SystemCare Pro (акция comss) 12.3.0.329 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685569.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7229.5000 (2019.03) RePack by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685550.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daum PotPlayer 1.6.54133 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685532.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ USDownloader 1.3.5.9 Portable (06.06.2012) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685470.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ IcoFX 2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685441.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SpeedUpMyPC 2012 5.2.1.75 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685407.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adobe Flash Player 13.0.0.289 ESR [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685369.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Microsoft Silverlight 5.1.40416.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685367.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Daum PotPlayer 1.6.54133 Stable + Portable (x86/x64) by SamLab [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685366.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Mail.Ru Агент 6.0 Build 5680 [Multi/Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685273.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mozilla Firefox ESR 31.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685251.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Corel PaintShop Pro X7 17.2.0.17e Special Edition RePack by -{A.L.E.X.}- [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685241.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Flash Player 17.0.0.188 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685238.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VkBot 2.1.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685151.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ uTorrent 3.2 Release Candidate 1 Build 27343 + Portable [Мульти/Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685140.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Sleipnir 6.2.11.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685046.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ PrivaZer 3.0.46 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685028.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Internet Download Manager 6.11 Build 8 Final RePack by KpoJIuK [Русский/�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_684994.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Internet Download Manager 6.28 Build 10 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684976.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Total Commander 8.51a Extended Lite 15.5 RePack (&Portable) by BurSoft [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684960.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Adobe Acrobat XI Pro 11.0.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684950.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Auslogics Disk Defrag Free 8.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684918.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Agnitum Outpost Security Suite Pro 7.5.3 (3941.604.1810) Final (x86/x64) [MULTi 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_684870.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wise Disk Cleaner 9.48.668 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684860.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Ashampoo Snap 10.0.2 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684856.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Reg Organizer 7.12 Final RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684842.jpg" />
 </div>
 
 

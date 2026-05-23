@@ -6,7 +6,7 @@ Dropzone 4 Pro v4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243017.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alfred PowerPack 5.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243010.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Amadine 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243006.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_243005.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242998.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Process Lasso Pro 12.1.0.26 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242989.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ n-Track Studio Suite 9.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242975.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Emurasoft EmEditor Professional 22.2.10 RePack (& Portable) by KpoJIuK[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242973.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Valentina Studio Pro 12.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242970.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Exposure Software Snap Art 4 v4.1.3.371 ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242968.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wondershare PDFelement 9.5.0.2170 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242966.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ YT Downloader 7.23.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242965.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ EdgeView 3 v3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242963.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Chaos Control Premium 1.13 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242961.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Rainlendar Lite 2.19.1 Build 173 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242959.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Disk Space Analyzer Pro 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242958.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ EazyDraw 10.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242956.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ BusyCal 3 v3.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242951.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ HWiNFO 7.43 Build 5040 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242944.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Cardhop 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242943.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Easy Notes 1.1.62.0315 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242941.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Fort Firewall 3.8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242934.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PrivaZer Pro 4.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242932.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Art Text 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242925.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Skype 8.96.0.409 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242919.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ CrystalDiskInfo 9.0.0 Beta5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242918.jpg" />
 </div>
 
 

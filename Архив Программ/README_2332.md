@@ -6,7 +6,7 @@ Telegram Desktop 5.16.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12036.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6093 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11997.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4652 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11996.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ AOMEI Partition Assistant Technician Edition 10.8.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11983.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Nik Collection by DxO 8.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11977.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Total Commander 11.55 Extended 25.7 Full / Lite RePack (& Portable) by BurSoft  
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11966.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ MediaHuman YouTube Downloader 3.9.14 (0807) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11952.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.49 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11943.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.8 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11937.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Apowersoft Video Download Capture 6.5.9.1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11925.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AOMEI Partition Assistant Technician Edition 10.8.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11862.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adobe Acrobat Pro 2025.001.20566 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11853.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AnyDesk 9.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11832.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ By Click Downloader Premium 2.4.23 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11830.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adobe Acrobat Pro 2025.001.20566 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11793.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11781.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11779.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Wondershare PDFelement 11.4.24.3620 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11771.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ AnyDesk 9.5.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11757.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ RegCool 2.035 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11754.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Perfectly Clear WorkBench 4.8.0.2830 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11752.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ashampoo Music Studio 12.0.0.14 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11750.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11745.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Display Driver Uninstaller 18.1.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11744.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Process Lasso Pro  16.0.0.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11739.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ iTubeGo YouTube Downloader 10.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11737.jpg" />
 </div>
 
 

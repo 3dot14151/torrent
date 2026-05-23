@@ -1,252 +1,3 @@
-###  Публикация: 552553   (447452) от 26.09.2012
-
-Cr OS Linux (ex. Chrome Linux OS) 2.2.1226 [i686] (1xDVD + 1xUSB)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Cr OS Linux (произносится как Cros Linux) является свободной OS, построенной вокруг революционного браузера Chromium. Разработчики называю процедуру построения этой OS - хромирование, т.к. это стабильная и блестящая OS.
-
-Этот проект с открытым кодом предоставляет легкий дистрибутив, который похож на Google Chrome OS и может быть использован на любом x86 PC, ноутбуке или нетбуке.
-
-Включает в себя: Linux kernel 3.4.6; Cinnamon 1.6; Chromium 22.0.1226; InSync beta 5 клиент для Google Drive; Banshee 2.4: Shotwell 0.12; GIMP 2.8; LibreOffice 3.5 office suite; Wine 1.5; Cheese 3.4 и многое другое.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943689   (446652) от 04.10.2015
-
-KaOS Linux 2015.10 (Arch + Plasma KDE 5) [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Проект KaOS представил октябрьский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. К наиболее существенным изменениям разработчики относят: Ncurses 6.0 stack, OpenCV 3.0.0 stack, Xfsprogs 4.2.0, grub 2.02beta, Networkmanager 1.0.
-
-Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E177C337F331DC888D545B0F819374A89537DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943352   (446465) от 04.10.2015
-
-Arch Linux 2015.10.01 [i686, x86-64] 1xCD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Arch — «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
-
-В Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2460D6C8AFF3FEE67330AB3725C4A1E5D84A7DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248017   (443917) от 19.09.2018
-
-ArcoLinux (Budgie, Сinnamon, Deepin, Gnome, Mate, KDE, XFCE) 18.9.5 [x86_x64] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-ArcoLinux ранее - ArchMerge дистрибутив, сочетающий в себе мощь ArchLinux и пользовательского репозитория AUR, а также собственных наработок авторов Arcolinux. Данная версия включает в себя окружения рабочего стола Budgie, Сinnamon, Deepin, Gnome, Mate, KDE, XFCE, установщик Calamares и различный софт, темы и иконки, устанавливаемые "из коробки". Остальное (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2EFE01B75FBDC70AC2EB9922F535B2E483A6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553842   (440340) от 29.09.2012
-
-Slackware 14.0 [x32, x64] (2xDVD)
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Slackware Linux — один из старейших дистрибутивов Linux. Его иногда называют самым UNIX’овым. Поклонникам этого дистрибутива приписывают высказывание: Если вы знаете Red Hat, то всё, что вы знаете, — это Red Hat, если вы знаете Slackware — вы знаете Linux.
-
-Команда разработчиков с  гордостью объявила о выходе финального релиза Slackware 14.0.
-Как пишут разработчики в релиз внесено множество существенных изменений. Например, ядро было заменено на современную версию 3 (в данном случае используется ядро LTS версии - 3.2.29; X.Org обновлен до версии X11R7.7, и Firefox - до версии 15.0.1. В целом же изменения затронули большую часть стандартных пакетов.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943685   (440085) от 07.10.2015
-
-Sabayon 15.10 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd64] 5xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 15.10, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7C167D7290C744807A53C3E73FABD90D07B8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323131   (437348) от 03.09.2019
-
-BlackArch Linux 2019.09.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2300 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E704D04CBDF072A043C8872B97F49638324093D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708858   (425618) от 10.10.2013
-
-Bugtraq II Black Widow KDE (хакинг и анализ безопасности) [x32, x64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Bugtraq II - дистрибутив с широким спектром применения для анализа безопасности и хакинга. Bugtraq может быть установлен с Live DVD или USB-диска. Avira, BitDefender, ClamAV, Avast, AVG , уникальные сценарии Bugtraq-Team (SVN обновления инструментов, удаление треков, бэкдоров, Spyder-SQL и т.д.) Bugtraq доступен на английском, испанском языках. Также в этот релиз предполагается включить еще 11 языков. С другой стороны, дистрибутив базируется на Ubuntu и Debian - соответственно может быть представлен в любой доступной локали.
-
-В дистрибутив вошли ядра Linux 3.2 и 3.4 PAE. Bugtraq доступен с  XFCE, Gnome и KDE. В данном релизе дистрибутив основанный на Debian и Ubunrtu с DE KDE.
-
-Для Live режима - Login: bugtraq ; pass: 123456
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5016044D75D989A57900150474FC84B1A789665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322861   (425081) от 09.09.2019
-
-Runtu XFCE 18.04.3 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Представлена x64-версия дистрибутива Runtu XFCE 18.04, основанная на пакетной базе релиза  Bionic Beaver 18.04.3 LTS. В состав выпуска вошли улучшения, бэкпортированные из выпуска Ubuntu 19.04: версия ядра Linux 5.0 и компоненты графического стека, актуализирована пакетная база. Дистрибутив собран с помощью debootstrap, установлена базовая система и рабочее окружение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70F0964809C292F2D7951DD5AB7CA767DA0AE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946899   (422392) от 15.10.2015
 
 BackBox Linux 4.4 (Анализ безопасности, хакинг) [i386, amd64] 2xDVD
@@ -255,7 +6,7 @@ BackBox Linux 4.4 (Анализ безопасности, хакинг) [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422392.jpg" />
 </div>
 
 
@@ -283,7 +34,7 @@ Q4OS 1.4.3 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422128.jpg" />
 </div>
 
 
@@ -311,7 +62,7 @@ Debian GNU/Linux 10.1.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420832.jpg" />
 </div>
 
 
@@ -339,7 +90,7 @@ Debian GNU/Linux 10.6.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420292.jpg" />
 </div>
 
 
@@ -365,7 +116,7 @@ Debian Edu - Skolelinux 10.6.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417903.jpg" />
 </div>
 
 
@@ -391,7 +142,7 @@ Debian GNU/Linux 10.6.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417741.jpg" />
 </div>
 
 
@@ -417,7 +168,7 @@ KNOPPIX German DELUG edition of Linux Magazine. 8.0.0 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414382.jpg" />
 </div>
 
 
@@ -444,7 +195,7 @@ Debian KFreeBSD 7.2.0 [i386, amd64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413776.jpg" />
 </div>
 
 
@@ -474,7 +225,7 @@ CentOS 7.1503 [i386] 1xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412986.jpg" />
 </div>
 
 
@@ -500,7 +251,7 @@ Kubuntu 13.10 Saucy Salamander [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409165.jpg" />
 </div>
 
 
@@ -526,7 +277,7 @@ Lubuntu 13.10 Saucy Salamander (легкий дистрибутив) [i386, amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404149.jpg" />
 </div>
 
 
@@ -554,7 +305,7 @@ Edubuntu 13.10 (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403224.jpg" />
 </div>
 
 
@@ -582,7 +333,7 @@ KNOPPIX 8.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402161.jpg" />
 </div>
 
 
@@ -611,7 +362,7 @@ Debian GNU/Linux 7.2.0 Live [amd64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400367.jpg" />
 </div>
 
 
@@ -637,7 +388,7 @@ Manjaro Linux 0.8.7.2 (Arch + KDE) [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391722.jpg" />
 </div>
 
 
@@ -665,7 +416,7 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391147.jpg" />
 </div>
 
 
@@ -693,7 +444,7 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391095.jpg" />
 </div>
 
 
@@ -706,6 +457,248 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [amd64] 4xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37B7919801DB2DED03AD956ED60987CF06C69002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173240   (390360) от 11.10.2017
+
+Debian Live GNU/Linux 9.2.0 + nonfree Stretch [amd64] 12xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно второе корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 87 обновлений с устранением проблем со стабильностью и 66 обновлений с устранением уязвимостей.
+
+Из изменений в Debian 9.2 можно отметить удаление пакета clapack, оставшегося без сопровождения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012F40B4442BBAB003A56730650E47AF0FA16876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174006   (388720) от 13.10.2017
+
+KDE neon 5.11 (20171011) [x86-64] 6xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонатан Риддел (Jonathan Riddell) представил новый релиз KDE neon, проекта развиваемого в рамках сообщества KDE. KDE neon создан с целью предоставления возможности установки свежих версий программ и компонентов KDE, без необходимости ожидания появления их в репозиториях дистрибутивов. По своей сути KDE neon является оперативно обновляемым репозиторием, отражающим (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221B2FA27BB7B8667C2757E8CF06C8AC345B90AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252987   (387331) от 07.10.2018
+
+Antergos 18.10 [x86_64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antergos - современная, привлекательная и мощная открытая операционная система, основанная на базе Arch Linux. Первоначально проект назывался Cinnarch, потому что совмещал среду рабочего стола Cinnamon и дистрибутив Arch Linux, но затем концепция была изменена, и теперь Antergos поддерживает несколько окружений рабочего стола, включая GNOME 3 (по умолчанию), Cinnamon, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD650B887DB2BB3065B74FE32906A59A669C0DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175013   (380510) от 17.10.2017
+
+Debian GNU/Linux 9.2.1 + nonfree Stretch [amd64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно корректирующее обновление дистрибутива Debian 9.2.0, а именно 9.2.1 в котором исключен баг связанный с существеной ошибкой.
+
+После выпуска и публикации версии 9.2.0 была обнаружена ошибка при сортировке пакетов на полных наборах DVD, BD и DLBD. Из-за сбоя в день выпуска данные о  популярности не были доступны, и это привело к неправильной сортировке пакетов. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7182EF6808B0C00B9E71F9256103084A365BC3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415081   (380471) от 10.10.2020
+
+elementary OS 5.1.6 Hera [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380471.jpg" />
+</div>
+
+
+###  Подробнее
+
+elementary OS — дистрибутив операционной системы Linux, разрабатываемый в соответствии с концепцией минимализма интерфейсов. Целью проекта является предоставление максимально простого и удобного окружения. Elementary OS основан на Ubuntu (18.04.4 LTS) и в качестве рабочего окружения использует графическую среду Pantheon. В качестве темы оформления используется Elementary (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B57B19B1963AB21721A11574464F70FFA065F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175016   (380328) от 17.10.2017
+
+Debian GNU/Linux 9.2.1 + nonfree Stretch [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступно корректирующее обновление дистрибутива Debian 9.2.0, а именно 9.2.1 в котором исключен баг связанный с существеной ошибкой.
+
+После выпуска и публикации версии 9.2.0 была обнаружена ошибка при сортировке пакетов на полных наборах DVD, BD и DLBD. Из-за сбоя в день выпуска данные о  популярности не были доступны, и это привело к неправильной сортировке пакетов. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDF1BCD914BF572F3B5DE6F021F0A1905FB1B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415366   (377982) от 11.10.2020
+
+elementary OS 5.1.7 Hera [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377982.jpg" />
+</div>
+
+
+###  Подробнее
+
+elementary OS — дистрибутив операционной системы Linux, разрабатываемый в соответствии с концепцией минимализма интерфейсов. Целью проекта является предоставление максимально простого и удобного окружения. Elementary OS основан на Ubuntu (18.04.4 LTS) и в качестве рабочего окружения использует графическую среду Pantheon. В качестве темы оформления используется Elementary (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6336C11F532BC49B52640A31705868CC72D1516B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949361   (376882) от 23.10.2015
+
+Lubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 2xCD, 2хDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE.
+
+Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. К тому же, Lubuntu позволяет вернуть к жизни старые персональные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0DF3D4F496E173B41D46DAA7B253F50E42B323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949366   (376738) от 23.10.2015
+
+Xubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышла финальная версия дистрибутива Xubuntu 15.10 Wily Werewolf.  Xubuntu — дистрибутив Linux, основанный на проекте Ubuntu. Использует «лёгкую» графическую среду Xfce и приложения на GTK. Цель проекта — возможность использования легковесной альтернативы рабочим средам GNOME и KDE. Xubuntu имеет минималистичный интерфейс пользователя, экономно использующий память (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090AE72E124DA221F8F2F4EC60B249EDFBBEE9CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

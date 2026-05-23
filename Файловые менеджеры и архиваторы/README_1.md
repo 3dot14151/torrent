@@ -6,7 +6,7 @@ InnoExtractor Ultra 11.5.1.172 Portable by 7997 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061170.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ReNamer Pro 7.9 + Standalone (Portable) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061103.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ XYplorer 28.20.0500 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060658.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Total Commander 11.57 beta 3 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060574.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ OneCommander Pro 3.108.0.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059831.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Q-Dir 12.51 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059630.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ XYplorer 28.20.0400 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059522.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ File Viewer Plus 6.2.0.80 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059516.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ InnoExtractor Ultra 11.5.1.172 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059202.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WinRAR 7.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058195.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Total Commander 11.56 PowerPack + Portable 2026.02 by SamLab [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057885.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Q-Dir 12.49 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057676.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ SecureZIP Enterprise Desktop 14.50.0030 [En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057530.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Total Commander 11.56 MAX-Pack 2025.11.27 by Mellomann [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057105.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Total Commander Ultima Prime 9.3 Final + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057104.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Far Manager 3.0.6644 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056988.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ WinRAR 7.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056854.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056515.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ OneCommander Pro 3.107.2.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055976.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ WinRAR 7.20 Final [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055566.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ WinRAR 7.20 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055559.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ InnoExtractor Ultra 11.4.0.166 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055433.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ OneCommander Pro 3.107.1.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055198.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ WinArchiver Free / Pro 6.1 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1054335.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Advanced Renamer 4.20 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053200.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ OneCommander Pro 3.106.0.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052273.jpg" />
 </div>
 
 

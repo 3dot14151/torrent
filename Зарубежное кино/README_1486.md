@@ -1,55 +1,3 @@
-###  Публикация: 1337802   (271255) от 13.11.2019
-
-Паучок / Itsy Bitsy (2019) WEB-DLRip [H.265/720p] [10-bit] [AVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-После смерти младшего сына мать-одиночка Кара с двумя детьми переезжает из Нью-Йорка в другой конец страны. Тут женщина нашла работу медсестры у обеспеченного одинокого пожилого вдовца Уолтера, которой предоставил её семейству целый дом. Уолтер коллекционирует археологические редкости, и как раз на днях ему привезли украденный у дикого племени артефакт, предназначенный (   Читать дальше...   )Производство: США, Hacienda Film Co., Paradox Film Group, Strange VisionЖанр: ужасы, фэнтези, триллер, детективРежиссер: Мика ГаллоАктеры: Элизабет Робертс, Арман Дарбо, Хлоя Перрин, Брюс Дэвисон, Дениз Кросби, Трева Этьен, Мэттью Кардаропле, Эйлин Дитц, Грэйс ШенПеревод: Авторский (Андрей Дольский)Субтитры: английскиеПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E22ED33EADBDCFDC66FAC47D407C951A0C4575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337907   (271254) от 13.11.2019
-
-Меня зовут Долемайт / Dolemite Is My Name (2019) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Лос-Анджелес, 1970 год. Уже немолодой неудачливый стендапер Руди Рэй Мур пытался прославиться в разных сферах творческой деятельности, но безуспешно, и теперь работает в музыкальном магазине в гетто. Однажды он слышит от местного бомжа интересные рифмы и берёт их на вооружение. Новый сценический образ Руди — развязный и пошлый Долемайт, который одевается как сутенёр (   Читать дальше...   )Производство: США / Davis Entertainment, NetflixЖанр: Биография, комедияРежиссер: Крэйг БрюэрАктеры: Эдди Мёрфи, Кигэн-Майкл Ки, Майк Эппс, Крэйг Робинсон, Титус Берджесс, Да’Вин Джой Рэндольф, Коди Смит-Макфи, Снуп Догг, Бэрри Шебака Хенли, Ти-АйПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827609DAC3F324753CFF57276350799FBB5D190A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189206   (271228) от 05.12.2017
 
 Все, что я люблю / Wszystko, co kocham (2009) DVDRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271228.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271177.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271174.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271173.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271170.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271168.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271167.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271166.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271149.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271117.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271114.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271112.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271110.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271104.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271103.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271067.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271040.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271021.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271007.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271001.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270989.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270985.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270976.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270968.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6615D1E3117CC9490E5D5323F0B19E08B9C18EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266142   (270967) от 01.12.2018
+
+Избавь меня от сомнений / Уберите мои сомнения / Otez-moi d'un doute / Just to Be Sure (2017) BDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Эрван Гурмелон - слегка молчаливый и основательный по жизни сапёр-строитель, готовится стать молодым дедушкой при том, что его 23-летняя дочка собирается родить ребенка, не зная толком - от кого он? У девушки была "история на одну ночь", да к тому же на маскарадной вечеринке. Вроде как переспала с Зорро! Серьезный во всех отношениях Эрван (   Читать дальше...   )Производство: Франция, Бельгия / Kare Productions, SND Films, France 2 Cinema, UmediaЖанр: Драма, КомедияРежиссер: Карин ТардьёАктеры: Франсуа Дамиенс, Сесиль Де Франс, Ги Маршан, Андре Вильм, Элис де Ланкесэ, Майкл Клэр, Лье Салем, Сэм Карманн, Брижит Роюан, Жюли ДебазакПеревод: Одноголосый закадровый Антон КарповскийПродолжительность: 01:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91E58EA5ED7AB57F70B034A84D1283565EF653D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266098   (270955) от 01.12.2018
+
+Коммивояжер / Forushande / The Salesman (2016) BDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара Эмад и Рана живут в Тегеране. Отношения супругов практически идеальны. У них много планов на будущее. Cемейная драма разворачивается, когда новый дом, в который пара переезжает, превращается из тихой гавани в место жестокого преступления…Производство: Иран, Франция / Arte France Cinema, Doha Film Institute, Farhadi Film Production, Memento Films ProductionЖанр: Драма, ТриллерРежиссер: Асгар ФархадиАктеры: Шахаб Хоссейни, Таране Алидости, Бабак Карими, Мина Садати, Фарид Сейджжади Хоссейни, Ширин Ахакаши, Эхтерам Боруман, Марал Бани Адам, Моджтаба Пирзаде, Сам Валипур, Эмад ЭмамиПеревод: Многоголосый закадровый Эй Би Видео по заказу Первого каналаПродолжительность: 02:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83DBEDDC555B831447517B1B041324CB58B5E9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

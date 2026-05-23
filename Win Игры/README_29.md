@@ -6,7 +6,7 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054982.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.18.1029/dlc) Repack Wanterlude [The One 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054960.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054953.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054860.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Vampires: Bloodlord Rising (2026) [Ru/Multi] (1.0.1.19431/dlc) License GOG [Earl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054859.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ I Hate This Place [Multi] (1.0.0.15852) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054858.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cairn (2026) [Ru/Multi] (1.0.299/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054857.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054856.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054855.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Other s [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054854.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054853.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ TRAIL OUT (2022) [Ru/Multi] (1.1/dlc) License GOG [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054837.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Disco Elysium (2019) [Ru/Multi] (Build a0a063ab) Repack FitGirl [The Final Cut B
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054836.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack dixen18 [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054835.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Chinese Frontiers (2025) [Ru/Multi] (2.1.1401) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054818.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (1.0.2) Repack Let'sРlay [Collector's E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054792.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Let'sРlay [Digital Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054716.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Wanterlude [Digital Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054684.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054677.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bridge to Another World 13: Fate of the Seasons (2026) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054670.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack dixen18 [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054649.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack FitGirl [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054582.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Cairn (2026) [Ru/Multi] (1.0.299s_1713/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054581.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ I Hate This Place [Ru/Multi] (1.0.13_15856) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054580.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054519.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054514.jpg" />
 </div>
 
 

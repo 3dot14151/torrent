@@ -1,32 +1,3 @@
-###  Публикация: 1837088   (256848) от 15.11.2025
-
-VA - No name compilation part 6 Blues, Soul (2025) [MP3|320 Kbps] <Blues, Soul, Ballads>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01 - Ruby Sinclair - Last Shelter
-02 - Stevie Ray Vaug - Thunder in My Soul
-03 - Enlly Blue - Love That Burns
-04 - Loretta Mae Calloway - Falling Like Rain(   Читать дальше...   )Жанр: Blues, Soul, BalladsПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983F5CD665985C11ACDC4F4F354BF079FB8012F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837086   (256847) от 15.11.2025
 
 Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
@@ -35,7 +6,7 @@ Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256847.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - No name compilation part 5 Electronic, Other, AI (2025) [MP3|320 Kbps] <Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256846.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - 60 minutes. Old School Dance Music vol.31 (mixed by Dj V) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256845.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Music News For Forum vol.147 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256833.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Santa Baby Sexy New Year (2025) [MP3|320 Kbps] <Insrumental, Easy Listening
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256722.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256721.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256675.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Инструментальная музыка (2012) vol. № 50 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256470.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - Инструментальная музыка (2012) vol. № 48 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256433.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ VA - Euro Football Cup 2012. The Super Goal Compilation (2012) [MP3|320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256411.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Fitness Health Creator (2012) [MP3|320 кб/с]<Funky, Club House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256341.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ VA - National Pop Dance Music Vol.122 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256337.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ VA - Sexy Trance #35 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256336.jpg" />
 </div>
 
 
@@ -424,7 +395,7 @@ VA - Зарубежные Новинки Vol.52 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256315.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ VA - Танцевальная Dискотека from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256294.jpg" />
 </div>
 
 
@@ -494,7 +465,7 @@ VA - Клубные Новинки Vol.81 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256261.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256199.jpg" />
 </div>
 
 
@@ -564,7 +535,7 @@ VA - XXXL Союз: Super новинки 50/50 (2012) [MP3|236-320 кб/с]<Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256097.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ VA - Ночное движение хитов (2012) [MP3|256-320 кб/с]<Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256068.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256011.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ John Lee Hooker and John Lee Hooker, Jr. - Best of (1959-2006) Compilation Album
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255942.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255840.jpg" />
 </div>
 
 
@@ -733,7 +704,7 @@ Oblivion - Collection (2021) [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255698.jpg" />
 </div>
 
 
@@ -762,7 +733,7 @@ VA - Weekend Freestyle (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255629.jpg" />
 </div>
 
 
@@ -791,7 +762,7 @@ VA - The Official UK Top 100 Singles Chart 06-04-2023 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255373.jpg" />
 </div>
 
 
@@ -805,6 +776,35 @@ VA - The Official UK Top 100 Singles Chart 06-04-2023 [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6A4343E9E6FEC0F96B66A23D9AEA3BB1BE5B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625561   (255294) от 11.04.2023
+
+VA - Лучшие рок баллады 20-го века Vol.1 (2023) [MP3|320 Kbps] <Rock, Ballads>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Berlin - Take My Breath Away (04:17)
+02. Billy Idol - Sweet Sixteen (04:15)
+03. Damn Yankees  - High Enough (04:46)
+04. Dire Straits - Romeo And Juliet (06:00)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 02:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C914AAB8BA6DCA789D2D78045D8676642559069
 ```
 
 https://mybot314.ru/tekegram_catalog/

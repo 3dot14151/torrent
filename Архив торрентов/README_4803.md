@@ -6,7 +6,7 @@ Native Instruments - Kontakt 8.0.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41511.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PotPlayer 240930 (1.7.22332) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41509.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OCCT 13.1.10 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41508.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ StartAllBack 3.8.10.5173 (3.6.16.4729) StartIsBack 2.9.20 (2.9.1) / 1.7.6 / 2.1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41506.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Topaz Gigapixel AI 7.4.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41505.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NirLauncher Package 1.30.14 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41503.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PotPlayer 240827 (1.7.22319) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41502.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41499.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.2 Build 7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41498.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ IsMyLcdOK 5.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41496.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Display Driver Uninstaller 18.0.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41490.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Glary Utilities Pro 6.16.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41487.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Bandizip Pro 7.36 Build 68355 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41483.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Macrorit Disk Scanner 6.8.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41477.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ O&O DiskImage Professional 19.1 Build 175 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41475.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Firefox Browser 131.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41469.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41466.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ IK Multimedia - T-RackS 6 MAX 6.0.2 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41464.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ KStars 3.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41463.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Firefox Browser ESR 128.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41460.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Google Chrome 129.0.6668.90 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41455.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41454.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Hazure Waku no Joutai Ijou Skill | Hazurewaku | Failure Frame | Я стал си
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41450.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ KMSoffline 2.4.4 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41448.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft PowerToys 0.85.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41402.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ LibreOffice 24.8.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41398.jpg" />
 </div>
 
 

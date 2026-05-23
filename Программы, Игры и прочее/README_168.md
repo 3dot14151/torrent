@@ -1,56 +1,3 @@
-###  Публикация: 1785540   (24479) от 16.03.2025
-
-Просто Радио онлайн v14.5 Mod by Dymonyxx [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-В приложении Вы найдете более 1500 радиостанций всех жанров: Наша музыка, Поп, Рок, Ретро, Диско, Танцевальная музыка, Шансон, Реп, R&B, Хип-хоп, Джаз, Электронная, Deep, House, Этническая, Фолк, Релакс, Классическая музыка, Разговорное радио. Просто радио онлайн. Вы можете слушать любимые радиостанции онлайн. Для прослушивания воспользуйтесь соединением wifi (   Читать дальше...   )Тип издания: FullРелиз состоялся: 05.03.2025Разработчик: a-labПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B72AD42AE9BE52989546ADE2723ECD4065376A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785564   (24458) от 16.03.2025
-
-Genius Art: Image AI Generator v1.2.5 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Раскройте свой творческий потенциал с помощью инструментов для рисования и изображений на базе искусственного интеллекта.
-Превратите свои фотографии и идеи в потрясающие творения с помощью Genius Art: Image AI Generator. Независимо от того, являетесь ли вы художником, дизайнером или просто любителем творчества, это приложение предоставит вам всю мощь передовых инструментов (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.03.2025Разработчик: AMOBEAR TECHNOLOGY GROUPПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780554   (24423) от 17.03.2025
 
 Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
@@ -59,7 +6,7 @@ Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24423.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ Screen Mirroring - TV Miracast v4.0.0.73 Mod by vadj [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24375.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ WiFi Analyzer v6.0 (b98) Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24356.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ Device Info HW+ v5.21.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24347.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ FBReader Premium v3.8.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24281.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ IPTV Pro v9.0.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24193.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24188.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ Jewel Match Dragon v1.59.6 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24082.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ Rail Rush v1.9.24 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24079.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ TikTok 39.1.3 Mod Asia by Dmitry Nechiporenko + Plugin 2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24040.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24031.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ Call Filter / Фильтр Звонков v1.23.5 Mod by Balatan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24008.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23990.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ Smart Tools v2.1.15 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23974.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ LazyMedia Deluxe v3.369 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23778.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ Passwords & Passkeys－Safe v25.0.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23734.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.60 Мод by Applicazioni
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23717.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23547.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23147.jpg" />
 </div>
 
 
@@ -558,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23134.jpg" />
 </div>
 
 
@@ -584,7 +531,7 @@ Tone Generator PRO 3.78 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23087.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23012.jpg" />
 </div>
 
 
@@ -639,7 +586,7 @@ MiHome v10.3.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22941.jpg" />
 </div>
 
 
@@ -668,7 +615,7 @@ SD Maid 2/SE v1.4.3-beta0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22655.jpg" />
 </div>
 
 
@@ -679,6 +626,60 @@ SD Maid SE (он же SD Maid 2) — это инструмент управле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84484152E11405994218AE180E4421F38CE42764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789644   (22416) от 05.04.2025
+
+AdGuard Ad Blocker TV Premium Final [No-Root] v4.9.50 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22416.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdGuard — лучший способ избавиться от навязчивой рекламы и онлайн-отслеживания, а также защитить свое устройство от вредоносного ПО. Сделайте свой веб-серфинг быстрее, безопаснее и комфортнее с AdGuard!
+AdGuard — уникальный блокировщик рекламы без прав root для Android, который удаляет рекламу в приложениях и браузерах, защищает вашу конфиденциальность и помогает (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 05.04.2025Разработчик: AdGuard Software LimitedПоддерживаемая ОС: Android TV 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1135DDF67E0E172DB239B30BB8EC47ABF0832F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789969   (22289) от 06.04.2025
+
+Bananastreet: Deep House & EDM v4.1.61 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша жизнь – это череда событий. Чтобы эмоции были ярче достаточно подобрать правильный саундтрек. Включай Bananastreet и открывай для себя новую музыку от лучших диджеев каждый день!
+Слушай плейлисты для разных занятий и настроений, чарты с популярными треками, а также тысячи релизов от топовых российских и мировых диджеев.Тип издания: ModРелиз состоялся: 06.04.2025Разработчик: Bananastreet EUПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C104E04346430EAB8A10EC7964C1A897CF506A
 ```
 
 https://mybot314.ru/tekegram_catalog/

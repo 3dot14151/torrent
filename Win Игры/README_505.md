@@ -1,29 +1,3 @@
-###  Публикация: 1730053   (30473) от 19.01.2025
-
-Beat Hazard 2 (2019) [Ru/Multi] (1.317) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Beat Hazard 2 – продолжение яркого представителя жанра Shoot 'em up. Вам предстоит окунуться в головокружительные перестрелки на летающих кораблях, и уничтожить орды недругов под драйвовую музыку. Последняя занимает большую часть в видеоигре, и помощью неё в каждой битве можно находить свой тон и ритм, от которых может зависеть даже исход сражения. Либо подключите (   Читать дальше...   )Тип издания: LicenseРазработчик: Cold Beam GamesЖанр: Экшн, Аркада, Shoot 'em UpЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: РРусский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85D327929C7BC70FAD33D248880CC1EB09155FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774114   (30460) от 19.01.2025
 
 DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
@@ -32,7 +6,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30460.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pocket Cars (2020) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30458.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30447.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30401.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30398.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Tavern Master (2021) [Ru/Multi] (2.3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30392.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30386.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30376.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30371.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ The Walking Dead: Saints & Sinners (2020) [Multi] (1.0) Scene VREX [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30364.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Detective Club: Missing in the Fog (2025) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30304.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.005/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30292.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30277.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30272.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Gangs of Neo Tokyo (2025) [En] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30265.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30236.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Paranormal Files 12: Fatal Flaw / Паранормальные явления 12
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30233.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ My Memory of Us (2018) [Ru/Multi] (Build 16287132) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30229.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Warlords Under Siege (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30193.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0 53951) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30186.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30167.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Vampire Therapist (2024) [Multi] (1.202) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30155.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Bartlow's Dread Machine (2020) [Ru/Multi] (Build 5929982) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30140.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Redundant (2025) [Ru/Multi] (Build 17094745) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30091.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Eximius: Seize the Frontline (2018) [Ru/Multi] (1.2.2/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30058.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Eximius представляет собой гибрид шутера от пе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4052D8FC8922CF84F1EA01AC58AC8BC294F6F500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774786   (30053) от 23.01.2025
+
+DISORDER (2025) [Ru/Multi] (build 17062976) Repack seleZen
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка постепенно преодолевает травму, раскрывая правду о своем прошлом. Присоединяйтесь к путешествию убитой горем девушки, которая обретает свою истинную сущность. Disorder - это игра в жанре рогалик по подземельям. Станьте девушкой, которая потеряла память и должна раскрыть правду. История развивается по мере того, как вы становитесь сильнее с каждой попыткой (   Читать дальше...   )Тип издания: RepackРазработчик: GRUMPYЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Корейский, Французский и другиеЯзык интерфейса: Русский, Английский, Корейский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22B383BA91C723CE8CE6396176B8D7B99A95A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

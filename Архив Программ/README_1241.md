@@ -6,7 +6,7 @@ SpeedyFox 2.0.17 Build 107 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414026.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NVIDIA GeForce Experience 3.1.0.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414017.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ESET NOD32 Internet Security 15.2.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414000.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-Studio 8.1 Build 165145 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413877.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Windows and Office ISO Download Tool 4.05 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413875.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox 49.0.2 Final Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413874.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Telegram Desktop 0.10.19 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413872.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Slimjet 5.0.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413840.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ocenaudio 3.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413822.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Firefox Browser ESR 78.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413821.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Viber 13.9.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413820.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NVIDIA GeForce/ION 306.97 WHQL For Notebooks [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_413792.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Baidu Browser 43.20.1000.205 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413753.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Restore Point Creator 3.3 Build 5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413752.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Macgo Windows Blu-ray Player 2.16.6.2108 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413749.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Avira AntiVirus Free 2015 15.0.13.210 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413741.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ditto 3.21.20.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413740.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1847 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413738.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Viber 13.9.0.18 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413737.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ORPALIS PDF Reducer Professional 3.1.16 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413734.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Skype 8.65.0.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413733.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Emurasoft EmEditor Professional 20.1.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413729.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ YT Downloader 7.1.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413727.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ reaConverter Pro 7.601 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413726.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Firefox Browser 81.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413722.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Telegram Desktop 2.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413721.jpg" />
 </div>
 
 

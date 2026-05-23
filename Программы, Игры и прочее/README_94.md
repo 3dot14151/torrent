@@ -1,55 +1,3 @@
-###  Публикация: 1585654   (211620) от 23.10.2022
-
-Запоминатор. Бизнес-органайзер v6.58 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Великолепный бизнес-органайзер для создания различных напоминаний о разнообразных событиях с весьма оригинальным интерфейсом и возможностью распознавания речи. Позволяет вести список необходимых дел. Поддерживает работу через виджеты для рабочего стола. Органайзер для напоминания пользователю о различных событиях, с 4-мя виджетами, голосовым набором на русском и (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.09.2022Разработчик: Leonid ArefevПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A89A5622295058BE6FE87815540E24A5485C391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586247   (211451) от 25.10.2022
-
-Аналоги лекарств, справочник v3.0.4 Mod by Timozhai  [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Справочник лекарств с возможностью поиска дешевых аналогов к дорогим лекарствам. Подбор дженериков с аналогичным действующим веществом, и с указанием актуальной цены. Теперь у пользователя есть выбор, какое лекарство ему приобрести и сколько при этом потратить. Сэкономьте на дорогих препаратах используя дешевые аналоги. Для работы требуется интернет.Тип издания: AdfreeРелиз состоялся: 23.10.2022Разработчик: Involta.RuПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331C54C8F8E90E5AC07EE5E7AE06216874F5565C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567399   (211358) от 02.08.2022
 
 VPNhub - Безлимитный и безопасный 3.24.1-mobile Mod by derrin [Ru/Multi]
@@ -58,7 +6,7 @@ VPNhub - Безлимитный и безопасный 3.24.1-mobile Mod by der
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211358.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Turbo VPN - безопасный ВПН 3.8.3.1 Mod by LeeApk [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211332.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ tTorrent Pro - Торрент-клиент 1.8.2 Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211245.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Stickman v4.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211098.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Photo Scan App by Photomyne v20.8.5700L [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211026.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Poster Maker & Flyer Maker v3.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210899.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210839.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Naplarm - Location Alarm / GPS Alarm v6.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210678.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.5.5.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210666.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ DNS Changer & Net Speed Test 1312r [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210663.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Nomad Sculpt v1.70 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210610.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210576.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ Cool VPN Pro 1.0.122 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210305.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ WhatWeather - Метеостанция 1.18.0-pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210299.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ PixeLeap - Улучшение фотографий 1.0.9.3 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210189.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ Easy Voice Recorder - Pro / Простой диктофон - Про 2.8.5 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210146.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ Adobe Lightroom - Фоторедактор 8.4.1 Mod by Balatan, Mixroot, frost_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210135.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ AirBrush v5.7.1 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210120.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210110.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ ArtJourney - AI Art Generator v1.1.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210096.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ WOT — защита вашего устройства 2.12.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209970.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ SnapEdit - ИИ фоторедактор 4.3.1 Mod by Mixroot, maxi123444, Oflar
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209962.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ Dynamic Island (iOS 16 Notch) 8.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209940.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ Plague Inc. 1.19.10 Mod by Bubalex88 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209912.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ Plague Inc. 1.19.10 Mod by Bubalex88 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC50689BE3C6037DB6A9C1E93A1C4E5146CD4B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643703   (209825) от 03.07.2023
+
+Retouch - удаление объектов 2.1.6.3 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Retouch - весьма и весьма впечатляющая своими особенностями программа, что понравится всем фотографам, поклонникам селфи и так далее. Все прекрасно знают, как портят итоговый результат посторонние люди попавшие в кадр, массивные объекты и всё прочее. Что можно удалить с помощью или профессионального приложения или же без каких-либо трудностей применяя возможности (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 16.06.2023Разработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4290400D722A82C85BB0477C0E79AAC34D79AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644342   (209766) от 05.07.2023
+
+7Fon - Обои 4K 5.7.0 Mod by AppModz, PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209766.jpg" />
+</div>
+
+
+###  Подробнее
+
+7Fon - Обои 4K - невероятно популярный проект по персонализации. Он предлагает пользователям очень обширный каталог обоев разделённых по 70 категориям. Высокое качество любого из полотен, ежедневные обновления списка, что давно вышел за сто тысяч наименований, удобный поиск по определённым тегам, а так же простая установка понравившихся вариантов и делает приложение (   Читать дальше...   )Тип издания: ProРелиз состоялся: 23.06.2023Разработчик: 7Fon WallpapersПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADA3FC685478C519C0278564DFD38724B36267B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805968.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805843.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805840.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805678.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805676.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805563.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805559.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805354.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805349.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805228.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC. Нетронутые уголки дикой природы / Nature's Micr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805117.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804245.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804201.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery. Величайшая загадка Эвереста / Everest's Grea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804131.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Шок и Трепет. История электричества. Искр
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804068.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Discovery. Чудаки и акулы / Jackass Shark Week (2021) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804000.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803197.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803098.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ BBC. Панорама. Нелегальная торговля органами 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802492.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802476.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802468.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802450.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802410.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802376.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801989.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801954.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sadao Watanabe - Birds of Passage (1987) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890958.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jack Jezzro - Best Of Green Hill Music The 50s Collection (2021) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890820.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Too Late, Too Late Blues (1993-1999) 13 CD /Document Records/ [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890757.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Johnnie Red & The Roosters - In the Red Zone (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890539.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rob Alley - Also-Ran Bluesman (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890538.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Rachael King - The Fires In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890534.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Vidar Busk & His True Believers - Civilized Life (2021) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890526.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Robert Jon & the Wreck - Shine a Light on Me Brother (2021) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890481.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tas Cru - Broke Down Busted Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890416.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ghost Hounds - A Little Calamity (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890398.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jeff Golub - Temptation (2005) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890274.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Oscar Peterson Trio - I Got Rhythm 1945 - 1947 (1998) Giants Of Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890200.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gil Scott-Heron, Makaya McCraven - We’re New Again (A Reimagining By Makaya Mc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890161.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Thorbjorn Risager & The Black Tornado - Come On In (2020) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890008.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Robert Cray - That's What I Heard (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889997.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Frank Foster - Basie Is Our Boss (1963) Remaster, 2013, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889889.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Freddie Hubbard - Blues For Duane (1991) 1999, High Definition Jazz[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889888.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Joe Venuti - Fiddlesticks (1931-1939) 1990, Conifer[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889882.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Harold Land & Carmell Jones Quintets - Complete Studio Recordings (1961-1963
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889879.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Rein De Graaff Trio with Ronnie Cuber and Nick Brignola - Baritone Explosion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889690.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889570.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889205.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Joe Bushkin Featuring Buck Clayton - Three Classic Albums Plus 1946 - 1951 (2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888714.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Various - A Twist of Jobim (1997) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888703.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Various - A Twist Of Marley (2001) [FLAC|Lossless|image + .cue] <Jazz, Reggae, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888691.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ John Coltrane & Archie Shepp - New Thing At Newport (1965) 2009, Verve[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888241.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1705430   (113921) от 08.03.2024
-
-Аквамен и потерянное царство / Aquaman and the Lost Kingdom (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пока Аквамен пытается совмещать отцовство и работу царём подводного мира, Дэвид Хайд вынашивает план мести. Его исследовательская экспедиция обнаруживает трезубец проклятого и запертого во льдах повелителя потерянного царства — так Дэвид попадает под влияние его злых чар. Чтобы справиться с этой угрозой, Аквамену придётся помочь сбежать из тюрьмы младшему брату, (   Читать дальше...   )Производство: США / Warner Bros., DC EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Патрик Уилсон, Яхья Абдул-Матин II, Эмбер Хёрд, Николь Кидман, Рэндалл Пак, Темуэра Моррисон, Дольф Лундгрен, Мартин Шорт, Яни ЖаоПеревод: Дублированный (SC Produb)Язык озвучки: русский, английский, французский, испанскийСубтитры: английские, французские, испанские, китайские (PGS)Продолжительность: 02:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FC14272DCB2AEBCB9A768F70F80E99BD2077BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707112   (113449) от 15.03.2024
-
-Городские девчонки / Uptown Girls (2003) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молли Ганн ходит по бутикам, прожигает жизнь на вечеринках и смотрит на своих кавалеров сверху вниз. Её отец, известный в прошлом рок-идол, оставил ей громадное наследство, и девушка благополучно его прогуливает. Но сказке приходит конец, когда бухгалтер крадёт все деньги Молли, и единственное, что ей остаётся — это найти работу. После нескольких неудачных попыток (   Читать дальше...   )Производство: США / GreeneStreet Films Inc., Millennium FilmsЖанр: комедия, мелодрамаРежиссер: Боаз ЯкинАктеры: Бриттани Мёрфи, Дакота Фэннинг, Марли Шелтон, Дональд Фэйзон, Джесси Спенсер, Кармен Электра, Пелл ДжеймсПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354BBD547BA59C6E2C5989379D24DEAAABAF79CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707613   (113307) от 17.03.2024
 
 Эрнст Тельман – вождь своего класса / Ernst Thalmann - Fuhrer seiner Klasse (1955) DVDRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113307.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113302.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113300.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113285.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113216.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113213.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113205.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113204.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112980.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112593.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112542.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112433.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112412.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112411.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112410.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112407.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112405.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112322.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112312.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112250.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112241.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112189.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112116.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112013.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF23226DCF80944E16B306C3BE8C160F2C05E2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713004   (112010) от 04.04.2024
+
+Скандалисты / Gwasok scandle (2008) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112010.jpg" />
+</div>
+
+
+###  Подробнее
+
+На радио, где работает ведущим Нам Хюн Су, поступил звонок от матери-одиночки. Она рассказала, что едет на встречу к своему отцу, которого никогда до этого не видела и хочет после встречи с ним стать певицей. Посмеявшись с коллегами над наивностью сельской девушки, Нам Хюн Су вернулся домой. Каково же было его удивление, когда в его дверь позвонила та самая девушка (   Читать дальше...   )Производство: Южная Корея / DCG Plus, Lotte Entertainment, Toilet PicturesЖанр: комедия, музыкаРежиссер: Хён Чхоль КанАктеры: Тхэ Хён Чха, Иль Квон Ан, Кён Мин Хон, Сок Хён Хван, У Соль Хё Хван, Вон Ким, Мин Со Чон, Вон Чжун Чон, Ки Бан Ким, Хё Чжин Ким, Юн Хо Ким, Ён Чжун Ли, Чжи Кю Им, Сын Тэ Им, Бо Ён ПакПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (ФСГ АЛЬЯНС), английскиеПродолжительность: 01:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996A0786C63FD416C9419BE858C6EA078EB092E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713199   (111999) от 05.04.2024
+
+Инкассатор / Le convoyeur (2004) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Демарре устраивается на работу в инкассаторскую службу, переживающую нелёгкие времена: за последний год в трёх дерзких ограблениях не выжил ни один из инкассаторов. Грабители явно действовали по наводке, и теперь каждый день наполнен тревожным ожиданием очередного нападения. А молчаливый Демарре всегда сохраняет спокойствие. Потому что у него есть определённая (   Читать дальше...   )Производство: Франция / Studio Images 9, Canal+Жанр: драма, криминал, детектив, боевик, триллерРежиссер: Николас БухрифАктеры: Альбер Дюпонтель, Жан Дюжарден, Франсуа Берлеан, Клод Перрон, Жюльен Буасселье, Филипп Лоденбаш, Жилль Гастон-Дрейфус, Оливье Лустау, Сами Зитуни, Мишель Трилло, Жан-Кристоф Паньяк, Жан-Поль Зенакер, Мэтью Томассен, Николя Марье, Ор АтикаПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Данис Василович Нурмухаметов, с ненормативной лексикой), английские, французскиеПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160F3D799063A63C332938025DA596995AF05A27
 ```
 
 https://mybot314.ru/tekegram_catalog/

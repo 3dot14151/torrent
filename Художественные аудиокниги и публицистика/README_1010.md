@@ -1,84 +1,3 @@
-###  Публикация: 1727071   (54759) от 31.05.2024
-
-Сергей Снегов | Братья Рой и Генрих Васильевы (Книга 4). Право на поиск (сборник) (2023) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли две повести о приключениях братьев Роя и Генриха Васильевых:
-
-«Право на поиск»
-Рой Васильев — астрофизик, знаток космоса и детектив, специализирующийся на расследовании неизученных явлений и загадочных происшествий, прибывает на Уранию, чтобы выяснить причины взрыва сгущенной воды и гибели руководителя одного из проектов – Павла Ковальского.(   Читать дальше...   )Жанр: научная фантастикаИздательство: СОЮЗПродолжительность: 03:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5916A5AEDF5D375784B38AE66A5074CB2EDF8381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727129   (54715) от 01.06.2024
-
-Михаил Арцыбашев, Лидия Зиновьева-Аннибал и др. | Русский Эрос (Выпуск 2). Царица поцелуев (2015) [MP3, Павел Дорофеев, Елена Стародуб и др.]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Студия АРДИС предлагает взрослым слушателям аудиосборник эротических рассказов русских авторов. Перед вами самые сокровенные страницы русского Эроса, созданные в начале XX века Зинаидой Гиппиус, Константином Бальмонтом, Фёдором Сологубом, Иваном Буниным, Михаилом Кузминым, Велимиром Хлебниковым и другими классиками. Аудиокнига блестяще озвучена ведущими актёрами (   Читать дальше...   )Жанр: Эротические рассказыИздательство: АрдисПродолжительность: 07:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C41D8AC5E42AD0847F567506A8330D20EDEB242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727260   (54706) от 01.06.2024
-
-Сергей Кузнецов | Полигон (2024) [MP3, Андрей Кравец]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Тихий провинциальный городок превратился в полигон, заполненный бандами мародеров, стрельбой и взорванными домами. Охранник частного банка, бывший сотрудник органов, оказывается в этом аду после нападения в супермаркете и пытается разобраться в том, что происходит. Он ищет ответы на вопросы, кто убил его друзей, где его жена и сын, и почему в городе введено чрезвычайное (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 07:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8981DF28CB1665153E078B34E9F057B198E42B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727308   (54697) от 01.06.2024
 
 Масахиро Имамура | Смерть среди бессмертных (2023) [MP3, Игорь Князев]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54697.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54694.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54692.jpg" />
 </div>
 
 
@@ -166,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54680.jpg" />
 </div>
 
 
@@ -192,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54672.jpg" />
 </div>
 
 
@@ -218,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54655.jpg" />
 </div>
 
 
@@ -244,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54610.jpg" />
 </div>
 
 
@@ -270,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54562.jpg" />
 </div>
 
 
@@ -296,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54528.jpg" />
 </div>
 
 
@@ -323,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54523.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54518.jpg" />
 </div>
 
 
@@ -376,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54455.jpg" />
 </div>
 
 
@@ -402,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54453.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54415.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54405.jpg" />
 </div>
 
 
@@ -483,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54402.jpg" />
 </div>
 
 
@@ -509,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54398.jpg" />
 </div>
 
 
@@ -535,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54383.jpg" />
 </div>
 
 
@@ -561,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54379.jpg" />
 </div>
 
 
@@ -588,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54362.jpg" />
 </div>
 
 
@@ -614,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54346.jpg" />
 </div>
 
 
@@ -643,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54308.jpg" />
 </div>
 
 
@@ -669,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54297.jpg" />
 </div>
 
 
@@ -680,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7964A05FE45C33BC009C5167DE4FFFC03AEB61EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727936   (54289) от 05.06.2024
+
+Рафаэль Дамиров | Курсант (Книга 10). Назад в СССР (2024) [MP3, Один]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54289.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе 1986-й год. Межведомственной спец группе Горохова поручают очередное опасное задание…Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2B438CC247DB27EF1EF7F476BD019EECED3DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728090   (54282) от 05.06.2024
+
+Григорий Шаргородский | Оценщик (Книга 2). Невидимая сторона (2024) [MP3, Глеб Попов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой с редкостным именем Назарий Аристархович рос и воспитывался в детском доме, но всегда мечтал попасть в магический город. Сказано: бойтесь своих желаний. Однажды он там и очутился, да к тому же узнал, что обладает статусом так называемого «пограничника» – возможного обладателя магического дара. Но дар нужно развивать, и как нельзя лучше для этого подходят (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: 1С-ПаблишингПродолжительность: 10:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F0FDA5D6F7EF11167623EDD07E610DD3913A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728095   (54278) от 05.06.2024
+
+Максим Шаттам | Иллюзия (2024) [MP3, Игорь Тарадайкин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда хочешь круто изменить свою жизнь, самый верный путь – бросить все и уехать в глушь, так что добро пожаловать на горнолыжный курорт Валь-Карьос, где на лето остается лишь немногочисленный обслуживающий персонал. Дикая природа, ни души на много километров вокруг – что может быть целебнее для разбитого сердца Юго, только что пережившего тяжелое расставание? Но (   Читать дальше...   )Жанр: Детектив, МистикаИздательство: Азбука-АттикусПродолжительность: 14:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7C70F5BF8FD06883616418D63FD568E4E4BBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

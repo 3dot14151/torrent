@@ -6,7 +6,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак Прошлого [Ru/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494884.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493603.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ I Am Alive [Ru/En] (Repack) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490563.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490549.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kingdoms of Amalur: Reckoning [En/Ru] (RePack/1.0.0.2) 2012 l R.G. Механи�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490531.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Serious Sam 2 / Крутой Сэм 2 [Rus] (L) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490441.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Firewatch (2016) [Ru/Multi] (1.03) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487302.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Densha de Go! (Let's Go By Train Shinkansen EX) [Wii] [NTSC-J] [JPN] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486875.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (RePack/1.1) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486360.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Pro Evolution Soccer 2016 / PES 2016 (2015) [PS3] [USA] 4.75+ [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485286.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WWE 12 [PS3] [ENG] [PAL] [3.55 Kmeaw] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484241.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Darksiders 2 Death Lives [Ru/En] (RePack/u3) 2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484151.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Titan Quest: Anniversary Edition (2016) [Ru/En] (1.45) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483625.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Universim (2018) [Ru/Multi] (0.0.26.19542) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483574.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Skyshine's BEDLAM (2015) [En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483178.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The Darkness II - Limited Edition [Ru] (RePack/1.0) 2012 | TimkaCool
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482758.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Trine 2 + DCL [Ru/En/Multi14] (RePack/1.18) 2011 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482494.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Endless Space - Emperor Special Edition [Ru/En/Multi3] (Lossless Repack/1.0.16) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482231.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Minecraft (RePack/12w36a) [Ru/Multi56] 2012 | R.G. Dev1l
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482226.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Minecraft (L/12w36a) [Ru/Multi56] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482225.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ I Am Alive [Ru] (RePack/1.0) 2012 | SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482149.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Minecraft (Server/12w36a) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482148.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Saints Row: The Third [Ru/En/Multi9] (RePack/1.0.0.1) 2011 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482147.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Kingdoms of Amalur: Reckoning + 10 DLC [Ru/En] (Repack/1.0.0.2) 2012 | DangeSeco
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482026.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Magicka 2 (2015) [Ru/Multi] (1.1.0.0/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481300.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481138.jpg" />
 </div>
 
 

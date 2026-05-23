@@ -6,7 +6,7 @@ Kei Kobayashi - Softly (2002) Somethin' Else [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376784.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sammy Davis, Jr. - The Definitive Collection (1950-e - 1970-e) 2006, Hip‐O Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376781.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jimmy Smith - The Fantastic Jimmy Smith (1953, 1954) 2002, Empire Music Group [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376780.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazz Grooves: Best of MapleShade, vol.3 (2010) MapleShade Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376779.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Buddy DeFranco (De Franco) & Martin Taylor - Garden of Dreams (1988) ProJazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376774.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Jazz Ladies (2006) 3CD, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376635.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Simone Kopmajer - Moonlight Serenade (2004) Venus Records[FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375953.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375443.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Zachary Breaux - Uptown Groove (1997) Zebra Records [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375407.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Catherine Russell - Send For Me (2022) Dot Time Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375403.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Paul Hardcastle - Hardcastle 8 (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375085.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Ernestine Anderson - Blues, Dues & Love News (1996) Qwest Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374571.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ernestine Anderson - A Song For You (2009) HighNote [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374570.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Ernestine Anderson - Live at the 1990 Concord Jazz Festival: Third Set (1991) Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374569.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Della Reese - The Jubilee Years (1954 - 1959) 2CD, 2010, Jasmine Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374568.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Dave Brubeck Quartet - Jazz Goes to College (1954) 1998, Sony Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374567.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Bobby Darin & Johnny Mercer - Two oF A Kind (1961) 1990, Atco Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374564.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Ernestine Anderson - Now And Then (1993) Qwest Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374441.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mingus Amungus - Live in Cuba (1997) [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374406.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Arthur Verocai - Saudade Demais (2002) [FLAC|Lossless|tracks + .cue] <MPB, Bossa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374298.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Michael Blake - Tiddy Boom (2014) Sunnyside Communications[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374166.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Curtis Fuller - Soul Trombone & Cabin In The Sky (1961, 1962) 2011, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374165.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Count Basie & His Orchestra - 1 O'Clock Jump (1958) 1992, LaserLight[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374162.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Michel Camilo & Tomatito - Spain Forever (2016) Universal[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374152.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Dave Brubeck - Truth Is Fallen (1971) 1998, Atlantic[FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373986.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Rebekka Bakken - Most Personal (2016) 2CD, Universal[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373862.jpg" />
 </div>
 
 

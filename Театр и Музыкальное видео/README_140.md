@@ -1,117 +1,3 @@
-###  Публикация: 324267   (51546) от 30.06.2024
-
-Свои люди - сочтёмся (1970) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бессмертная комедия рассказывает нам о мире, в котором царит обман, и если мошенник бывает наказан, то только потому, что его обманывает еще больший плут.
-Очень хитро поступил купец Большов, объявив себя банкротом и положившись во всем на своего преданного приказчика. Да только не перехитрил ли он самого себя? Случается, плут сталкивается с еще более искусным плутом (   Читать дальше...   )Жанр: Спектакль, комедияРежиссер: А.ЗиновьеваВ ролях: Р.Филиппов, Г.Скоробогатова, М.Фомина, Ю.Соломин, А.Щепкина, А.Смирнов, В.Обухова, С.ЕремеевФормат: AVIПродолжительность: 02:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A116D45A83E2646D393E998722A51FAC5F8C39E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478468   (51538) от 30.06.2024
-
-Ричард III / Театр им. Вахтангова (1982) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия спектакля Театра им. Евг. Вахтангова по одноименной трагедии Уильяма Шекспира.
-
-Ричард родился уродом – он был горбат и кривобок и знал, что не имеет шансов на престол, так как его нормальные братья обошли его в этом. Он, понимая свою неполноценность, овладевает такими «науками», как коварство, лицемерие, жестокость и становится мастером придворных интриг. (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Рачья Капланян, Михаил УльяновПродолжительность: 01:34:19 + 00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6A891E3602162F1A3AE28FE7DB821CE5BBC937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481491   (51535) от 30.06.2024
-
-Синие розы / Театр на Фонтанке (2012) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Санкт-Петербургского Молодёжного театра на Фонтанке по мотивам пьесы Теннесси Уильямса "Стеклянный зверинец".
-
-Мир "Стеклянного зверинца" - это мир юности Теннеcси Уильямса, его истоков, его дома. Спектакль рассказывает историю одной американской семьи. Герои пьесы замкнуты в своем мире: мать семейства Аманда живёт воспоминаниями, сын (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Лев ШехтманПродолжительность: 02:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FED7CB5B71C5B92E5D1B71D68F4A3BBDF7A8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466806   (51528) от 30.06.2024
-
-Сирано де Бержерак / Театр им. Моссовета (2006) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Московского Государственного академического театра им.Моссовета по одноименной пьесе Эдмона Ростана.
-Перевод с французского Т.Щепкиной-Куперник и В.Соловьева.
-
-Судьба бывает несправедлива к талантливому человеку во все времена. Если она дарует блестящий ум и светлую душу, то обязательно лишит его внешней привлекательности. Сирано смел, бескорыстен, благороден (   Читать дальше...   )Жанр: героическая комедия, спектакльРежиссер: Павел ХомскийПродолжительность: 02:25:54
-
-Качество видео: 1,36Gb на два с половиной часа для идеала маловато будет!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5ECC611DC0E277A0D68926907A3D8070680F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 318618   (51524) от 30.06.2024
 
 Сказки старого Арбата (1973) TVRip
@@ -120,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51524.jpg" />
 </div>
 
 
@@ -146,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51521.jpg" />
 </div>
 
 
@@ -173,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51514.jpg" />
 </div>
 
 
@@ -199,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51509.jpg" />
 </div>
 
 
@@ -225,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51508.jpg" />
 </div>
 
 
@@ -254,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51507.jpg" />
 </div>
 
 
@@ -280,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51502.jpg" />
 </div>
 
 
@@ -307,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51471.jpg" />
 </div>
 
 
@@ -333,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51448.jpg" />
 </div>
 
 
@@ -360,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51447.jpg" />
 </div>
 
 
@@ -386,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51423.jpg" />
 </div>
 
 
@@ -413,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51419.jpg" />
 </div>
 
 
@@ -439,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51313.jpg" />
 </div>
 
 
@@ -466,7 +352,7 @@ Scooter - I want you to stream! (Live) (2020) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51272.jpg" />
 </div>
 
 
@@ -495,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51266.jpg" />
 </div>
 
 
@@ -522,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51242.jpg" />
 </div>
 
 
@@ -549,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51234.jpg" />
 </div>
 
 
@@ -578,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51226.jpg" />
 </div>
 
 
@@ -606,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51218.jpg" />
 </div>
 
 
@@ -635,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51210.jpg" />
 </div>
 
 
@@ -664,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51134.jpg" />
 </div>
 
 
@@ -690,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51129.jpg" />
 </div>
 
 
@@ -701,6 +587,120 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF45BB9287C78DC959E04A243039902FFFCF5F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439698   (51056) от 05.07.2024
+
+Кошка на радиаторе (1977) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная редакция литературно-драматических программ ЦТ.
+Телеспектакль по мотивам одноименной комедии Анны Родионовой.
+
+Комедия о молодых супругах, которые поссорились и сгоряча развелись, но вынуждены жить в одной квартире. Проходит время, и после ряда смешных перипетий они понимают, что не могут друг без друга.Жанр: комедия, спектакльРежиссер: Сергей ЕвлахишвилиПродолжительность: 00:48:24
+
+Качество видео и звука: TVRip
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2FDE422CB3FFE659392981E39DFFC637514FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 322073   (51051) от 05.07.2024
+
+Конек-Горбунок (1973) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51051.jpg" />
+</div>
+
+
+###  Подробнее
+
+За горами, за лесами,
+За широкими морями,
+Против неба — на земле
+Жил старик в одном селе.(   Читать дальше...   )Жанр: Моноспектакль, СемейныйРежиссер: Виктор ХрамовАктеры: Олег ТабаковПеревод: Не требуетсяПродолжительность: 01:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F88E7884B2FB2191A235F3FC88DF28F2953650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 33230   (51041) от 05.07.2024
+
+Калифорнийская сюита (2007) TVRip [БДТ]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51041.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих лет на сцене Большого Драматического театра с неизменным успехом шел спектакль «Этот пылкий влюбленный» по пьесе Нила Саймона. В спектакле были заняты Алиса Фрейндлих и Владислав Стржельчик. И вот на афише БДТ вновь появилось имя американского драматурга. «Калифорнийская сюита» состоит из трех мини-пьес, события которых разворачиваются в отеле (   Читать дальше...   )Жанр: СпектакльРежиссер: Л.П. ШУВАЛОВАВ ролях: Алиса Фрейндлих, Олег Басилашвили, Варвара Владимирова - (дочь А.Фрейндлих)Продолжительность: 2:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3117E23B826F9E38FF4A327386C65CC3C830CEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620163   (51034) от 05.07.2024
+
+История лошади (1989) DVDRip [БДТ им. Горького]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51034.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести Льва Николаевича Толстого "Холстомер" в постановке Ленинградского государственного академического Большого драматического театра имени М. Горького.
+
+Историю лошади рассказали как трагедию человека. Евгений Лебедев, блистательно сыгравший Холстомера, поведал о судьбе целого народа, страны, где постоянно присутствует конфликт (   Читать дальше...   )Производство: СССР, БДТ им. ГорькогоЖанр: ДрамаРежиссер: Георгий Товстоногов, Марк РозовскийАктеры: Евгений Лебедев, Олег Басилашвили, Валентина Ковель, Михаил Волков, Юзеф Мироненко, Георгий Штиль, Всеволод КузнецовПродолжительность: 02:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FC57989665999FB2F569ACCCC0B06C19C656FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

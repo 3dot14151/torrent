@@ -1,29 +1,3 @@
-###  Публикация: 1763278   (35654) от 30.11.2024
-
-The Long Drive (2019) [Ru/En] (2024.11.26b test) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-The Long Drive – приключенческий гоночный симулятор с тематикой апокалипсиса и элементами выживания в жестоких условиях окружающего мира. Из особенностей сразу стоит отметить то, что мир способен изменяться совершенно случайным образом, что не позволит тебе предвидеть или обойти стороной ты или иную опасную ситуацию. Ты всегда должен быть готов к неожиданным поворотам (   Читать дальше...   )Тип издания: RepackРазработчик: GeneszЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763199   (35650) от 30.11.2024
 
 GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
@@ -32,7 +6,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35650.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35640.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35610.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35609.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35602.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.004r) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35596.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35585.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fox Holes
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35578.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Oct 11 2024/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35576.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Necroking (2024) [Ru/Multi] (1.5.2rc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35564.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35544.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Necro Story (2024) [Ru/Multi] (6043) Repack FitGirl [Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35530.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0-45746.11849/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35492.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Automobilista 2 (2020) [Multi] (1.6.3.0/dlc) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35488.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Skies above the Great War (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35481.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Scene Rune [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35476.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Horizon (2014) [Ru/En] (1.0.2.156/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35474.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35465.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Shredders (2022) [Ru/Multi] (Glacier Update/dlc) Repack FitGirl [540INDY Edition
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35454.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (1029101748) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35401.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35381.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35378.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ DON'T SCREAM (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35376.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Monster Hunter Stories (2024) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35346.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.0/dlc) Repack FitGirl [Frontline-59 Editi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35343.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Project Wingman - это игра-экшен, в которой вы может�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6AB90D43147CF7C98F2E48BA4CB7E41101ABCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763947   (35291) от 04.12.2024
+
+2089 - Space Divided (2024) [Ru/Multi] (1.0.0) Repack Let'sРlay
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35291.jpg" />
+</div>
+
+
+###  Подробнее
+
+2089 - Space Divided - классическая научно-фантастическая стратегия в реальном времени от немецкой команды разработчиков, в которой вы собираете ресурсы, строите свою базу, обучаете войска и уничтожаете противников с помощью тактического мастерства. Путешествуйте по чужим мирам за свою фракцию и сражайтесь за господство. Будьте умнее своих противников и обеспечьте (   Читать дальше...   )Тип издания: RepackРазработчик: CoastGames GmbHЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263AD522CD15CA9FB2128C700082A307D4B67AD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

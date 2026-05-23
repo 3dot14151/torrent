@@ -1,29 +1,3 @@
-###  Публикация: 1356827   (976176) от 01.02.2020
-
-The Pedestrian (2020) [En] (1.0.6) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Каково оказаться внутри мира общественных знаков? Помимо того, что символы неустанно работают 24/7, должным образом направляя людей, есть ли ещё хоть что-то в их прямой и узкой жизни? Может ли простой схематичный человечек отправиться в увлекательное приключение и обнаружить нестандартные решения, дабы преодолеть множество препятствий за границами его прямоугольной (   Читать дальше...   )Тип издания: LicenseРазработчик: Skookum ArtsЖанр: Platformer, Adventure, PuzzleЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3F7C3CB67F100E72939E89FBB6E7769D28AA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615997   (976022) от 09.02.2013
 
 Cognition: An Erica Reed Thriller. Episode 1 [En] (L/3.5.6.44817) 2012 | HI2U
@@ -32,7 +6,7 @@ Cognition: An Erica Reed Thriller. Episode 1 [En] (L/3.5.6.44817) 2012 | HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976022.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Song of Horror (2019) [Multi] (1.31.0.0/upd3/dlc) License CODEX [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975090.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974008.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Black Mirror Anthology / Антология. Чёрное зеркало [Ru/En]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973046.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ The Plan [En] (Repack) 2013 | R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973031.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Kentucky Route Zero (2013) [Ru/Multi] (22.0) Repack Other s [PC Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970263.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Utawarerumono: Mask of Deception (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969399.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Utawarerumono: Mask of Truth (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969304.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967301.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967293.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966313.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ Whispering Willows (2014) [Ru/Multi] (1.29) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965248.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ The Tiny Bang Story / История крошечного взрыва [Ru/En/Pl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961081.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ Nikopol: Secrets of The Immortals [En/Multi5] (L) 2008 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958449.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) SteamRip Let'sРlay [The Complete Adve
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958134.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Kentucky Route Zero Act I [En] (Repack) 2013 | COGENT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956447.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ The Walking Dead: Season Two (2013) [Ru/En] (1.0.0.1) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954735.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ The Wolf Among Us (2013-2014) [Ru/En] (1.0) Repack R.G. Механики [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954728.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ The Walking Dead: Season One (2012) [Ru/En] (1.0.0.26/dlc) Repack R.G. Меха�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954726.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ King's Quest (2015) [Ru/En] (1.0) Repack R.G. Механики [Chapter 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954721.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953215.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Tales from the Borderlands (2014-2015) [Ru/En] (1.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953188.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.03B) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951975.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ A New Beginning - Final Cut (2011) [Ru/Multi] (2.0.3.0395) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951516.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Lost Brothers (2020) [Ru/En] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949113.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Lost Brothers - одиночная игра-загадка от первого �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:600A33FA794F33DD103709F3E62A20AB07EB4F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171798   (949016) от 23.02.2020
+
+The Coma: Recut (2017) [Ru/Multi] (2.1.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949016.jpg" />
+</div>
+
+
+###  Подробнее
+
+В перевыпуске классического корейского хоррора вы снова попадете в школу Sehwa High. Вам предстоит вжиться в роль молодого корейца по имени Ёнхо, ученика этой школы. Его преследует убийца. Сможете ли вы продержаться?Тип издания: RepackРазработчик: Devespresso GamesЖанр: Adventure (Horror), 2DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9EC6C614C7E8C95FD11591A0857021B23202DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 1810889   (16811) от 07.08.2025
-
-Денис Владимиров | Глэрд (Книга 7). Базис (Часть 1). Не оставляя выбора (2025) [MP3, Проводник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Земли Хаоса и Тьмы полны опасностей и преподносят смертельные сюрпризы даже с тех сторон, с которых никто не ждет. Однако именно здесь можно усилиться предельно быстро. И глэрд Райс готов рисковать.Жанр: Фантастика, фэнтези, боевик, попаданцыИздательство: ИДДКПродолжительность: 11:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D0BD072DC3F92B5B4B6216E42BCB625D8B7E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810885   (16810) от 07.08.2025
-
-Денис Владимиров | Глэрд (Книга 4). Целеполагание (2024) [MP3, Проводник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Могущественные сущности ведут непонятную игру, зачастую помогая врагам, которые множатся и становятся злее, а бить по центрам принятия решений пока нельзя, и каждый опрометчивый шаг грозит гибелью. Цейтнот не позволяет руководствоваться поговоркой: «семь раз отмерь, один отрежь». И приходится принимать решения на ходу и кромсать, кромсать и еще раз кромсать.Жанр: Фантастика, фэнтези, боевик, попаданцыИздательство: ИДДКПродолжительность: 11:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206463D009A194666E49D1372ADB78B312C56C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810883   (16809) от 07.08.2025
-
-Денис Владимиров | Глэрд (Книга 3). Путь в тумане (2023) [MP3, Проводник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Первые шаги в новом теле сделаны — врагам теперь не до Глэрда. Поэтому остается почивать на лаврах, спокойно учиться и развиваться, неспешно обустраиваться…
-Если кто-то поверил в строки выше, то это его проблемы.Жанр: Фантастика, приключения, попаданцыИздательство: ИДДКПродолжительность: 11:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4E2048C3F0D4EBC21AF99DD7CC1163067664F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810887   (16808) от 07.08.2025
 
 Денис Владимиров | Глэрд (Книга 6). Тьма и Хаос (2024) [MP3, Проводник]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16808.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16807.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16749.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16747.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16746.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16745.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16741.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16724.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16722.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16709.jpg" />
 </div>
 
 
@@ -346,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16707.jpg" />
 </div>
 
 
@@ -372,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16679.jpg" />
 </div>
 
 
@@ -398,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16659.jpg" />
 </div>
 
 
@@ -424,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16619.jpg" />
 </div>
 
 
@@ -450,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16597.jpg" />
 </div>
 
 
@@ -476,7 +397,7 @@ INDIGO | Фортуна дама переменчивая (Книга 2). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16594.jpg" />
 </div>
 
 
@@ -502,7 +423,7 @@ INDIGO | Фортуна дама переменчивая (Книга 3). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16593.jpg" />
 </div>
 
 
@@ -529,7 +450,7 @@ INDIGO | Фортуна дама переменчивая (Книга 4). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16572.jpg" />
 </div>
 
 
@@ -556,7 +477,7 @@ INDIGO | Фортуна дама переменчивая (Книга 5). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16571.jpg" />
 </div>
 
 
@@ -583,7 +504,7 @@ INDIGO | Фортуна дама переменчивая (Книга 6). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16570.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ INDIGO | Фортуна дама переменчивая (Книга 7). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16569.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ INDIGO | Фортуна дама переменчивая (Книга 8). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16568.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ INDIGO | Фортуна дама переменчивая (Книга 9). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16567.jpg" />
 </div>
 
 
@@ -673,6 +594,85 @@ INDIGO | Фортуна дама переменчивая (Книга 9). На �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2DD0388FBDBA9C07F54BF1A79E0577F300F22BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811076   (16566) от 08.08.2025
+
+INDIGO | Фортуна дама переменчивая (Книга 10). На границе империй. Том 7. Часть 4 (2025) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты выяснил, что за Наридо? - Мой запрос выдал несколько миллионов вариантов. Это популярное имя у оширцев. - Он сказал: «Полечу на Наридо». Это не имя. Скорей всего, это станция. - Я тоже так подумал, но в сети нет станций с таким названием. С таким названием есть бары, магазины, торговые центры на разных станциях и планетах. Кроме того, возможно, это военная станция, (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 07:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24675FB38D505BD483DF739B55549AE0B8C16E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811077   (16565) от 08.08.2025
+
+INDIGO | Фортуна дама переменчивая (Книга 11). На границе империй. Том 7. Часть 5 (2025) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аграфы опять аграфы. Куда без них...Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 08:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B2D6D4E9980076D6FBA8F08D0EC48856466889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811079   (16564) от 08.08.2025
+
+Алексей Свадковский | Игра Хаоса (Книга 11). Кладбище миров (2025) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьбы миров, жизни народов порой так уязвимы и хрупки! И так зависят от героев, что готовы рискнуть всем, лишь бы пламя жизни не погасло… О героях создадут песни, сложат мифы и придумают легенды, но лишь боги и они сами знают, каково им пришлось на пути к цели.
+Эта книга не про героев, а про разумных, вынуждено ставших ими.Жанр: Фэнтези, Приключения, ЛитРПГИздательство: ИДДКПродолжительность: 14:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EA534FCB18AD4409C7DE05A0F27C02B98315B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908862.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908812.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908721.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908697.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908569.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908494.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908465.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908437.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907211.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907002.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905644.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905386.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905251.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Ele
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905095.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905075.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ David Arnold & Michael Price - Sherlock  - The Final Problem (2017) OST Sherlock
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904879.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904665.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904357.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Musi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904238.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903803.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soun
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903649.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903547.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903513.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native Ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903401.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903399.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903376.jpg" />
 </div>
 
 

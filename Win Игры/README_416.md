@@ -1,29 +1,3 @@
-###  Публикация: 1716797   (59418) от 17.04.2024
-
-Knight Cats 3: Whisper of the Universe / Коты-рыцари 3: Шепот Вселенной (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей сказочной серии игр Knight Cats. Быть шаманкой непросто, но для вас это - призвание, которым вы очень дорожите. Вы с нетерпением ждёте возможности поделиться даром со своей приёмной дочерью, вашей преемницей. Но когда размеренную жизнь нарушает наступление тьмы, даже помощи духа Вселенной может оказаться недостаточно! Ваша ученица пропала, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCE45F09BA42DCD09800D3EC7B13E03D8D9171F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601576   (59364) от 18.04.2024
 
 Jupiter Hell (2021) [En] (1.8h) License GOG
@@ -32,7 +6,7 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59364.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Die Again (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59355.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59334.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ One Last Dinner (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59327.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59325.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59323.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Purpose 1951 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59319.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59263.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59260.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ John Wick Hex (2019) [Ru/Multi] (1.03) Scene DARKSiDERS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59245.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59243.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Grand Canyon (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59242.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Revival: Recolonization (2023) [Ru/Multi] (1.0.415) Repack FitGirl [Deluxe Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59239.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Sword Art Online: Last Recollection (2023) [Ru/Multi] (1.21/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59237.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lil Doll House (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59230.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Farmer's Dynasty (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59223.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Inspector Schmidt - A Bavarian Tale (2023) [Multi] (1.0.1.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59222.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ BIOMORPH (2024) [Multi] (1.1.26426) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59220.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mystical Riddles 4: Ghostly Park / Мистические загадки 4: Па
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59212.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Harmony Chronicles: Chaos Realms / Хроники гармонии: Царс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59195.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Hypnospace Outlaw (2019) [En] (2.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59174.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59160.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59158.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (1.1.2952) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59134.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59123.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:126250A18EBF678C01CB7112635FBE13958D29E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717415   (59108) от 20.04.2024
+
+Turbo Kid (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Kid представляет собой метроидванию с двухмерной графикой в стиле пиксель-арт, камерой с видом сбоку, кровью и мясом. В инди-тайтле можно исследовать карту в своём темпе и выбирать собственный порядок прохождения боссов. От других представителей жанра данный экшен-платформер отличается тем, что по локациям можно не только ходить пешком, но и кататься на велосипеде. (   Читать дальше...   )Тип издания: RepackРазработчик: Outerminds Inc.Жанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14360B3C84A4C051434977082DA12017C4C61CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

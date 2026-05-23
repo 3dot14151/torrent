@@ -1,29 +1,3 @@
-###  Публикация: 1280717   (758378) от 04.02.2019
-
-Secrets of Magic 3: Happy Halloween (2017) [En] (1.0) Unofficial
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Виктория теперь учительница в той же магической школе, где она сама постигала азы волшебства. Теперь её ждет новое задание. Близится Хэллоуин, и учителя хотят подготовить студентам сюрприз. Сможете ли вы помочь Виктории обучится основам декораторства, чтобы украсить школу к празднику? Сделайте школьный прием незабываемым!Тип издания: UnofficialРазработчик: Green Sauce GamesЖанр: Пазл, Логические игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530C272BE832DE8F9A21D8FFB4A2A70EC40E4BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267159   (758177) от 04.02.2019
 
 Beholder 2 (2018) [Ru/En/Ch] (1.0/upd2) Repack Other s
@@ -32,7 +6,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758177.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Praey for the Gods (2019) [Ru/Multi] (0.5.006) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758176.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Backbone (2021) [Ru/Multi] (1.0.8.0/dlc) Repack Other s [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758135.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Zula (2016) [Ru] (1.23G) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758078.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Genesis Alpha One (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758065.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757999.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Celeste (2018) [Ru/Multi] (1.1.3.0) Repack alivedeath
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757705.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Rep
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757688.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Lic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757681.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Crossing Souls (2018) [Ru/Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757675.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Medieval II: Total War + Kingdoms [Ru] (RePack) 2007 | R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757425.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Dark Romance 7: The Monster Within (2017) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756841.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Witchcraft: Pandora's Box (2017) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756836.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Stormhill Mystery: Family Shadows / Тайна Штормхилла: Призр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756702.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Connected Hearts: The Full Moon Curse (2022) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756646.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Ms. Holmes 3: The Adventure of the McKirk Ritual / Мисс Холмс 3: Ава
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756520.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Lineage 2 Interlude (2019) [Ru/En] (4.02.2019) Repack L2Arcana [Клиент д�
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756425.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Immortal Love 4: Black Lotus / Бессмертная любовь 4: Черны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756210.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Paradise Beach / Пляжный Рай (P) [Ru] (2009)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755965.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755902.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Family Mysteries 3: Criminal Mindset (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755407.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755217.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Chimeras 5: Mark of Death (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755211.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755110.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Koihime Enbu (2016) [En/Ja] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755105.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Koihime Enbu - аркадный файтинг с видом сбоку в яп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45BB6C7D26353415C89074CB1B2232FE392C30C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281157   (755083) от 06.02.2019
+
+Legacy: Witch Island 2 (2019) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы вернулись на таинственный остров, и стало ясно, что ваше предыдущее приключение не было сном. Остров действительно существует, и ведьма вернула себе силу. Используйте свои знания и смекалку, чтобы разрушить ее владения на острове. Ваш путь лежит через ослепительные островные локации - таинственный лес, горы, пещеры и озера.Тип издания: UnofficialРазработчик: Litera LaboratoriesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E0B89B59A4882DF16E78862C34B6D1C48BB258
 ```
 
 https://mybot314.ru/tekegram_catalog/

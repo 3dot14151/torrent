@@ -6,7 +6,7 @@ FireAlpaca 2.10.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239451.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XnViewMP 1.4.4 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239450.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bandicam 6.2.0.2057 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239446.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aiseesoft Video Converter Ultimate 10.6.26 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239433.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kate 22.12.3 Build 2005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239426.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 112.0.5615.138 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239397.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Google Chrome 112.0.5615.138 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239354.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Blender 3.3.6 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239347.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Opera 76.0.4017.175 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239339.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Smart Driver Manager Pro 6.1.797 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239336.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Skype 8.98.0.402 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239329.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Viber 19.9.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239326.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CyberLink PowerDirector Ultimate 21.3.2727.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239321.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Telegram Desktop 4.8.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239309.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Telegram Desktop 4.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239301.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Fort Firewall 3.8.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239294.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ PotPlayer 220420 (1.7.21631) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239292.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Wondershare PDFelement 9.5.4.2218 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239287.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239271.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Ungoogled Chromium 112.0.5615.121-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239270.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Topaz Video AI 3.2.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239267.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ FastFlix 5.4.1 + portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239251.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Uninstall Tool 3.6.0 Build 5684 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239248.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Whale Browser (NAVER Whale) 3.20.182.14 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239245.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Brave Browser 1.50.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239238.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ HWiNFO 7.43 Build 5055 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239231.jpg" />
 </div>
 
 

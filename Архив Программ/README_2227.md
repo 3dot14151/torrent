@@ -6,7 +6,7 @@ Open Server 6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40847.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Rufus 4.6 (Build 2205) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40845.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nero Burning Rom 2022 24.5.1.2 Portable by DemoNNM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40840.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BalenaEtcher 1.19.25 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40830.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ StartAllBack 3.8.11 build 5185 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40827.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ StartAllBack 3.8.11 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40815.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.42.34430.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40814.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Visual C++ Runtimes AIO v0.84.0 x86-x64 Repack by abbodi1406 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40813.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Firefox Browser 131.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40809.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Firefox Browser 131.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40808.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Tablacus Explorer 24.10.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40804.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Vivaldi 6.9.3447.54 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40802.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Firefox Browser ESR 128.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40801.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ XnView MP 1.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40796.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Firefox Browser ESR 128.3.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40773.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 7 SP1 7601.27366 x64 3in1 by OneSmiLe [11.10.2024] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40749.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ IObit Driver Booster Pro 12.0.0.356 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40738.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Tor Browser Bundle 13.5.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40734.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AOMEI Backupper Technician Plus 7.4.1 WinPE by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40733.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ IrfanView 4.70 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40728.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ IObit Driver Booster Pro 12.0.0.356 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40727.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FastStone Capture 10.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40696.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Marmoset Toolbag 5.00 (5007) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40687.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ SweetScape 010 Editor 15.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40665.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ HEU KMS Activator 42.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40647.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40635.jpg" />
 </div>
 
 

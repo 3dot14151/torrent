@@ -6,7 +6,7 @@ Atomix Virtual DJ Pro Infinity 8.0.0 build 2412.1050
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520592.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AdwCleaner 5.001 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520590.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VideoCacheView 2.90 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520584.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vivaldi 1.0.249.12 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520582.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Glary Utilities Pro 5.32.0.52 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520576.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Privacy Eraser Free 4.2.2 build 1530 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520574.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Reg Organizer 7.16 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520553.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SyMenu 4.12.5707 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520551.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SiSoftware Sandra Business / Engineer / Enterprise 2015.08.21.45 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520503.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Soft Organizer 4.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520502.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ EximiousSoft Banner Maker 5.38 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520499.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Mail.Ru Облако 15.05.0217 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520498.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Solidthinking Suite Evolve 2015.4945 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520497.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FlipBuilder Flip PDF 4.3.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520491.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Transmission-Qt 2.84.5 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520489.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ SiSoftware Sandra Personal 2015.08.21.45 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520484.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Opera 31.0.1889.174 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520416.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Windows Firewall Control 4.5.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520415.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tor Browser Bundle 5.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520410.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ AIMP 4.00 Build 1647 Beta 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520406.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VLC Media Player 2.1.0-git-20120813 (x32/x64) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520358.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Adrosoft Steady Recorder 3.4 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520332.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Windows 10 Manager 1.0.0 Portable by PortableWares [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520320.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Heimdal Pro 1.10.5.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520314.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Smart Driver Updater 4.0.2 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520308.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ E-on Vue xStream 2015.2 noAVX + Extra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520301.jpg" />
 </div>
 
 

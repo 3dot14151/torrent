@@ -6,7 +6,7 @@ Stranglehold (2007) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262539.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262367.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262161.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262031.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261442.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tomb Raider Трилогия [En] (L) 1996-1998 | GOG {Tomb Raider + Tomb Raider
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261034.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ StarLord [En] (RePack) 1993 | RG games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260915.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260890.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260849.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260825.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Delta V [En] (RePack) 1994 | RG Games (Pilotus)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259920.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259905.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259099.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259097.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259096.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259074.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258579.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258210.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257928.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257625.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257273.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256996.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256641.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Rally Championship 2000 [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255832.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255719.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255620.jpg" />
 </div>
 
 

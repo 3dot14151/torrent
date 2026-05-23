@@ -1,29 +1,3 @@
-###  Публикация: 990999   (907316) от 27.02.2016
-
-The Town of Light (2016) [En/Multi] (1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-12 марта 1938 года, привычный, для 16-ти летней Рени, мир внезапно перестал существовать, сузившись до размера больничной палаты. Банальное незнание своего места в этом мире было ее единственной виной. "Опасна для самой себя, окружающих и причина вопиющего публичного скандала", пестрели заголовки газет. Жуткая, леденящая душу похлеще всяких призраков правда (   Читать дальше...   )Тип издания: LicenseРазработчик: LKA.itЖанр: Action, 3D, 1st PersonЯзык озвучки: Английский, Итальянский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBECC91B6EAA9AD2E1722C1D508FA32825E697F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368808   (907181) от 21.03.2020
 
 Fatal Evidence 2: The Missing (2020) [En] (1.0) Unofficial [Collector's Edition]
@@ -32,7 +6,7 @@ Fatal Evidence 2: The Missing (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907181.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Fairy Godmother Stories 5: Miraculous Dream in Taleville (2021) [En] (1.0) Unoff
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907054.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906733.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (7059951) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906615.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Myst (2021) [Multi] (1.4.0) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906591.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Viking Heroes / Герои викинги (2020) [Ru] (1.0) Unofficial [Collecto
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906515.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Raging Titan (2016) [En] (1.6.11) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906264.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0.0.1) Repack R.G. Revenants [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906048.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Mystery Trackers 10: Paxton Creek Avenger (2016) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905982.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack YelloSOFT [Digital Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905965.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Reflections of Life 3: Dark Architect / Отражения жизни 3: Тем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905778.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Grim Tales 9: Threads Of Destiny / Страшные сказки 9: Нити с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905737.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905663.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Dungelot: Shattered Lands (2016) [Ru/En] (1.34) Unofficial ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905564.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Fortified (2016) [En] (1.0.5.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905532.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Goodgame Empire (2014) [Ru/En] (24.02.16) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905528.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Morels: The Hunt (2019) [Ru/Multi] (1.11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904661.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ NEO Scavenger (2014) [En] (1.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904544.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Surge 2 (2019) [Ru/Multi] (1.40405.1/dlc) License GOG [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904537.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Hyper Light Drifter (2016) [Ru/Multi] (7212017hf) License GOG (обновляе�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904528.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Reborn Online (2013) [Ru] (18.03.20) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904526.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ European Mystery 2: The Face of Envy / Придворные Тайны 2: Лик
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904519.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904517.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Oh...Sir!! The Insult Simulator (2016) [En] (1.07) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904425.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904380.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099449   (904374) от 01.02.2017
+
+The Talos Principle (2014) [Ru/Multi] (1.0.284152) Repack Seraph1 [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904374.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything). Словно пробудившись от глубокого сна, вы оказываетесь в странном, диковинном мире, полном древних руин и сложных машин.Тип издания: RepackРазработчик: CroteamЖанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2F126C2966D23F5697A059D91D5793DDAC6FB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

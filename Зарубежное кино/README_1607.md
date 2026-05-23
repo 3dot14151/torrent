@@ -1,55 +1,3 @@
-###  Публикация: 586909   (225335) от 09.12.2012
-
-Идеальный побег / A Perfect Getaway (2009) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Медовый месяц — самое счастливое время для молодоженов. Они — красивая пара, добившаяся успеха в жизни и впереди ожидающая только счастья и радости! Их свадебное путешествие на Гавайи похоже на сказку. Правда, все это омрачается грозными сообщениями о том, что на острове, куда они отправились, орудуют серийные убийцы.Жанр: Боевик, триллер, детектив, приключенияРежиссер: Дэвид ТуиАктеры: Крис Хемсворт, Милла Йовович, Тимоти Олифант, Стив Зан, Марли Шелтон, Киле Санчез, Дейл Дикки, Трэвис Уиллингэм, Венди Браун, Кэти Чонакас, Энтони Руйвивар, Холт МакКэлланиПеревод: Профессиональный (полное дублирование)Продолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B795A5FCEC7B42D430DB671C3DB863CB033577D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650369   (225290) от 02.08.2023
-
-Иммигрант / The Immigrant (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Малик — один из многих российских иммигрантов, который перебрался в Париж со своей семьей. Он начинает подниматься по иерархии преступной лестницы, крышуя магазины, автосервисы, ночные клубы. Однако крупный наркоторговец Жан-Мишель, подмявший под себя албанцев, турков, нигерийцев и марокканцев, хочет распространять наркотики и на его точках. Из-за угроз семье Малик (   Читать дальше...   )Производство: Россия, Франция / кинокомпания «ЛАМ»Жанр: боевик, криминалРежиссер: Руслан МагомадовАктеры: Руслан Дадаев, Сами Насери, Денис Никифоров, Фридерик Мастро, Абдель Кисси, Ислам Авурханов, Жан-Пьер Шиллинг, Анзор Мембатыров, Леонид Кутсар, Шарип ХабибовЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175932F2CF284A9E55793DDF70012F79448FFE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342006   (225259) от 01.12.2019
 
 Зыбучие пески: Нет выхода  / Зыбучие пески: Спасения нет / Quicksand: No Escape (1992) DVDRemux
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225259.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225206.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225183.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225174.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225172.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225161.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225158.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225141.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225140.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225105.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225096.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225081.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225076.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225068.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225033.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225032.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225024.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225016.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225000.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224999.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224962.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224957.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224932.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224915.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA68792C3DC98DC3B45D2586C3C4877132171FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965440   (224906) от 14.12.2015
+
+Скорость: Автобус 657 / Heist (2015) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что обокрасть Фрэнка Поупа, владельца казино и босса мафии — это самоубийство. Но однажды некогда преданный ему крупье решается вынести из кассы казино несколько миллионов долларов. Все было продумано, но план не сработал. Скрываясь с места преступления, грабители захватывают автобус, полный заложников. На бешеной скорости автобус мчится к мексиканской (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, криминалРежиссер: Скотт МаннАктеры: Джеффри Дин Морган, Роберт Де Ниро, Кейт Босворт, Дэйв Батиста, Джина Карано, Марк-Пол Госселаар, Моррис Честнат, Д.Б. Суини, Саммер Элтис, Лидия ХаллПеревод: Дублированный (iTunes)Язык субтитров: Английский, французский, датскийПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9633C59430F19F7AEF17D17FAF6B4AC38CE07A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424920   (224896) от 18.11.2020
+
+Поезд в Пусан 2: Полуостров / Bando (Train to Busan 2) / Peninsula (2020) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через четыре года после вспышки страшного вируса, распространение которого Южная Корея сдержать не смогла, то, что осталось от страны, находится в блокаде, а полчища зомби разгуливают по всему полуострову. Бывший военный Хан Джон-сок, в своё время сумевший эвакуироваться, в составе небольшого отряда отправляется из Гонконга в закрытую зону, чтобы отыскать грузовик (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, RedPeter FilmЖанр: Ужасы, боевикРежиссер: Ён Сан-хоАктеры: Кан Дон-вон, Ли Джон-хён, Ли Рэ, Квон Хэ-хё, Ким Мин-джэ, Ку Гё-хван, Ким До-юн, Ли Е-вон, Ким Гю-бэк, Чан Со-ёнПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEB896A7B26DEA604E9ECA89EFD3B87A9DA93B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ O&O ShutUp10 1.6.1395 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262017.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Image-Line FL Studio Producer Edition 12.5.1.165 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262009.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tor Browser Bundle 7.0.11 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262008.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JetBrains ReSharper Ultimate 2017.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261960.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ SMPlayer 17.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261940.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Vivaldi 1.13.1008.40 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261933.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Athentech Perfectly Clear + WorkBench 3.5.6.1138 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261930.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ MediaInfo 17.12 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261926.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ CPU-Z 1.82.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261919.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AMD Radeon Software Adrenalin Edition 17.12.2 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261911.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Vivaldi 1.13.1008.40 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261909.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Avast Internet Security 17.9.2322 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261872.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Avast Free Antivirus 17.9.2322 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261866.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ R-Studio 8.5.Build 170117 Network Edition RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261853.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Smith Micro Poser Pro 11.1.0.34764 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261846.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261683.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ocster Backup Pro 7.09 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261432.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261383.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VLC Media Player 2.1.0 gid-20120604-0003 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261122.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Kaspersky Security Scan 12.0.1.117 от 02.06.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261006.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260947.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Mac Blu-ray Player 2.3.0.0882 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260903.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ SyncerSoft Q9 Oldvox VSTi 1.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260853.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Freemake Video Converter 3.0.2.12 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260832.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ SAM CoDeC Pack 2012 v4.25 Best & Player [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260830.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ VLC Media Player 2.1.0-git-20120602-0003 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260774.jpg" />
 </div>
 
 

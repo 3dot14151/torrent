@@ -1,55 +1,3 @@
-###  Публикация: 1614258   (199320) от 24.04.2023
-
-Опасный город / Mondocane (2021) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Таранто — город-призрак, в который никто не решается войти, даже полиция объезжает его стороной. Беднейшим обитателям этого места остается лишь борьба за выживание, а банды преступников постоянно ведут борьбу за территорию. Два тринадцатилетних подростка, которые выросли вместе, мечтают присоединиться к одной из бандитских группировок. Это навсегда изменит их жизнь (   Читать дальше...   )Производство: Италия / Groenlandia, Minerva Pictures, Rai CinemaЖанр: Фантастика, боевикРежиссер: Алессандро ЧеллиАктеры: Деннис Протопапа, Джулиано Сопрано, Алессандро Борги, Барбара Рончи, Людовика Насти, Федерика Торкетти, Джозафат Ваньи, Франческо Симон, Джузеппе Бошиккьо, Валерио ВольпеПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, итальянскийСубтитры: Французские (Full), английские (Full)Продолжительность: 01:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE735ECDBF7DD65C83554F36475FC3FEB49E177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628328   (199300) от 24.04.2023
-
-Моя пиратская свадьба / Shotgun Wedding (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Дарси и Том готовятся к роскошной свадьбе на острове. Им немного досаждают мама жениха и бывший невесты. Но вскоре пара поймёт, что это были лишь мелочи: прямо на церемонию врываются пираты и берут гостей в заложники. Дарси и Тому предстоит всех спасти.Производство: США /  Mandeville Films, Maximum Effort, Nuyorican ProductionsЖанр: боевик, мелодрама, комедияРежиссер: Джейсон МурАктеры: Дженнифер Лопес, Джош Дюамель, Ленни Кравиц, Дженнифер Кулидж, Соня Брага, Чич Марин, Стив Култер, Д’Арси Карден, Калли Эрнандес, Десмин БоргесПеревод: Дублированный (Велес), Многоголосый профессиональный (TVShows)Язык озвучки: Русский, Английский, НемецкийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F85E7679176DC3DD113A3BBB523045F80322B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629031   (199291) от 25.04.2023
 
 Черная метка / Black Warrant (2022) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199291.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199283.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199281.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199280.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199274.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199273.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199267.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199253.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199240.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199236.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199224.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199208.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199205.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199203.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199195.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199184.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199165.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199163.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199157.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199150.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199126.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199124.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199120.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199118.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDEC200874AAA67B97752D9EE7291614DB84F1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630137   (199113) от 29.04.2023
+
+Пропавшая без вести / Missing (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199113.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти отца для 18-летней Джун её мама — единственная семья. Та вместе с новым ухажёром Кевином отправляется в отпуск в Колумбию, а девушка всю неделю проводит на вечеринках, но когда мама не появляется в аэропорту, дочь начинает поиски. Поскольку представитель консульства без должных бумаг не может перейти к активным действиям, через специализированный сайт (   Читать дальше...   )Производство: США, Stage 6 FilmsЖанр: Детектив, триллер, драмаРежиссер: Николас Д. ДжонсонАктеры: Сторм Рид, Ниа Лонг, Жоакин де Алмейда, Кен Люн, Эми Ландекер, Дэниэл Хенни, Тим Гриффин, Ава Зариа Ли, Кимберли Чэн, Меган Сури, Лиза ЯмадаПеревод: Дублированный (Bravo Records Georgia), Профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Full), Английские (Full)Продолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7EA1B7210EE2E4005E56A1D4C0D770D899193E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630315   (199038) от 30.04.2023
+
+Проклятые / The Cursed / Eight for Silver (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, конец XIX века. Цыганский табор претендует на земли барона Шеймуса Лорана и, видимо, не без оснований. Тот устраивает расправу над табором, но перед тем, как принять жестокую смерть, одна цыганка успевает наложить проклятие. Некоторое время спустя малолетние дети барона, да и остальная детвора, начинают видеть пугающие реалистичные сны. Ребята отправляются (   Читать дальше...   )Производство: США / Liddell Entertainment, Piste RougeЖанр: Ужасы, фэнтезиРежиссер: Шон ЭллисАктеры: Бойд Холбрук, Келли Райлли, Алистэр Петри, Роксана Дюран, Найджел Беттс, Стюарт Боуман, Саймон Кунц, Амелия Крауч, Макс Макинтош, Томми Роджер, Аня Роуз ДейлиПеревод: Дублированный (Лицензия)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Full), Английские (Full, SDH)Продолжительность: 01:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC4DC6E00A0D57AADA5F12BB138E1ED6E6BFA9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

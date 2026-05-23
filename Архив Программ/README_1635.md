@@ -6,7 +6,7 @@ Brave Browser 1.56.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223069.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Calibre 6.24.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223060.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rob Papen - Predator 2 1.0.4b VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223035.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera 57.0.3098.102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223003.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft® Windows® 10 x86-x64 Ru 21H2 8in2 Upd 11.2021 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222944.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PDF Compressor Pro 4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222920.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Opera 72.0.3815.378 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222697.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Google Chrome 71.0.3578.98 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222678.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Vivaldi 3.4.2066.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222655.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Firefox Browser 106.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222652.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WinCatalog 2020.1.0.1119 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222571.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ XYplorer Pro 20.60.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222554.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ YTD Video Downloader PRO 5.9.13.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222547.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VueScan Pro 9.7.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222541.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinUtilities Professional Edition 12.12 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222531.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mirillis Action! 4.13.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222522.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ HDCleaner 1.281 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222491.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Moo0 RightClicker Pro 1.48 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222489.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ TweakPower 1.080 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222483.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mirillis Action! v 3.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222471.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AOMEI Backupper Technician Plus 4.6.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222458.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Text Editor Pro 18.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222455.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Brave Browser 1.44.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222449.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ PC Cleaner Pro 8.2.0.5 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222425.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Google Chrome 71.0.3578.98 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222422.jpg" />
 </div>
 
 

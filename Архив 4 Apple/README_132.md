@@ -6,7 +6,7 @@ DaisyDisk 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872513.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SketchUp Pro 2017 v17.2.2554 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872503.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tenorshare iCareFone 6.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872448.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SketchUp Pro 2017 v17.2.2554 [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872387.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Yummy FTP Pro 1.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871973.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ xScope 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871972.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Power Manager 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871962.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Soulver 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871670.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SoundSource 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871389.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Notability 4.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871200.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Calendar 366 II v2.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871198.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871196.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ QR Factory 2.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870372.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ AutoMounter 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870159.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ ReadKit 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870152.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Framer Studio v84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870150.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Audirvana Plus 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870044.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Polarr Photo Editor 3.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869973.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Beamer 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869701.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Logic Pro X 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869641.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DaisyDisk 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869557.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Kerbal Space Program (2015) [En] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869549.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ JetBrains PhpStorm 2016.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869403.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Folder-Factory 5.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869097.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Affinity Publisher Beta 1.8.4.648 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869096.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ One Switch 1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869090.jpg" />
 </div>
 
 

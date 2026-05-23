@@ -1,86 +1,3 @@
-###  Публикация: 1683701   (128267) от 12.12.2023
-
-Кир Булычев | Единая воля Советского народа (2023) [MP3, Андрей Сид]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фантастический рассказ возвращает в последние годы жизни Брежнева Л.И. Внеземной разум предлагает оживить любого одного человека в каждой из стран. За него должно проголосовать большинство жителей данной страны. Кого же оживят в СССР? Америке? и ????Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91E88291355E244CE3002ACB385C4A0D3EF3B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683702   (128265) от 12.12.2023
-
-Антон Буткевич | Моя Космическая Станция (Книга 7). Битва Преемников. Том 2 (2023) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Битва Преемников. Том 2» – роман Антона Буткевича, седьмая книга цикла «Моя Космическая Станция», жанр РеалРПГ, постапокалипсис, космическая фантастика.
-
-Глобальное задание набирает обороты, а настоящие замыслы высших существ постепенно просачиваются и становятся достоянием общественности.
-(   Читать дальше...   )Жанр: Космическая фантастика, Постапокалипсис, РеалРПГИздательство: ИДДКПродолжительность: 13:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E17F4D28B48433A09E615000450AA14B5196A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683690   (128264) от 12.12.2023
-
-Александр Изотов | Нулевой мир (Книга 7). Мера человек: Выбор (2023) [MP3, Михаил Алексеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Мера человек: Выбор» – роман Александра Изотова, седьмая книга цикла «Нулевой мир», жанр боевое фэнтези, героическое фэнтези, попаданцы.
-
-Я стал слишком заметен, получив во враги высших существ. За мной охотятся и бог, и дьявол, поэтому оракулы опережают меня, предугадывая практически каждый мой шаг своими предсказаниями. Вот только хитрость никто не отменял. Жёлтый (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыИздательство: ИДДКПродолжительность: 09:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD78BCB36349BD67E97588E57177ACC27B625AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683828   (128262) от 12.12.2023
 
 Михаил Игнатов | Гардар (Книга 2) (2021) [MP3, Дмитрий Фоменко]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128262.jpg" />
 </div>
 
 
@@ -116,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128257.jpg" />
 </div>
 
 
@@ -144,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128256.jpg" />
 </div>
 
 
@@ -172,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128244.jpg" />
 </div>
 
 
@@ -199,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128242.jpg" />
 </div>
 
 
@@ -225,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128238.jpg" />
 </div>
 
 
@@ -253,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128236.jpg" />
 </div>
 
 
@@ -281,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128234.jpg" />
 </div>
 
 
@@ -307,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128216.jpg" />
 </div>
 
 
@@ -335,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128213.jpg" />
 </div>
 
 
@@ -362,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128165.jpg" />
 </div>
 
 
@@ -388,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128145.jpg" />
 </div>
 
 
@@ -414,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128131.jpg" />
 </div>
 
 
@@ -440,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128130.jpg" />
 </div>
 
 
@@ -466,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128125.jpg" />
 </div>
 
 
@@ -492,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128107.jpg" />
 </div>
 
 
@@ -518,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128106.jpg" />
 </div>
 
 
@@ -544,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128103.jpg" />
 </div>
 
 
@@ -570,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128100.jpg" />
 </div>
 
 
@@ -597,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128096.jpg" />
 </div>
 
 
@@ -623,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128094.jpg" />
 </div>
 
 
@@ -650,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128092.jpg" />
 </div>
 
 
@@ -679,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128090.jpg" />
 </div>
 
 
@@ -692,6 +609,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E646AA2B02098637211313D5B23D5E265A0F8FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683960   (128087) от 13.12.2023
+
+Марина Серова | Частный детектив Татьяна Иванова. Пусть проигравший плачет (2023) [MP3, Strega]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известного в городе антиквара находят сидящим в собственном кресле с застывшей улыбкой на лице и узкой смертельной раной в груди. Вслед за этим обнаруживают бездыханное тело его друга – художника. И едва ли не на следующий день в разных концах города погибают респектабельный господин и двое несчастных бомжей. Единственное связующее звено в цепи этих преступлений, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA581FA6DBF75C29F77732C3395D810EF090A421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683974   (128081) от 13.12.2023
+
+Марина Серова | Частный детектив Татьяна Иванова. Печали веселой семейки (2023) [MP3, Софья Авдеева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зарекалась частный детектив Татьяна Иванова браться за расследования, связанные с семейными разборками! И тут попала: взялась найти исчезнувшие у одного бизнесмена 200 тысяч долларов – и попала в эпицентр скандала. Оказалось, что деньги похитила из сейфа супруга бизнесмена, которая сама и наняла Таню их искать. Похитила и сбежала с любовником, который обобрал ее (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887622B4BF2C515B006DB2855ECDA74B875A989D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684094   (127991) от 14.12.2023
+
+Влад Тарханов | Прорыв истории (Книга 1). Зимняя война (2023) [MP3, Борис Клейнберг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127991.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе научного эксперимента сознание инвалида-колясочника Андрея Толоконникова оказывается в теле комбрига Алексея Виноградова, командира 44-й стрелковой дивизии. Задание Андрея: оттянуть начало Великой Отечественной войны на сорок второй год. Начать прорыв истории планируется с изменения хода войны с Финляндией. Декабрь 1939 года. Дивизия Виноградова отправляется (   Читать дальше...   )Жанр: Военно-историческая фантастика, попаданцыИздательство: ЛитРес: чтецПродолжительность: 08:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7B67B4439C94DFD11F450B9CFAD22BB11828F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

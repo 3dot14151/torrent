@@ -6,7 +6,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16708) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938098.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sword of the Stars: The Pit [En] (L) 2013 | COGENT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936097.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Transistor (2014) [Ru/Multi] (1.42500) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934699.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931490.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928568.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Torn Tales (2017) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928408.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Guild of Dungeoneering (2015) [En] (1.06) SteamRip Let'sРlay [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923754.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923365.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Titan Quest (2016) [Ru/En] (2.9mphf/dlc) Repack xatab [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923196.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921934.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921415.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920113.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919866.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914583.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914558.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911590.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tyranny (2016) [Ru/En] (1.0.4.0048/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909660.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909266.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sword of the Necromancer (2021) [Multi] (2.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908190.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905663.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NEO Scavenger (2014) [En] (1.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904544.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Surge 2 (2019) [Ru/Multi] (1.40405.1/dlc) License GOG [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904537.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904245.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903426.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cthulhu Saves Christmas (2019) [En] (2.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903041.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902642.jpg" />
 </div>
 
 

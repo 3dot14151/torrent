@@ -1,29 +1,3 @@
-###  Публикация: 1127076   (740489) от 20.04.2017
-
-Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Shiness, игра в жанре action-RPG, переместит вас во вселенную на грани разрушения. Отправляйтесь с Чадо на летающем корабле к небесным островам разрушенной Магеры. После аварийной посадки на враждебном острове вы окажетесь в центре конфликта, охватившего несколько королевств. Но благодаря способности Чадо общаться с Шайнес, мистическим духом, ситуацию ждет мирное (   Читать дальше...   )Тип издания: LicenseРазработчик: EnigamiЖанр: Action, RPG, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3D7B6AD67E642A65B5147B3F5C11DDDCE99F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397407   (740385) от 20.07.2020
 
 Dark Romance 12: Ashville / Роман тьмы 12: Эшвилль (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Dark Romance 12: Ashville / Роман тьмы 12: Эшвилль (2020) [Ru] (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740385.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Paws and Soul (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740298.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.7) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740295.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fright Chasers 3: Directors Cut (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740251.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740208.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Mystery Tales 9: The Other Side / Загадочные истории 9: Дру�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740051.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740018.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739943.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Mystery Tales 7: The House of Others (2017) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739732.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Love Chronicles 6: Deaths Embrace (2017) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739726.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Witches' Legacy 10: Covered By The Night (2017) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739671.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Hell Yeah: Wrath of the Dead Rabbit (2012) [Ru/En] (1.0u1) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739539.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738694.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738666.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738654.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738627.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738381.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Birthdays the Beginning (2017) [Multi] (1.0.7) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738048.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737752.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737676.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Crossroads: On a Just Path / Перекресток: На верном пути 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737298.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ JollyHangman / Игра Виселица (2021) [Ru] (1.7.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737290.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Spirits Chronicles: Born in Flames (2022) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737258.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20220103.476/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736798.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ XCOM: Chimera Squad / XCOM: Отряд «Химера» (2020) [Ru/Multi] (15321
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736755.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ XCOM: Отряд «Химера» открывает новую главу в и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50082F13232DC7D966979A34DFDFF1E260E747DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396704   (736484) от 24.07.2020
+
+Hydroneer (2020) [Ru/Multi] (1.3.6) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hydroneer — это песочница про добычу золота и других ресурсов для постройки массивных добывающих машин и своей базы для разных задач. Используйте примитивные инструменты, механизмы, работающие на воде и построенные вами структуры для добычи и улучшения ваших процессов в этой магнатообразной прогрессивной системе. Стройте механизмы, куйте оружие, рыбачьте, и копайте (   Читать дальше...   )Тип издания: RepackРазработчик: Foulball HangoverЖанр: Simulator (Sandbox), Strategy, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734B8912B3B5A30FB933DA535291B7B3499B91FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

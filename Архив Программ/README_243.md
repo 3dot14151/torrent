@@ -6,7 +6,7 @@ FlylinkDC++ r503 build 19459 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943797.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Vivaldi 2.11.1811.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943766.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ YTD Video Downloader PRO 5.9.15.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943762.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Allavsoft Video Downloader Converter 3.22.3.7361 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943760.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Autorun Organizer 4.30 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943714.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Auslogics Disk Defrag Pro 9.4.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943712.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Auslogics Registry Cleaner Pro 8.4.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943709.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Serif Affinity Publisher 1.8.0.584 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943701.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Nox App Player 6.6.0.3002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943698.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Privacy Eraser Free 4.9.2 Build 1786 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943682.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Far Manager 3.0 Build 4535 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943680.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Slimjet 7.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943677.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wise System Monitor 1.3.7.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943676.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Serif Affinity Designer 1.8.0.585 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943643.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943639.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Movavi Photo Editor 6.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943632.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Serif Affinity Photo 1.8.0.585  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943630.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Glary Utilities Pro 5.44.0.64 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943620.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ iZotope - Neutron 3 Advanced 3.1.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943563.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Driver Easy Pro 5.6.14.33488 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943555.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Adobe Media Encoder 2020 14.0.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943551.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ iZotope - Ozone 9 Advanced 9.0.3 STANDALONE, VST, VST3, AAX (x64) RePack by R2R 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943546.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Nero Burning ROM 2020 22.0.1010 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943545.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ K-Lite Codec Pack 15.4.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943544.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Adobe After Effects 2020 17.0.4.59 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943475.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Microsoft Windows and Office ISO Download Tool 8.32.0.136 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943472.jpg" />
 </div>
 
 

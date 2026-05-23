@@ -6,7 +6,7 @@ NG: История города пиратов / История города п�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481763.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Фараоны, которые построили Египет [2 серии
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480458.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Царство больших акул / Big Sharks Rule (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480039.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Секретный кубинский риф / Cuba's Secret Reef (2015) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480035.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Дикая Франция с Рэем Мирсом / Wild France with Ray M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479822.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479308.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479185.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Удивительные слоны (Душа гиганта) / Soul of the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476173.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: Женщина, воспитанная обезьянами / Woman Raised b
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472919.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Анаконда. Королева змей / Anaconda. Queen of the serpen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472881.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Полчища акул / Shark Swarm (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471923.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471914.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Доли
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471795.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471134.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470954.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG: Миссия Сатурн (Внутри колец Сатурна) / Mission
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470911.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG: Титаник. Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470828.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NG: Тайны мироздания / Beyond the Cosmos (2011) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470795.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG: Титаник. Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470699.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NG: 20 животных, которые могут вас убить / 20 Animal
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469024.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NG. 20 животных, которые могут вас убить / 20 Animal
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468234.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466748.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ NG. Осушить океан: тайны нацистов / Drain the Oceans. N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465467.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465191.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NGW: Секретная жизнь жемчужин / The Secret Life of Pearls 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463560.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463299.jpg" />
 </div>
 
 

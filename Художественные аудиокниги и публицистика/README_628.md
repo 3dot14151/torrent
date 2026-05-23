@@ -1,81 +1,3 @@
-###  Публикация: 1259522   (319040) от 04.11.2018
-
-Дарья Плещеева | Блудное чадо (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Середина XVII века. Боярин Афанасий Ордин-Нащокин, выполняя ответственные поручения царя Алексея Михайловича, ведет переговоры с иностранными дипломатами. А его единственный избалованный сын – Воин, наслушавшись баек о просвещенной Европе, в один прекрасный день удирает в Польшу, увезя с собой секретные письма государя. В погоню отправляются подьячий Посольского (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 12:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F661A0D6F6A92E97C0C6562135D481FC398A4FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958236   (319011) от 23.11.2015
-
-Глеб Бобров | Эпоха мертворожденных (2013) [OGG]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Ближайшее будущее. Русофобская политика «оранжевых» разрывает Украину надвое. «Западенцы» при поддержке НАТО пытаются силой усмирить Левобережье. Восточная Малороссия отвечает оккупантам партизанской войной. Наступает беспощадная «эпоха мертворожденных»… Время действия романа «Эпоха мертворожденных» необозначено. Оно происходит на фоне раскола Европейского Союза (   Читать дальше...   )Жанр: Фантастика, постапокалипсисПродолжительность: 10:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF809B3E6FADFC268F5A61EDDEB4E2621EB5AFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182171   (318969) от 09.11.2017
-
-Давид Лагеркранц | Миллениум (Книга 5). Девушка, которая искала чужую тень (2017) [MP3, Игорь Князев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное продолжение легендарной серии MILLENNIUM Стига Ларссона! Новые опасности угрожают жизни легендарной «девушки с татуировкой дракона». Стало реальностью то, о чем Лисбет давно догадывалась: она узнала, что значительная часть ее жизни – чей-то жестокий эксперимент. Много лет назад группа шведских ученых затеяла широкомасштабное и крайне секретное исследование. (   Читать дальше...   )Жанр: Триллер, ДетективИздательство: АудиокнигаПродолжительность: 12:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA8B168EE0B648E4A88AA0E90F860164F7877BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182002   (318967) от 09.11.2017
 
 Егор Чекрыгин | Свиток 6. Великий поход (2017) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318967.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318954.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318941.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318919.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318875.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318782.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318777.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318763.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318758.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318746.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318727.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318671.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318633.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318624.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318600.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318553.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318517.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318513.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318463.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318364.jpg" />
 </div>
 
 
@@ -615,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318344.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318342.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318293.jpg" />
 </div>
 
 
@@ -678,6 +600,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D56AA4856BCE368D01B0FE10D7EEBE049446010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331990   (318231) от 18.10.2019
+
+Александр Михайловский, Юлия Маркова | Вторая «Зимняя Война» Повторение – мать учения (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318231.jpg" />
+</div>
+
+
+###  Подробнее
+
+И в этой истории Соединенным Штатам также не удается избежать кровавой трагедии Перл-Харбора, но теперь в Вашингтоне всерьез задумались об изменении своей политики. Супруга американского президента совершает экскурсию в Россию будущего, где ее ждут шокирующие открытия. Руководство Германии получает своего «троянского коня», а Финляндию, поддержавшую фашизм, ожидает (   Читать дальше...   )Жанр: Боевая фантастика, героическая фантастикаПродолжительность: 12:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6619375C89466D95D654B4D9AEA9A41411C9458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066385   (317898) от 23.11.2016
+
+Юрий Бурносов | Эндшпиль (Проект «Этногенез») (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ник и Лекс — друзья детства и заклятые враги одновременно. Дороги молодых людей надолго расходятся, но оба осознают, что их судьбы крепко связаны.
+ Чтобы понять, кто они такие и каково их предназначение в этом мире, одному приходится пройти через страшную тюрьму в мексиканской глубинке, а другому — сквозь ледяной ад полярных канадских островов, притом что за обоими (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B05CECB7F1F8A665BC546B4633EAA243B0B408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419869   (317753) от 05.11.2020
+
+Марина Серова | Жаркая вечеринка (2020) [MP3, Светлана Сенчева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трагически закончился вечер встреч школьных друзей – бывших одноклассников частного детектива Татьяны Ивановой. На дне бассейна в сауне, где веселилась компания, обнаружен труп одного из участников торжества – известного в городе бизнесмена и кандидата в депутаты городской Думы. В связи с этим арестован другой одноклассник Татьяны. По его просьбе знаменитая сыщица (   Читать дальше...   )Жанр: ДетективПродолжительность: 3:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F3B41EA56D5D316E97E1901750153B82F75FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

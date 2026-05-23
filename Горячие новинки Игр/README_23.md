@@ -6,7 +6,7 @@ Sacred 2 Remaster (2025) [Multi] (1.0c) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255637.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Salt 2: Shores of Gold (2025) [Ru/Multi] (1.0) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255588.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wartorn (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254095.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wartorn (2025) [Ru/Multi] (Build 20757091) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254072.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CRABS MUST DIE! (2025) [Ru/En] (20696190) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253110.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252572.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Majogami (2025) [Multi] (20659537) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252571.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Bench (2025) [Ru/Multi] (1.0.107) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252570.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252468.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252467.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252454.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Restaurats (2025) [Ru/Multi] (20727795) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252410.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252290.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251799.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Second Sun (2025) [En] (1.021) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251786.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ No Players Online (2025) [Ru/Multi] (6000.024f1) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251746.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251714.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251707.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251700.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251271.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250923.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250913.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250877.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250875.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250873.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250750.jpg" />
 </div>
 
 

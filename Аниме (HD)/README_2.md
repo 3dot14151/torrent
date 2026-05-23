@@ -6,7 +6,7 @@
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019756.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dia no Ace OVA / Ace of Diamond OVA / Путь аса OVA [2014, OVA, 5 эп.] B
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? III / Danmachi III / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018323.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Schoolgirl Strikers: Animation Channel / Штурмовые школьницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018313.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gal to Dino | Gyaru to Kyouryuu | My Roomie Is a Dino | Гяру и диноза
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018156.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Yasuke | Ясукэ [2021, ONA, 6 из 6] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017367.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Ichiban Ushiro no Daimaou | Demon King Daimao | Князь тьмы с задн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017364.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Cardcaptor Sakura: Clear Card Hen | Сакура - собирательница 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015528.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tenchi Muyou! Ryououki Dai Go-ki | Тэнти - лишний! Рё-о-ки 5 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013778.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012103.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Princess Lover! | Любимчик принцесс [2009, TV, 12 эп. + 18 SP]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012100.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu Omega | How Not to Summon a Demon
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011386.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Shimoneta: A Boring World Where the Concept of Dirty Jokes Doesn`t Exist / Ск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011377.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ame-iro Cocoa in Hawaii | Rainy Cocoa in Hawaii | Какао цвета дожд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011354.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Niji-iro Days | Rainbow Days | Радужные деньки [2016, TV, 24 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011340.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ame-iro Cocoa: Rainy Color e Youkoso / Какао цвета дождя [ТВ-2]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011251.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kuroko no Basuke 3rd Season | Баскетбол Куроко [ТВ-3] [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011183.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Kamisama Hajimemashita | Kamisama Kiss | Очень приятно, Бог [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011106.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [2012, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011026.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Jouran: The Princess of Snow and Blood | Joran: The Princess of Snow and Blood |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010886.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Shakunetsu Kabaddi | Burning Kabaddi | Пламенное кабадди [2021, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010424.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Mashiro no Oto | Those Snow White Notes | Чистый звук [2021, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010387.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010234.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Seven Knights Revolution: Eiyuu no Keishousha | Революция Семи ры
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010069.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Yakunara Mug Cup mo / Let's Make a Mug Too / Давайте тоже сдела�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009905.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I G
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009753.jpg" />
 </div>
 
 

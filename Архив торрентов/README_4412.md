@@ -6,7 +6,7 @@ PhotoRoom v4.8.2 b1243 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121875.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Video AI for Mac 4.1.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121874.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Icecream Slideshow Maker PRO 5.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121869.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121867.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Master of Typing 3 - Practice 15.14.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121857.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wondershare Recoverit for Mac 12.5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121855.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ WiFi Signal Strength: Wifiry 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121845.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Magic Disk Cleaner 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121844.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AutoKrypt 13 for Mac 13.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121839.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Typora for Mac 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121837.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ SQLPro Studio 2023.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121832.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Scrutiny 12.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121819.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Rufus 4.4 (Build 2103) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121803.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Photo Lab PRO v3.12.88 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121772.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Resource Hacker 5.2.7.427 Final Portable by alexalsp [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121768.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AVS All-In-One Install Package 5.6.1.185 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121764.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ AVS Media Player 5.6.3.157 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121754.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ GPU-Z 2.57.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121751.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ AVS Image Converter 6.0.1.333 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121732.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Wing Pro 10 for Mac 10.0.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121705.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ OmniReader Pro for Mac 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121691.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ DVD-Cloner 2024 for Mac v.11.00.740  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121690.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PotPlayer 240112 (1.7.22077) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121627.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Psiphon 3 build 181 (21.01.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121619.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ GPU-Z 2.57.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121614.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ OCCT 12.1.15 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121611.jpg" />
 </div>
 
 

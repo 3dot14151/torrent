@@ -6,7 +6,7 @@ JoyoBox Cleaner 2012 4.0 [En,Ru] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251467.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Any DVD Converter Professional 4.3.8 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251454.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Download Master 5.12.7.1307 Final [Multi/Rus] RePack & Portable by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251452.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DisplayFusion PRO 4.0.1 Beta 1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251434.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ XMedia Recode 3.1.0.0 + Portable x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251421.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ iSpy 4.1.6.0 Portable by Noby x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251412.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PCStitch Pro 9.01.008 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251272.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Q-Dir 5.081 + Portable 32-bit/64-bit [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251148.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Maxthon 3.3.8.1000 + Portable by PortableAppz x32/x64 [Мульти,Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251124.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Download Master 5.12.7 Build 1307 Final + Portable [Ml / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251094.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WPI for Windows 7 v.28.04.2012 by UZEF 28.04.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251057.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251029.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ FavBackup 2.1.3 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250989.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Photo Slideshow Creator 3.0 Portable by Boomer [Английский/Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250943.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Astroburn Pro 3.0.0.0172 Portable by Valx [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250942.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ SysTweak Regclean Pro 6.21.65.2275 Portable by Bommer x32/x64 [Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250903.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Teorex InPaint 4.4 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250886.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ K-Lite Codec Pack Update 8.7.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250870.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Windows 8 Codecs 1.0.8 [Multi/Рус]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250837.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SUMo 3.0.7.152 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250783.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mozilla Firefox 13.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250781.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Win7codecs 3.6.2 + x64 Components[Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250779.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Chromium 20.0.1131.0 Portable x86/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250769.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250677.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ WinDoZa Live & Boot by Core-2 v.2.5.9 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250665.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250647.jpg" />
 </div>
 
 

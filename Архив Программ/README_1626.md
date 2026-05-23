@@ -6,7 +6,7 @@ Opera 72.0.3815.378 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225772.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 4.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225755.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Mask AI 1.3.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225730.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser 83.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225723.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Stellarium 0.14.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225709.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PicPick Free+Pro 7.2.1 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225699.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PrivaZer 3.0.83 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225686.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Bullzip PDF Printer 12.0.0.2872 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225677.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Polar Cursor Pack 3 Colors version 1.4 by jacksmafia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225666.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Trojan Killer 2.1.53 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225643.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ SIV (System Information Viewer) 5.06 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225634.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Waterfox Current G5.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225613.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Skype 7.17.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225591.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Revo Uninstaller Pro 4.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225590.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Internet Download Manager 6.38 Build 12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225575.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Glary Utilities Pro 5.196.0.225 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225570.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Wise Program Uninstaller 3.1.5.259 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225554.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Adobe Prelude 2020 9.0.2.107 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225529.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NVIDIA Nsight Visual Studio Edition 3.0 CUDA Preview [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225516.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Topaz Gigapixel AI 5.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225513.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Gif Recorder 3.1.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225509.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ DesktopOK 11.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225496.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Q-Dir 10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225470.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Emurasoft EmEditor Professional 22.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225466.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.11.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225465.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Wise Care 365 Pro 6.3.8.616 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225462.jpg" />
 </div>
 
 

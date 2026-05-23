@@ -6,7 +6,7 @@ The Ocean Collective - Studio Albums (12 releases) (2003-2025) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056365.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VOLA - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056180.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andy Williams - Andy Williams (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056179.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Obscurity - Studio Albums (10 releases) (2000-2026) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056114.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cliff Richard - Silver (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055737.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Seatbelts - Cowboy Bebop (2020) Original Series Soundtrack [FLAC 2.0|44.1/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055626.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055507.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055392.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055280.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055201.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055135.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055134.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054470.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ahola - Studio Albums (2 releases) (2012-2014) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054436.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Avatar (Sweden) - Studio Albums (10 releases) (2006-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054413.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Cliff Richard - She's So Beautiful. Extended Mix From The Musical "Time" (1985) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054412.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - O
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054141.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054140.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Manuel - This Is Manuel. 14 Tracks From His Fabulous Full-Price Albums (1971) Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054120.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Party Mood. The Tremeloes, Anita Harris, Tony Bennett, Louis Armstrong and 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053960.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Jean-Michel Jarre - The Concerts In China (1982) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053643.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Franck Pourcel And His Orchestra - This Is Pourcel. 14 Tracks From His Fabulous 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053571.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Serenity In Murder - Studio Albums (5 releases) (2011-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053468.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Orpheus Omega - Studio Albums (7 releases) (2009-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053389.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Marianas Rest - Studio Albums (5 releases) (2016-2026) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053218.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Deadlock - Studio Albums (11 releases) (1998-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053180.jpg" />
 </div>
 
 

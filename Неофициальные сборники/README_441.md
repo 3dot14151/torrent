@@ -1,38 +1,3 @@
-###  Публикация: 554449   (436810) от 01.10.2012
-
-VA - 100 пудовый хит. Русский выпуск (2012) [MP3|256 кб/с]<Pop. Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Вера Брежнева - Бессонница
- 002. Эд Шульжевский - Ты Все
- 003. Ян Марти - Леночка
- 004. Gayana - Ни Слова
- 005. Soundmaniя - Твоя Вселенная
- 006. Rj Рамиль Feat. Юлика - Просто Love
- 007. Алабама - Отпускаю
- 008. Авиатор - Звезда
- 009. Вера Каретникова - Vera
- 010. DJ Sandro Escobar - Бесконечность(   Читать дальше...   )Жанр: Pop. DanceПродолжительность: 06:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E60C56242BE874798E0673A7156651FE73AA03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063080   (436771) от 15.10.2016
 
 Валерий Ободзинский - Избранное (1966-1978) от DON Music [MP3|320 Kbps] <Retro, Pop>
@@ -41,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436771.jpg" />
 </div>
 
 
@@ -70,7 +35,7 @@ VA - Радио Energy - NRJ HOT30 (30.09.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436673.jpg" />
 </div>
 
 
@@ -105,7 +70,7 @@ VA - 100 Лучших трэков в стиле Европа Плюс (2017) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436458.jpg" />
 </div>
 
 
@@ -134,7 +99,7 @@ VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436310.jpg" />
 </div>
 
 
@@ -169,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436168.jpg" />
 </div>
 
 
@@ -198,7 +163,7 @@ Pino D'angio - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436058.jpg" />
 </div>
 
 
@@ -227,7 +192,7 @@ VA - Trance Desire Volume 56 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435993.jpg" />
 </div>
 
 
@@ -256,7 +221,7 @@ VA - Легче Лёгкого Авторская Лирика (2015) [MP3|256 �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435863.jpg" />
 </div>
 
 
@@ -285,7 +250,7 @@ VA - Рок Нашествие Часть 2 (2012) [MP3|128 кб/с]<Рок>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435850.jpg" />
 </div>
 
 
@@ -320,7 +285,7 @@ VA - 135 The Shape DJ Loaded (2018) [MP3|320 Kbps] <Electro, Reggae, Big Room>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435726.jpg" />
 </div>
 
 
@@ -349,7 +314,7 @@ VA - Ностальгия 4 NNM-Remix (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435464.jpg" />
 </div>
 
 
@@ -378,7 +343,7 @@ VA - DanceFloor Standings Workout Hits (2016) [MP3|230-320 Kbps] <Breaks, Bassli
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435376.jpg" />
 </div>
 
 
@@ -407,7 +372,7 @@ VA - Sports Megamix - Your Workout Favourite (2016) [MP3|256 Kbps] <Club, Tropic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435359.jpg" />
 </div>
 
 
@@ -436,7 +401,7 @@ VA - Сегодня на радио хиты FM Vol.7 (2019) [MP3|320 Kbps] <Pop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435280.jpg" />
 </div>
 
 
@@ -465,7 +430,7 @@ VA - Beatport Top 100 Deep House September (2016) [MP3|320 Kbps] <Deep House, Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435154.jpg" />
 </div>
 
 
@@ -494,7 +459,7 @@ VA - Душевный Сборник От Радио Шансон 9 (2016) [MP3|
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435152.jpg" />
 </div>
 
 
@@ -523,7 +488,7 @@ VA - Empire Records - Positive Emotions (2017) [MP3|320 Kbps] <Downtempo, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435028.jpg" />
 </div>
 
 
@@ -552,7 +517,7 @@ VA - German Top 100 Single Charts 24.10. (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434973.jpg" />
 </div>
 
 
@@ -581,7 +546,7 @@ VA - Новинки. Осенний выпуск Europa Plus (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434972.jpg" />
 </div>
 
 
@@ -610,7 +575,7 @@ VA - Необузданный рай. Супер сборник русского
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434828.jpg" />
 </div>
 
 
@@ -639,7 +604,7 @@ VA - Cosmotronica & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Synthpop, Spacesynt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434688.jpg" />
 </div>
 
 
@@ -668,7 +633,7 @@ VA - Back To The Seventies (Compiled by ВИКТОР31RUS) (2017) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434429.jpg" />
 </div>
 
 
@@ -697,7 +662,7 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.4 (от Ovvod
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434318.jpg" />
 </div>
 
 
@@ -726,7 +691,7 @@ VA - Осенний Non-Stop Vol. 2 (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434152.jpg" />
 </div>
 
 
@@ -761,7 +726,7 @@ VA - Звёзды эфира. Часть 3 (2012) [MP3|256 кб/с]<Шансон
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434146.jpg" />
 </div>
 
 
@@ -781,6 +746,41 @@ VA - Звёзды эфира. Часть 3 (2012) [MP3|256 кб/с]<Шансон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F082E42F951E7559999E8569E8430FBC8042812D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555345   (434143) от 02.10.2012
+
+VA - German Fashion Week Vol.2 (2012) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Telo - Ai Se Eu Te Pego
+02. Maroon 5 Feat. Wiz Khalifa - Payphone
+03. Kris Feat. Dante Thomas - Diese Tage
+04. Of Monsters And Men - Little Talks
+05. Santigold - Disparate Youth
+06. Alex Clare - Too Close
+07. Nicki Minaj - Starships
+08. Pitbull - Back In Time (Men In Black 3 Theme)
+09. Michael Mind Project Feat. Bobby Anthony And Rozette - Feeling So Blue
+10. Fun. Feat. Janelle Monae - We Are Young(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 03:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14699AB9BF9109B68D3E146AF52DBA419EDB3C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

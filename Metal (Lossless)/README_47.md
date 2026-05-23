@@ -6,7 +6,7 @@ Casket - 3 альбома (1997 - 1998) Discography [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982069.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Silent Knight - Conquer & Command (2015) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981812.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Pomegranate Tiger - Entities (2013) [FLAC|Lossless]<Progressive Metal, Instrumen
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981402.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Barbarossa - The Weight of Void (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981159.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Paul Dianno (Paul Di'Anno) - 15 albums, 23 CD (1986-2019) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980896.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Darkstar - Marching Into Oblivion (1996) [FLAC|Lossless|image + .cue] <Instrumen
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980558.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ark - Ark (1999) Reissue, 2000, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980553.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980552.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Status Minor - Ouroboros (2012) Japan [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980327.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Love Might Kill - 2 Big 2 Fail (2012) Japan [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980323.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Burning Point - 13 альбомов (2001 - 2015) Discography [APE, FLAC, WavPac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980247.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ The Shadow Theory - Behind The Black Veil (2010) [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979195.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Sylosis - 3 Альбома (2008-2012) Дискография [FLAC|Lossless]<Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978682.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Nightfall - 5 альбомов (1999 - 2013) [FLAC / APE|Lossless]<Symphonic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978678.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Cardinal Sin - Spiteful Intents (1996) [WavPack|Lossless|image + .cue] <DeathMet
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978218.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Jorn - Symphonic (2013) [APE|Lossless]<Symphonic / Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977608.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Devin Townsend - 26 Albums, 8 Compilations & Live, 4 EPs & Promos (1996 - 2019) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977534.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Bullet For My Valentine - Temper Temper (Deluxe Edition) (2013) [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977306.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Hate - Solarflesh (2013) Limited Edition [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976625.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Evans Blue - 4 Альбома (2006-2012) Дискография [FLAC|Lossless]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975959.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Malevolent Creation - Dead Man's Path (2015) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975793.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975745.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Metallica - Helping Hands... Live & Acoustic At The Masonic (2019) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975452.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Annihilator - Ballistic, Sadistic (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975376.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Metallica ‎ - ..And Justice For Jason (Limited Edition, Enhanced and recovered
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975280.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ Wolfpakk - Discography 5 Releases (2011-2020) [FLAC|image +.cue]< Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974120.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1043048   (574565) от 15.08.2016
-
-VA - Smooth Soul - Black Lounge & Chillout Classics (2016) [MP3|320 Kbps] <Soul, Lounge, Chillout>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Gil Small Jr - Next 2 U (4:54)
-02. Camille St. Vincent - La Vie D'une Chanteuse (Life of a Singer) (2:29)
-03. James Branch - Forever My Love (4:03)
-04. Eddie Caldwell - Dreams (4:27)(   Читать дальше...   )Жанр: Soul, Lounge, ChilloutПродолжительность: 02:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B638B96A7CA8115A53006DEDCE2B4090CE238D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043028   (574424) от 15.08.2016
 
 VA - Русское радио. Убойное лето №4 (2016) [MP3|256 Kbps] <Pop>
@@ -35,7 +6,7 @@ VA - Русское радио. Убойное лето №4 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574424.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - We talk only blues! vol.2 (2016) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574240.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Italo Disco Hits Vol.13 (2017) [MP3|320 Kbps] <Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574190.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Vocal Trance Collection Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574179.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Mystic Adventures: Balearic Downtempo (2016) [MP3|320 кб/с] <Downtempo, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574154.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574145.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Ha
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574005.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - 100 Hits Dance 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574002.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - 100 Best Rock Hits (2012) [MP3|320 кб/с]<Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573987.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Lokee feat Pearl Andersson - Losing My Religion (2018) Remix [MP3|320 Kbps] <Dee
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573960.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ VA - Club Dance Ambience Vol.82 (2016) [MP3|320 Kbps] <House, Progressive, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573869.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ VA - Best Of 90s (Revisited) (2016) [MP3|320 Kbps] <EuroDance, Synth-pop, Electr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573860.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573798.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Paul Sills - Awake and Dreaming (2015) [MP3|320 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573737.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573708.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573706.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ VA - Oceanic Chill Out 30 Great Chill Out Selection (2015) [MP3|320 кб/с]<Dow
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573705.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ VA - Chill Out Instrumental Hits (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573694.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Madonna - Hits Box Collection (2015) [MP3|226-294 кб/с]<Pop, R&B, Jazz, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573639.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573500.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ VA - Рок впрок (2015) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573489.jpg" />
 </div>
 
 
@@ -638,7 +609,7 @@ VA - My Favourite Hits of 1977 (16CD) (2015) [MP3|320 кб/с]<Easy Listening, C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573487.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ VA - Esthetics Lounge Vol. 6 (2012) [MP3|320 кб/с]<Lounge, Easy Listening>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573473.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Прости Меня, Мама (2011) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573404.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ VA - Сборник медленных хитов Vol.9 (2012) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573192.jpg" />
 </div>
 
 
@@ -748,6 +719,35 @@ VA - Сборник медленных хитов Vol.9 (2012) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F41640BCCF67D81EC8A6B41863D73EA2D0067F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043316   (573158) от 16.08.2016
+
+VA - La Terraza The Magic Of Lounge & Chill House Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Pacific Industries - Thinking Of You (4:57)
+02. Sunburn In Cyprus - Change (4:00)
+03. Mariana Lucy - Raining (4:11)
+04. Latin League - Mind & Soul (5:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4C36D209574FEE41735EE2E070959961D46877
 ```
 
 https://mybot314.ru/tekegram_catalog/

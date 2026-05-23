@@ -1,57 +1,3 @@
-###  Публикация: 527455   (576523) от 26.07.2012
-
-Посейдон / Poseidon (2006) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Накануне новогоднего праздника в Атлантическом океане терпит бедствие шикарный круизный лайнер «Посейдон», который перевернула гигантская приливная волна. В то время, как сотни выживших пассажиров, выполняя указания капитана, остаются в главном танцзале и ждут помощи с берега, профессиональный картежник Дилан Джонс ищет свой путь к спасению.
-
-Компанию Дилану вопреки его желанию составляют девятилетний Конор со своей матерью Мэгги, Роберт Рэмси, пытающийся отыскать свою дочь по имени Дженнифер, а также ее жених Кристиан. К ним присоединяются застенчивая безбилетница, пожилой гей, намеревавшийся покончить с собой, и молодой официант. Все они прилагают невероятные усилия, чтобы выбраться из тонущего корабля на поверхность…Жанр: Боевик, триллер, драма, приключенияРежиссер: Вольфганг ПетерсенАктеры: Курт Рассел,Перевод: Профессиональный (полное дублирование)Продолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1814522553B1E44EEE05EC6FC172CD444DDB905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361288   (576511) от 10.07.2011
-
-Острота ощущений / Intensity (1997) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Чайна Шеппард — двадцатишестилетняя студентка факультета психологии, которая пережила чрезвычайно сложную драму в прошлом. Во время посещения Чайной дома Лауры Тэмплтон, серийный убийца по имени Эдглер Форман Вэсс врывается в дом, убивая Лауру и ее родителей. Чайна выживает, но она узнаёт о пленнике Вэсса: девочке, пойманной в ловушку в доме Вэсса. Чайна чувствует (   Читать дальше...   )Жанр: Ужасы, Триллер, ДрамаРежиссер: Ив СимоноАктеры: Джон К. МакГинли, Кэти Стюарт, Молли Паркер, Блю Манкума, Лори Энн Триоло, Брент Стэйт, Динна Миллиган, Кэвэн СмитПеревод: Многоголосый закадровыйПродолжительность: 02:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35FAD99475EEB9B51A05545A520F80F9C573F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361582   (576501) от 10.07.2011
 
 Затаившиеся 3D / Hidden 3D (2011) [2D] DVD5
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576501.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576497.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576427.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576414.jpg" />
 </div>
 
 
@@ -168,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576410.jpg" />
 </div>
 
 
@@ -196,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576404.jpg" />
 </div>
 
 
@@ -222,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576263.jpg" />
 </div>
 
 
@@ -250,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576261.jpg" />
 </div>
 
 
@@ -276,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576240.jpg" />
 </div>
 
 
@@ -303,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576204.jpg" />
 </div>
 
 
@@ -333,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576193.jpg" />
 </div>
 
 
@@ -361,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576184.jpg" />
 </div>
 
 
@@ -387,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576137.jpg" />
 </div>
 
 
@@ -413,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576135.jpg" />
 </div>
 
 
@@ -440,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576132.jpg" />
 </div>
 
 
@@ -466,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576131.jpg" />
 </div>
 
 
@@ -492,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576057.jpg" />
 </div>
 
 
@@ -518,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576048.jpg" />
 </div>
 
 
@@ -544,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575972.jpg" />
 </div>
 
 
@@ -570,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575969.jpg" />
 </div>
 
 
@@ -596,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575966.jpg" />
 </div>
 
 
@@ -622,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575931.jpg" />
 </div>
 
 
@@ -648,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575864.jpg" />
 </div>
 
 
@@ -675,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575841.jpg" />
 </div>
 
 
@@ -686,6 +632,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5756EEB3A3AC2A91B738527F1583615E23D803B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043077   (575837) от 14.08.2016
+
+Сомния / Before I Wake (2016) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575837.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодой пары, потерявшей маленького сына, появляется второй шанс на счастливую жизнь, когда они берут из приюта замечательного восьмилетнего Коди. По неизвестной им причине он очень боится засыпать по ночам, но вскоре оказывается, что дело в необычном даре Коди — пока он спит, его сны оживают. Каждую ночь новым родителям могут явиться либо прекрасные видения его (   Читать дальше...   )Производство: США, Demarest Films, Intrepid Pictures, MICA EntertainmentЖанр: Ужасы, Фэнтези, Триллер, ДрамаРежиссер: Майк ФлэнеганАктеры: Джейкоб Трамбле, Кейт Босворт, Томас Джейн, Скотти Томпсон, Аннабет Гиш, Дэш Майок, Джей Карнс, Кайла Дивер, Лэнс Э. Николс, Кортни БеллПеревод: Дублированный  (iTunes)Субтитры: Английские (отключаемые)Продолжительность: 01:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24B646B7F61FF648B766408B5E0A258545BBF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042854   (575835) от 14.08.2016
+
+Обрученные / Betrothed (2016) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поездка в магазин превращается в нереальный кошмар, когда студент колледжа похищен неблагополучной семьей....Производство: СШАЖанр: ТриллерРежиссер: Джим ЛейнАктеры: Джои Белл, Дэвид Браун, Элизабет Кастилло, Джэми Б. Клайн, Адам Даннеллс, Летисия Фарр, Дэвид Фернандез, Банни ГибсонПеревод: Многоголосый закадровый, любительский - СПДПродолжительность: 01:30:00Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E1B344955B6DC5A30AF3EE7300E32F6B05F1C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

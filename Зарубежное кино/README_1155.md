@@ -1,57 +1,3 @@
-###  Публикация: 939492   (474913) от 21.09.2015
-
-Алоха / Aloha (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-37-летний дискредитированный американский консультант по оружию Брайн Джилкрест не нравится практически всем окружающим его людям. Его единственный друг — техник по имени Джереми — супер умный и хорошо осведомленный компьютерщик.
-
-В ответ на агрессию со стороны Китая Джилкреста отправляют на бездействующую военную базу на Гавайях, чтобы оттуда он контролировал запуск (   Читать дальше...   )Производство: США / Columbia Pictures, LStar Capital, RatPac EntertainmentЖанр: драма, мелодрама, комедияРежиссер: Кэмерон КроуАктеры: Брэдли Купер, Эмма Стоун, Рэйчел МакАдамс, Билл Мюррэй, Джон Красински, Дэнни МакБрайд, Алек Болдуин, Билл Кэмп, Джейден Либерер, Даниэль Роуз Расселл, Майкл Чернус, Эди Гатеги, Элизабет Марвел, Ивана Миличевич, Фахим Фазли, Семер-Аб Этмет Йоханнес, Лес Брэмлет, Дон Д. Дэвис, Джарретт Пиеске, Стивен М. МёрджаПеревод: Профессиональный (полное дублирование) (iTunes) + Украинский (iTunes)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD0E700296A0108A91B6693FB60C823D51BF0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823438   (474847) от 20.09.2014
-
-Тёмная долина / Das finstere Tal / The Dark Valley (2014) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Тайными путями одинокий всадник пробирается в маленький городок высоко в Альпах. Никто не знает, откуда прибыл незнакомец и чего он хочет. Но в одном жители городка уверены — они не хотят, чтобы он оставался здесь.Производство: Австрия, Германия |  Allegro Film, X-Filme Creative PoolЖанр: ВестернРежиссер: Андреас ПрохазкаАктеры: Сэм Райли, Тобиас Моретти, Хельмут Хеуслер, Мартин Лойтгеб, Йоханнес Николусси, Клеменс Шик, Флориан Брюкнер, Ганс-Михаэль Реберг, Эрвин Штайнхауэр, Франц Ксавер БрюкнерПеревод: Профессиональный многоголосыйПродолжительность: 01:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737A30ADDF9ECA55E26B8A5C6D1C8425D4D7B373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 823269   (474841) от 20.09.2014
 
 Годзилла / Godzilla (2014) BDRip [H.264/1080p-LQ]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474841.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474807.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474801.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474790.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474788.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474752.jpg" />
 </div>
 
 
@@ -219,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474740.jpg" />
 </div>
 
 
@@ -245,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474730.jpg" />
 </div>
 
 
@@ -271,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474728.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474717.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474715.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474696.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474626.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474620.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474612.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474608.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474603.jpg" />
 </div>
 
 
@@ -507,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474601.jpg" />
 </div>
 
 
@@ -533,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474498.jpg" />
 </div>
 
 
@@ -559,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474405.jpg" />
 </div>
 
 
@@ -585,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474387.jpg" />
 </div>
 
 
@@ -611,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474382.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474379.jpg" />
 </div>
 
 
@@ -663,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474320.jpg" />
 </div>
 
 
@@ -674,6 +620,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECA6835824C0B3889CE16AE34A022FE6630ECDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547147   (474271) от 15.09.2012
+
+И дождь омоет наши души / Dazd pada na nase duse (2002) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень Джоко бежит из тюрьмы. По дороге он крадет машину, на заднем сидении которой обнаруживает маленькую Кику. Девочка напугана, но постепенно ее страх перед Джоко сменяется боязнью за беглеца. Кика становится «соучастницей» побега.
+Тем временем Джоко и Кика объявляются в розыск. Время работает против них. Джоко пытается достать денег, чтобы они могли куда-нибудь уехать…Жанр: драмаРежиссер: Владо БалкоПродюсер: Патрик ПассАктеры: Кристина Сваринска, Эрик Олле, Стано Данчак, Александра Заборска, Ивана НоваковаПеревод: многоголосый закадровый (профессиональный)Продолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C145F90CC845D964BCE897D5BDF62AB506D878A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567175   (474240) от 02.08.2022
+
+Детектив К: Тайна демона - вампира / Joseon myeongtamjeong: heuphyeolgwimaui bimil / Detective K: Secret of the Living Dead (2018) WEBRip [H.265/1080p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474240.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Чосоне снова неспокойно. Некто выкапывает обгоревшее тело женщины и оживляет её с помощью крови. После этого в округе начинают происходить очень странные дела - люди воспламеняются прямо на улице и сгорают заживо. Самое время детективу Ким Мину с верным помощником взяться за расследование. Но вот ещё одна странность - куда бы они ни пошли, везде натыкаются на загадочную (   Читать дальше...   )Производство: Южная Корея / DMZ Comics, Showbox/MediaplexЖанр: комедия, детектив, приключенияРежиссер: Ким Сог-юнАктеры: Ким Мён-мин, О Даль-су, Ким Джи-вон, Ким Бом, Пак Кын-хён, У Хён, Ли Мин-ги, Нам Сон-джин, Ан Нэ-сан, Хён УПеревод: Одноголосый любительский (Кинозал Мааниша)Язык озвучки: РусскийСубтитры: Русские (forced - только на текст)Продолжительность: 01:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7F3B7F463AE3DEB865FBFEBE33731F6CCB2DCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

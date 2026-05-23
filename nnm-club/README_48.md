@@ -1,107 +1,3 @@
-###  Публикация: 1870733   (1068939) от 
-
-Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В Мискатоникском университете происходит что-то зловещее. Профессор Гарри Эверхарт старательно игнорирует тени, которые видит периферическим зрением, а студентку Эванджелин Дрейтон преследуют невероятные сны об обнаруженном десять лет назад артефакте. В поисках ответов пара героев откроет для себя множество секретов, уходящих в века дальше, чем можно себе представить.Тип издания: RepackРазработчик: Out of the Blue GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB3B9E7E5B925A66880321C6FD2F72B4ACB9501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870736   (1068938) от 
-
-Call of the Elder Gods (2026) [Ru/Multi] (0.0.0.279) Scene Rune
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В Мискатоникском университете происходит что-то зловещее. Профессор Гарри Эверхарт старательно игнорирует тени, которые видит периферическим зрением, а студентку Эванджелин Дрейтон преследуют невероятные сны об обнаруженном десять лет назад артефакте. В поисках ответов пара героев откроет для себя множество секретов, уходящих в века дальше, чем можно себе представить.Тип издания: SceneРазработчик: Out of the Blue GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09AE8D9DD7677A1D39B8DC41EF5C59118F568BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870633   (1068937) от 
-
-PotPlayer 260422 (1.7.22859) RePack (& Portable) by elchupacabra (12.05.2026) [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E557CCDE11CCC8C6BF862DA0871F741595122493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870586   (1068936) от 
-
-RAMMap 1.63 RePack by TRENERA [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-RAMMap — утилита для анализа использования физической памяти компьютера под управлением операционных систем Windows. Программа показывает, сколько памяти используют ядро операционной системы, запущенные приложения, драйвера, динамические библиотеки, компоненты и модули, а также как Windows управляет памятью.Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB5133F2671171FDD645BE9356802142050A867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870729   (1068935) от 
 
 Боги, наверное, сошли с ума / The Gods Must Be Crazy (1980) DVDRip
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068935.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068934.jpg" />
 </div>
 
 
@@ -164,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068933.jpg" />
 </div>
 
 
@@ -190,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068932.jpg" />
 </div>
 
 
@@ -217,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068931.jpg" />
 </div>
 
 
@@ -243,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068930.jpg" />
 </div>
 
 
@@ -269,7 +165,7 @@ InstallerClean Standart / Slim 1.8.1 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068929.jpg" />
 </div>
 
 
@@ -297,7 +193,7 @@ FileBricks 1.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068928.jpg" />
 </div>
 
 
@@ -325,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068926.jpg" />
 </div>
 
 
@@ -351,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068925.jpg" />
 </div>
 
 
@@ -377,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068924.jpg" />
 </div>
 
 
@@ -405,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068923.jpg" />
 </div>
 
 
@@ -433,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068922.jpg" />
 </div>
 
 
@@ -459,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068921.jpg" />
 </div>
 
 
@@ -485,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068920.jpg" />
 </div>
 
 
@@ -514,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068919.jpg" />
 </div>
 
 
@@ -543,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068918.jpg" />
 </div>
 
 
@@ -569,7 +465,7 @@ OTUS, Глеб Коробейников и др. | Разработка ядра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068917.jpg" />
 </div>
 
 
@@ -595,7 +491,7 @@ Telegram Desktop 6.8.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068916.jpg" />
 </div>
 
 
@@ -623,7 +519,7 @@ sfxPackager 3.7.7 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068915.jpg" />
 </div>
 
 
@@ -652,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068914.jpg" />
 </div>
 
 
@@ -678,7 +574,7 @@ Quick Access Popup 12.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068913.jpg" />
 </div>
 
 
@@ -691,6 +587,113 @@ Quick Access Popup — это небольшой инструмент для у�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098ACE559240350D5254D2C280A6C1779D4986DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870770   (1068912) от 
+
+Minimal Firewall 2.8.0 Portable [En]
+
+>>Безопасность
+>>Firewalls
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6EFAF51AD5DEA11FD84F96B6EDE97DB8C2EBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870771   (1068911) от 
+
+Почти смешная история (1977) DVBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068911.jpg" />
+</div>
+
+
+###  Подробнее
+
+История любви двух уже немолодых людей. Две сестры приезжают в маленький город на Волге отдохнуть. Одной - около пятидесяти, другая чуть моложе. Они знакомятся с самым обычным командировочным, который совершенно не понимает, что младшая из сестер, немного чудаковатая, влюбилась в него с первого взгляда.Производство: CCCP / Т.О. ЭкранЖанр: комедия, мелодрамаРежиссер: Петр ФоменкоАктеры: Ольга Антонова, Людмила Аринина, Михаил Глузский, Михаил Данилов, Мария Великанова, Владимир Пучков, Светлана Харитонова, Валентин Гафт, Людмила Полякова, Мария МироноваПродолжительность: 02:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E64E759D5D4AF7A93623BDA81C42DFAD350889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870444   (1068910) от 
+
+YouTube канал "NoMadU55555" - Музыкальные клипы (1936-2009) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "NoMadU55555" / UCWO9OCjghM_d8Q5MDKNK7oQ по состоянию на сентябрь 2020 года.
+
+Канал "NoMadU55555" был открыт в 2011 году, удалён 11 октября 2021 года.
+За 10 лет было опубликовано более 380 музыкальных видеоклипов, большую часть из которых удалось сохранить для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 21:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF7C52275029D3AFB96C832A4A21C6B567C6F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870765   (1068908) от 
+
+Бой со зверем / Beast (2026) WEB-DL [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068908.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгих лет вдали от октагона бывший чемпион MMA Пэттон Джеймс вынужден вернуться в большой спорт, чтобы отомстить за брата Мэлона. Воссоединившись с тренером Сэмми, который когда-то сделал его легендой, он решается на последний бой — жестокую схватку с действующим чемпионом Ксавьером Грау, готовым на глазах у всего мира уничтожить Стоуна. Доведённый до предела, (   Читать дальше...   )Производство: США / Broken Open Pictures, Storm Alley EntertainmentЖанр: боевик, драма, спортРежиссер: Тайлер ЭткинсАктеры: Дэниэл Макферсон, Рассел Кроу, Брен Фостер, Моджиан Ариа, Люк Хемсворт, Келли Гейл, Джордж Бёрджесс, Сафира Моран, Мэтью Нэйбл, Нэйтан ФиллипсПеревод: Дублированный (Ultradox Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (AI), Английские (SDH)Продолжительность: 01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB10DCFEE2ADD550D0A1548A04BAEFF68FE391D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

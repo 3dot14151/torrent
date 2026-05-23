@@ -6,7 +6,7 @@ Attribute Changer 11.20 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211389.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.27 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211388.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blackmagic Design Fusion Studio 18.5b Build 53 Public Beta 4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211382.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AVS Image Converter 5.6.1.324 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211377.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HitPaw Video Converter 3.0.1.4 (x64) RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211373.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211372.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Youtube Downloader HD 5.2.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211368.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1406) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211367.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wise Auto Shutdown 2.0.3.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211365.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows 10 Manager 3.8.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211355.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Optimizer 15.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211351.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Psiphon Pro  354 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211349.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Realtek Ethernet Driver 11.10.0720 / 10.62 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211343.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PDF Reader Pro Edition 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211339.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CyberLink PhotoDirector Ultra 14.0.1018.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211319.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Bat! Professional 10.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211315.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe XD 55.0.12.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211302.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Honeyview 5.50 Build 6187 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211297.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Skype 8.98.0.407 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211296.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Total Commander 10.52 MAX-Pack 2022.10.26 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211283.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ocenaudio 3.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211274.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ FurMark 1.31.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211268.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NVIDIA GeForce Desktop Game Ready 526.47 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211262.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Uninstall Tool 3.6.1 Build 5687 (DC 29.07.2022) RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211253.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ HWiNFO 7.47 Build 5135 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211252.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Ninho - Jefe (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211250.jpg" />
 </div>
 
 

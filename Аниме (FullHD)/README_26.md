@@ -6,7 +6,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657343.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656115.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654850.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Code Geass: Boukoku no Akito / Code Geass: Akito the Exiled / Изгнанник
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652950.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Appleseed | Яблочное зернышко [2004, Movie] BDRip 1080p HEVC 10-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652428.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Scarlet Nexus | SCARLET NEXUS: Красные нити | Алый Нексус [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650582.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650578.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650386.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Persona 5 the Animation (2018) | Персона 5 (спэшл 2) [2018, Special,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650253.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650223.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Jujutsu Kaisen | Магическая битва [2021, TV, 24 из 24] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650211.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Free! Eternal Summer / Вольный! Вечное лето [2014, TV, 13 + 1sp
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647386.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645360.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642723.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641900.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Asa made Jugyou Chu! / See Me After Class! / Дополнительные зан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640592.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Ooya-san wa Shishunki! / Хозяйка квартиры — подросток 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639878.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633435.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633298.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633236.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Судьба
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633170.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru | Лучший в ми�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633167.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633160.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bungaku Shoujo - Kyou no Oyatsu ~Hatsukoi~ / Book Girl / Книжная лако
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632450.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631851.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631699.jpg" />
 </div>
 
 

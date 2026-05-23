@@ -6,7 +6,7 @@ IncrediMail 2 Plus 6.39 Build 5245 Final RePack by uk10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132579.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maxthon Browser 7.1.7.8000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132547.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Paint.NET 5.0.12 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132544.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ qBittorrent 4.6.2 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132542.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VLC Media Player 2.0.6 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132537.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Redeemer Live DVD v.12.1212.46 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132482.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ uTorrent Pack 1.2.3.79 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132465.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Stickies 7.1e [English/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132457.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Malwarebytes Anti-Malware 1.70.0.1100 Final [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132446.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Digital Anarchy: Beauty Box Video for AE & Premiere (Windows) 2.0.4 [Англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132437.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Uninstall Tool 3.2.2 Build 5289 Final Repack (& Portable) by D!akov [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132432.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Toddler Keys 0.97 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132431.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Boot CD USB Sergei Strelec 2013 v.1.1 (2012) (Pусский + Aнглийски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132415.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Malwarebytes Anti-Malware 1.70.0.1100 Final Portable by T_BAG [Eng(Rus)] (x86/x6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132403.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ ACDSee Photo Manager 15.1 Build 197 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132392.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ NIUBI Partition Editor 9.9.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132380.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ PortableApps.com Platform 27.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132374.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Revo Uninstaller Pro 5.2.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132366.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Macrorit Partition Expert 8.1.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132364.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VirtualDub 1.10.3 Final Portable by SamLab [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132358.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ NIUBI Partition Editor 9.9.0 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132340.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Topaz Photo AI 2.1.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132337.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ K-Lite Codec Pack Update 17.9.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132336.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ OCCT 12.1.12 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132322.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Topaz Video AI 4.0.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132311.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ CyberLink PowerDirector Ultimate 22.0.2323.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132271.jpg" />
 </div>
 
 

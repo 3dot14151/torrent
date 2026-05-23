@@ -1,58 +1,3 @@
-###  Публикация: 451396   (75765) от 12.02.2012
-
-Телохранитель / The Bodyguard (1992) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в США приблизительно в 1990-1991 году.
-Известная певица Рейчел Мэррон нанимает телохранителя Фрэнка Фармера. Певица, пользующаюся большой популярностью подозревает, что её преследует маньяк. Фрэнк, настоящий профессионал в своём деле, сталкивается с обычной дилеммой он должен быть близок к охраняемому объекту, но при этом не вмешиваться в личную (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, мелодрама, музыкаРежиссер: Мик ДжексонАктеры: Уитни Хьюстон, Кевин Костнер, Гэри Кемп , Билл Коббс , Ралф Уэйт , Де Вон НиксонПеревод: Профессиональный (дублированный - VARUS-Video )Субтитры: ОтсутствуютФормат: AVIПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A3D5A5E558DE4561025B62DE828965B2F82D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450660   (75676) от 12.02.2012
-
-Мешки для трупов / Body Bags (1993) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм мастеров жанра (Джона Карпентера и Тоуба Хупера) состоит их трех историй ("Заправка", "Волосы" и "Глаз"), которых объединяет одно - СМЕРТЬ.
-
-ВЖанр: Ужасы, ТриллерРежиссер: Джон Карпентер / John Carpenter, Тоуб Хупер / Tobe HooperАктеры: Джон Карпентер, Уэс Крейвон, Том Арнольд, Тоуб ХуперПеревод: Многоголосый синхронный + Три авторских(Горчаков, Дохалов, Пронин)Продолжительность: 01:28:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450430   (75606) от 11.02.2012
 
 Мушкетеры / The Three Musketeers (2011) HDRip
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75606.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75591.jpg" />
 </div>
 
 
@@ -114,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75576.jpg" />
 </div>
 
 
@@ -140,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75562.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75561.jpg" />
 </div>
 
 
@@ -199,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75558.jpg" />
 </div>
 
 
@@ -225,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75508.jpg" />
 </div>
 
 
@@ -253,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75493.jpg" />
 </div>
 
 
@@ -279,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75381.jpg" />
 </div>
 
 
@@ -307,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75375.jpg" />
 </div>
 
 
@@ -335,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75338.jpg" />
 </div>
 
 
@@ -362,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75334.jpg" />
 </div>
 
 
@@ -388,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75331.jpg" />
 </div>
 
 
@@ -414,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75251.jpg" />
 </div>
 
 
@@ -442,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75181.jpg" />
 </div>
 
 
@@ -468,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75147.jpg" />
 </div>
 
 
@@ -496,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75107.jpg" />
 </div>
 
 
@@ -524,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74996.jpg" />
 </div>
 
 
@@ -550,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74955.jpg" />
 </div>
 
 
@@ -576,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74950.jpg" />
 </div>
 
 
@@ -602,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74903.jpg" />
 </div>
 
 
@@ -628,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74887.jpg" />
 </div>
 
 
@@ -654,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74882.jpg" />
 </div>
 
 
@@ -680,13 +625,67 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74754.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Искусный и быстрый, как молния, мастер восточных боевых искусств Чен Жен возвращается в свою бывшую школу, где его ждет страшная новость. Зверски убит глубоко почитаемый наставник, преподававший кунг-фу и карате. Действие фильма происходит в 1908 году в оккупированном японцами Шанхае. Нападение на школу и убийство учителя было организовано одной из японских школ (   Читать дальше...   )Производство: Гонконг / Golden Harvest CompanyЖанр: Боевик, Триллер, Драма, МелодрамаРежиссер: Ло ВэйАктеры: Брюс Ли, Нора Миао, Джеймс Тьен, Мария Йи, Роберт Бейкер, Фу Чинг Чен, Сань Чинь, Инь-Чиэ Хань, Рики Хашимото, Дзюн Кацумура, Чун Синь Хуан, Куин Ли, Фенг ТиенПеревод: Авторский одноголосый (В. Горчаков)Субтитры: Russian, EnglishПродолжительность: 01:46:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448251   (74747) от 07.02.2012
+
+Осатаневшая / Kim Bok-nam salinsageonui jeonmal (2010) DVD9
+
+>>Зарубежное кино
+>>Азиатское кино (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хэй-Вон — красивая тридцатилетняя женщина, которая работает в одном из банков Сеула. Она ведет успешную жизнь делового человека, пока не становится свидетельницей покушения на убийство, что серьезно осложняет ее жизнь. Когда все валится из рук, она решает отправиться в отпуск на уединенный остров. Однажды здесь она навещала своих родственников и подружилась с девушкой (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Джан ЧхольсуАктеры: Со Ён Хи, Сон-вон Чи, Мин-хо Хванг, Джонг-хак ПаркПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:55:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448275   (74704) от 07.02.2012
+
+Белфегор - призрак Лувра / Belphegor - Le fantome du Louvre (2001) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента поставлена по книге писателя Артура Бернеда, прославившегося тем, что он писал небольшие мистико-детективные истории.
+На заре нового тысячелетия мумия, обладающая злыми силами, порождает демона по имени Белфегор, который разгуливает по Лувру по ночам. Мониторы взрываются, камеры видеонаблюдения сходят с ума, сигнализации не срабатывают, а египетские древности (   Читать дальше...   )Жанр: Ужасы, Мистика, ДетективРежиссер: Жан-Поль СаломеАктеры: Софи Марсо, Мишель Серро, Фредерик Дифенталь, Джули Кристи, Жан-Франсуа Балмер, Паташу, Лионель Абелански, Франсуа Леванталь, Жак МарсальПеревод: 1 - Профессиональный (дублированный)
+2 - Авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 01:36:34
 
 ## Скачать торент
 ```bash

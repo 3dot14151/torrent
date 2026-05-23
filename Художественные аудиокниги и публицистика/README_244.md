@@ -1,81 +1,3 @@
-###  Публикация: 1497099   (868022) от 20.09.2021
-
-Михаил Булгаков | Зойкина квартира (2021) [MP3, Игорь Тарадайкин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Зойка Пельц организует в своей квартире под видом швейного ателье самый настоящий публичный дом, где обслуживают богатых нэпманов, крупных администраторов и партийных работников средней руки. Ей помогает авантюрист Аметистов, и некоторое время всё идёт гладко, пока в одну из «работниц» не влюбляется молодой китаец-головорез, связанный с наркомафией.Жанр: Русская классикаПродолжительность: 03:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F625511D6349ABCAE48F6B4313B52973AC1F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497102   (868020) от 20.09.2021
-
-Александр Верт | «Пекло» Книга 1. Пекло (2021) [MP3, Григорий Андрианов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Пекло – планета-тюрьма для мужчин. Здесь объединяются в кланы, сражаются за ресурсы, выживают как могут и делают вид, что в этом есть какой-то смысл, пока безжалостное Пекло превращает их в настоящих чудовищ, но все изменилось, как только на планете появилась женщина. Она хотела спасти любимого и сбежать, а стала главной ценностью, причиной войны и возлюбленной убийцы.Жанр: Любовно-фантастические романы, Социальная фантастикаПродолжительность: 07:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47916E21D7D9373623099B816E296B5D1ECA1815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107184   (867988) от 22.02.2017
-
-Джозеф Силк | Большой взрыв: Рождение и эволюция вселенной (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга известного американского астрофизика Джозефа Силка рассказывает о развитии и современном состоянии космологии. Проблемы происхождения и строения окружающего мира интересовали человека с давних времен. Но только в наши дни ученые, вооруженные результатами иовейших астрономических открытий, смогли построить научно обоснованную, хотя и не окончательную теорию (   Читать дальше...   )Жанр: научно-познавательная литератураПродолжительность: 14:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FBA32F00F534C71930506F981CE769C12E9683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497024   (867906) от 20.09.2021
 
 Виктор Алдышев | Корпорация «Здоровье» (Книга 2). Корпорация «Здоровье» - 2 (2021) [MP3, Григорий Метелица]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867906.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867900.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867895.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867864.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867862.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867776.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867696.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867341.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867271.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867103.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867084.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867027.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866846.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866797.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866688.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866687.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866606.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866594.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866587.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866583.jpg" />
 </div>
 
 
@@ -616,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866579.jpg" />
 </div>
 
 
@@ -642,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866466.jpg" />
 </div>
 
 
@@ -668,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866355.jpg" />
 </div>
 
 
@@ -679,6 +601,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D4E0E98F0B8B5D8C25171D5E452788DAE44473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107509   (866354) от 23.02.2017
+
+Владимир Короткевич | Черный замок Ольшанский (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866354.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Черный замок Ольшанский. Месяц ныряет в тучах. Башни во мраке туманные видят сны о былом дремучем...»
+Историк и писатель Антон Космич пытается раскрыть тайну старинного пергамента, рассказывающего о спрятанных в подземелье Ольшанского замка сокровищах. Но эти сокровища ищут и другие.Жанр: Современная прозаПродолжительность: 17:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C31B18FB9343A5DC21B61D0E02BADE65D41212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497232   (866345) от 21.09.2021
+
+Орсон Скотт Кард | "Сага о Вортинге" Книга 1. Хроники Вортинга (2021) [MP3, Сергей Оробчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это - хроники времени, когда наука подарила людям бессмертие - и дар бесконечной жизни оказался проклятием. Потому что жизнь без риска, без опасности, без конца - суть жизнь, лишенная смысла. Это - хроники времени, когда человечество лишилось будущего - казалось бы, навсегда.
+Однако в мир пришел НОВЫЙ ЛИДЕР. Лидер, готовый принести человечеству НОВЫЙ СМЫСЛ ЖИЗНИ. (   Читать дальше...   )Жанр: Фантастика, Зарубежные приключенияПродолжительность: 10:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EBD96D84761486D96DB2045DD3F3350FFEFCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497191   (866343) от 21.09.2021
+
+Сергей Куц | Земля 2252 (Книга 2). Земля 2252. Инкорпорация (2021) [MP3, Сергей Ермилов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брат и сестра Андрей и Евгения Ливадовы перенесены из двадцать первого века в двадцать третий, эпоху постапокалипсиса. После Третьей мировой войны и Судного дня Земля разделена между тремя огромными корпорациями, заменившими прежние правительства государств, которых больше нет. Чтобы выжить, чтобы вырвать у жестокого мира шанс найти друг друга и вернуться в прошлое, (   Читать дальше...   )Жанр: Боевая фантастика, попаданцыПродолжительность: 10:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CADBD448CA484FFC60B66D571959137ABA00B1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

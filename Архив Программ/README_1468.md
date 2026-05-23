@@ -6,7 +6,7 @@ R-Studio 8.12 Build 175481 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290836.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Iobit Start Menu 8 4.5.0.1 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290824.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blackmagic Design DaVinci Resolve Studio 15.2.0.33 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290822.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290805.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Microsoft Office Professional 2003 SP3 (2018.11) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290802.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AI Roboform Enterprise 7.9.31.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290772.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Bandicam 4.0.2.1352 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290761.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Bandicam 4.0.2.1352 RePack (& portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290759.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PotPlayer 1.7.20977 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290721.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6798.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290694.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6798.5000 (2018.11) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290691.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Advanced SystemCare Pro 11.0.3.188 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290637.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WonderFox DVD Video Converter 8.7 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290603.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MiniTool Power Data Recovery 8.6 Business Technician RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290597.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Daum PotPlayer 1.7.20977 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290590.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Blackmagic Design DaVinci Resolve Studio 16.1.1.005 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290587.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Punto Switcher 4.1.1 Build 479 Final RePack by elchupacabra (05.12.2015) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290557.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ O&O ShutUp10 1.2.1353 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290546.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ WonderFox HD Video Converter Factory Pro 9.3 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290543.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ uTorrent 3.5.5 Build 45395 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290535.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Phase One Capture One Pro 12.1.4.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290533.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ CrystalDiskMark 7.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290530.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Screaming Frog SEO Spider 12.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290523.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290483.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ABViewer Enterprise 11.0.0.16 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290462.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Adobe Media Encoder CC 2015.1 (9.1.0.163) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290443.jpg" />
 </div>
 
 

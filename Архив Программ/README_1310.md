@@ -6,7 +6,7 @@ Advanced Renamer 3.87 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ W10Privacy 2.5.1.1  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371455.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WinToHDD 4.5 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371438.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AOMEI Backupper Pro 6.1.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371427.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ashampoo Snap 11.1.0 RePack (&Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371426.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Visual C++ 14.28.29325.2 Runtimes AIO (x86-x64) Repack by @ricktendo64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371423.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CPU-Z 1.94.0 Portable by ALEX [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371421.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Ashampoo Driver Updater 1.3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371389.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BurnAware Free 5.4 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_371369.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371359.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tor Browser Bundle 7.0.7 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371349.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Topaz Studio 2.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371324.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AVG PC TuneUp 20.1 Build 2106 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371321.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Flash Player 32.0.0.445 (Adobe Runtimes AllInOne 13.10.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371312.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Stellarium 0.90.0.8803 TEST  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371305.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Light Alloy 4.10.3 Build 3320 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371300.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371215.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371211.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371205.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ IObit Driver Booster Pro 8.0.2.210 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371199.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Rufus 3.12 (Build 1710) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371181.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Balabolka 2.11.0.612 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371153.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sisulizer 3 Enterprise Edition 3.0 Build 336 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_371131.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BurnAware Professional 5.4 Final RePack (& Portable) by KpoJIuK [MULTi / Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_371119.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ HWiNFO32-64 5.39-3020 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371081.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Driver Magician 4.82 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371079.jpg" />
 </div>
 
 

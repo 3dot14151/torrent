@@ -6,7 +6,7 @@ Acon Digital - Mastering Suite 1.0.2 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345496.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cent Browser 3.6.8.94 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345495.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GPU-Z 2.14.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345493.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BWMeter 7.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345488.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cent Browser 3.6.8.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345483.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ableton - Live Suite 10.1.2 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345457.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TweakPower 1.075 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345450.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Opera 64.0.3417.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345449.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MAGIX Sound Forge Pro Suite 13.0 Build 124 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345442.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WhatsApp 2.2234.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345399.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Cyberfox 50.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345395.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Smart Driver Manager Pro 6.1.798 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345392.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 Manager 3.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345390.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ O&O Defrag Professional 26.0 Build 7641 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345370.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ShareX 11.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345365.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MyPhoneExplorer 2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345364.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Complete Internet Repair 5.2.3.4005 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345352.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ System Ninja 3.2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345347.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Skype 8.53.0.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345301.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ XLN Audio - Addictive Keys Complete 1.1.8 STANDALONE, VSTi, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345297.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ GOM Audio 2.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345275.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Movavi Video Suite 20.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345261.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345249.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Speccy 1.30.728 Professional | Technician Edition RePack (& Portable) by D!akov 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345203.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MKVToolNix 28.2.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345202.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ PDF-XChange Editor Plus 7.0.327.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345196.jpg" />
 </div>
 
 

@@ -1,56 +1,3 @@
-###  Публикация: 507296   (754714) от 06.02.2019
-
-Планета обезьян / Planet of the Apes (2001) Blu-ray [MPEG-2/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-2029 год. На гигантской космической станции астронавт Лео Дэвидсон обучает обезьян управлять летательными аппаратами. Неожиданно один из его учеников теряет контроль над космолетом и его уносит в еще не изученную область пространственно-временных туннелей.
-Не раздумывая ни секунды, Лео бросается на выручку шимпанзе, но его постигает та же участь. Пройдя сквозь туннель, (   Читать дальше...   )Производство: США / Twentieth Century Fox Film Corporation, The Zanuck Company, Tim Burton ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Тим БёртонАктеры: Марк Уолберг, Тим Рот, Хелена Бонем Картер, Майкл Кларк Дункан, Пол Джаматти, Эстелла Уоррен, Кэри-Хироюки Тагава, Дэвид Уорнер, Крис Кристофферсон, Эрик АвариПеревод: Профессиональный дублированныйСубтитры: Английский, Болгарский, Китайский, Хорватский, Чешский, Иврит, Венгерский, Исландский, Корейский, Польский, Португальский, Румынский, Русский, Словенский, Испанский, Тайский, ТурецкийПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDBFFB1BB31C998091A01E736CED702B0BAE31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281192   (754695) от 06.02.2019
-
-Титан / The Titan (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Американский военный Рик принимает участие в грандиозной космической программе. Лучшие умы планеты пытаются создать сверхлюдей, которые после гибели Земли обеспечат продолжение существования человечества на планете Титан. Однако эксперимент над генами приводит к совершенно непредсказуемым последствиям.Производство: Великобритания, Испания, США, ГерманияЖанр: Фантастика, триллерРежиссер: Леннарт РаффАктеры: Сэм Уортингтон, Тейлор Шиллинг, Том Уилкинсон, Агнесс Дейн, Натали Эммануэль, Кори Джонсон, Александр Йованович, Аарон Хеффернан, Натали Поса, Стивен КриПеревод: Дублированный (iTunes)Субтитры: Русские (полные + форс.)Продолжительность: 01:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3A24602F6D866E602871A6417DFB2F0495C7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281032   (754689) от 06.02.2019
 
 Собачьи дни / Dog Days (2018) BDRip [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754689.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754670.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754661.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754660.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754659.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754657.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754653.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754627.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754524.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754523.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754514.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754481.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754469.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754378.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754373.jpg" />
 </div>
 
 
@@ -450,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754358.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754275.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754267.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754266.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754263.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754177.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754176.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754175.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754174.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DAB287D590E37ACADD17AB6E7F7CBF47DBDBD90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215907   (754172) от 28.03.2018
+
+Бюро человечества / The Humanity Bureau (2017) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754172.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отдалённом будущем американское правительство утвердило секретную программу, по которой бедных, необразованных и неугодных стране людей сначала высылают в колонию, а затем уничтожают. Одно из таких дел попадает в руки агента. Проникшись симпатией к матери-одиночке с сыном, он решает помочь им бежать.Производство: Канада / Bridgegate Pictures, Minds Eye Entertainment, VMI WorldwideЖанр: Фантастика, боевикРежиссер: Роб В. КингАктеры: Николас Кейдж, Сара Линд, Хью Диллон, Виселос Реон Шеннон, Джейкоб Дейвис, Лорни Кардинал, Джетт Клине, Дэвид Ловгрен, Лео Фафард, Курт Макс РунтеПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: АнглийскиеПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A03ADA25F168A8B5DAD4089BBBCD8EF9EC68A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215776   (754170) от 28.03.2018
+
+10 на 10 / 10x10 (2018) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек средь бела дня очень дерзко похищает девушку прямо с городской улицы. Предварительно у себя дома он соорудил звукоизолированную коробку размером десять на десять футов, куда и поместил свою пленницу. На это ужасное и безумное действие, как оказывается, его толкает чувство неудовлетворенной мести, а девушка, оказавшаяся в ловушке, не является невинной (   Читать дальше...   )Производство: Великобритания / Broadlane FilmsЖанр: триллерРежиссер: Сьюзи ЮингАктеры: Люк Эванс, Келли Райлли, Ноэль Кларк, Оливия Ченери, Руби Бустаманте, Джейсон Мацца, Джилл Винтерниц, Скай Люсия Дегруттола, Джексон КайПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: отсутствуютПродолжительность: 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550C33A8D5004FC06E2F631FEE4417FC4133E4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ TweakPower 2.025 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354644.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Assassin's Creed III/3 [Ru] (Rip/1.01) 2012 l ShTeCvV
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354639.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Reg Organizer 6.0 Beta 2 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354638.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Advanced Tokens Manager 3.5 RC 2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354635.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Intel Chipset Software Installation Utility 9.3.0.1026 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354633.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ MSI Afterburner v2.3.0 Final [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354630.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.4) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354629.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Assassin's Creed 3 [Ru] (Rip) 2012 l R.G. REVOLUTiON
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354624.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354614.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ TERRITOIRE - Alix (2018) Humo [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Techn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354596.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Ambient Lounge 1 (2000) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354590.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ L'Orange & Jeremiah Jae - Complicate Your Life With Violence (2019) [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354587.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Ossia - Devil's Dance (2019) Blackest Ever Black [FLAC 2.0|44.1/24|tracks|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354586.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Phineus II - Meridian Response (2019) [MP3|320 Kbps] <Drum'n'bass, Jungle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354584.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BusyContacts 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354572.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ iCollections 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354569.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354565.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Amadeus Pro 2.5.0 (2051) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354564.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ BusyCal 3 v3.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354558.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ GraphicConverter 10 v10.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354554.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - A State Of Trance Radio Top 20 - November/December (2016) [MP3|320 Kbps] <T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354552.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Alternate File Shredder 2.040 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354547.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Soft4Boost Document Converter 4.6.5.439 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354542.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ TagScanner 6.0.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354534.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354506.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Run-Command 5.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354501.jpg" />
 </div>
 
 

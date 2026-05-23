@@ -6,7 +6,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035448.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033542.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033112.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032489.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shironeko Project: Zero Chronicle | White Cat Project | Проект «Бела�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031831.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Zuihou De Zhaohuan Shi | The Last Summoner | Последний призыват
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031315.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Boruto: Naruto Next Generations | Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030620.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kumo no You ni Kaze no You ni | Like the Clouds, Like the Wind | Словно о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030465.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ACCA 13-ku Kansatsu-ka: Regards | АККА: Инспекция по 13 окру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030017.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029732.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Shoujo Kageki Revue Starlight | Revue Starlight | Девичья опера: С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029534.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029037.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kingdom 2 | Царство 2 [2013, TV, 39 из 39] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028701.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kingdom | Царство [2012, TV, 38 из 38] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028684.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 + SP] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028683.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Jitsu wa Watashi wa | Actually, I Am... | По правде говоря, я... 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028350.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Amaama to Inazuma | Sweetness and Lightning | Сласти и молния [2016
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027671.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Monster Musume no Oisha-san | Monster Girl Doctor | Доктор для деву
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027319.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Ayu Mayu Gekijou | Театр Аю и Маю [2006, OVA, 4 + 3 SP] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027242.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027231.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, Web, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027205.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026422.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026191.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Fight Ippatsu! Juuden-chan!! | С первого удара заряжай-ка!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025762.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Ninja Senshi Tobikage | Ninja Robot Tobikage | Ниндзя-воин Тобик�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025700.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025465.jpg" />
 </div>
 
 

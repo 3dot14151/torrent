@@ -1,55 +1,3 @@
-###  Публикация: 819332   (535335) от 06.09.2014
-
-Миллион способов потерять голову / A Million Ways to Die in the West (2014) BDRemux [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Угораздило же влюбиться не в том месте и не в то время. Здесь хамят в ресторанах, о горячей воде слагают легенды, да и с транспортом полный коллапс. Но у таинственной незнакомки отменная фигура, да и стреляет она без промаха. Кто же по своей воле откажется от такой красотки?Производство: США / Bluegrass Films, Fuzzy Door ProductionsЖанр: Комедия, вестернРежиссер: Сет МакФарлейн / Seth MacFarlaneАктеры: Сет МакФарлейн, Шарлиз Терон, Аманда Сайфред, Лиам Нисон, Джованни Рибизи, Нил Патрик Харрис, Сара Силверман, Кристофер Хэйген, Уэс Стьюди, Мэтт КларкПеревод: Дублированный, Многоголосый закадровый (профессиональный)Язык субтитров: Русский, украинский, английский (forced, full, SDH, commentary)Продолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FF4E0A195BB09142B5DBEBDA4992A948E2AEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819299   (535325) от 06.09.2014
-
-Миллион способов потерять голову / A Million Ways to Die in the West (2014) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Угораздило же влюбиться не в том месте и не в то время. Здесь хамят в ресторанах, о горячей воде слагают легенды, да и с транспортом полный коллапс. Но у таинственной незнакомки отменная фигура, да и стреляет она без промаха. Кто же по своей воле откажется от такой красотки?Производство: США / Bluegrass Films, Fuzzy Door Productions, RGB MediaЖанр: Комедия, ВестернРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Шарлиз Терон, Аманда Сайфред, Лиам Нисон, Джованни Рибизи, Нил Патрик Харрис, Сара Силверман, Кристофер Хэйген, Уэс Стьюди, Мэтт КларкПеревод: Дублированный (Лицензия)Субтитры: Отдельным файломЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC58C6CA60BEB6BE8C6A990020702DF1BC76D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926356   (535280) от 09.08.2015
 
 И был вечер, и было утро / E fu sera e fu mattina (2014) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535280.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535236.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535163.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535124.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535123.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535121.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535116.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535111.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535077.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535072.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535063.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535041.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534981.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534978.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534976.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534905.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534904.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534872.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534862.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534860.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534843.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534840.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534829.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534828.jpg" />
 </div>
 
 
@@ -671,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E29455ACFF9C288ADD854594F0FD5317CD4038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926127   (534826) от 09.08.2015
+
+Викинг: Берсерки / Viking: The Berserkers (2014) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Викинг: Берсерки» повествует о племени викингов которые использовали пленных для принесения в жертву.
+В далекие и темные времена первородной Британии, несколько молодых саксонцев попадают в плен к племени воинствующих викингов. Теперь у них только одна задача, что-бы остаться в живых, им нужно немедля бежать из плена. Традиции этого племени викингов требуют (   Читать дальше...   )Производство: Великобритания / Lindisfarne SPV1Жанр: боевикРежиссер: Энтони СмитАктеры: Сол Ерас, Саймон Армстронг, Энтони Бэйнс, Кезия Берроуз, Ник Корнуолл, Гарри Фелтэм, Фредди Хатчинс, Джейсон Мэй, Ребекка Морган, Эмбер Джин РоуэнПеревод: любительский (одноголосый закадровый)Озвучка / Автор перевода: Хихикающий ДокторСубтитры: отсутствуютПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FE9496269B13CA3AA1975DB000B3BA9D1B8F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239821   (534762) от 07.08.2018
+
+Регистратор (2018) SATRip
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень по имени Ержан устраивается на работу водителем богатого, но очень мелочного и щепетильного бизнесмена. С первых минут знакомства начальник Ержана всеми своими действиями и словами показывает, что автомобиль класса "люкс" очень дорог ему. Он бережно относится к каждой детали этой машины. В первый же день работы шеф Ержана, улетая в другой (   Читать дальше...   )Производство: Казахстан / MAKE FilmsЖанр: КомедияРежиссер: Мейирхан ШерниязовАктеры: Мейирхан Шерниязов, Мейржан Туребаев, Медет Аманбаев, Абунасыр Сериков, Бауыржан Нурымов, Едил Анарбай, Наргиза Бегимбетова-Рахимбекова, Улжалгас Чемирбаева, Даулет НуразханПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46763DA184B8BA5E8E8E1473B3C23DFAEA1E24AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 932298   (508805) от 29.08.2015
-
-SDL Passolo Professional 2015 SP1 15.1.316.0 [Ru/En]
-
->>След.
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новая версия SDL Passolo, самого дорогостоящего и самого мощного шаблонного редактора ресурсов — SDL Passolo 2015 SP1 v15.1.316.0. Без него не обойтись ни одному пользователю, который серьёзно занимается или собирается заняться локализацией программ. SDL Passolo – это ультрасовременная технология локализации, доказанная практикой простота применения на всех основных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032D3B16185C5B47B85F4F384584252B11F882D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933541   (504076) от 03.09.2015
 
 SoMachine 4.1 SP1.2 [Multi]
@@ -32,7 +6,7 @@ SoMachine 4.1 SP1.2 [Multi]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504076.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Turbo Pascal for Windows 1.5 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475556.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Microsoft .NET Framework 4.8.1 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454913.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ EMCO MSI Package Builder Enterprise 5.2.9.3741 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439553.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Java SE Development Kit 18.0.2.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438053.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ Sybase PowerDesigner 16.5.0.3982 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437294.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Pascal ABC.NET 1.8 build 496 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_410951.jpg" />
 </div>
 
 
@@ -222,7 +196,7 @@ NVIDIA Nsight Visual Studio Edition 2.2.0.12255 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396696.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ IDA Pro 7.0 2017 Incl. Hex-Rays Decompilers [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371225.jpg" />
 </div>
 
 
@@ -277,7 +251,7 @@ DevelNext 16.7.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313789.jpg" />
 </div>
 
 
@@ -304,7 +278,7 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23506 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294287.jpg" />
 </div>
 
 
@@ -330,7 +304,7 @@ JetBrains GoLand 2019.2.5 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267884.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ Intel Parallel Studio XE Cluster Edition 2019 Update 1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265571.jpg" />
 </div>
 
 
@@ -382,7 +356,7 @@ SQL Dynamite 2.5.3.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261659.jpg" />
 </div>
 
 
@@ -408,7 +382,7 @@ Microsoft  Visual C++ Runtimes AIO v0.103.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261546.jpg" />
 </div>
 
 
@@ -434,7 +408,7 @@ JetBrains dotUltimate 2025.2.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261331.jpg" />
 </div>
 
 
@@ -463,7 +437,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259851.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259840.jpg" />
 </div>
 
 
@@ -515,7 +489,7 @@ Microsoft Visual Studio 2026 Professional 18.0.0 [11205.157] (Offline Cache) [Ru
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256804.jpg" />
 </div>
 
 
@@ -541,7 +515,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.0 [11205.157] (Offline Cache) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256803.jpg" />
 </div>
 
 
@@ -567,7 +541,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255903.jpg" />
 </div>
 
 
@@ -593,7 +567,7 @@ Microsoft Visual Studio 2022 Professional 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255902.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ JetBrains Rider 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255363.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ JetBrains WebStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255362.jpg" />
 </div>
 
 
@@ -673,7 +647,7 @@ JetBrains PhpStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255358.jpg" />
 </div>
 
 
@@ -686,6 +660,32 @@ PhpStorm – это интегрированная среда разработк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCE77101FA0ED69371DFD8D6832F81AB19A035A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625419   (255355) от 09.04.2023
+
+Jetbrains IntelliJ IDEA Ultimate 2023.1 [En]
+
+>>След.
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255355.jpg" />
+</div>
+
+
+###  Подробнее
+
+IntelliJ IDEA — самая умная среда разработки для Java и других языков, включающая поддержку всех последних технологий и фреймворков, идеально подходящая для создания коммерческих, веб- и мобильных приложений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2609143C6973FB218BE46267D41F6D36CDCFD71
 ```
 
 https://mybot314.ru/tekegram_catalog/

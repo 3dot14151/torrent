@@ -6,7 +6,7 @@ AOMEI Partition Assistant Technician Edition 10.9.0 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2531.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics SSD Optimizer 2.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2403.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniTool Partition Wizard All Editions 13.0 RePack (& Portable) by Dodakaedr [Mu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2386.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2373.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MiniTool Partition Wizard 13.0 All Editions [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2364.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Auslogics Disk Defrag Pro 12.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2331.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MemTest86 Pro 11.5 Build 1000  RePack by Lity + ISO [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2209.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MiniTool Partition Wizard Technician 13.0 RePack (& Portable) by elchupacabra [M
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2090.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2089.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 (16.09.20
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1741.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1698.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ O&O Defrag Professional 30.0 Build 1053 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1029.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ O&O Defrag Professional 30.0 Build 1056 [En/De]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_811.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ O&O Defrag Professional + Server 30.0 Build 1056 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_310.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ IsMyHdOK 4.44 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97.jpg" />
 </div>
 
 

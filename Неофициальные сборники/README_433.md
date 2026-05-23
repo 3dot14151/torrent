@@ -1,38 +1,3 @@
-###  Публикация: 551595   (451414) от 25.09.2012
-
-VA - XXXL Включи Хиты. Зарубежный (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Gorchitza - Music Is Everything
-002. Cristina Vasiu - Love Me (Radio Edit)
-003. Lady GaGa - The edge of glory (Cahill radio edit)
-004. Paul van Dyk feat. Austin Leeds - Verano (Original edit)
-005. Luengo & Diaz feat. Tommy Clint - Adrenalized (De-Liver Edit)
-006. Jay Sean - Im All Yours
-007. Klaas & Bodybangers - I Like (Bodybangers Mix Edit)
-008. Pitbull - Back In Time (Play-N-Skillz Remix)
-009. Christopher S feat. Max Urban - Star (Radio Edit)
-010. Daddy Yankee feat. Don Omar - Lovumba (Official Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 06:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD784E0DBBBB49FBE8F3CE102302210525EF8D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247565   (451382) от 16.09.2018
 
 VA - Papeete Weekend (2018) [MP3|320 Kbps] <Pop, House, Trance>
@@ -41,7 +6,7 @@ VA - Papeete Weekend (2018) [MP3|320 Kbps] <Pop, House, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451382.jpg" />
 </div>
 
 
@@ -70,7 +35,7 @@ VA - 100 Популярных хитов: Золото Шансона (2015) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451356.jpg" />
 </div>
 
 
@@ -99,7 +64,7 @@ VA - Hot Sex Songs (2022) [MP3|320 Kbps] <Pop, House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451332.jpg" />
 </div>
 
 
@@ -128,7 +93,7 @@ VA - Lullaby For The Sun (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Bal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451279.jpg" />
 </div>
 
 
@@ -157,7 +122,7 @@ VA - Автозвук Осень Зарубежный (2012) [MP3|160-256 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451268.jpg" />
 </div>
 
 
@@ -192,7 +157,7 @@ Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451188.jpg" />
 </div>
 
 
@@ -221,7 +186,7 @@ VA - Hits of My Soul Vol. 59 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451138.jpg" />
 </div>
 
 
@@ -250,7 +215,7 @@ VA - 100% Hits! Forward Now Remixes (2016) [MP3|320 Kbps] <House, Future House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450992.jpg" />
 </div>
 
 
@@ -279,7 +244,7 @@ VA - К чёрту любовь. Суперсборник хитов (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450984.jpg" />
 </div>
 
 
@@ -308,7 +273,7 @@ VA - XXXL Клубничка MTV №30 50/50 (2012) [MP3|256 кб/с]<Pop, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450952.jpg" />
 </div>
 
 
@@ -343,7 +308,7 @@ VA - ЕвроХит Топ 40 Europa Plus 14.09.2018 (2018) [MP3|320 Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450931.jpg" />
 </div>
 
 
@@ -372,7 +337,7 @@ VA - Deep Sleep: music for sleeping (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450785.jpg" />
 </div>
 
 
@@ -401,7 +366,7 @@ VA - Absolute Erotic Music (2012) [MP3|320 кб/с]<SexPop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450724.jpg" />
 </div>
 
 
@@ -436,7 +401,7 @@ VA - Drum City Sound Party (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep, Bass E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450637.jpg" />
 </div>
 
 
@@ -465,7 +430,7 @@ VA - Романтика Шансона: Осенняя Лирика (2016) [MP3|
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450619.jpg" />
 </div>
 
 
@@ -494,7 +459,7 @@ VA - 80s Respect Magic Liberty (2016) [MP3|128-320 Kbps] <Electro Pop, Eurodance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450618.jpg" />
 </div>
 
 
@@ -523,7 +488,7 @@ VA - Зайцев.нет. Осенний топ №8 (2016) [MP3|256~320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450611.jpg" />
 </div>
 
 
@@ -552,7 +517,7 @@ Dj Parafich - Pumping Romantica (2012) [MP3|192 кб/с]<Pumping House, Hard Bas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450582.jpg" />
 </div>
 
 
@@ -587,7 +552,7 @@ Instrumental Core - The New Era (2012) [MP3|320 кб/с]<Dubstep, Instrumental, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450577.jpg" />
 </div>
 
 
@@ -622,7 +587,7 @@ VA - Летняя свежая 30-тка 3 (2019) [MP3|320 Kbps] <Pop, Dance, Ot
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450510.jpg" />
 </div>
 
 
@@ -651,7 +616,7 @@ Demis Roussos - Hits (2016) Presents: Elgujakviso [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450493.jpg" />
 </div>
 
 
@@ -680,7 +645,7 @@ VA - Самые Горячие Хиты Авторадио 50/50 (2012) [MP3|224
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450423.jpg" />
 </div>
 
 
@@ -715,7 +680,7 @@ VA - The Official UK Top 40 Singles Chart (01-09-2017) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450344.jpg" />
 </div>
 
 
@@ -745,7 +710,7 @@ VA - Bass Killer 13 (2017) [MP3|320 Kbps] <Big Room, Dubstep, Electro House, Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450232.jpg" />
 </div>
 
 
@@ -774,7 +739,7 @@ VA - Italo Disco Collection Vol.4 (2017) [MP3|320 Kbps] <Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450217.jpg" />
 </div>
 
 
@@ -788,6 +753,35 @@ VA - Italo Disco Collection Vol.4 (2017) [MP3|320 Kbps] <Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A8101FB698347234894E6417BAAD8F5E36E09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061182   (449983) от 09.10.2016
+
+VA - 120 Euro EDM: October Set (2016) [MP3|320 Kbps] <Dance, Club, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hardwell And Blasterjaxx - Going Crazy (Radio Edit)
+002. Klubbheads - Klubbhopping (Radio Edit)
+003. Moby - Go (Hardwell Remix Edit)
+004. Mike Vegas - Superstar (Danilo Eboli Remix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 10:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27630BECA5C6D0C52B0D3522C94CCE59D48A0994
 ```
 
 https://mybot314.ru/tekegram_catalog/

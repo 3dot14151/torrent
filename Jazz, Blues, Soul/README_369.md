@@ -6,7 +6,7 @@ Jiro Inagaki - Woodstock Generation (1970) 2009, P-Vine Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277913.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Glitterbox - Pump The Boogie! & Continuous Mixes (2018) [MP3|320 Kbps] <Sou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277770.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Tanja Raich - Twenty-Four Reasons (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277721.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Antonio Hart - For Cannonball And Woody (1993) Novus [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277600.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Jelly Roll Morton - The Best Of Jelly Roll Morton 1926-1939 (1993) Jazz Archives
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277599.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ben Webster - Story 1934-1944 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277598.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Greg Marvin - I'll Get By (1991) [FLAC|Lossless|image + .cue] <Hard Bop, Neo-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277597.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Bob James Trio - Espresso (2018) Evosound [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277592.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Parov Stelar - The Princess (2012) [FLAC|Lossless]<Electro Swing, Broken Beat, N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277577.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sonny Stitt - At The Hi-Hat vol.I (1954) 1992, Roulette Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277495.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Steve Lacy & Eric Watson - Spirit of Mingus (1992) Free Lance[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277494.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Darrell Mansfield - I Am Not Alone (2014) [FLAC|Lossless|tracks + .cue] <Christi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277487.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Marcus Printup - Song For The Beautiful Woman (1995) Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277394.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Art Pepper & Blue Mitchell - The Dolo Coker Sessions (1976) 2008, Synergy Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277391.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Bart&Baker - Electro Swing Tribute (2016) [MP3|320 Kbps] <Swing, Electro Swing, 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277125.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ John Scofield - Combo 66 (2018) Universal [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276600.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Tad Shull Quartet - In the Land of the Tenor (1993) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276383.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Terell Stafford - This Side Of Strayhorn (2011) MaxJazz [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276381.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Emil Viklicky Quartet - 'Round Midnight (1991) Arta Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276380.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Jon Faddis - Hornucopia (1991) Epic [FLAC|Lossless|image + .cue] <Post-Bop, Trum
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276376.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mulgrew Miller & Niels-Henning Orsted Pedersen - The Duets: A Selection of Duke 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276373.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276366.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Kurt Maloo vs. Double - Loopy Avenue (2007) [FLAC|Lossless|image + .cue] <Jazz-P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276319.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Barney Wilen & Mal Waldron - Movie Themes from France (1990) Timeless Records [W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276198.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Marcus Printup - Young Bloods (2015) SteepleChase [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276160.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Candy Dulfer - Top 40 Candy Dulfer: Her Ultimate Top 40 Collection (2018) 2CD [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276130.jpg" />
 </div>
 
 

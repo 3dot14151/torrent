@@ -1,84 +1,3 @@
-###  Публикация: 1502292   (828327) от 14.10.2021
-
-Франсуаза Бурден | Чужой выбор (2021) [MP3, Марина Гладкая]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Во Франции в красивом горном шале живут две семейные пары, Люк и Клеманс и Виржил и Филиппина.
-Люк владеет автомобильным салоном и мастерской, у Клеманс своя парикмахерская, Виржил – врач-ортопед в клинике, а Филиппина увлечена наукой. Люк и Виржил дружат с детства.
-Пары связывают приятельские отношения, они с комфортом делят дом. Но однажды на пороге появляется (   Читать дальше...   )Жанр: Зарубежные любовные романы, Современные любовные романыПродолжительность: 10:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACC0E0D06718595CB3F603DA0C1AA44115C82A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502296   (828320) от 14.10.2021
-
-Аманда Эйр Уорд | Семейный круиз (2021) [MP3, Ольга Салем]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-«Примите наши поздравления! Рейс первым классом». Семидесятилетняя Шарлотта Перкинс не верила своим глазам. Ее история выиграла в конкурсе «Путешествуй по миру», а значит вместе с семьей Шарлотта проведет десять дней на борту шикарного круизного лайнера. Живая музыка, освежающие коктейли, изысканные блюда и лучшие европейские пляжи – все это будет доступно семейству (   Читать дальше...   )Жанр: Зарубежные приключения, Современная зарубежная литератураПродолжительность: 09:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD7562A389A941BD192C3D1BF93C5C4C777A924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502294   (828319) от 14.10.2021
-
-Алка Джоши | Художница из Джайпура (2021) [MP3, Анна Геллер]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В 1950-е годы в Индии женщине нелегко быть самостоятельной, но Лакшми от природы умна и талантлива.
-В семнадцать лет она сбегает от жестокого мужа и оказывается в Джайпуре – роскошном, завораживающем, но суровом и безжалостном городе. Лакшми становится мастерицей мехенди и благодаря удачным связям и знакомствам вскоре оказывается допущенной к самым влиятельным людям. (   Читать дальше...   )Жанр: Современная зарубежная литератураПродолжительность: 12:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5788D908B1E2FF32F0951F45836464700621EB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502295   (828317) от 14.10.2021
 
 Эллери Ллойд | Одним лайком меньше (2021) [MP3, Игорь Сергеев, Юлия Бочанова]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828317.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828311.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828235.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828163.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828158.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828156.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828150.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828147.jpg" />
 </div>
 
 
@@ -295,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828145.jpg" />
 </div>
 
 
@@ -321,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828045.jpg" />
 </div>
 
 
@@ -347,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827975.jpg" />
 </div>
 
 
@@ -373,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827959.jpg" />
 </div>
 
 
@@ -399,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827900.jpg" />
 </div>
 
 
@@ -425,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827895.jpg" />
 </div>
 
 
@@ -451,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827827.jpg" />
 </div>
 
 
@@ -477,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827818.jpg" />
 </div>
 
 
@@ -503,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827816.jpg" />
 </div>
 
 
@@ -529,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827741.jpg" />
 </div>
 
 
@@ -555,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827734.jpg" />
 </div>
 
 
@@ -581,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827697.jpg" />
 </div>
 
 
@@ -608,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827683.jpg" />
 </div>
 
 
@@ -635,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827661.jpg" />
 </div>
 
 
@@ -661,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827659.jpg" />
 </div>
 
 
@@ -672,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C18A58FD74597078578E37170E9721F5D005AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381315   (827655) от 06.05.2020
+
+Александр Михайловский, Александр Харников | Иным путем (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская эскадра, вышедшая в конце 2012 года к берегам Сирии, неведомым путем оказалась в 1904 году неподалеку от Чемульпо, где в смертельную схватку с японской эскадрой вступили крейсер «Варяг» и канонерская лодка «Кореец». Наши моряки не могли остаться в стороне – ведь «русские на войне своих не бросают. Только это вмешательство и последующие за ним события послужили (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F5F1A33037D4C0D613EB6D1933B642F022AAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381322   (827461) от 06.05.2020
+
+Дем Михайлов | Низший 2 (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой просыпается в кошмарном месте, со стёртой памятью о прошлом. Мир, в котором он оказался, ужасен. Люди обитают в мрачных коридорах без конца и края. Появляются они здесь не только беспамятными, но и полностью лишёнными конечностей. Все они – «добровольно низшие», то есть якобы сами согласились на такую участь. Никто не помнит, когда и ради чего это произошло, (   Читать дальше...   )Жанр: РеалРПГ,боевая фантастика, героическая фантастика, попаданцыПродолжительность: 12:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D808C380C860AE8BD3D063838863ED446A4B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006673   (827246) от 12.04.2016
+
+Линда  Гиллард | Увидеть звезды (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героиню романа известной английской писательницы Линды Гиллард Марианну не назовешь счастливой. Настоящая жизнь вроде бы в прошлом. Марианна потеряла ребенка, любимый муж погиб, более того — она слепа. Казалось бы, остается только отчаяться. Однако непревзойденное мужество и сильный характер позволяют ей не потерять веру в себя. Судьба дарит ей встречу с необычным (   Читать дальше...   )Жанр: Сентиментальный романПродолжительность: 11:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5065084ECBCEB6F4F9AD9101CACD057FAC71BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

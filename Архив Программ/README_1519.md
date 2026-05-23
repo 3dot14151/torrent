@@ -6,7 +6,7 @@ Daum PotPlayer 1.7.7145 Stable RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262406.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Daum PotPlayer 1.7.7145 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262404.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nitro4D NitroBake v2.02 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262401.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera 49.0.2725.64 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262389.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TeamViewer 13.0.6447 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262372.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TeamViewer 13.0.6447 Free | Enterprise | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262362.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MediaHuman YouTube Downloader 3.9.9.28 (2711) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262312.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Athentech Perfectly Clear WorkBench 3.9.0.1702 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262300.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Acon Digital - Verberate 2 2.1.1 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262281.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Maxthon Browser 5.1.4.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262226.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ UC Browser 7.0.125.1802 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262225.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Athentech Perfectly Clear + WorkBench 3.5.5.1137 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262221.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ qBittorrent 4.0.3 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262218.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ LibreOffice 5.4.4.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262206.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Opera 49.0.2725.64 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262197.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VirtualBox 5.2.4 Build 119785 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262190.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ESET Internet Security 11.0.159.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262165.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ ESET NOD32 Antivirus 11.0.159.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262157.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Soft4Boost Document Converter 5.1.7.697 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262113.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ashampoo Photo Commander 16.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262087.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Avast Clear 17.9.3761.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262081.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ashampoo Burning Studio 19.0.1.4 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262080.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ PDF24 Creator 8.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262065.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ashampoo Burning Studio 19.0.1.4 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262052.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Nitro4D NitroVertex v1.01 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262042.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Sumatra PDF 3.2.10766 Pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262038.jpg" />
 </div>
 
 

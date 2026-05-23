@@ -6,7 +6,7 @@ Total Commander 9.22 final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679949.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ foobar2000 1.4.3 Stable RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679947.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Punto Switcher 4.2.6 Build 1275 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679908.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Foxit Reader 8.0.0.624 Portable by PortableAppZ [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679901.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 10 (v1809) x64 LTSC by KulHanter v20 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679832.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Punto Switcher 4.4.4 Build 489 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679818.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Positive Grid - BIAS FX 1.3.3.1240 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679761.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ oCam Screen Recorder 113.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679678.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ jv16 PowerTools X 4.0.0.1487 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679639.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Daum PotPlayer 1.6.54133 DC 15.05.2015 Stable Portable by qazwsxe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679635.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AkelPad 4.9.3 Portable + All Plugins by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679630.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AusLogics BoostSpeed Premium 7.9.0.0 DC 13.05.2015 RePack (& Portable) by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679581.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Notepad++ 6.7.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679580.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ pdfFactory Pro 5.28 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679564.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ SUMo 3.1.4.159 + Lite + Portable [ML/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679562.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AntiDupl.NET 2.2.4.528 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679530.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mozilla Firefox 38.0.1 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679460.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Dicter 3.62 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679455.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ USDownloader 1.3.5.9 (9.06.2012) Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679378.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Mozilla Firefox ESR 38.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679341.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679335.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Auslogics Driver Updater 1.5.0.0 DC 14.05.2015 RePack (& Portable) by D!akov [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679333.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AusLogics BoostSpeed Premium 7.9.0.0 DC 13.05.2015 RePack (& Portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679332.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ FP Uploader 190510 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679247.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VirtualBox 4.3.28.100309 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679216.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679203.jpg" />
 </div>
 
 

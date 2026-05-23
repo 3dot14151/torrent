@@ -1,56 +1,3 @@
-###  Публикация: 1211820   (776738) от 09.03.2018
-
-Наемные убийцы / Assassins (1995) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роберт Рэт — лучший киллер в округе, но кодекс чести и чувство долга, что некогда составляли часть его смертельной карьеры, исчезли. Мир, возникший после Холодной войны, переполнен «отморозками». Рэт хочет «завязать».
-Другой киллер, Мигель Бэйн, амбициозный молодой человек — напротив желает стать первым в своем деле, и знает, как это сделать: уничтожить Рэта. Действие (   Читать дальше...   )Производство: Франция, США / Canal+, Donner/Shuler-Donner Productions, Evansgideon/Lazar, Les Productions Lazennec, Silver Pictures, Warner Bros. PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Ричард ДоннерАктеры: Сильвестр Сталлоне, Антонио Бандерас, Владимир Конкин, Джулианна Мур, Людмила Ильина, Анатолий Давыдов, Владимир Вихров, Мьюз Уотсон, Стив Кэхэн, Келли РоуэнПеревод: Дублированный (R5)Субтитры: Русские, АнглийскиеПродолжительность: 02:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C5DEEEBF9DC67D5BB7F9AA4FAAE4DE2196F376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013737   (776720) от 06.05.2016
-
-Приключения Битл / The Adventures of Beatle (2015) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Визитная карточка главной героини, Битл — «убийства». Она в течение месяцев работает над созданием учебного видео для убийц, но без выгоды для себя. Прекрасная, безнадежная одиночка, которая отказывается жить по правилам, предлагаемым обществом. Ее единственный социальный контакт — с ее психотерапевтом доктором Вандераком, и Карлой, стриптизершей-проституткой, которую (   Читать дальше...   )Производство: США, Big Easy Pictures, Side Tracked PicturesЖанр: Триллер, Драма, КомедияРежиссер: Донна РобинсонАктеры: Эвер Кэррадайн, Мишель Хикс, Джеффри Дин Морган, Бен Мендельсон, Тони Шэлуб, Сара Шахи, Орландо Джонс, Ивана Миличевич, Брук Эдамс, Раффаэлло ДегруттолаПеревод: Двуголосый закадровыйПродолжительность: 01:22:20Реклама: отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC3FA81DA0C730600B75483B4EA8A3926C25216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211777   (776715) от 09.03.2018
 
 Что гложет Гилберта Грейпа / What's Eating Gilbert Grape (1993) Blu-ray [H.264/1080p] [Custom]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776715.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776705.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776695.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776678.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776668.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776667.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776660.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776648.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776644.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776635.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776626.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776624.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776594.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776593.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776591.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776316.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776291.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776286.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776283.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776261.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776256.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776234.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775985.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775978.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4995C4E47CA64AB8F4947E6FCB436942E110D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210476   (775965) от 11.03.2018
+
+Вторжение / Breaking and Entering (2006) Blu-ray [VC-1/1080p] [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой архитектор пейзажей Уилл переживает кризис, как в профессиональной, так и в личной жизни. Когда в офис, который находится в старой части Лондона, влезает вор, чтобы ограбить его, в жизни Уилла начинается новый период. Встреча с этим молодым вором-мусульманином, заставляет молодого архитектора переосмыслить всю свою жизнь. Он должен переоценить все свои жизненные (   Читать дальше...   )Производство: США, Великобритания, Mirage Enterprises, Miramax FilmsЖанр: Триллер, мелодрама, драмаРежиссер: Энтони МингеллаАктеры: Джуд Ло, Жюльетт Бинош, Вера Фармига, Робин Райт Пенн, Мартин Фриман, Рафи Гэврон, Поппи Роджерс, Рей Уинстон, Марк Бентон, Джульет СтивенсонПеревод: Многоголосый (профессиональный), Двухголосый (профессиональный)Субтитры: Русские, английские, японские, тайские, китайские, индонезийские, малайзийские, корейские, португальскиеПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E5FEBA59997EB7CA5711E1954EC064EE8D5FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212331   (775959) от 11.03.2018
+
+Ной / Noah (2014) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библейские сюжеты давно и прочно вошли в нашу жизнь: вряд ли есть человек, не знающий о запретном плоде или о первородном грехе. Одной из наиболее известных историй, имеющих аналоги практически в любой религии и в мифологии разных народов, является история о Великом потопе — бедствии, которым Бог наказал человечество за его многочисленные грехи и покарал всех, кто (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, приключения, фэнтезиРежиссер: Даррен АронофскиАктеры: Рассел Кроу, Рэй Уинстон, Эмма Уотсон, Кевин Дюран, Дженнифер Коннелли, Логан Лерман, Энтони Хопкинс, Марк Марголис, Ник Нолти, Дуглас БутПеревод: Дублированный (iTunes)Субтитры: Русские полные, форсированные (отдельно)Продолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81589C2EB5B1B52273E21E6E2A466E36602D34D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

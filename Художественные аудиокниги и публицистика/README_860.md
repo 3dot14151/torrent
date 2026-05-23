@@ -1,85 +1,3 @@
-###  Публикация: 1677384   (150627) от 17.11.2023
-
-Роман Артемьев | Хроники Аскета (Книга 1). Вторжение (2023) [MP3, TED]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-За все надо платить. За возможность достойно жить – потом и кровью, за силу и ловкость – болью в натруженных мышцах и временем, за власть и славу часто расплачиваются душой. Что отдаст человечество за возможность стать чем-то большим? Не слишком ли велика окажется цена? Выживет ли род людской, столкнувшись с совершенно отличным от своего разумом?
-Герой книги не хотел (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 12:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBF75A67A24BF6C0CB4276DD0296D450B69D6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353417   (150624) от 17.11.2023
-
-Евгений Баратынский | Избранная лирика (2006) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-В аудиокнигу вошли избранные стихотворения и поэмы Евгения Абрамовича Баратынского (1800–1844) – одного из крупнейших представителей русской философской поэзии, глубокого, тонкого лирика.
-
-Сей поцелуй, дарованный тобой,
-Преследует мое воображенье:(   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: МедиаКнига, 1С-ПаблишингПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFCE8012B49BFE12AB8662A9C99F8736B933641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677259   (150611) от 17.11.2023
-
-Александр Сухов | Дэн Шир (Книга 1). Обнулённый (2023) [MP3, TED]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-За семьдесят два года своей бурной жизни он успел побывать в Афганистане, а также в качестве военного советника в Анголе Намибии, и других странах Африки, Азии и Латинской Америки. Был многократно ранен, но не смертельно. И все-таки Смерть нашла его уже в преклонном возрасте во дворе собственного дома. Однако Костлявая, как в былые времена, вновь над ним подшутила. (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: Клуб любителей аудиокнигПродолжительность: 08:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF8CB6B6A0493858C0D442A987985D12AF596EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676853   (150608) от 17.11.2023
 
 Дем Михайлов | Инфериор (Книга 9). Инфер 9 (2023) [MP3, Владимир Хлопов]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150608.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150596.jpg" />
 </div>
 
 
@@ -141,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150555.jpg" />
 </div>
 
 
@@ -170,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150548.jpg" />
 </div>
 
 
@@ -197,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150525.jpg" />
 </div>
 
 
@@ -223,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150514.jpg" />
 </div>
 
 
@@ -250,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150510.jpg" />
 </div>
 
 
@@ -276,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150493.jpg" />
 </div>
 
 
@@ -304,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150465.jpg" />
 </div>
 
 
@@ -330,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150401.jpg" />
 </div>
 
 
@@ -356,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150345.jpg" />
 </div>
 
 
@@ -383,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150343.jpg" />
 </div>
 
 
@@ -409,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150327.jpg" />
 </div>
 
 
@@ -435,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150326.jpg" />
 </div>
 
 
@@ -461,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150317.jpg" />
 </div>
 
 
@@ -489,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150316.jpg" />
 </div>
 
 
@@ -515,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150285.jpg" />
 </div>
 
 
@@ -543,7 +461,7 @@ A. Никл | Сотня граней (Книга 1). Зарождение ле�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150256.jpg" />
 </div>
 
 
@@ -572,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150243.jpg" />
 </div>
 
 
@@ -598,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150218.jpg" />
 </div>
 
 
@@ -624,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150202.jpg" />
 </div>
 
 
@@ -650,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150160.jpg" />
 </div>
 
 
@@ -676,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150129.jpg" />
 </div>
 
 
@@ -689,6 +607,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B99E529AD2DFB274695D708619DC8110DE45142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271387   (150107) от 23.12.2018
+
+Константин Паустовский | Кара-Бугаз (2018) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Кара-Бугаз», вышедшая в 1932 году в издательстве «Молодая гвардия» сразу же, по мнению критиков, выдвинула Паустовского в первые ряды советских писателей того времени. Кара-Бугаз, залив-лагуна Каспийского моря на западе Туркмении. В представлении людей он был заливом смерти и ядовитой воды. На тюркских языках его название означает «черное горло». Это место (   Читать дальше...   )Жанр: Повести, Советская прозаИздательство: ИД СОЮЗПродолжительность: 04:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE931AFD69CC4F44E2AA71A1D60A7C6E5BC1EE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302057   (149975) от 18.11.2023
+
+Бернард Шоу | Пигмалион (2006) [MP3, Юрий Лазарев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Школьная библиотека».
+Джордж Бернард Шоу (1856–1950) – английский писатель, романист, драматург, лауреат Нобелевской премии в области литературы 1925 года. Общественный деятель. Второй (после Шекспира) по популярности драматург в английском театре.
+Неповторимый, язвительный, мудрый знаток человеческой природы, блистательный, афористичный – таким Джордж Бернард (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: АудиокнигаПродолжительность: 03:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63354B47A1050DF64EABE2E4554D606FFF6CADDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271532   (149960) от 23.12.2018
+
+Ксения Букша | Inside Out (Наизнанку) (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не очень отдаленное будущее. Русский монарх продал шестую часть суши китайцам, а деньги поровну разделил между своими подданными. В деловых кругах одной из западных стран появляется слух, что неизвестный русский физик сумел получить топливо из воды. Леви Штейнман, начальник информационного отдела банка, получает задание найти физика и выкупить у него изобретение.Жанр: ФантастикаПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32580A18B60138ECD2E0AF841F2472A204FB0C9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

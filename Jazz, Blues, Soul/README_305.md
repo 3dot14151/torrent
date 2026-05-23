@@ -6,7 +6,7 @@ The Dutch Swing College Band - Stompin' The Hits (1989) LaserLight [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437394.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ One For All - Killer Joe (2005) Venus Records [FLAC|Lossless|tracks + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437389.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rossella Graziani 4Tet - My Favourite Songs (2017) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437388.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nick Waterhouse - Never Twice (2016) [MP3|320 Kbps] <Rhythm & Blues, Rock'n'Roll
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437278.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pat Metheny - One Quiet Night (2009) [FLAC|Lossless|image + .cue] <Acoustic, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437236.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Allen Farnham - 5th House (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436232.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Duke Ellington And His Orchestra - Early Ellington (1927 - 1934) 1989, BMG Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436230.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Clark Terry & Chris Woods - Swiss Radio Days Jazz Series: Lucerne 1978, vol.8 /1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436176.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tete Montoliu - Montoliu Plays Tete (1971 - 1997) 2CD, 2006, DiscMedi Blau [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436113.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ JF Girard - Clin d'oeil (2013) Les Disques Bros [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436067.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lars Erstrand Trio & Quartet - The Complete Songs (2005) Opus 3 [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436055.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ JF Girard - Jazz Waves (2017) Productions Bros [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436017.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jan Lundgren - Potsdamer Platz (2017) ACT Music [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436006.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ John Stevens - Red (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436004.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Liz McComb - Soul, Peace & Love (2006) [FLAC|Lossless|image + .cue] <Blues, soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435842.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mel Torme & Margaret Whiting - Broadway, Right Now! (1961) 2010, Flare Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435565.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Grover Washington Jr. - Paradise (1979) 1983, Elektra[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435563.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Denny Zeitlin - Both / And:Solo Electro-Acoustic Adventures (2013) Sunnyside Com
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435556.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Delta Moon - Babylon Is Falling (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435536.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Harry Lookofsky - Stringsville (1959) 2006, Collectables [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435446.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Johan Clement Trio - On Request (2006) Baileo Music Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435445.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gary Bartz - The Red And Orange Poems (1994) Atlantic Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435443.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Dutch Swing College Band - With Guests, Vol. I (1974) 1987, Phillips [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435440.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Big John Patton - Got A Good Thing Goin' (1966) Remaster, 1997, Toshiba[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435381.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Larry Coryell - Barefoot Man: Sanpaku (2016) Purple Pyramid[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435380.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Marc Antoine - Laguna Beach (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435372.jpg" />
 </div>
 
 

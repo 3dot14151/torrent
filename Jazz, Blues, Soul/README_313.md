@@ -6,7 +6,7 @@ Catherine Hunter - Dream Maker (2006) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418994.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sean Jones - Im•pro•vise Never Before Seen (2014) Mack Avenue Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418990.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vulfpeck - The Beautiful Game (2016) [FLAC|Lossless|WEB-DL|tracks] <Funk,Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418928.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Connie Evingson - 6 альбомов (1999 - 2012) [FLAC|Lossless]<Jazz Vocal, G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_418856.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Garou - Rhythm and Blues (2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418651.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bobby Bradford & John Carter Quintet - NoUTurn (1975) /2015, Dark Tree Records/[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418397.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Attila Zoller - Common Cause (1979) /2005, Enja/[FLAC|tracks+.cue]<Jazz Fusion, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418395.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418393.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Rocio Guitard & Moises P. Monk - Marriage & Other Novellas (2015) [FLAC|image+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418392.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Chet Baker - Mr. B (1983) /2015, Solid Records/[FLAC|tracks+.cue]<Cool, West Coa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418390.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Bobby Hutcherson - Color Schemes (1986) /Landmark Records/[FLAC|tracks+.cue]<Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418388.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Chet Baker - Live in Tokyo (1987) 2015, 2CD, King Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418363.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Miles Davis and Milt Jackson - Quintet / Sextet (1955) /2013, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418266.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ The Rivington Project - Trip (2006) Counterpart Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418037.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Phil Collins Big Band - A Hot Night in Paris (1999) [FLAC|Lossless]<Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417876.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Junior Wells & Buddy Guy - 33 Albums (1965-2010) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_417794.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Freddie Hubbard - High Energy, Liquid Love, Windjammer (1974 - 1976) 2CD, 2012, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417579.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Art Van Damme - A Perfect Match & Martini Time (1953, 1963) 2014, Cheesecake Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417573.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Deanna Bogart - Pianoland (2012) [MP3|320 Kbps] <Country Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417569.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Eilen Jewell - Down Hearted Blues (2017) [MP3|320 Kbps] <Blues, Country, America
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417420.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bill Evans - Another Time: The Hilversum Concert (1968) 2017, Resonance Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417411.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Annie Warden - It Must Be You (Piano Music) (2017) [MP3|320 Kbps] <Piano Jazz, E
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417329.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Lil' Ed And The Blues Inperials - The Big Sound Of ... (2016) [FLAC|Lossless|ima
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417216.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Timo Gross - Heavy Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417215.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ VA - Brazilian Jazz - Brazilian Jazz Beach (2016) [MP3|320 Kbps] <Nu Jazz, Loung
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417031.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ Ray Fuller And The Bluesrockers - Long Black Train (2016) [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417029.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ CrystalDiskInfo 9.2.3 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115611.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hard Disk Sentinel PRO 6.20 Build 13190 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115606.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115599.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115597.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115592.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TechSmith Camtasia 23.4.3 (Build 51546) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115585.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AntiPlagiarism.NET 4.130.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115580.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Desktop.Calendar.Tray.OK 4.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115578.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NVIDIA GeForce Desktop Game Ready 551.61 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115575.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Psiphon 3 build 181 (25.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115566.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ XtraTools Professional 24.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115559.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Revo Uninstaller Pro 5.2.6 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115553.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Advanced Renamer 3.94.3 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115551.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ RAM Saver Professional 24.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115548.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Revo Uninstaller Pro 5.2.6 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115545.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ RegCool 1.361 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115538.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ungoogled Chromium 122.0.6261.69-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115525.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Chromium 122.0.6261.70 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115520.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PrivaZer 4.0.83 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115514.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ K-Lite Codec Pack Update 18.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115504.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tablacus Explorer 24.2.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115485.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Windows 10 PE x64 by AnkhTech V7.5 (26.02.2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115450.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Total Commander 11.03 Final - Titan v34 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115449.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Adobe After Effects 2024 24.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115448.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Premiere Pro 2024 24.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115445.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Hiren’s BootCD PE x64 v1.0.7 (26 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115432.jpg" />
 </div>
 
 

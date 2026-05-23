@@ -6,7 +6,7 @@ EventScripts 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781958.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mountain Duck 4.0.0 (build 16707) beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781957.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Marked 2 v2.5.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781956.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ SQLPro Studio 2020.59 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781926.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cisdem Data Recovery 6 v6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781923.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Microsoft Edge 84.0.522.20 Beta (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781921.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ K-Lite Codec Pack Update 15.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781890.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781889.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Media Player Classic Home Cinema 1.9.5 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781887.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ GeoGebra 6.0.590.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781883.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.5 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781848.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Edge 85.0.545.0 Dev (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781847.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Monkey's Audio 5.44 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781846.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Audirvana 3.5.38 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781844.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Skype 8.61.0.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781840.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Notepad3 5.20.615.1 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781821.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Red Button 5.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781812.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.31.41183.0/dlc) Repack Other s [Deluxe E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781763.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Rufus 3.11 (Build 1678) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781755.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ James Maloney - Gaslight (2017) Moderna Records [FLAC|Lossless|tracks+.cue] <Mod
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781733.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Found Sound (2018) Touched Music [FLAC|Lossless|tracks+.cue] <IDM, Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781730.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Dash 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781729.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Vivaldi 1.14.1077.50 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781725.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Geek Uninstaller 1.4.5 Build 125 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781711.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781707.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ AutoMounter 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781706.jpg" />
 </div>
 
 

@@ -1,85 +1,3 @@
-###  Публикация: 295160   (160362) от 08.11.2023
-
-Морис Леблан | Графиня Калиостро (2005) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Морис Леблан (1864–1941) – культовый французский прозаик и драматург, мастер детектива.
-«Графиня Калиостро» – остро-приключенческий роман. Главная героиня романа – дочь легендарного графа Калиостро, владеющая многими приемами своего предка. Соблазнительная красавица одержима страстью к авантюрам, приключениям и кражам. В погоне за сокровищами к ней примыкает гениальный (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: Студия «АРДИС»Продолжительность: 07:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AB85F919384ACAD62D50E93540569EF9580B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374387   (160361) от 08.11.2023
-
-Амадис Жамен, Гийом Кольте, Андре Мари де Шенье | Французская лирика XVI-XVIII веков (2009) [MP3, Михаил Яснов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотой век французской поэзии.
-Французская поэзия – настоящая сокровищница лирики. Стихи, написанные несколько веков назад, и сегодня читаются и вдохновляют переводчиков на создание собственных интерпретаций сонетов и рондо, эпиграмм и элегий.
-Известный поэт и переводчик Михаил Яснов представляет образцы в основном любовной лирики французских поэтов XVI-XVIII (   Читать дальше...   )Жанр: Классика, поэзияИздательство: Вира-МПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602250E295D81190C7CA201572059AF35DD9C763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 325769   (160359) от 08.11.2023
-
-Фридрих Шиллер | Мария Стюарт. Радиоспектакль (2006) [MP3, Ангелина Степанова, Алла Тарасова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива Гостелерадиофонда.
-Эпоха Возрождения, эпоха раскрепощения личности, время обострения борьбы между католиками и протестантами. На этом историческом фоне и произошла самая романтическая драма XVI-го столетия. В спектакле она показана как вражда двух королев, Елизаветы и Марии. Королевские страсти, высокие конфликты: торжество и несгибаемость духа, (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаВ ролях: Ангелина Степанова, Алла Тарасова, Павел Массальский, Марк Прудкин и др.Издательство: Звуковая книга, ГостелерадиофондПродолжительность: 02:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6470AC577FAA73D6E8D4276442304D6CC86E1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 314520   (160357) от 08.11.2023
 
 Михаил Пазин | Романы Романовых (2008) [MP3, Александр Крапиневич]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160357.jpg" />
 </div>
 
 
@@ -115,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160355.jpg" />
 </div>
 
 
@@ -143,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160354.jpg" />
 </div>
 
 
@@ -170,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160353.jpg" />
 </div>
 
 
@@ -197,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160352.jpg" />
 </div>
 
 
@@ -223,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160351.jpg" />
 </div>
 
 
@@ -249,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160340.jpg" />
 </div>
 
 
@@ -276,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160337.jpg" />
 </div>
 
 
@@ -302,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160332.jpg" />
 </div>
 
 
@@ -328,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160283.jpg" />
 </div>
 
 
@@ -354,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160278.jpg" />
 </div>
 
 
@@ -380,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160277.jpg" />
 </div>
 
 
@@ -406,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160276.jpg" />
 </div>
 
 
@@ -434,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160272.jpg" />
 </div>
 
 
@@ -461,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160270.jpg" />
 </div>
 
 
@@ -488,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160261.jpg" />
 </div>
 
 
@@ -516,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160256.jpg" />
 </div>
 
 
@@ -542,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160251.jpg" />
 </div>
 
 
@@ -569,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160247.jpg" />
 </div>
 
 
@@ -596,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160241.jpg" />
 </div>
 
 
@@ -624,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160215.jpg" />
 </div>
 
 
@@ -650,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160198.jpg" />
 </div>
 
 
@@ -676,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160174.jpg" />
 </div>
 
 
@@ -687,6 +605,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5B5589EFDDF135DCF7AD71A7650A192C35D1586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599196   (160160) от 22.12.2022
+
+Абир Мукерджи | Уиндем и Несокрушим (Книга 2). Неизбежное зло (2022) [MP3, Григорий Перель]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индия, 1920-е. В сказочно богатом королевстве Самбалпур, казалось бы, все спокойно: там обитают слоны и тигры, находятся алмазные рудники и прекрасный Дворец Солнца. Однако когда наследника престола убивают, обнаруживается, что эту маленькую страну разрывает большой конфликт. Теперь капитану Уиндему и сержанту Банерджи, прозванному Несокрушимом, предстоит расследование (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 11:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BABFAE027B83835994EC6B22F9ABFE213A603C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675475   (160155) от 09.11.2023
+
+Владимир Гиляровский, А.З. Рубинов | История московских бань (2008) [MP3, Владимир Самойлов, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Кругозор».
+Бани сопровождают человечество с древнейших времен, с ними неразрывно связана история нравов, культура в широком значении.
+Для русского человека баня исстари была неотъемлемой частью жизни, олицетворением гостеприимства и домашнего очага.
+Особо славилась своими банями Москва. «Единственное место, которого не миновал ни один москвич, – это бани». (   Читать дальше...   )Жанр: Исторические очеркиИздательство: Студия «АРДИС»Продолжительность: 06:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF2E0BE5025380966AEC953182150BA037C5B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599215   (160130) от 22.12.2022
+
+Дмитрий Пейпонен | С-12-12 (Книга 1). Бронзовый ангел над океаном (2022) [MP3, дядя Фёдор]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160130.jpg" />
+</div>
+
+
+###  Подробнее
+
+История становления Натки Соловей, как сильного и опасного бойца, история обучения ее и девчонок, и история создания знаменитой группы «С-12-12». Альтернативная версия ранее опубликованного романа.Жанр: БоевикиПродолжительность: 15:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A235C4F5E373117B26EA764AB0624C59570037D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

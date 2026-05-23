@@ -1,81 +1,3 @@
-###  Публикация: 1177152   (365301) от 24.10.2017
-
-Анна Гаврилова | Упрямое счастье, или Воспитание маленького дракона (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Погоня за счастьем — дело крайне утомительное, и здесь важно не только догнать, но и сберечь собственные нервы. С первым герцог Кернский справился, а вот со вторым… В итоге, вместо романтичного предложения руки и сердца Астрид услышала брутальное: «Наша свадьба вопрос решенный, и твое мнение меня не интересует». Другая бы обрадовалась, но будущей герцогине такой (   Читать дальше...   )Жанр: Романтическое фэнтези, Юмористическое фэнтезиПродолжительность: 10:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A227A52A9BEFA0E99ED3148C171B945304A8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576126   (365292) от 16.11.2012
-
-Роман Злотников | Император людей [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На только что освобожденный Арвендейл надвигается огромная орда орков. Император убит. Столица Империи — блистательный Эл-Северин захвачен. А над Империей нависла тень темного бога Ыхлага. Кто возглавит людей в противостоянии с орками? Кто посмеет бросить вызов Ыхлагу? Кто станет новым императором? Вы думаете, на эти вопросы есть только один ответ? Вы ошибаетесь...Жанр: фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17117FC07F869D0EF143AAE65B4414416B7B288C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575967   (365265) от 16.11.2012
-
-Роман Злотников | Герцог Арвендейл [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Северные варвары называют Арвендейл Землей мертвых героев. Этот мифический майорат известен еще и как Гиблая пустошь. В любом случае в империи людей все уверены, что добраться туда через Проклятый лес невозможно, а иного пути нет. Но Трой Побратим, одержавший победу в Большом императорском турнире и получивший формальный титул барона Арвендейла, собирается стать настоящим сеньором – ведь его вассалам наверняка нужны помощь и защита от орочьих набегов, от варгов, от… Кто знает, с какой угрозой может столкнуться человек НА ТОЙ СТОРОНЕ…Жанр: ФэнтезиФормат: MP3Продолжительность: 10:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51626335C552BF6DDCDA19A6AB35E19E2CC5963D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416673   (365247) от 17.10.2020
 
 Рекс Стаут | Ниро Вульф. Где Цезарь кровью истекал… (2020) [MP3, Павел Конышев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365247.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365242.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365240.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365227.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365225.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364972.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364964.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364900.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364833.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364739.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364563.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364474.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364472.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364401.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364398.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364282.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364278.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364276.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364177.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364155.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364139.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364137.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364121.jpg" />
 </div>
 
 
@@ -672,6 +594,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14AD4C946FA6BCA892EC88DEC30A4E7B5254B433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255436   (364089) от 18.10.2018
+
+Стелла Грей | Двойной удар по невинности (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стук в дверь моей хрущевки в обычный солнечный день обернулся для меня полным шоком. Теперь я не только богатая наследница, преследуемая отравителем, но и желанная добыча двух альфа-самцов с идентичной арийской внешностью… И если у первого цель убить, то у братьев – соблазнить… чувственно и с далеко идущими планами…
+
+Внимание! Фонограмма содержит нецензурную браньЖанр: Современная проза, любовный роман, эротикаПродолжительность: 10:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278EADD63FEB1F0A0DB8670BD57BA45EDA11081A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576777   (364045) от 15.09.2022
+
+Говард Фаст | Первые люди (2022) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364045.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Лишенный человеческого общения малыш безвозвратно вырастает в дикого зверя, уже не способного превратиться обратно в полноценного члена общества. Но что если среди нас рождается множество детей, чей потенциал на порядок выше того, что могут предложить ему люди. Подобно Маугли в обществе волков, или Тарзану в обществе обезьян, таким детям неизменно и необратимо (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60527E8BB439A3327DD6EBB57D07CAE0DBECB39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070354   (364041) от 08.11.2016
+
+Бронислава Вонсович, Тина Лукьянова | Я ненавижу магические академии (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла о Лисандре Берлисенсис.
+Я Лисандра Берлисенсис, потомок древнего магического рода, из-за жестокой насмешки судьбы оказалась выброшена на обочину жизни. Без связей, без поддержки родных и без денег... Свое будущее я представляла иначе — счастливое замужество, и никаких попыток овладеть своей стихией. И уж тем более не мечтала о карьере мага. Но (   Читать дальше...   )Жанр: Женское фэнтезиПродолжительность: 11:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2325A9A8DC17FF992E78E40A10D529C4A7C0207
 ```
 
 https://mybot314.ru/tekegram_catalog/

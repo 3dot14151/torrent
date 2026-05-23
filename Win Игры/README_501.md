@@ -1,29 +1,3 @@
-###  Публикация: 1772036   (31527) от 09.01.2025
-
-Forever Skies (2023) [Ru/Multi] (1.7.1) Repack Wagner [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Forever Skies – это нетипичное выживание, в мире постапокалипсиса, где игроку предстоит стать капитаном дирижабля. К сожалению, протагонист единственный член экипажа, но даже это не уменьшает количество его проблем. Ведь он все равно нуждается в продовольствии, которого в воздухе практически нет за исключением редких птиц. А технике свойственно ломаться, и она требует (   Читать дальше...   )Тип издания: RepackРазработчик: Far From HomeЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBA1A955E07C7C277BF98575541470A8E1C7647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772134   (31526) от 09.01.2025
 
 Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [Ru/Multi] (1.0.2) Scene Tenoke
@@ -32,7 +6,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31526.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31512.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mullet MadJack (2024) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31500.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31493.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31453.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31428.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ My Summer Car (2016) [En] (241230-03) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31422.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31409.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31404.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Gestalt: Steam & Cinder (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31394.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030.529/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31387.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (Build 1374323) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31378.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31375.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Millennia (2024) [Ru/Multi] (1.0.23641.F/dlc) Repack Let'sРlay [Premium Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31343.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ TankHead (2024) [En] (1.0.69881) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31341.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9140.27121) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31336.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31328.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31316.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31306.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31303.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31302.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31297.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31294.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31292.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ HELLSEED: All Chapters (2022) [Ru/Multi] (Build 16646433) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31285.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ HELLSEED - это хоррор игра-приключение от первог
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B9A9CF309F9C1E411920F97D68C802F54A147EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772443   (31281) от 11.01.2025
+
+Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.5.55.748x) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Oceanhorn сочетает в себе захватывающую историю, поразительную 3D-графику и увлекательный игровой процесс, чтобы подарить тебе незабываемое приключение. Расправь паруса и отправляйся навстречу приключениям! Вырасти из мальчика в легендарного героя. Ты просыпаешься и находишь письмо от отца. Он ушёл. Единственные зацепки для разгадки тайны - его старый дневник (   Читать дальше...   )Тип издания: RepackРазработчик: Cornfox & Brothers Ltd.Жанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EAF6DB61BF038532D8F60C75639CFA4AFA9B3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

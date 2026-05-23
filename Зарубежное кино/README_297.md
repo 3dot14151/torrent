@@ -1,56 +1,3 @@
-###  Публикация: 980504   (955583) от 29.01.2016
-
-Отбросы / The Throwaways (2015) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Динамичный боевик о талантливом хакере. Действие начинается где-то в степях Казахстана. Именно здесь благородный хакер Дрю Рейндольд по кличке Блэк Джек, самопровозглашенный Робин Гуд мировой паутины, взламывает сайты экстремистских организаций. Совсем недавно он «хакнул» маскирующийся под обычный новостной портал сайт, набирающий и тренирующий джихадистов. После (   Читать дальше...   )Производство: США / The Combine, UFO International ProductionsЖанр: Фэнтези, Боевик, ТриллерРежиссер: Тони Буи / Tony BuiАктеры: Питер Брук, Джеймс Каан, Ноэль Кларк, Кевин Диллон, Даррелл Д’Силва, Валентин Ганев, Дон Хэндфилд, Кристиан Хильборг, Сэм Хантингтон, Николай ИльчевПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5689E95A8716135D8E44CA9B026C4881259C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749102   (955570) от 24.01.2014
-
-Несносный дед / Jackass Presents: Bad Grandpa (2013) BDRip [720p] [Unrated Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-• 86-летний старикан по имени Ирвинг Зисман путешествует по Америке с необычным компаньоном — восьмилетним «внуком» Билли.
-• По дороге заводной дедушка знакомит впечатлительного Билли с людьми, местами и ситуациями, которые вряд ли укладываются в рамки привычных представлений о воспитании. Парочка столкнется со стриптизерами, разъяренными участниками помпезного детского (   Читать дальше...   )Производство: США | Dickhouse Productions, MTV FilmsЖанр: КомедияРежиссер: Джефф ТреймейнАктеры: Джонни Ноксвил, Джексон Николл, Грег Харрис, Джорджина Кэйтс, Камбер Хейлик, Джилл Килл, Мэдисон Дэвис, Джордж Фонан, Грэси Мерседес, Мэрилинн ЭллейнПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244671FCA992D48F0845F064E81C23750015C4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 623225   (955549) от 26.02.2013
 
 Баария / Baarìa / Baaria (2009) BDRip
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955549.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955511.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955475.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955474.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955471.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955465.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955462.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955406.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955397.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955392.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955300.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955298.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955297.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955275.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955262.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955213.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955199.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955143.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955142.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955137.jpg" />
 </div>
 
 
@@ -579,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955136.jpg" />
 </div>
 
 
@@ -605,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955134.jpg" />
 </div>
 
 
@@ -631,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955131.jpg" />
 </div>
 
 
@@ -657,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955078.jpg" />
 </div>
 
 
@@ -668,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B7FC4D5B9470613212025EB609AB886159B8944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623444   (954944) от 26.02.2013
+
+Любовь – это всё, что тебе нужно / Den skaldede frisor (2012) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филипп — одинокий вдовец и фанат своей работы. Он владеет большой фирмой по выращиванию и продаже овощей. В его жизни нет ничего, кроме бизнеса, и вот однажды сын объявляет ему, что женится на девушке из Швеции, и просит у Филиппа разрешения устроить свадьбу на его вилле в Соренто. Филипп отправляется в Италию, где он, наконец-то, поймет, что кроме работы в жизни (   Читать дальше...   )Производство: Дания, Швеция, Италия, Франция, ГерманияЖанр: Мелодрама, КомедияРежиссер: Сюзанна Бир / Susanne BierАктеры: Трине Дюрхольм, Пирс Броснан, Паприка Стеэн, Ким Бодниа, Кристиан Шамбург-Мюллер, Себастьян Йессен, Молли Бликст Эгелинд, Стина Экблад, Бодиль Ёргенсон, Мики Скил Хансен, Лине Крусе, Рикке Луиз Андерссон, Бирте Нойманн, Фредерикке Томассен, Филип Санден, Чиро Петроне, Томас Восс, Мария Хелена Гуггенхейм, Марко Д’Амор, Мария Стенц, Кристиана Рохд, Томас Джессинг, (   Читать дальше...   )Перевод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: den904 и DeadSno / JanettaЯзык субтитров: АнглийскийПродолжительность: 01:51:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280359   (954939) от 01.01.2017
+
+Бесконечное рождество / Christmas Do-Over (2006) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой композитор, сочинитель рождественских песенок, вынужден справлять Рождество в компании бывшей жены, ее родителей и сына-подростка. И тут оказывается, что он проживает праздничный день снова и снова. Герою придется серьезно поломать голову, чтобы поставить свою жизнь на нормальные рельсы.Жанр: Фэнтези, Комедия, СемейныйРежиссер: Кэтрин КиранАктеры: Джей Мор, Дафна Зунига, Дэвид Миллберн, Тим ТомерсонПеревод: Профессиональный, многоголосый закадровыйПродолжительность: 01:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE1B2EAB4BD49E31CA4865E28D7982A746DFBCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

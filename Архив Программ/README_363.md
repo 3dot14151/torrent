@@ -6,7 +6,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.70.3800 Final RePack (& p
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863694.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent 3.4.9 Build 43295 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863676.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863612.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YTD Video Downloader PRO 5.9.17.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863606.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SMPlayer 20.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863597.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tipard Video Converter Ultimate 10.0.18 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863527.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Topaz DeNoise AI 2.1.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863453.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ IcoFX 3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863450.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863447.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Windows 10 Manager 3.2.5.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863443.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Topaz A.I. Gigapixel 4.5.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863440.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863415.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863360.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Windows 10 1909 (18363.778) x64 Home + Pro + Enterprise (3in1) by Brux v.04.2020
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863359.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Media Encoder 2020 14.1.0.155 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863357.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe Audition 2020 13.0.5.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863356.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adobe Animate 2020 20.0.3.25487 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863288.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Nvidia DriverPack v.445.87 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863287.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Topaz Sharpen AI 2.0.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863283.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Maxon CINEMA 4D Studio R21.207 build RB303831 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863280.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Windows 8.1 20in1 (x86/x64) by Eagle123 (04.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863278.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adobe After Effects 2020 17.0.6.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863275.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Adobe Photoshop Lightroom Classic 9.2.1.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863270.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Opera 79.0.4143.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863065.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ K-Lite Codec Pack Update 16.4.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863063.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Opera GX 79.0.4143.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863060.jpg" />
 </div>
 
 

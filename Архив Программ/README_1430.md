@@ -6,7 +6,7 @@ UltraUXThemePatcher 3.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311310.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 Manager 3.1.6.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311304.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shadow Defender 1.4.0.672 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311287.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 Manager 2.3.7 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311202.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ YouTube Video Downloader PRO 5.8.1 (20161111) Portable by Dave Green [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311201.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Movavi Video Converter 19.0.1 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311199.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ K-Lite Codec Pack 14.5.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311187.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Internet Download Manager 6.26 Build 12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311181.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ableton - Live Suite 10.0.5 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311178.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Movavi Video Converter 19.0.1 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311173.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Movavi Video Converter 20.0.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311144.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Sandboxie 5.31.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311142.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Firefox Browser 70.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311140.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WinRAR 5.80 Beta 3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311136.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dism++ 10.1.17.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311078.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ uTorrent Pro 3.5.4 build 44846 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311077.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WinUtilities Professional Edition 13.19 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311060.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adobe Premiere Pro CC 2019 13.0.1.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311051.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310994.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Victoria 5.03 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310991.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ CyberLink PowerDVD Ultra 19.0.2126.62 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310985.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MAGIX Vegas DVD Architect 7.0.0 Build 38 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310934.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DevID Agent 4.31 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310923.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Punto Switcher 4.3.1 Build 1716 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310920.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ CherryPlayer 3.1.9 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310817.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Textify 1.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310743.jpg" />
 </div>
 
 

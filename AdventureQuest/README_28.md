@@ -1,29 +1,3 @@
-###  Публикация: 1219266   (715053) от 13.04.2018
-
-Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В пыльном, темном углу старой потрепанной комнаты потрескивает включенный телевизор, и к вам обращается коллекция кассет VHS. Приготовьтесь отправиться в путешествие по темному лесу, замерзшей пустыне, загадочному океану и заброшенному объекту. Каждое место, которое вы посещаете, скрыто в секретах, скрыто из виду... но имейте в виду, не все так, как кажется...Тип издания: LicenseРазработчик: Charlie BehanЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059B2F819E4DCC33D0BCD8D23E37DF17DD7A31B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258610   (714368) от 01.03.2019
 
 Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
@@ -32,7 +6,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714368.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Call of Cthulhu (2018) [Ru/En] (1.0/u2) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714356.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714355.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713928.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712270.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Resolutiion (2020) [Ru/Multi] (1.1.4.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708818.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708435.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706799.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706693.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706684.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706666.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) License CODEX [Collectors Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706665.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706574.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Station (2018) [En] (B1.53.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703970.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700804.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700788.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_699499.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699021.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698908.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695434.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ CRIMSON ROOM DECADE (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693882.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693511.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ RiME (2017) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693411.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692879.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Kageroh: Shadow Corridor (2019) [En/Ja/Ko] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691635.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Kageroh: Shadow Corridor — это игра в жанре хоррор, раз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:330A77FF812B3D0642C501C4E407D3D332FCED7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221868   (691041) от 26.04.2018
+
+Inked (2018) [Multi] (20180425-1) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инкэд - это рассказ о любви и мести, которые были написаны чернилами на бумаге. Вы играете как Безымянный Герой (Nameless Hero), который отправляется в путешествие по огромному ландшафту, наполненному головоломками. Каждая решенная головоломка приближает вас к вашей потерянной любви, распутывая историю, которая навсегда изменит вас.Тип издания: LicenseРазработчик: Somnium Games d.o.o.Жанр: Adventure, Puzzle, Logic, CasualЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E4C279F83D4137A43C34E1CA9C2D16744F839F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Best Of Vocal Trance 2015 Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplifting 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512937.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mitch Murder - Current Events (2011) [MP3|320 кб/с]<Electro, Synth-pop, 80's,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512933.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512930.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Scattle - Timelapse (2015) [OGG| 436-607 кб/с]<80's Electronic Dance, Synthwa
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512929.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Bachelors Of Science - The Space Between (2015) [FLAC|tracks|WEB-DL] <Drum & Bas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512927.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ FontViewOK 4.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512923.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Scattle - Street Heat (2014) EP [OGG| 482-547 кб/с]<Electro, Darkwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512922.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512903.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ FontLab Studio VI 6.0.9 (6796) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512886.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Rob Papen - Predator 2 1.0.4 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512884.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Koan - Retrospective Tapes: Elegy (2015) [FLAC|tracks|WEB-DL] <Ambient, Downtemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512876.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ WinScan2PDF 3.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512873.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ IsMyHdOK 1.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512870.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ GetWindowText 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512862.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Aiseesoft Screen Recorder 2.1.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512858.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Maxthon Browser 3.0.17.1000 - Final [Мультиязычный, включая 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512849.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ STDU Viewer 1.5.449 [Multilanguage (Русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512840.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ CCleaner 5.09.5343 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512808.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Currencier 1.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512806.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dropzone 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512804.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ EximiousSoft Business Card Designer v.5.03 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512802.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ProgDVB 7.10.6 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512800.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Discovery. Рыба-меч: жизнь на крючке / Swords: Life on the L
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512776.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The American Dollar - Discography (2005-2010) [MP3|320 kbps]<Post-rock, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512763.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Mini Metro v.gamma 37 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512749.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ K-Lite Codec Pack 14.4.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512747.jpg" />
 </div>
 
 

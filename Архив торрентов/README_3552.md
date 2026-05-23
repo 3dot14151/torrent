@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262149.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262143.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262140.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experime
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262139.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262133.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262132.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262128.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.26 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262126.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ File Cabinet Pro 5.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262124.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.21 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262123.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.25 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262121.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ PDF Squeezer 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262119.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Fenetre 0.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262116.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Soft4Boost Document Converter 5.1.7.697 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262113.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262109.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Viscosity 1.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262106.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.27 (Compiled by Викто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262091.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ashampoo Photo Commander 16.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262087.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Avast Clear 17.9.3761.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262081.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Ashampoo Burning Studio 19.0.1.4 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262080.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Mate – Dictionary, Translator (мгновенный переводчик) 4.0.
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262076.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Luminar 2018 v1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262068.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262066.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ PDF24 Creator 8.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262065.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Ashampoo Burning Studio 19.0.1.4 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262052.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Nitro4D NitroVertex v1.01 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262042.jpg" />
 </div>
 
 

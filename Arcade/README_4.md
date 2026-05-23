@@ -6,7 +6,7 @@ Kung Fu Panda: Showdown of Legendary Legends (2016) [En/Multi] (1.0) License COD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980574.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Evil Defenders (2015) [Ru/Multi] (1.0/upd1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979788.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978734.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978301.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru/En] (1.07) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977571.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975782.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975100.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) License PLAZA [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973999.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Assassin's Creed Chronicles: India / Assassin's Creed Chronicles: Индия (20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972808.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972803.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sonic Lost World (2015) [En] (2.0.0/upd1/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972800.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Goat Simulator (2014) [Ru/Multi] (1.4.52198/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971582.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) Repack R.G. Мех
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971564.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Indivisible (2019) [Ru/Multi] (40093/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970450.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The Wild Age (2020) [Ru/Multi] (1.02.001) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969294.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.3.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968334.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965252.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Darkout [En] (L/1.0.2) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964849.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964281.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Generation Streets (2020) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963873.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961825.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Florence (2020) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959069.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Zombie Driver HD [En/Multi6] (Steam-Rip/1.4.23-20983/DLC) 2012 | R.G. Игром
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958422.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Crystal Caves (1991) [En] (1.0.0.28043) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956612.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Deadlight [En/Ru] (RePack/1.0.9249.0) 2012 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954691.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Highly Likely (2020) [Ru/En] (1.0/upd1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953684.jpg" />
 </div>
 
 

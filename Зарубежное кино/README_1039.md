@@ -1,55 +1,3 @@
-###  Публикация: 815955   (549954) от 25.08.2014
-
-Как быть мужиком / How to Be a Man (2013) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Марк думает, что умирает, и решает записать серию обучающих видео для своего нерождённого сына, призванных воспитать в нём настоящего мужика. Старая знакомая натыкается на его пост на фейсбуке и предлагает своему сыну-выпускнику киношколы помочь Марку со съёмками. Они, разумеется, попадают в множество комических ситуаций и оба обязательно многому научатся незадолго (   Читать дальше...   )Производство: США / Fox Digital Studios, Last Pictures, Rooster New YorkЖанр: КомедияРежиссер: Чадд Харбольд / Chadd HarboldАктеры: Гэвин МакИннесс, Лиам Эйкен, Меган Нуринджер, Мариса Реданти, Хелен Роджерс, Жасмин Осборн, Дарио Бароссо, Ллойд ДеЛеон, Саманта Масел, Майк КеллерПеревод: Многоголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF86B7313623B6948E6D00181BD78BD2666857F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692973   (549915) от 25.08.2013
-
-88 минут / 88 Minutes (2007) HDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Джек Грэмм - обладатель эйнштейновской шевелюры и ученой степени по криминальной психиатрии изрядно перебрал накануне. Пока он обводит аудиторию мутным глазом, тучи над ним сгущаются. Кто-то режет и вешает девушек - точь-в-точь таким же образом, как маньяк, которого Грэмм помог упрятать в камеру несколько лет назад. Во-первых, это может означать, что Джек убедил (   Читать дальше...   )Производство: США, Германия, КанадаЖанр: Драма, Триллер, ДетективРежиссер: Джон ЭвнетАктеры: Аль Пачино, Алисия Уитт, Лили Собески, Эми Бреннеман, Уильям Форсайт, Дебора Кара Ангер, Бен МакКензи, Нил МакДонаф, Леа Кейрнс, Стивен МойерПеревод: Многоголосый закадровыйЯзык субтитров: ОтсутствуютПродолжительность: 01:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8FFFA7C48929C98D77FDDE1DA099D47C7255FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 643388   (549913) от 25.08.2013
 
 Господин Никто / Mr. Nobody (2009) DVDRip [Theatrical cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549913.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549888.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549887.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549876.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549871.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549852.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549849.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549843.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549840.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549836.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549819.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549818.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549816.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549811.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549808.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549803.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549801.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549797.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549796.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549787.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549688.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549640.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549638.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549637.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7635C7EA00282D09A1F1F1944793D9EBEDD4F2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237848   (549566) от 26.07.2018
+
+Троя / Troy (2004) BDRip [H.265/1080p-LQ] [10-bit] [Director's Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549566.jpg" />
+</div>
+
+
+###  Подробнее
+
+1193 год до нашей эры. Парис украл прекрасную Елену, жену царя Спарты Менелая. За честь Менелая вступается его брат — царь Агамемнон. Его армия под предводительством Ахиллеса подошла к Трое и взяла город в кровавую осаду, длившуюся долгих десять лет… Два мира будут воевать за честь и власть. Тысячи умрут за славу. И за любовь нация сгорит дотла.Производство: США, Мальта, Великобритания / Plan B Entertainment, Radiant, Warner Bros. Pictures Co.Жанр: Боевик, Драма, МелодрамаРежиссер: Вольфганг ПетерсенАктеры: Брэд Питт, Эрик Бана, Орландо Блум, Брайан Кокс, Дайан Крюгер, Брендан Глисон, Шон Бин, Джули Кристи, Питер О’Тул, Роуз Бирн, Винсент Риган, Саффрон Берроуз, Гаррет Хедлунд, Джеймс Космо, Овайн Йомэн, Джулиан Гловер, Натан Джонс, Адони Маропис, Джейкоб Смит, Джон Шрэпнел, Сири Свеглер, Люси БаратПеревод: Многоголосый закадровыйСубтитры: Русские (форсированные, полные)Продолжительность: 03:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2942AF6667EFE218CA5F6494C5D2580FFEFC8E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237789   (549558) от 26.07.2018
+
+Лос-Анджелес в огне / Kings (2017) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549558.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как весной 1991 года суд Лос-Анджелеса оправдал четырех полицейских, жестоко избивших чернокожего таксиста Родни Кинга, в городе начались массовые беспорядки. Один из немногих белых жителей Южного Централа Оби помогает своей подруге Милли защитить ее приемных детей от насилия, царящего на улицах города.Производство: Франция, Бельгия / Barnstormer Productions, Bliss Media, CG CinémaЖанр: Триллер, драма, мелодрама, криминалРежиссер: Дениз Гамзе ЭргювенАктеры: Холли Берри, Дэниэл Крэйг, Ламар Джонсон, Каалан Рашад Уокер, Рэйчел Хилсон, Иссак Райан Браун, Каллэн Фаррис, Серенити Рейн Браун, Рис Коуди, Эйден АкпанПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Английские (Full, SDH)Продолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9CC8C134C930CFF6DA6C5D67709F1EB922E0BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

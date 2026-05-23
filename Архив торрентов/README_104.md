@@ -6,7 +6,7 @@ Icecream Ebook Reader Pro 5.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029853.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FonePaw Data Recovery 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029819.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Eassiy Data Recovery for Mac 5.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029818.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Perfectly Clear WorkBench 4.3.0.2466 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029814.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Downie 4.6.13 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029813.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ NIUBI Partition Editor 9.4.2 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029812.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ TechSmith Snagit 2023.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029811.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ TechSmith Camtasia 2022 Studio 2022.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029804.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ NIUBI Partition Editor 9.4.2 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029802.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Blocs 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029791.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Emurasoft EmEditor Professional 22.2.8 RePack (& Portable) by KpoJIuK[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029786.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Find Any File (FAF) 2.3 b7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029779.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Movavi Video Editor 23.3.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029774.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Adobe Audition 2023 23.3.0.55 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029768.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adobe After Effects 2023 23.3.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029759.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MacPilot 12 v12.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029752.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Lyn 2.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029744.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Vintage Culture - Live @ Camarote Salvador, Baía de Todos os Santos, Brazil (20
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029741.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Rob Zombie - The Lunar Injection Kool Aid Eclipse Conspiracy (2021) [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029739.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ GPU-Z 2.37.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029729.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ ProduKey 1.95 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029696.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ WebBrowserPassView 2.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029683.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029681.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ O&O Defrag Professional / Server 24.1 Build 6505 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029671.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Adobe Lightroom v6.1.0 [Ru] - Фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029669.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ OfficeSuite Pro + PDF v11.2.34501 Mod by GhostRider [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029654.jpg" />
 </div>
 
 

@@ -1,82 +1,3 @@
-###  Публикация: 1030504   (668426) от 03.07.2016
-
-Стивен Кинг, Питер Страуб | Талисман (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мальчик по имени Джек Сойер и его мать, разорившаяся актриса, вынуждены переезжать с места на место, спасаясь от долгов и гонений. Джек как никогда остро ощущает, что его мать вскоре умрет, и не знает, как помочь ей. Но вскоре он узнает, что на него возложена миссия — открыть проход между мирами и найти загадочный Талисман. Только так он сможет спасти свою мать от (   Читать дальше...   )Жанр: фантастика, фентезиПродолжительность: 31:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCE322FFDDF86E85C2EA0BA379D0380480B768C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224048   (668180) от 08.05.2018
-
-Кэтрин Уэбб | Незримое, или Тайная жизнь Кэт Морли (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кэтрин Уэбб – английская писательница, популярная во всем мире. Ее произведения переведены на двадцать четыре языка. Дебютный роман Уэбб «Наследие» (2010) стал номинантом национальной литературной премии «Писатель года», имел огромный успех и открыл для нее двери лучших издательств. Прежде чем серьезно заняться литературой, Кэтрин работала официанткой, помощницей (   Читать дальше...   )Жанр: Остросюжетный любовный романПродолжительность: 12:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAD66DE7CA8C4F9FC3CF495C1BB957C52FB3BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224085   (668109) от 08.05.2018
-
-Агата Кристи | Большая четверка (2018) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бессмертная классика мирового детектива! Королева Агата!
-В дом Эркюля Пуаро вламывается изможденный человек в выпачканном костюме. Он едва живой. Несколько капель коньяка приводят его в чувство. Человек пытается что-то объяснить, но сил его хватает лишь на то, чтобы несколько раз написать на листе бумаги большую цифру «4»…Жанр: ДетективИздательство: АудиокнигаПродолжительность: 06:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3165289D427CD23D2586EDBE2E1787E827DBEF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224078   (668008) от 08.05.2018
 
 Андрей Лагута, Алексей Анисимов | Время наизнанку (2010-2018) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668008.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667875.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667873.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667839.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667813.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667781.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667778.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667774.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667750.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667702.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667661.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667619.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667414.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667290.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667256.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667145.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667058.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667055.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666782.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666775.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666715.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666702.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666699.jpg" />
 </div>
 
 
@@ -676,6 +597,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7173FBAEF174441B15687B460AB5D058B89BDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537573   (666697) от 17.03.2022
+
+Ярослав Зуев | Триста лет спустя (Книга 2). Охота на Рэкетиров (2010) [MP3, Ярослав Зуев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателей предлагается вторая книга детективно-приключенческого сериала «300 лет спустя». Алмазная сделка – единственная надежда криминального авторитета Виктора Ледового. Но вот беда, его супруга доверяет тайну любовнику, а у того от длинной шеренги «нулей» попросту срывает крышу. В итоге камни похищены и увезены в Крым.
+Выправить почти безнадежное положение (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DB271D55D54F4D82D4CB430F65ED8CDAF10668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537725   (666691) от 17.03.2022
+
+Дана Арнаутова | «Хранитель равновесия» Книга 1. Проклятая невеста (2021) [MP3, Ольга Дианова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666691.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Проклятая невеста» – фантастический роман Даны Арнаутовой, первая книга цикла «Хранитель равновесия», жанр героическое фэнтези, приключения, любовное фэнтези.
+
+Он – хранитель равновесия, посредник между богами и людьми, маг, воин и искатель приключений. Он знает, что мир на грани страшной беды и единственное спасение – некто из старинного рода, почти истребленного (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD5AB6AABD6A4476559AB369309835EBE4B955B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137571   (666668) от 27.05.2017
+
+Энн Тайлер | Случайный турист (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666668.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Случайный турист» — Это один из самых известных романов, лауреата Пулитцеровской премии Энн Тайлер. И это снова семейная история — о зыбкости отношений и жизни вообще, о попытках обрести себя, не вылезая из собственной скорлупы. Мэйкон Лири пишет путеводители, но он ненавидит путешествия всей душой. Его путеводители — коллекции сведений о том, как в очередной вынужденной (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8353825DD42B46B515E48ABAE7987AA952920CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ AOMEI Partition Assistant Technician Edition 9.13.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177617.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Emurasoft EmEditor Professional 20.3.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177604.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PrivaZer 4.0.15 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177599.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Office 2013-2021 C2R Install + Lite 7.4.9.1 b01 ++ Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177593.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ HWiNFO 7.63 Build 5230 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177544.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ PIDKey Lite 1.64.4 b27 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177517.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Icecream Video Converter Pro 1.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177512.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Microsoft Visual Studio 2019 Community 16.8.1 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177511.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ RarmaRadio Pro 2.75.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177499.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ W10 Digital Activation v1.4.6 Portable Dark by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177497.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ExamDiff Pro Master Edition 14.0.1.14 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177496.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Viber 21.1.0.6 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177489.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Icecream Screen Recorder PRO 7.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177483.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Icecream Slideshow Maker PRO 5.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177467.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Perfectly Clear WorkBench 4.6.0.2606 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177451.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ WinCatalog 2024.3.0.1005 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177428.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Zoner Photo Studio X 19.2009.2.286 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177423.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ IceCream Ebook Reader Pro 6.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177420.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Ant Download Manager Pro 2.10.5 Build 86416 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177412.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ TapinRadio 2.15.96.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177404.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Microsoft Visual Studio 2019 Professional 16.8.1 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177401.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ eM Client Pro 8.1.852.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177397.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ RisohEditor 5.7.8 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177387.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Wise Care 365 PRO 5.6.1.557 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177384.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ eM Client Pro 9.2.2093.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177366.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Tixati 2.77 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177363.jpg" />
 </div>
 
 

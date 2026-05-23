@@ -6,7 +6,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570759.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Прекрасная Америка. На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570631.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Последние животные / The Last Animals (2017) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570507.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568680.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568675.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567025.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566993.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ NGW: В мире дикой природы. Долина смерти / Into The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565736.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ NG: Кладбище воинов. Флотилия проклятых / Warrior
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565734.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565691.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ NG: С точки зрения науки: Великое оледенение /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563820.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Сери
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563566.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563137.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563086.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559646.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558516.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557006.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556403.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556399.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556241.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556239.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556209.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555660.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555640.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555631.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ NG: Загадки исполинов каменного века / Riddle of th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555541.jpg" />
 </div>
 
 

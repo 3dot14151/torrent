@@ -1,81 +1,3 @@
-###  Публикация: 1523463   (751127) от 11.01.2022
-
-Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 1-50 (2022) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вот уже два с половиной столетия прошло с тех пор, как Европа впервые познакомилась с арабскими сказками «Тысячи и одной ночи», но и теперь они пользуются неизменной любовью читателей. Теперь у вас есть уникальная возможность услышать аудиоверсию этого удивительного произведения. Дорогие друзья! С огромной радостью представляем вам новый проект: Сборник сказок «Тысячи (   Читать дальше...   )Жанр: Зарубежная классика, Сказки, НовеллыПеревод: Михаил СальеПродолжительность: 15:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC5282BEDC42BBB0A330917CC15C231AB932852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216226   (751091) от 30.03.2018
-
-Григорий Глазов | Вынужденный детектив (2018) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие повести Григория Глазова "Вынужденный детектив" происходит в польском городке во времена фашистской оккупации и в наши дни. Маленькая группа интеллигентов, пытаясь спасти от фашистов чертежи, схемы и планы архитектурных памятников, уничтоженных врагами, поплатилась жизнью за свой отчаянно смелый шаг. Эти люди выполнили долг перед будущими поколениями (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 14:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2600EF3F2A7448857B4AC5AEA1A8CB77E74EA58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216110   (751090) от 30.03.2018
-
-Мэтью Квирк | 500 (2018) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Майк Форд пошел по стопам своего отца — грабителя из высшей лиги преступного мира. Пошел — но вовремя остановился. Теперь он окончил юридическую школу Гарвардского университета и был приглашен работать в «Группу Дэвиса» — самую влиятельную консалтинговую фирму Вашингтона. Он расквитался с долгами, водит компанию с крупнейшими воротилами бизнеса и политики, а то, (   Читать дальше...   )Тип издания: ОцифровкаЖанр: ТриллерИздательство: Нигде не купишьПродолжительность: 14:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F07D6148FF9D5250AD4A06649C47CD2C64657F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216069   (751086) от 30.03.2018
 
 Лина Алфеева | Академия в подарок (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751086.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751085.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751077.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751000.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750977.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750927.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750834.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750821.jpg" />
 </div>
 
 
@@ -297,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750726.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750454.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750256.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750255.jpg" />
 </div>
 
 
@@ -403,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750076.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750072.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750057.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749866.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749865.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749861.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749807.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749761.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749609.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749429.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749421.jpg" />
 </div>
 
 
@@ -678,6 +600,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A2B5579CE7AEC6C3360F36F26820AE983190F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216500   (749312) от 31.03.2018
+
+Стивен Кинг | Светящийся (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Торранс со своей семьей нанимается смотрителем на зимний период в отель «Оверлук». Предвкушая хороший отдых, превосходную еду, да и приличное пополнение семейного бюджета взрослые члены семьи даже не догадываются о тайнах, хранимых фешенебельным отелем…Жанр: МистикаПродолжительность: 16:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B02682B562F102E837217D36C13D832E399820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216454   (749211) от 31.03.2018
+
+Стивен Кинг, Питер Страуб | Черный Дом (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия жестоких убийств потрясает маленький городок Френч-Лэндинг. Убийцу жители прозывают «Рыбаком» из-за его подражания действиям известного серийного убийцы и каннибала Альберта Фиша. Расследование дела о психопате-убийце ставит полицию в тупик, а средства массовой информации лишь подливают масла в огонь, сея панику среди населения.
+Местные власти безуспешно уговаривают (   Читать дальше...   )Жанр: Фантастика, ФэнтезиПродолжительность: 31:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711504498A7942C7E7D70A56F5C990A96CB3156D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664310   (749000) от 03.06.2013
+
+Сергей Садов | Рыцарь двух миров [2013] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749000.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наперекор судьбе!" – такой девиз мог бы начертать на своём гербе обычный школьник Егор Громов, ставший наследником великого Ордена, его последним рыцарем. Ставший только для того, чтобы попасть домой. Прослыв "странным рыцарем", он должен суметь выжить в чужом мире, суметь отыскать ключ-проводник и вернуться в свой мир. Но вдруг оказывается, (   Читать дальше...   )Жанр: фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC3BE06C62E38EE953C2FF40B210A6086AB2E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

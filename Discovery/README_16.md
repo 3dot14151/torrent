@@ -6,7 +6,7 @@ Discovery:Правда о Нострадамусе / Nostradamus Decoded (2009) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467415.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip (сезон
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465797.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Сибирская рулетка (сезон 1, серии 1-4 из 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464108.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463782.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. Смертельный улов / Deadliest Catch (2014) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462163.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Встреча с инопланетянами. Прибытие / Al
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460765.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Discovery: Встреча с инопланетянами. Сигнал / Alien 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458838.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457168.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454781.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery: Плутон: первая встреча / Direct from Pluto-The Fir
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453238.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Discovery. Самая странная погода на Земле / Strangest 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452414.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452361.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2015) HDTVRip (3 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451032.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery: Америка: факты и домыслы / America: Facts vs. Fic
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447119.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Ангелы и демоны. Факты или домыслы? / Ang
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446641.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445984.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444918.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery: Разрушители легенд. В поисках утрачен
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444748.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery: Разрушители легенд. Трансформеры / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444601.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444600.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441168.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery: Первые обитатели Америки / America's First Nati
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435144.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432893.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery. Техногеника. Шагающий экскаватор (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432153.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431569.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery. Взгляд изнутри / Inside West Coast Customs (2017) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427220.jpg" />
 </div>
 
 

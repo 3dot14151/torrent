@@ -6,7 +6,7 @@ Feeder 4 v4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037563.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Display Maid 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037562.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Scrutiny 10 v10.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037560.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ SpamSieve 2.9.42 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037559.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ BusyContacts 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037558.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SyncTime 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037557.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Performance Index 64 Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037556.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Alfred 4 Powerpack 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037555.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Separation Studio 2.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037554.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Art Text 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037553.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WonderFox HD Video Converter Factory Pro 26.2 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037540.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ HitPaw Video Converter 2.7.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037533.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ NCH Express Animate 5.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037532.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ TuneBoto Amazon Music Converter 2 v2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037531.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PDFpen Pro 12 v12.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037530.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Nova 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037529.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ NCH DreamPlan Plus 5.79 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037528.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ WidsMob ImageConvert - JPG/PNG 2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037527.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ ExpanDrive 7 v7.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037524.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ iReal Pro 2020.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037522.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ The Clock - The Best World Clock 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037521.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ TuneBoto Amazon Video Downloader 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037517.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.1.3  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037512.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Chasys Draw IES 5.24.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037510.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Topaz Video AI 3.1.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037508.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ FreeFileSync 12.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037507.jpg" />
 </div>
 
 

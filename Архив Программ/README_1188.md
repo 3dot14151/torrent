@@ -6,7 +6,7 @@ Zoner Photo Studio X 19.2009.2.274 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440879.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft WorldWide Telescope (WWT) 3.0.76.1 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440825.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aurora 3D Text & Logo Maker 12.09.26 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440824.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Magic Particles 3D 2.18 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440810.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Naval7 USB Reanimator v1.0.5 x86/x64 от 06.10.2010 [RuS,En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440754.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MediaHuman YouTube Downloader 3.9.9.45 (1709) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440741.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Magic Uneraser Home / Office / Commercial Edition 5.2 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440736.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CrystalDiskInfo 8.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440730.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440670.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Rainmeter Skin Pack 27.09.12 [Ru/En] [Rainmeter скин]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440661.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Opera GX 89.0.4447.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440651.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Rainmeter Skin Pack 28.09.12 [Ru/En] [Rainmeter скин]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440650.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Avast! Internet Security 7.0.1468 Beta [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440648.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Wise Care 365 Pro 6.3.5.613 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440635.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ United Plugins & Soundevice Digital - TrapTune 1.0 VST, VST3, AAX (x64) RePack b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440628.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ SlimBrowser 17.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440627.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Ant Download Manager Pro 1.19.5 Build 74430 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440596.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Wise Data Recovery Pro 5.1.6.334 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440594.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Viber 13.8.0.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440588.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Reg Organizer 8.55 Repack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440585.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ GoldWave 6.52 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440584.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ digiKam 7.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440580.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Media Player Classic HomeCinema 1.5.3.3739 [Многоязычный] [RU]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440563.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Registry Backup 3.2.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440522.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Dropbox 3.10.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440521.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Sogou Explorer 6.0.5.18005 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440520.jpg" />
 </div>
 
 

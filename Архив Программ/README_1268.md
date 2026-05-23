@@ -6,7 +6,7 @@ MetaProducts Offline Explorer Enterprise 6.4.3860 SR1 Final [MULTi / Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399874.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399752.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ AVG Internet Security 2013 2013.0.2742 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399751.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Wolfram Mathematica 8 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399654.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Skype 6.0.0.120 Final [Multi/Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399647.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ SMPlayer 17.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399484.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Download Master 6.14.1.1573 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399476.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Cumulative Update KB4038801 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399474.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bulk Crap Uninstaller 3.17.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399473.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Wise Disk Cleaner 9.5.6.678 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399364.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Cumulative Update KB4040724 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399302.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Spyware Cease v7.2.0.1 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398965.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ ParetoLogic RegCure Pro 3.1.2.0 [Англ.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398924.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sony ACID Music Studio 9.0 Build 35 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398913.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Mozilla Firefox 16.0.2 Final [Rus] RePack/Portable by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398912.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Mentum (ASCOM) TEMS CellPlanner 9.1.0.95 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398860.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Realtek High Definition Audio Driver (3.58) 6.0.1.6738 [Мульти/Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398801.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ JetBrains ReSharper 7.0.1098.2760 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398800.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Norton 360 2013 20.2.0.19 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398672.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Artmoney Pro 7.40 [Русский/Украинский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398663.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VirtualBox 4.2.4.81684 Final + Extension Pack [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398659.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398657.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Privacy Eraser Free 4.29.0 Build 2400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398635.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398620.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ GoodSync Enterprise 10.6.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398566.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Download Master 6.14.1.1573 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398564.jpg" />
 </div>
 
 

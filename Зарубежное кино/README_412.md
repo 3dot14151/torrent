@@ -1,55 +1,3 @@
-###  Публикация: 1495227   (882260) от 11.09.2021
-
-Врата дракона / Long men fei jia / The Flying Swords of Dragon Gate (2011) BDRip [H.264/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Согласно древней легенде каждые 60 лет сильнейшая песчаная буря смывает песок, под которым спрятан Золотой город, полный сокровищ. В ожидании бури в гостинице Врата Дракона собирается разномастная компания охотников за сокровищами Золотого города. Тут и император одной из китайских провинций и тайный министр другой провинции и две банды наемных убийц. Все они жаждут (   Читать дальше...   )Производство: Китай / Beijing Liangzi Group, Beijing Poly-bona Film Publishing Co. LtdЖанр: Боевик, ПриключенияРежиссер: Цуй ХаркАктеры: Джет Ли, Чжоу Сюнь, Чэнь Кунь, Луньмэй Квай, Юйчунь Ли, Мевис Фэн, Фан Сю-Вонг, Цзя-Хуэй Лю, Цзянькуй Сунь, Чиэнь ШэнПеревод: ДублированныйСубтитры: английскиеПродолжительность: 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F3D53136263C0EDBA636244C88346085CB53FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991101   (882257) от 12.03.2016
-
-Тело как улика / Body of Evidence (1992) HDTV [H.264/1080i-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Влюбившись в свою подзащитную, обвиняемую в убийстве, адвокат Фрэнк Дилэйн так умело строит речь в суде, что ему удается убедить присяжных вынести оправдательный вердикт. А через день Фрэнк становится невольным свидетелем разговора своей подзащитной с человеком, который помог ей совершить убийство…Производство: Германия, США, Dino De Laurentiis Company, Neue Constantin FilmЖанр: Триллер, Драма, МелодрамаРежиссер: Ули ЭдельАктеры: Мадонна, Уиллем Дефо, Джо Мантенья, Энн Арчер, Юрген Прохнов, Стэн Шо, Лиллиэн Лемэн, Марк Ролстон, Ричард Рил, Джулианна МурПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95B5AE4519E3CEF6DD03B6B677E2EE8979A6175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995900   (882254) от 12.03.2016
 
 Патруль времени / Timecop (1994) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882254.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882249.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882240.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882238.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882236.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882234.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882166.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882159.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882151.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882149.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882145.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882141.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882123.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882116.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882103.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882087.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882086.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882083.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882080.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882072.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882069.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882067.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882063.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882060.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:885FC27CEAA18D685FDB87EEADEC905EF85298E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492140   (882045) от 11.09.2021
+
+Остров фантазий / Fantasy Island (2020) BDRip [H.264/1080p-LQ] [Unrated Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа из пяти человек прилетает на загадочный тропический остров, где некий мистер Рорк исполняет заветные мечты своих гостей. Каждый из новоприбывших хотел бы что-то изменить в своей жизни, и каким-то невероятным образом остров фантазий эти желания воплощает, но вскоре мечты гостей оборачиваются неожиданным кошмаром.Производство: США, Columbia Pictures, Blumhouse ProductionsЖанр: Триллер, фантастикаРежиссер: Джефф УодлоуАктеры: Майкл Пенья, Мэгги Кью, Люси Хейл, Остин Стоуэлл, Портия Даблдэй, Джимми О. Ян, Райан Хансен, Майкл Рукер, Шарлотта МакКинни, Ким Коутс, Париса Фитц-Хенли, Майк ФогельПеревод: Дублированный (Лицензия)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029FABA956DA848DFC34DB119F0F395C30C08C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495302   (882035) от 11.09.2021
+
+Злое / Malignant (2021) WEB-DL [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Мэдисон превращается в настоящий кошмар, когда в своих снах она становится свидетельницей зверских убийств. Но что, если ночные видения — на самом деле жестокая реальность? Есть ли у Мэдисон шанс их предотвратить?Производство: США / Atomic Monste, rBoom Entertainment, Boom! StudiosЖанр: ужасыРежиссер: Джеймс ВанАктеры: Аннабелль Уоллис, Мэдди Хассон, Джордж Янг, Миколь Уайт, Джин Луиса Келли, Сюзанна Томпсон, Джейк Эйбел, Жаклин МакКензи, Кристиан Клименсон, Амир АбулелаПеревод: Двухголосый любительский (Pazl Voice)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D79DF0D0B3A7BC124A1C4A512A354C5D515BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Emiya-san Chi no Kyou no Gohan | Today's Menu For Emiya Family | Сегодня�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793868.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ingress the Animation | Ингресс [2018, TV, 11 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792866.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ginga Tetsudou 999 / Galaxy Express 999 Movie / Галактический эк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791970.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791269.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Iriya no Sora, UFO no Natsu / Sky of Iriya, Summer of UFO / Небо Ирии, �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789142.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hitori Kurashi no Shougakusei | Одиноко живущая младшекла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787532.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787515.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787306.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Garo: Guren no Tsuki | Garo: Crimson Moon | Гаро: Кровавая луна 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786459.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Gabriel DropOut / Габриэль бросает школу [2017, TV, 12 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786420.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ World Trigger | Импульс мира [2014, TV, 73] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786419.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Yami Shibai / Театр тьмы [ТВ-4] [2017, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786297.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Yami Shibai / Театр тьмы [ТВ-3] [2016, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786107.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Yami Shibai / Театр тьмы [ТВ-2] [2014, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786090.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786060.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Arslan Senki: Fuujin Ranbu / The Heroic Legend of Arslan: Dust Storm Dance / С�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783061.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Mayonaka no Occult Koumuin | Midnight Occult Civil Servants | Оккультны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782189.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Sakura Quest | Квест Сакуры [2017, TV, 25] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781699.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Sakura Wars the Animation | Shin Sakura Taisen the Animation | Сакура: Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780949.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ DEVILMAN crybaby | Devilman: Crybaby | Человек-дьявол: Плакса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779049.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gin no Guardian II | The Silver Guardian 2 | Серебряный страж [Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778930.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Taishou Mebiusline: Chicchai-san | Кроха Тайсё [2017, TV, 12+SP] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778459.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773321.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Log Horizon 2 / Лог горизонта [ТВ-2] [2014, TV, 25] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772751.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772443.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772434.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Calibre 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264253.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 3.0.82 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264251.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ACDSee Photo Studio 6 v6.0.1484 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264250.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Soft Organizer Pro 7.50 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264249.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Auslogics Duplicate File Finder 8.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264235.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Auslogics BoostSpeed Pro 11.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264234.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Disk Drill Enterprise 3.8.953 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264232.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Auslogics Windows Slimmer 2.2.0.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264221.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264206.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ FastStone Capture 9.3 Corporate RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264203.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wondershare Filmora 9.2.11.6 (x64) Repack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264201.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AnyDesk 5.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264190.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Uplifting Only Top 15: December (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264180.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Surr - Discography 3 Releases (2008-2017) Eternell [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264179.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264178.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264168.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Commander One PRO Pack 2 v2.4 (build 3129) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264154.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.3 (Compiled by Викто�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264143.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.4 (Compiled by Викто�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264141.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264138.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ ExpanDrive 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264136.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.6 (Compiled by Викто�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264134.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Softany WinCHM Pro 5.19 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264132.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PrivaZer 3.0.35 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264131.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.5 (Compiled by Викто�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264130.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.2 (Compiled by Викто�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264127.jpg" />
 </div>
 
 

@@ -1,113 +1,3 @@
-###  Публикация: 540431   (503709) от 29.08.2012
-
-Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2CB029803C663DDB0DF808829F814DEEF305B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540427   (503400) от 29.08.2012
-
-Chris Parker - Symphony (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClubПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897124E7B47BA8019445C233797FBF159BD84BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934175   (503258) от 04.09.2015
-
-U.D.O. - Navy Metal Night (2014/2015) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В феврале 2014 года U.D.O. сыграли специальное шоу в сопровождении немецкого военно-морского оркестра Marinemusikkorps Nordsee. Симфоническое звучание оркестра и хора слились воедино с песнями U.D.O., сделав вечер незабываемым для собравшейся аудитории.01. Das Boot
-02. Future Land
-03. Independence Day
-04. Animal Instinct(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalРежиссер: Oliver "Bomber" BarthПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55855A6D90EC6F32D154A5D5C70E4FD798BE283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540403   (503062) от 29.08.2012
-
-Король и Шут - Концерт в Олимпийском (2004) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Мастер приглашает в гости
-03. Верная жена
-04. Волосокрад(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C40D02BEEE407A7805397349826922C3EE5AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934437   (502318) от 05.09.2015
 
 U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
@@ -116,7 +6,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502318.jpg" />
 </div>
 
 
@@ -145,7 +35,7 @@ Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502152.jpg" />
 </div>
 
 
@@ -174,7 +64,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502149.jpg" />
 </div>
 
 
@@ -203,7 +93,7 @@ Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502136.jpg" />
 </div>
 
 
@@ -231,7 +121,7 @@ Rammstein - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502114.jpg" />
 </div>
 
 
@@ -257,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502093.jpg" />
 </div>
 
 
@@ -292,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502016.jpg" />
 </div>
 
 
@@ -321,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501967.jpg" />
 </div>
 
 
@@ -350,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501113.jpg" />
 </div>
 
 
@@ -379,7 +269,7 @@ Pet Shop Boys - Pandemonium (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500890.jpg" />
 </div>
 
 
@@ -405,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500874.jpg" />
 </div>
 
 
@@ -434,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500871.jpg" />
 </div>
 
 
@@ -460,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500778.jpg" />
 </div>
 
 
@@ -486,7 +376,7 @@ Madonna - The MDNA Tour (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500199.jpg" />
 </div>
 
 
@@ -515,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500193.jpg" />
 </div>
 
 
@@ -544,7 +434,7 @@ Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499513.jpg" />
 </div>
 
 
@@ -570,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499180.jpg" />
 </div>
 
 
@@ -596,7 +486,7 @@ IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499122.jpg" />
 </div>
 
 
@@ -622,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499051.jpg" />
 </div>
 
 
@@ -657,7 +547,7 @@ Edguy - Live Wacken (2012) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498347.jpg" />
 </div>
 
 
@@ -686,7 +576,7 @@ Steve Hackett - Genesis Revisited – Live at the Royal Albert Hall (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497270.jpg" />
 </div>
 
 
@@ -715,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496974.jpg" />
 </div>
 
 
@@ -726,6 +616,119 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:008FA72BECD1E1ECE07F37E22D90608946503D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541272   (496942) от 04.09.2012
+
+Король и Шут - Ели мясо мужики (1999) DVD-5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ели Мясо Мужики
+02. Охотник
+03. Отец и Маски
+04. Валет и Дама(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47403EB2301C2B7F615A04686299F9C783C3BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936267   (496053) от 11.09.2015
+
+Dream Theater - Live at Luna Park (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Dream Theater в Луна-парк арена в Буэнос-Айресе, Аргентина.  Концерт был издан на Over The Edge Productions.01. Bridges in the Sky
+02. 6:00
+03. The Dark Eternal Night
+04. This Is the Life(   Читать дальше...   )Жанр: Progressive MetalРежиссер: Майк ЛеонардПродолжительность: 02:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CD133E40FAB62ED1B673CAA1E8B95F2BD02CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936464   (495788) от 11.09.2015
+
+VA - Осенний марафон № 188 / Видеоклипы (Зарубежный Парад Новинок ) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (11.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alex Adair - Heaven (Official Video) (00:03:07)
+2. Andreea Banica - Supererou (Official Video) (Famous Production) (00:03:50)
+3. Bobina ft. Natalie Gioia - Addicted (Official Video) (00:02:53)
+4. Bryan Adams - Brand New Day (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:27:40 + 00:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD1A3F8790C51EA58A15B0FCF6BE00EEBD27D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543081   (495468) от 05.09.2012
+
+The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495468.jpg" />
+</div>
+
+
+###  Подробнее
+
+The AIX All Star Band: Pachelbel Canon Acoustica, выпущенный наЖанр: Baroque, Free jazz, Jam sessionПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

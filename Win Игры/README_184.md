@@ -1,29 +1,3 @@
-###  Публикация: 1227540   (646376) от 26.05.2018
-
-Friday the 13th: The Game / Пятница 13 (2017) [Ru/En] (B11030/dlc) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Местом действия игры является вымышленный лагерь «Хрустальное Озеро» из серии фильмов «Пятница, 13». События разворачиваются в 1980-е годы.  Многопользовательском режиме в одной сессии могут играть восемь человек. Один из игроков (выбранный случайно) будет управлять ДжейсономТип издания: RepackРазработчик: IllFonicЖанр: Action (Survival horror), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC28FD89703E4BB33419FC3168D935ABB652CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291910   (646342) от 29.03.2019
 
 Counter-Strike 1.6 (2000) [Ru/En] (1.1.2.7/pv48/b8189) Repack/Mod stalin-volki
@@ -32,7 +6,7 @@ Counter-Strike 1.6 (2000) [Ru/En] (1.1.2.7/pv48/b8189) Repack/Mod stalin-volki
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646342.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Voice from Heaven / Голос Небес (2017) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646192.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Celestian Tales: Old North (2015) [En] (1.1.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645246.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Grim Facade 11: Broken Sacrament (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645095.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Andersen Accounts: Chapter One (2018) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645093.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Endless Fables: Dark Moor (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645088.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Moonsouls: Echoes of the Past (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645079.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_645014.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Myth Seekers 2: The Sunken City (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644984.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Bridge to Another World 6: Gulliver Syndrome / Мост в другой мир 6
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644844.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Spec Ops: The Line [Ru] (v.1.0) 2012 | 1C-СофтКлаб
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644682.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Danse Macabre 6: Ominous Obsession / Танец смерти 6: Наважден
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644605.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Shrouded Tales 3: The Shadow Menace / Таинственные сказки 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644598.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Whispered Secrets 9: Cursed Wealth / Нашептанные секреты 9: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644579.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru] (v.1.0) 2012 | Новый Диск
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644553.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ SimplePlanes (2015) [En] (1.7.0.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644495.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ League of Light 5: Edge of Justice / Лига Света 5: Пик правос�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644472.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ One Piece: World Seeker (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644442.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ The Office Quest (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644380.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [Ru/Multi] (1.0) Lic
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644335.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644333.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ ABZU (2016) [Ru/Multi] (1.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644189.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ World of One (2017) [Ru/Multi] (1.1.3 B4) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644185.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Party Hard (2015) [Ru/Multi] (1.4.030.r/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644184.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Epistory - Typing Chronicles (2015) [Ru/Multi] (1.3.5) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644179.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Epistory - Typing Chronicles (2015) [Ru/Multi] (1.3.5) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4DD93836A146E9DDA956DF67C912E6C54B4F742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032819   (643354) от 08.07.2016
+
+Fossil Echo (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следуйте в путешествие за мальчиком, в котором он поднимается на древнюю башню простирающуюся над облаками. Сюжетно-короткая игра является сложным 2D платформером с рисованной графикой. Почему и зачем он туда идет? Что он найдет на самой вершине?Тип издания: RepackРазработчик: AwacebЖанр: Adventure, Arcade, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0597FA169CB1C27B4C50CEA7747EAB41BB9977
 ```
 
 https://mybot314.ru/tekegram_catalog/

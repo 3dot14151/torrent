@@ -1,29 +1,3 @@
-###  Публикация: 1083198   (274495) от 15.12.2016
-
-Lost Lands 4: The Wanderer / Затерянные земли 4: Скиталец (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-На протяжении многих лет моряки и пираты Затерянных земель рассказывали о редком появлении корабля-призрака во время шторма. Видение сразу же исчезало, как только человек понимал, что оно реально! Но воспоминания о необычной встрече еще долго жили - так появлялись легенды:  об огромном осьминоге, управляющем кораблем, о капитане-призраке, о проклятии Ярла и злой ведьме.Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924D4801CF643864AC8C7FCAFBAC44B38CE3AA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188582   (274333) от 02.12.2017
 
 Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
@@ -32,7 +6,7 @@ Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274333.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Coma 2: Vicious Sisters (2019) [Ru/Multi] (0.2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274326.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Watchmen: The End is Nigh / Хранители (2009) [Ru/En] (1.0) Repack Serap
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274301.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Super Dungeon Tactics (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274230.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274228.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ PayDay 2 (2013) [Ru/En] (1.83.455/upd 166.1/dlc) Repack R.G. Механики [U
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274147.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274146.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Mystery Case Files 18: The Countess (2018) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274067.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Pro Basketball Manager 2019 (2018) [Multi] (1.10) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273991.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Haunted Hotel 10: The X Collector's Edition / Проклятый отель 10. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273394.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: Под маской (2015)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273381.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273281.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ TY the Tasmanian Tiger (2016) [Multi] (1.00.1295) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273168.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Adam Wolfe: Blood of Eternity / Adam Wolfe: Кровь вечности (2016) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273167.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273117.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Project Hospital (2018) [Ru/Multi] (1.0.14611) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272881.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ West of Loathing (2017) [En] (1.11.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272858.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ PRO FISHING SIMULATOR (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272855.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Need for Speed Most Wanted (2012) [Ru] (1.5.0.0/dlc) Repack xatab [Limited Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272718.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ PC Building Simulator (2019) [Ru/En] (1.5.2/dlc) Repack Sceef
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272359.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Alice's Wonderland: Cast In Shadow / Алиса в стране чудес: Те
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272283.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ X4: Foundations (2019)  [Ru/Multi] (2.60.372944 HF2) SteamRip =alexalsp= [Update
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272272.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.7/dlc) Repack Other s [Game of the Ye
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272200.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272167.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271918.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083933   (271912) от 17.12.2016
+
+Elena (2016) [En/Ge] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elena - атмосферная игра от первого лица, в которой игрок должен узнать историю одной молодой пары и выяснить, что же случилось с мужем Елены - Леннардом.  В шкафах и ящиках, она будет находить предметы и документы, которые помогут пролить свет на происходящееТип издания: LicenseРазработчик: Catch A CatЖанр: Adventure, 3D, 1rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A566C6D45385FD04E1388DED8E2755B582C4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

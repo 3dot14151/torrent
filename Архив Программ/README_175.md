@@ -6,7 +6,7 @@ Opera GX 64.0.3417.167 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990795.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 3.0.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990793.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hetman Uneraser 5.0 Home / Office / Commercial Edition RePack (& Portable) by Tr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990610.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PDFCool Studio 3.32 Build 130128 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990581.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ W10Privacy 3.4.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990548.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NetLimiter Pro 4.0.59.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990487.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990483.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe Media Encoder 2020 14.0.1.70 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990479.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990476.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PhotoDiva Pro 1.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990474.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Foxit Reader 5.4.5.0124 Portable by SamDel [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990445.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ R-Studio Network Edition  8.12 Build 175721 RePack (& portable) by Diakov [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990433.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990429.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe After Effects 2020 17.0.2.26 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990426.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Toolwiz Care 2.0.0.4300 [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990412.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Mojosoft BusinessCards MX 4.8 Update [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990411.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Advanced Renamer 3.55 Beta Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990408.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Undelete Navigator 1.1.0.188 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990386.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Windows 10 Enterprise LTSC Sergei Strelec x86/x64 1809 (build 17763.973) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990358.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe Premiere Pro CC 2020 14.0.1.71 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990356.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4939.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990352.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Light Alloy 4.7.0. Build 1226 RC1 Portable [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990331.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ BandiZip 2.09 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990324.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Reg Organizer 6.01 Final Portable by Valx [Мульти / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990305.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Photo DataBase 4.0.0.581 [Eng/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990149.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Zookaware SpyZooka 2.94.15 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990089.jpg" />
 </div>
 
 

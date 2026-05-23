@@ -6,7 +6,7 @@ CCleaner Browser 77.1.1834.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322612.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Explorer 16.20 Portable by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322610.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sound Normalizer 7.3 RePack (& Portable) by Trovel [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322607.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BurnAware Professional 5.5 Final RePack (& Portable) by KpoJIuK [MULTi / Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_322585.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GoodbyeDPI 0.2.2. Launcher 5.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322548.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ LEX LIVE 10 2022 v.22.10.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322546.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Movavi Video Editor Plus 20.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322501.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mozilla Firefox MO 3.5 (45.5.0 esr) Portable by southron4965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322500.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Wondershare Filmora 9.2.7.13 (x64) Repack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322491.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BlueStacks Tweaker 5.15.2 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322474.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CCleaner 5.63.7540 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322458.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ MiPony Pro 3.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322453.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AV Uninstall Tools Pack 2019.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322449.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Microsoft Visual Studio 2019 Professional 16.3.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322381.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ CCleaner 5.63.7540 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322355.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ TeamViewer 8.0.16284 beta + Portable [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_322334.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ DVD X Studios CloneDVD 6.0.0.0 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_322302.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Viber 14.1.0.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322115.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Vivaldi 3.4.2066.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322112.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Advanced Installer 17.6 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322104.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Microsoft Edge 86.0.622.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322096.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ K-Lite Codec Pack 9.5.5 Mega/Full/Basic/Standard/Update + x64 [Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_322078.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ditto Clipboard Manager 3.23.124.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322006.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ FreeFileSync 11.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321996.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Nero Lite 12.0.02900 RePack by mara [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_321994.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Dr.Web Security Space 8.0.0.11260 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_321988.jpg" />
 </div>
 
 

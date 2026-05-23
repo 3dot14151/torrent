@@ -1,84 +1,3 @@
-###  Публикация: 433182   (153760) от 15.11.2023
-
-Аркадий Аверченко, Тэффи и др. | Новый Сатирикон (2008) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: Антология юмора и сатиры.
-«Новый Сатирикон» – популярный юмористический литературный журнал, издававшийся в 1913-1918 гг. (его предшественник – журнал «Сатирикон» – издавался с 1908 г.) Веселые рассказы и фельетоны, стихотворения и юморески, эпиграммы и пародии для «Сатирикона» и «Нового Сатирикона» писали признанные мастера сатиры и юмора, такие как Аркадий (   Читать дальше...   )Жанр: Русская литература, классика, юмор, сатира, рассказИздательство: Студия «АРДИС»Продолжительность: 04:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EF1B7E06EAE12CCBEA10836827F2DD0B27A476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433855   (153759) от 22.12.2020
-
-Александр Март | Механики. Том 1 (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Каждый год в мире исчезают тысячи людей, в один миг – бесследно. И как их не искали, никаких следов просто нет… Александр не мог предположить что эта поездка, обычная доставка машин заказчику, так сильно изменит его жизнь. Пустыня, жара и все вокруг хотят тебя сожрать. Шутка ли? Но нет, теперь это реальность, в которой нужно для начала просто выжить. Рядом близкие (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, Юмористическое фэнтезиПродолжительность: 18:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0F0770C10F945F7165048590790B7C6365C6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437935   (153751) от 15.11.2023
-
-Аркадий Аверченко | Дюжина ножей в спину революции (2005) [MP3, Владимир Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Аркадий Тимофеевич Аверченко (1880–1925) – русский писатель, сатирик, театральный критик. 1908 г. главный редактор журнала «Сатирикон».
-«Дюжина ножей в спину революции» – сборник рассказов «короля смеха» Аркадия Аверченко. В основе сюжетов – первые месяцы после революции 1917 г. в России.
-Текст прочитан без сокращений.Жанр: Русская литература, юмор, рассказИздательство: 1С-ПаблишингПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0DC76F59D1F7FC3B96AE1E681BC49D5B8F4C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 385855   (153746) от 15.11.2023
 
 Овидий | Метаморфозы (2006) [MP3, Яков Смоленский, Владимир Шурупов]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153746.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153700.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153695.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153675.jpg" />
 </div>
 
 
@@ -196,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153593.jpg" />
 </div>
 
 
@@ -222,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153511.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153506.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153472.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153462.jpg" />
 </div>
 
 
@@ -327,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153435.jpg" />
 </div>
 
 
@@ -353,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153426.jpg" />
 </div>
 
 
@@ -379,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153402.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153389.jpg" />
 </div>
 
 
@@ -432,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153385.jpg" />
 </div>
 
 
@@ -458,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153350.jpg" />
 </div>
 
 
@@ -485,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153346.jpg" />
 </div>
 
 
@@ -511,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153302.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153296.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153295.jpg" />
 </div>
 
 
@@ -589,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153292.jpg" />
 </div>
 
 
@@ -615,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153288.jpg" />
 </div>
 
 
@@ -641,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153280.jpg" />
 </div>
 
 
@@ -667,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153247.jpg" />
 </div>
 
 
@@ -678,6 +597,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7000AD48EE26A62577ACC255E6E6E13CD8E837E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677049   (153202) от 16.11.2023
+
+Валентин Лавров | Граф Соколов – гений сыска (2023) [MP3, Александр Соколов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская империя начала XX века. Блестящий офицер лейбгвардии Преображенского полка граф Соколов оставляет военную службу и становится сыщиком. Он жаждет подвигов в борьбе с преступностью. И сразу же попадает в самое пекло опасных приключений. Распутать хитрое преступление – увлекательная игра для графа Соколова. Его высокий интеллект, исключительная способность (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 14:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82DE935098AE51393AE5B33EBDA880229E1C523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085919   (153181) от 24.12.2016
+
+Екатерина Вильмонт | Плевать на всё с гигантской секвойи (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153181.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой книге Екатерина Вильмонт раскрывает внутренний мир современных, зрелых, независимых женщин, способных управлять обстоятельствами, рассказывает об их крахах и победах, трагедиях и радостях. Ее ироничная, легкая, живая проза читается на одном дыхании и заряжает читателей оптимизмом и верой в себя. Романы писательницы - это юмор, жизнерадостность и остроумные (   Читать дальше...   )Жанр: романПродолжительность: 09:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F329DDCF5BA1047F8D74C1224DD4D911677DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600957   (153158) от 29.12.2022
+
+Дмитрий Ра | Константин Киба (Книга 1). Превосходство Неодаренного. Том 1 (2022) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я был тем, кто снится в кошмарах и кого в страхе выискивают в тенях. Моей стихией были крики и металлический аромат крови. Но я очнулся Константином Кибой! Заурядным простолюдином-ботаником из школы неодаренных, где каждый день – унижение или смерть. Без связей, денег, власти. В моем распоряжении только тощее тело и опыт прежних лет. Четверо окружили меня. Но… Я (   Читать дальше...   )Жанр: Боевое фэнтези, Магические академии, Попаданцы, Юмористическое фэнтезиПродолжительность: 08:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE92E5C11034D22B0DC915D121C53FC65704FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

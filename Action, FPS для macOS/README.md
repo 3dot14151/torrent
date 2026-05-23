@@ -7,7 +7,7 @@ Planet Nomads v1.0.7.2 (2017) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027142.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Metro Exodus v1.0 (2019) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012036.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Road Redemption (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007522.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wizard of Legend v1.123.2 (2018) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002388.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Katana ZERO v1.0.5 (2019) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002105.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Painkiller: Reload [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998200.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ DmC: Devil May Cry [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990750.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Wolfram [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989957.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988847.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Cave [Native] [Ru]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983644.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Crysis (2007) [Ru] [OS X WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971580.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Star Wars: The Force Unleashed II (2010) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950081.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ ScourgeBringer v1.04 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947977.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Painkiller: Overdose (2007) [Ru] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944265.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Prince of Persia: The Sands of Time (2003) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944219.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Return to Castle Wolfenstein (2001) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944068.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Unreal Tournament 2004 (2004) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942592.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Borderlands 3 (2019) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940437.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Army Men: Sarge's Heroes (2000) [En] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935159.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Assassin's Creed (2008) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931893.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Assassin's Creed II (2010) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931776.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931626.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Assassin's Creed: Revelations (2011) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931622.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Army Men Sarge's War (2004) [Ru/En] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930446.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Tom Clancy's Rainbow Six: Vegas 2 (2008) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918907.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Saboteur (2009) [Ru] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918860.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007902.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sandboxie 5.50.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007899.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Luxion KeyShot Pro 10 v10.2.104 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007892.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vivaldi 4.0.2312.38 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007891.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007884.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TouchDesigner Pro 2021.14360  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007877.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe XD v41.1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007875.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ABBYY FineReader PDF for Mac 15.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007874.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Speedtest от Ookla 4.6.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007869.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ UltraUXThemePatcher 4.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007857.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Bat! Professional 9.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007856.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NetLimiter Pro 4.1.11.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007848.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Substance 3D Painter 7.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007847.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ZBrush 2021.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007844.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Charles Web Debugging Proxy 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007837.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Reg Organizer 8.75 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007818.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Win10 All Settings 2.0.3.29 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007804.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Trickster 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007791.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ RightFont 5 v5.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007789.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ DxO PhotoLab 4 ELITE Edition 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007779.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CorelCAD 2021 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007774.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ OCCT 8.2.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007752.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Opera 77.0.4054.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007741.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Sumatra PDF 3.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007724.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ YT Downloader 7.5.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007723.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ GPS Локер Prime v2.3.1a [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007717.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1801298   (15168) от 09.06.2025
-
-Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Перекресток Грез был спокойным и тихим местом, в котором правили простые радости жизни. Некоторым его обитателям даже казалось, что Перекресток Грез был слишком уж тихим. Но однажды красный лум по имени Андрэ превратился в маленький пушистый комочек злости.Тип издания: RepackРазработчик: UbisoftЖанр: Экшен, Приключeния, ПлатформерЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790816   (15113) от 10.06.2025
 
 The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
@@ -32,7 +6,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15113.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Sinking City (2019) [Ru/Multi] (58246/dlc) License GOG [Remastered Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15108.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Zoeti (2023) [Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15106.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.4.1)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15088.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15021.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15020.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15016.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Good Pizza, Great Pizza / Хорошая пицца, Отличная пицца
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14987.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Strangeland (2021) [Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14912.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.00/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14911.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14905.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Death and Taxes (2020) [Ru/Multi] (1.2.59) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14891.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14889.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14883.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Rosewater (2025) [Multi] (1.05.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14882.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Astro Colony (2022) [Ru/Multi] (1.7.43) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14871.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Fable Hospital (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14859.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Wrap House Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14846.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Repack seleZen [Ultimate Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14823.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14809.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SeaOrama: World of Shipping (2023) [Multi] (2.2.4.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14777.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Mind Echoes 2: Remnants of the Past / Эхо разума 2: Отголоски 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14761.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14706.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14686.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14672.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802069   (14671) от 14.06.2025
+
+Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир MindsEye! Действие этого однопользовательского сюжетного боевика происходит в ближайшем будущем в вымышленном городе Редрок, суматошном и жарком пустынном мегаполисе, где правят технологии. Роботы выполняют рутинные задачи, а всевидящие устройства делают Редрок «самым безопасным городом в мире». Это живой эксперимент по исследованию экзистенциального (   Читать дальше...   )Тип издания: SceneРазработчик: Build A Rocket BoyЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAC0C2897E732787738978643D96016C4249B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

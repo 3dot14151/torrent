@@ -1,30 +1,3 @@
-###  Публикация: 501534   (259251) от 28.05.2012
-
-Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-По всей Европе полная разруха, земли поделены мелкими феодалами, император борется с Папой Римским, и Святой Отец объявляет о том, что всем, кто отправится на освобождение Святой Замли, будет даровано прощение грехов.
-В игре Crusader Kings II вам предстоит взять роль правителя одной из могущественных христианских династий и постараться расширить свои границы. Для этого придется постоянно следить за состоянием своей разрастающейся империи. Если будете правильно назначать вассалов, удачно противостоять предателям и внедрять полезные для развития государства законы, то в итоге сможете создать самую могущественную династию в средневековой Европе.(   Читать дальше...   )Тип издания: RePackРазработчик: Paradox InteractiveЖанр: Strategy / RTSЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4004645071869987F625F503A2E11103EC42425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502216   (258867) от 27.05.2012
 
 Spirit Walkers - Curse of the Cypress Witch (P) [En] 2012
@@ -33,7 +6,7 @@ Spirit Walkers - Curse of the Cypress Witch (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258867.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ Tesla's Tower - The Wardenclyffe Mystery (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258820.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ Dead City / Город мертвых (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258643.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ Kingdom Chronicles Collectors Edition / Как Джон Непоседа спа�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258631.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ Flux Family Secrets: The Rabbit Hole / Секреты семьи Флакс 2. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258601.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ Final Cut: Death on the Silver Screen. Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258567.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258408.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ Sandman / Истории шёпотом: Песочный человек (P) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258353.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ Quake II (1997) [Ru/Multi] (1.0.6002.0/dlc) Repack Necros [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258064.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Reflections of Life 15: A Shattered Heart (2025) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258023.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257997.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Kriophobia (2025) [Multi] (1.0.1) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257995.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ Tales of Old: Dominus (2025) [Ru/Multi] (1.0.261025) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257933.jpg" />
 </div>
 
 
@@ -371,7 +344,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257932.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Licens
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257870.jpg" />
 </div>
 
 
@@ -423,7 +396,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 52150) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257859.jpg" />
 </div>
 
 
@@ -449,7 +422,7 @@ Possessor(s) (2025) [Ru/Multi] (1.3.0-136663) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257839.jpg" />
 </div>
 
 
@@ -475,7 +448,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.22) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257838.jpg" />
 </div>
 
 
@@ -501,7 +474,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Scene voic
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257835.jpg" />
 </div>
 
 
@@ -527,7 +500,7 @@ Forestrike (2025) [Ru/Multi] (1.0-2320) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257829.jpg" />
 </div>
 
 
@@ -553,7 +526,7 @@ Beneath (2025) [Ru/Multi] (1.013f/dlc) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257823.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ Winter Survival (2024) [Ru/Multi] (49966S) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257820.jpg" />
 </div>
 
 
@@ -605,7 +578,7 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.101) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257815.jpg" />
 </div>
 
 
@@ -631,7 +604,7 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257799.jpg" />
 </div>
 
 
@@ -657,7 +630,7 @@ Geneforge 1 - Mutagen (2021) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257786.jpg" />
 </div>
 
 
@@ -668,6 +641,32 @@ Geneforge 1 - Mutagen - изометрическая ролевая игра в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E235050FB936D84B72F168E1192A5A6F9FDC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838068   (257752) от 20.11.2025
+
+Intravenous 2 (2024) [Ru/Multi] (1.4.6HF2/dlc) Repack Necros
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intravenous 2 - это уникальное сочетание тактического геймплея и увлекательного повествования. Добро пожаловать в мир Intravenous 2. Здесь вы возьмете на себя роль Шона и Стива - необычного дуэта с единой миссией: спасти свои жизни, разобравшись с противниками. Ваши решения определят ваш путь в этом мире олдскульных стелс экшнов, жестких тактических перестрелок и (   Читать дальше...   )Тип издания: RepackРазработчик: Explosive Squat GamesЖанр: Экшены, Приключенческие игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF3502A601EBE0EA4719C2CD972239F7C41093C
 ```
 
 https://mybot314.ru/tekegram_catalog/

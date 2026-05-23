@@ -1,29 +1,3 @@
-###  Публикация: 1739268   (47071) от 12.08.2024
-
-Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Bo: Path of the Teal Lotus - яркий платформер, предлагающий сыграть за очаровательную героиню, которая является небесным цветком. Девушка обладает акробатическими способностями, а ее смертельное оружие - серьга. Вместе с девочкой потребуется исследовать таинственный мир, вдохновленный японской мифологией. В игре представлено множество ярких и запоминающихся персонажей, (   Читать дальше...   )Тип издания: SceneРазработчик: Squid Shock Studios, Christopher Stair, Trevor YoungquistЖанр: Метроидвания, 2DЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83931E2BB1AE0A1C13E4FE89874F48872B79C166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742600   (47070) от 12.08.2024
 
 Deathbound (2024) [Ru/Multi] (1.1.3) Repack FitGirl
@@ -32,7 +6,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47070.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47067.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47062.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Cursed Fables 5: A Gilded Rose / Проклятые предания 5: Позо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47058.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47051.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ City of Stories 2: The Professor's Secret / Город историй 2: Сек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47034.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47033.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ A Space for the Unbound (2023) [Multi] (1.0.35.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47007.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ My Recycling Center (2024) [Multi] (1.2/dlc) Scene TinyISO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47001.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Space Prison (2024) [Ru/Multi] (1.0.6/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47000.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Bzzzt (2023) [Multi] (1.325f-240802) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46994.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Artifact Seeker (2024) [Ru/Multi] (1.2.8/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46990.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.2.0.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46985.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46981.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Age of Defense (2019) [En] (1.15) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46972.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Cassette Beasts (2023) [Multi] (1.6.2/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46971.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ KitHack Model Club (2024) [En] (1.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46970.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Fishing Adventure (2019) [Ru/Multi] (20230814/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46955.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Ingression (2024) [Ru/Multi] (1.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46949.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ One More Night (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46892.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46874.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Bathhouse (2024) [Multi] (1.03) Repack FitGirl [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46873.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dungeons & Degenerate Gamblers (2024) [Ru/Multi] (1.0a) Scene TinyISO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46865.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Pawn Simulator (2024) [Multi] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46863.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.34f/dlc) Scene Tenoke [Anniversary Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46850.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Mr. Prepper - строительный симулятор, где вам пре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B363EC112C491FB1F0B00850EB968D6ACF5234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701549   (46789) от 15.08.2024
+
+Northgard (2018) [Ru/Multi] (3.5.15.38668/dlc) Scene Tenoke [The Viking Age Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя годы неутомимых поисков отважные викинги обнаружили Нордгард – новую землю, полную тайн, опасностей и богатств. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам. Но для этого им придется отбиваться от диких зверей и мертвецов, (   Читать дальше...   )Тип издания: SceneРазработчик: Shiro GamesЖанр: 3D, Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B131D51C04EEC9E8E2669DBB05F2BF1B7EE18529
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Wise Care 365 Pro 2.0.5.151 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405549.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VLC Media Player 2.0.4 Stable + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405541.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Any Video Converter Ultimate 4.5.6 + PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405529.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Light Image Resizer 4.3.3.0 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405523.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ PowerISO 5.4 DC 18.10.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405522.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Ad Muncher 4.93 Build 33707/4146 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405521.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Advanced System Optimizer 3.5.1000.14553 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405520.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ O&O DiskImage Professional Edition 7.0. Build 58 (x86/x64) [Англ.+Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405514.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ SolveigMM Video Splitter 3.5.1210.18 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405495.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Aiseesoft DVD Creator 5.1.20.8980 + Portable by p2000s [Мульти/Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405456.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Windows 7 Firewall Control Plus 5.1.12.73 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405443.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Redeemer Live DVD v.12.1014.45 (x86/x64/2012)[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405413.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Acronis BootCD Collection 2012 Grub4Dos Edition 10 in 1 v4 (10.19.2012) [Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405380.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405371.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 7 Ultimate х86 SP1 by HoBo-Group v.3.2.4 [v.3.2.4]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405363.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ TopPlan Санкт-Петербург 2012 8.4.0.732 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405357.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Acronis Backup & Recovery 11 Server for Windows 11.5.32266 BootCD [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405347.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ DFX Audio Enhancer 11.105 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405284.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ FontExpert 2011 11.0 Release 2 [Multilingual (русский включител�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405267.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Zoner Photo Studio Professional 15.0.1.2 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405258.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ LeaderTask 7.5.0.1 [Multi/Rus] RePack & Portable by KGS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405248.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Pointstone System Cleaner 6.7.2.190 + Portable by -=SV=- [Eng+Rus(русифик
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405241.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ DFX Audio Enhancer 11.105 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405213.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ DU Meter 6.01 Build 3596 [Eng/Rus] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405201.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ FontExpert 2011 11.0 Release 3 [Eng/Rus+Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405200.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ DFX Audio Enhancer 11.105 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405170.jpg" />
 </div>
 
 

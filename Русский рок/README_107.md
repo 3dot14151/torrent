@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3307.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Electric Land - Love 67 (2025) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1955.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Take it Down - Культ (2025) [MP3|320 Kbps] <technical deathcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1582.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Alternanthera - Сублимация (2025) Авторская раздача [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_239.jpg" />
 </div>
 
 

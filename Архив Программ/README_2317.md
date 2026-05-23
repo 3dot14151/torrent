@@ -6,7 +6,7 @@ XYplorer 27.00.0500 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18713.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Wipe & Clean 20.0.2507 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18712.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Music Collection 3.9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18710.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ashampoo WinOptimizer 28.00.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18709.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Balabolka 2.15.0.895 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18703.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ LibreOffice 25.2.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18679.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Total Commander 11.55 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18672.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Nik Collection by DxO 8.0.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18666.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Windows Manager 2.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18649.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ USB Device Tree Viewer 4.5.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18643.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Topaz Photo AI Pro 4.0.0 Portable by 7997 + Models [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18597.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TweakPower 2.073 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18554.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 09.05.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18551.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ YT Downloader 9.12.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18536.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ IObit Driver Booster Pro 12.4.0.585 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18532.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ DLNow Video Downloader 1.54.2025.05.11 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18528.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Cockos REAPER 7.38 RePack (& Portable) by elchupacabra (12.05.2025) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18520.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Corona Renderer 12 update 2 for 3ds Max 2016-2026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18492.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft Activation Scripts (MAS) 3.2 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18481.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18470.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Image Uploader 1.4.2 Build 5314 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18469.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ RustDesk 1.4.0 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18467.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ HWiNFO 8.26 Build 5730 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18462.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ v2rayN 7.12.1 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18455.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Fort Firewall 3.17.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18440.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18433.jpg" />
 </div>
 
 

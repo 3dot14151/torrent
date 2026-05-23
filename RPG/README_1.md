@@ -6,7 +6,7 @@ Vagrus: The Riven Realms (2020) [Ru/Multi] (1.2.80.0211V/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056620.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Back to the Dawn (2023) [Ru/Multi] (2.0.0.30-RC/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056375.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nioh (2017) [Ru/Multi] (1.24.8/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055945.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nioh 2 (2021) [Ru/Multi] (1.28.8/dlc) Repack Let'sРlay [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055938.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Flowstone Saga (2024) [Multi] ((163f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055827.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cosplayer’s Quest (2026) [Multi] (1.0.1/dlc) License GOG [16+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055826.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ephemeral / 蜉蝣之国的囚徒 (2026) [Multi] (Build 21423814) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055808.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055670.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (2.4.8/dlc) Repack FitGirl [Digital D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055513.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-27) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055295.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Disco Elysium (2019) [Ru/Multi] (Build a0a063ab) Repack FitGirl [The Final Cut B
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054836.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054519.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.006/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054312.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DuneCrawl (2026) [Ru/Multi] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053830.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053689.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053449.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053448.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053415.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Night Swarm (2025) [Ru/Multi] (1.1.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053406.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Stone of Madness (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay [Special Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052999.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dreamscaper (2020) [Ru/Multi] (1.1.7.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052958.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052943.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sacred 2 Remaster (2025) [Ru/Multi] (CL16601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052917.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Persona 5 Royal (2022) [Ru/Multi] (1.03B) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052915.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Chronicon (2020) [Multi] (1.54.1/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052843.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052782.jpg" />
 </div>
 
 

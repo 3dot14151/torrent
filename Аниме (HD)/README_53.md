@@ -6,7 +6,7 @@ Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханак�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39004.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38037.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Murai no Koi | Murai in Love | Любовь Мураи [2024, TV, 12 эп.] WebR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36370.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Delico's Nursery | Детская Делико [2024, TV, 13 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35824.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Acro Trip | Плохая поездка [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34561.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MF Ghost | MF Призрак [ТВ-1] [2023, TV, 12 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34412.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Hitoribocchi no Isekai Kouryaku / Loner Life in Another World / Нападени
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34231.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Король демонов, поп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34215.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Tsuma, Shougakusei ni Naru. / If My Wife Becomes an Elementary School Student. /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34132.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34027.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33840.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming S2 | A Herbivorous Dragon of 5,000 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33813.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Kekkon Surutte, Hontou Desuka / 365 Days to the Wedding / Вы правда же
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33690.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sword Art Online Alternative: Gun Gale Online II / Мастера меча он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33637.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Kamierabi | KamiErabi God.app | Избрание божества [2023, TV, 24 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33629.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ NegaPosi Angler | Negative Positive Angler | Негативный позитив
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33619.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Mecha-ude (2024) | Mechanical Arms | Механические руки [2024, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33617.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sayonara Ryuusei, Konnichiwa Jinsei / Goodbye, Dragon Life / Прощай, жи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33607.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Mahou Tsukai ni Narenakatta Onnanoko no Hanashi. | История девушки
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33587.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ The Idolmaster Shiny Colors 2nd Season | Идолмастер: Яркие цве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33469.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Nageki no Bourei wa Intai Shitai / Let This Grieving Soul Retire! / Скорбя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33433.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru 2 / Переродившись арис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33401.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Kimi wa Meido-sama. / You Are Ms. Servant. / Ты — горничная [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33399.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Party kara Tsuihou Sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki / Целит�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33395.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Ao no Exorcist: Yuki no Hate Hen | Blue Exorcist: Beyond the Snow Saga | Син�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33378.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Ranma 1/2 (2024) | Ранма 1/2 (2024) [2024, TV, 12 эп.] WebRip 720p 10-bit
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33376.jpg" />
 </div>
 
 

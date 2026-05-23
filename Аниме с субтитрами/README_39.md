@@ -6,7 +6,7 @@ Haikyuu!! Second Season | Волейбол [ТВ-2] [2015, TV, 25 из 25] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792481.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Haikyuu!! | Волейбол TB-1 [2014, 25 из 25] BDRip 1080 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792439.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792412.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ginga Tetsudou 999 / Galaxy Express 999 Movie / Галактический эк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791970.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791872.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Risu no Matoi | Белка и пожарное знамя [1991, OVA, 1 эп.] W
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791842.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Moekan The Animation | Моэкан [2003, OVA, 3 из 3] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791816.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Yuukan Club | Клуб веселого времяпровождения [1991, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791815.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Mikeneko Holmes no Yuurei Joushu | Трёхцветный кот Холмс и �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791809.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Yume de Aetara | If I See You in my Dreams | Увидеть тебя в моих
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791808.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Godzilla 3: Hoshi wo Kuu Mono | Godzilla: The Planet Eater | Годзилла: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791548.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Donguri to Yamaneko | Жёлуди и горный кот [1988, Movie] VHSRip 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791291.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791269.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Gon the Little Fox | Gongitsune [1985, Movie] VHSRip 360p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791261.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Dororo | Dororo and Hyakkimaru | Дороро [ТВ-1] [1969, TV, 26 + Pilot] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790928.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790531.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Anime-Gataris | Истории об аниме [2017, TV, 12 из 12] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790499.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Tales of Zestiria The Cross | Tales of Zestiria The X | Сказания Зес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790425.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Lostorage Incited WIXOSS | Беспамятство: Побуждение WIXOSS
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789876.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Spirit of Wonder: China-san Tanpenshuu | Spirit of Wonder: China-san Short Stori
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789468.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Iriya no Sora, UFO no Natsu / Sky of Iriya, Summer of UFO / Небо Ирии, �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789142.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788995.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Peter Pan no Bouken | Adventures of Peter Pan | Приключения Пите�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788969.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788462.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787556.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Hitori Kurashi no Shougakusei | Одиноко живущая младшекла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787532.jpg" />
 </div>
 
 

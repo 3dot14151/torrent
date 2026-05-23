@@ -1,55 +1,3 @@
-###  Публикация: 1800001   (16125) от 31.05.2025
-
-CyberLink PowerDirector 365 23.4.1716.0 (x64) Portable by 7997 [Multi]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и др. (Русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD2F4F8B6F77FBA52842E02E2131556D96D1096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800431   (15785) от 03.06.2025
-
-Format Factory 5.21.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-FormatFactory - многофункциональный конвертер различных файлов мультимедиа. Имеет ряд дополнительных функций, превращающих FormatFactory в универсальный инструмент для работы с мультимедийными файлами разных форматов. Поддерживается конвертация популярных видеоформатов в MP4, 3GP, MPG, AVI, WMV, FLV, SWF, а также конвертация аудиоформатов в MP3, WMA, MMF, AMR, OGG, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41087D1309F9218EA787D9562C3DDF0FE115D177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801635   (14874) от 12.06.2025
 
 WinX DVD Ripper Platinum 8.22.3 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -58,7 +6,7 @@ WinX DVD Ripper Platinum 8.22.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14874.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Adobe Media Encoder 2025 25.3.0.73 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14630.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Movavi Video Editor 25.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13863.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ VideoProc Converter AI 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12180.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ MAGIX Vegas Pro 22.0 Build 250 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11974.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Icecream Video Converter Pro 1.47 RePack (& Portable) by elchupacabra Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11417.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ FastFlix 5.12.4 + Portable (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11381.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Icecream Video Converter Pro 1.47 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11378.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Topaz Video AI 7.1.0 RePack (& Portable) by elchupacabra [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10716.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ VSO ConvertXtoDVD 7.5.0.135 Beta (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9988.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ AVS4YOU Software AIO Installation Package 6.1.1.181 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9805.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ CoolUtils Total Movie Converter 4.1.0.70 RePack (& Portable) by elchupacabra [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9331.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ VidCoder 12.10 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8586.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ clever FFmpeg-GUI 3.4.6 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8550.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ XMedia Recode 3.6.1.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8276.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ Blackmagic Design DaVinci Resolve Studio 20.1.1 Build 7 Portable by 7997 [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5880.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ Wondershare Filmora 14.9.3.14445 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5754.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ Topaz Video AI 7.1.3 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5602.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ Shotcut 25.08.16 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5565.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ Wondershare UniConverter 16.7.0.368 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4864.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ Fast Video Cutter Joiner 6.9.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4672.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ Fast Video Cutter Joiner 6.9.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4669.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ Subtitle Edit 4.0.13 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4143.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ Dashcam Viewer 4.0.7 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3765.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ Dashcam Viewer - это современный и продвинутый мен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02E680B823BE5E355A455A5E17CF0E8596ED674F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817045   (3764) от 08.09.2025
+
+HandBrake 1.10.2 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3764.jpg" />
+</div>
+
+
+###  Подробнее
+
+HandBrake - бесплатный видео конвертер с открытым исходным кодом, который позволяет кодировать видеофайлы из DVD или любого видео формата в MPEG-4 или H.264. Содержит широкий набор пресетов, при помощи которых можно быстро преобразовать видео для дальнейшего просмотра на различных мобильных устройствах, как например Apple iPod, iPhone, iPad, AppleTV, Sony PSP, PS3, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D134181C328528D6D61FC847D80D24F1090B2A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817556   (3361) от 11.09.2025
+
+Win Movie Maker 2025 10.0.0.1 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3361.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью Win Movie Maker вы можете легко создавать собственные фильмы из коллекций изображений и видео. Вы можете добавлять текст, музыку, анимацию, эффекты и т.д. Настраивайте и редактируйте музыку для своих видео. Публикуйте видео в Интернете или на DVD.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A90B959C99C699252C38FBBF09884DF2756EAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

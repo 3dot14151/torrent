@@ -1,81 +1,3 @@
-###  Публикация: 1870573   (1069046) от 
-
-Revo Uninstaller Free 2.7.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A434B9EF6BA00A103E934B15F3B3204879EC08FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870572   (1069045) от 
-
-Проекты - VideoHive - War Opener - 63020103 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-War Opener — это высококачественный проект After Effect. Хорошо организованный и легко настраиваемый шаблон. Проект включает видеоурок, поэтому даже если вы работаете с программой впервые, вы легко справитесь с задачей. Просто перетащите изображение или видео, отредактируйте текст, добавьте аудио и наслаждайтесь результатом!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528D5ACF61E657AB756981E7976DDA471880D295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870574   (1069044) от 
-
-Долина тени / Valley of the Shadow (2026) WEBRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда серийный убийца, выдающий себя за преподобного, уничтожает две семьи в Колорадо, выжившие члены обеих семей объединяют усилия, чтобы выследить преступника и совершить над ним собственный суд по законам Дикого Запада.Производство: СШАЖанр: боевик, вестернРежиссер: Том УайтусАктеры: Натан Тодаро, Джеймс Эдвард Холли, Логан Вэнс, Адам Джонс, Мелисса О. Боуэн, Кэт Скугор, Гибсон Крамли, Роберт Элсвик, Тадд МакКлунгПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:40Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5E8B7AB4D9709A5330063B206157A07EAD1879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870555   (1069042) от 
 
 Жaндарм в Нью-Йорке / Le Gendarme a New York (1965) BDRip [H.264]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069042.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069041.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069040.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack Wanterlude [Ultima
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069039.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ Edge Of Sanity - Nothing But Death Remains (1991) 2XCD, Reissue, Remastered, Mix
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069038.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069037.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ VA - 80s R&B Party (Awesome Dance Mix) (2008) [FLAC|Lossless|tracks + .cue] <Hip
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069036.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ Firefox Browser 150.0.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069035.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ Andy Grammer - Andy Grammer (2011) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069034.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ Aiarty Image Enhancer 3.11 RePack (& Portable) by elchupacabra (DC 2026.04.22)
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069033.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ Mozilla Thunderbird 150.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069032.jpg" />
 </div>
 
 
@@ -380,7 +302,7 @@ Q-Dir 12.63 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069030.jpg" />
 </div>
 
 
@@ -408,7 +330,7 @@ Atlantis Word Processor 5.0.4.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069029.jpg" />
 </div>
 
 
@@ -434,7 +356,7 @@ Windows Manager 2.3.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069028.jpg" />
 </div>
 
 
@@ -461,7 +383,7 @@ Emurasoft EmEditor Professional 26.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069027.jpg" />
 </div>
 
 
@@ -488,7 +410,7 @@ Mailbird Premium 3.0.58.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069026.jpg" />
 </div>
 
 
@@ -515,7 +437,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Repack Let'sРlay [Digital
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069025.jpg" />
 </div>
 
 
@@ -541,7 +463,7 @@ QR-Code Creator 7.6.1.5 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069024.jpg" />
 </div>
 
 
@@ -569,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069023.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ Duplicate Cleaner Pro 5.27.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069022.jpg" />
 </div>
 
 
@@ -621,7 +543,7 @@ Filmex 3.1.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069021.jpg" />
 </div>
 
 
@@ -649,7 +571,7 @@ Emurasoft EmEditor Professional 26.1.0 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069020.jpg" />
 </div>
 
 
@@ -676,7 +598,7 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Scene Rune [Digital Deluxe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069019.jpg" />
 </div>
 
 
@@ -687,6 +609,84 @@ Directive 8020 (2026) [Ru/Multi] (Build 23196603/dlc) Scene Rune [Digital Deluxe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D6CCCEB89E1357863EDFDE631A9FBECA93CEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870598   (1069018) от 
+
+Журнал | PhotoCASA №2 (85) (март-апрель 2026) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069018.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoCASA - красочный иллюстрированный журнал о фотографии как для профессионалов, так и для любителей. В каждом номере журнала - новинки фото и видео-техники, интервью с известными фотографами и знакомство с их работами, а также уроки по обработке фотографий, советы по съёмке и ещё много другой полезной информации.Жанр: Фотография, хоббиИздательство: PhotoCASAФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EFCB41B1DEEF8013EECAAA616C85637C32A087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870610   (1069017) от 
+
+Zentimo xStorage Manager 3.4.1.1304 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами. Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8158F3DAA7545FFB46948FEC936F69454B55DA77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870611   (1069016) от 
+
+Zentimo xStorage Manager 3.4.1.1304 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами. Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18A571BDB18709B379AE4669FC19904B37F065D
 ```
 
 https://mybot314.ru/tekegram_catalog/

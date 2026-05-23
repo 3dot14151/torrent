@@ -1,32 +1,3 @@
-###  Публикация: 1028249   (690779) от 22.06.2016
-
-VA - Music For Easy Running (2016) [MP3|320 кб/с] <Uplifting, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-001. Aero 21 - Mallorca (Original Mix)
-002. Dan Stone - Venezuela
-003. Cosmic Gate - Exploration of Space (Cosmic Gate Third Contact Remix)
-004. Ellie Lawson with Adrian&Raz - A New Moon (MozQe Bootleg)(   Читать дальше...   )Жанр: Uplifting, Progressive TranceПродолжительность: 11:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5890FFEC801B0F14D06B490EFCF549E6D210BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134175   (690764) от 14.05.2017
 
 VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House & Trance от LORDEGRAF Vol.9 (2017) [MP3|320 Kbps] <Deep House, Electro House, Techno House, Trance>
@@ -35,7 +6,7 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690764.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Дискотека забытых хитов (2017) [MP3|320 Kbps] <Disco, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690762.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Ambient Jazz: Most Popular Jazz Sounds for Restaurant and Time for Dinner (
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690667.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Music News vol.170 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690628.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Make Love, not War (2022) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690371.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Billy F Gibbons - Vagabond Man (2022) 2CD, Compilation [MP3|320 Kbps] <Blues Roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690366.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Hits of My Soul Vol. 01 (2016) [MP3|320 кб/с]<Deep House, House, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690266.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690227.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Шоферской хитовичок в дорогу Vol. 3 (2012) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690111.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690110.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690092.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ VA - Shazam Хит-парад Russia Top 100 Март (2019) [MP3|320 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_689804.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ Elton John - Sorry Seems To Be The Hardest Word (2019) Radio Remix [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689697.jpg" />
 </div>
 
 
@@ -415,7 +386,7 @@ VA - Time Paradox: Psy Trance Compilation (2018) [MP3|320 Kbps] <Psychedelic Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689671.jpg" />
 </div>
 
 
@@ -444,7 +415,7 @@ VA - Калина Красная - Лучшее (2012) [MP3|128 кб/с]<Шан�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689603.jpg" />
 </div>
 
 
@@ -479,7 +450,7 @@ VA - Hed Kandi Beach Body (2016) [MP3|320 Kbps] <House, Deep House, Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689455.jpg" />
 </div>
 
 
@@ -508,7 +479,7 @@ VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689433.jpg" />
 </div>
 
 
@@ -537,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689377.jpg" />
 </div>
 
 
@@ -566,7 +537,7 @@ VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, La
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689371.jpg" />
 </div>
 
 
@@ -595,7 +566,7 @@ VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689310.jpg" />
 </div>
 
 
@@ -624,7 +595,7 @@ VA - Bass Killer 12 (2017) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Roo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689225.jpg" />
 </div>
 
 
@@ -653,7 +624,7 @@ VA - Русская Дискотека 80-90-Х Remix DJ (2012) [MP3|256 kbps]<D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689212.jpg" />
 </div>
 
 
@@ -688,7 +659,7 @@ VA - American Pop Rock Music (2018) [MP3|256 Kbps] <Pop-Rock, Folk, Step Country
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689178.jpg" />
 </div>
 
 
@@ -717,7 +688,7 @@ VA - Vocal Trance Charts (2016) [MP3|232~277 кб/с] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688862.jpg" />
 </div>
 
 
@@ -746,7 +717,7 @@ VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, A
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688855.jpg" />
 </div>
 
 
@@ -760,6 +731,35 @@ VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:310628CD86826D84A89D3CBB33DBF08CA634D240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028776   (688851) от 23.06.2016
+
+VA - Premium Electro Lights: Electro House Mix (2016) [MP3|320 кб/с] <Electro, Club House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Preston - Get SO (Kyro Remix)
+002. Dantiez Saunderson, Joe Le Groove - Groove Machine
+003. Jilk - Nim
+004. The Termite & Mikky Clap - Insomnia (Alex Fresh Remix)(   Читать дальше...   )Жанр: Electro, Club House, DanceПродолжительность: 09:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBDC527551C76C786169B1BD37EF85C28C9E126
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ USB Safely Remove 6.0.8.1261 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657918.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DVDFab 9.2.0.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657876.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dropbox 3.6.4 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657869.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MxNitro Browser 1.1.0.2000 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657865.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cent Browser 3.4.3.39 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657834.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Care 365 Pro 4.65.449 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657811.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VueScan Pro 9.5.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657764.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VSO ConvertXtoDVD 5.3.0.9 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657761.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hotspot Shield Free 2.53 [мультиязычный (русский есть)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657731.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ EximiousSoft Banner Maker 5.36 RePack (& portable) by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657678.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CDBurnerXP 4.5.5.5642 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657677.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Microsoft OneDrive 17.3.5860.0512 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657669.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Windows Firewall Control 4.5.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657668.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ IObit Start Menu 8 4.3.0.1 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657640.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Cent Browser 3.4.3.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657558.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Kaspersky Total Security 2018 18.0.0.405 (a) Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657531.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Tor Browser Bundle 6.5.2 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657524.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ uTorrent 3.5.0 build 43804 Pro Portable by Коля3Д79 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657523.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Vray 3.40.02 for SketchUp 2017 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657517.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Keil RealView Microcontroller Development Kit v4.53 MDK 4.53 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657507.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Adblock Plus 2.6.9.1 for Mozilla Firefox [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657490.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ GifCam 5.0 Portable by DenSE85 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657481.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Balabolka 2.12.0.657 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657448.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ QuarkXPress 2018 14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657431.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Adobe Photoshop CC 2018 (19.1.4.56638) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657427.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Photodex ProShow Producer 7.0.3518 RePack (& portable) by KpoJIuK (31.05.2015) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657365.jpg" />
 </div>
 
 

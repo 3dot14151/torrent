@@ -1,29 +1,3 @@
-###  Публикация: 1727669   (54478) от 03.06.2024
-
-Kingdom of Fallen: The Last Stand / Королевство Павших: Последний Страх (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Пламя гаснет в проклятом королевстве. Нет света, чтобы осветить ваш путь, ваши драгоценные воспоминания медленно разрушаются перед вами. По мере того как все подходит к концу, может ли этот новый мир быть спасением, которого вы ищете? Или это еще одно ложное изображение, поданное вам, предвещающее изгнание вашей души?Тип издания: RepackРазработчик: DigitalSoulsЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A0380DB6960D040E2B5F255ABF4415E3530DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727579   (54475) от 03.06.2024
 
 Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
@@ -32,7 +6,7 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54475.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54473.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Rocket Rumble (2024) [Ru/Multi] (0.2.221) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54470.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Umbraclaw (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54467.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54463.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54462.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54460.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Little-Known Galaxy (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54454.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Thriving City: Song (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54452.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54448.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0.0.15/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54441.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.11.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54438.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Crysis: Remastered (2020) [Ru/En] (1.2.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54437.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.0.1) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54423.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.2.101) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54418.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54416.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54412.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Die by the Blade (2024) [Multi] (1.0.2) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54409.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54408.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54385.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Rainbow Cotton (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54375.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54366.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54337.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0u9/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54332.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54329.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B9E2DED279E73B701AFD8CD4318137FD5AAC3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728117   (54328) от 05.06.2024
+
+Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54328.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Grand Theft Auto IV. Полное издание» входит экшен Grand Theft Auto IV, а также дополнение Grand Theft Auto: Episodes From Liberty City, состоящее из эпизодов The Lost and Damned и The Ballad of Gay Tony, сюжетные линии которых дополняют друг друга и раскрывают абсолютно противоположные грани криминального мира. В российском издании эти игры представлены в оригинальном (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar North, Rockstar TorontoЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC472D398D1434184C7BC08E58ABA88A1E76DE5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ WinPatrol PLUS 25.0.2012.5 Final [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622870.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Windows 8 Codecs 1.1.5 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622866.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Ultimate PID Checker v1.1.3.540 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622860.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mozilla Firefox 48.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622824.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Mozilla Firefox 13.0.1 Funnelcake 11 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622740.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CCleaner 5.20.5668 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622660.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mozilla Firefox Quantum 60.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622622.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Uniblue SpeedUpMyPC 2013 Build 5.3.0.14 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622532.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Total Commander 8.01 RC 4 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622526.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Movavi Video Suite 17.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622513.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Vivaldi 2.4.1488.38 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622490.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ CoolUtils PDF Combine Pro 4.1.55 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622449.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Volume2 1.1.5.382 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622445.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VSO DVD Converter Ultimate 4.0.0.26 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622441.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SamDrivers 18.6 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622428.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AusLogics BoostSpeed 5.3.0.5 DC 13.07.2012 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622397.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Maxthon Browser 5.3.8.600 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622379.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Auslogics Driver Updater 1.9.0.0 DC 18.07.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622300.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ CCleaner 5.20.5668 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622295.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Format Factory 3.9.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622288.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Hex Editor Neo Ultimate Edition 6.22.00.5850 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622287.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CCleaner 5.20.5668 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622284.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Movavi Video Editor Plus 14.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622279.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SamDrivers 18.6 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622276.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Movavi Video Suite 17.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622267.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Athentech Perfectly Clear Photoshop Plug-in 2.2.2 RePack by Leserg [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622154.jpg" />
 </div>
 
 

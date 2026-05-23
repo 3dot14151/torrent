@@ -1,137 +1,3 @@
-###  Публикация: 1191696   (263896) от 15.12.2017
-
-В. С. Махалов, А. В. Бешенцев (ред.) | Война, история, идеология [Буржуазная военная история на службе милитаризма] (1974) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В книге раскрывается реакционная сущность буржуазной военной истории, анализируются социальные и гносеологические корни буржуазной военной историографии, ее антинаучная методология. На основе конкретного анализа трудов буржуазных историков исследуется основная идеологическая направленность и специфические черты историографии второй мировой войны в крупнейших капиталистических (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B3913413940000CD0902CF2292E05084B1C7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191699   (263887) от 15.12.2017
-
-Ф.Олещук (ред.) | Как работают и живут в безбожном колхозе (1933) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В брошюре рассказано об опыте работы колхоза имени Маторина в Ленинградской области, сочетающем коллективный сельскохозяйственный труд и антирелигиозную работу.Жанр: История, политология, экономика, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD84AE9BC51A9605523B2915446D8AA0185EFE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340410   (263878) от 23.11.2019
-
-Мередит Макардл | Всемирная история в вопросах и ответах (2020) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-1000 вопросов в книге Мередит Макардл – это захватывающая возможность проверить и пополнить свои знания по всемирной истории. Познакомьтесь с самыми разными историческими фактами, личностями и событиями. На некоторые вопросы легко ответит почти каждый, другие же заставят задуматься и специалиста.
-
-Книга охватывает период в пять с половиной тысячелетий и рассчитана (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D316C27A6EA2D2623FA1844BA4A87CCABD4176F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191965   (263850) от 15.12.2017
-
-Я. Нинов | Безбожники и международная связь на эсперанто (1930) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-В брошюре рассказано о возможностях использования языка эсперанто для налаживания интернационального общения между атеистами и свободомыслящими различных стран мира.Жанр: История, политология, искусство, лингвистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503347990DFE4214DE68D42EA49FBAAE0FD7A51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340571   (263583) от 24.11.2019
-
-Г. Д. Тягай | Крестьянское восстание в Корее 1893-1895 г.г. (1953) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Героический корейский народ обладает богатыми революционными традициями и славным историческим прошлым. На протяжении многовековой истории Кореи основное место принадлежит мужественной борьбе корейского народа против феодального гнета и иноземных поработителей.
-
-Корейский народ неоднократно с оружием в руках героически отстаивал свою свободу и национальную независимость. (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C273AC5F8D1E84CE19854A92609D12C25632F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340538   (263570) от 24.11.2019
 
 П. Дж. Рид | Геммологический словарь (1986) [DJVU, PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263570.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263556.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263550.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263514.jpg" />
 </div>
 
 
@@ -244,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263483.jpg" />
 </div>
 
 
@@ -270,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263432.jpg" />
 </div>
 
 
@@ -296,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263339.jpg" />
 </div>
 
 
@@ -322,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263304.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263244.jpg" />
 </div>
 
 
@@ -376,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263241.jpg" />
 </div>
 
 
@@ -404,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263234.jpg" />
 </div>
 
 
@@ -431,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263228.jpg" />
 </div>
 
 
@@ -457,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263225.jpg" />
 </div>
 
 
@@ -483,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263222.jpg" />
 </div>
 
 
@@ -509,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263216.jpg" />
 </div>
 
 
@@ -535,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263161.jpg" />
 </div>
 
 
@@ -561,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263068.jpg" />
 </div>
 
 
@@ -587,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263051.jpg" />
 </div>
 
 
@@ -613,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263043.jpg" />
 </div>
 
 
@@ -639,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263035.jpg" />
 </div>
 
 
@@ -665,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262973.jpg" />
 </div>
 
 
@@ -676,6 +542,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6C26DED7A52DBE54E71F5EA93EA46EBA1917AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340940   (262902) от 26.11.2019
+
+Соломон Волков | Москва / Modern Moscow. История культуры в рассказах и диалогах (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва / Modern Moscow - это опыт осмысления "московского" вклада в отечественную и мировую культуру. В исторических очерках Соломон Волков рассказывает о ключевых фигурах и важных событиях истории московской культуры ХХ века: создание МХТ в 1898 году и Чехов-драматург, Булгаков и переменчивое отношение к нему Сталина, приезд в Москву Анри Матисса и общество (   Читать дальше...   )Жанр: Мемуары, История культурыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582D408C485EDCC3AAF7D594DEFE028EC329948D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341076   (262888) от 26.11.2019
+
+М.Г. Кожаева, О.С. Кожаева | Revision Tables. Students' Grammar Guide / Грамматика английского языка в таблицах (2010) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит необходимые сведения по основным разделам грамматики английского языка, которые изложены в удобной и доступной форме. Оно построено по принципу разделения на отдельные темы и может быть использовано при прохождении материала не только последовательно, но и выборочно. Отличительной особенностью данного пособия является подача материала в схематическом (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6977784AE9C9AF60E9F599442B6E6DDEBC1FF394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341015   (262886) от 26.11.2019
+
+Сводный список книг, подлежащих исключению из библиотек и книготорговой сети [2 части] (1960-1961) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сводный список книг, подлежащих исключению из библиотек и книготорговой сети.Жанр: История, политология, литературоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E3C53A288E97F410307EA647E02AC6A7952B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341073   (262884) от 26.11.2019
+
+Н.И. Красюк, В.В. Красюк | Практическая грамматика английского языка (2013) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник представляет собой пособие по практической грамматике английского языка в виде сводных обзорных таблиц и схем, сопровождаемых правилами и примерами. Грамматический материал подобран с учетом базовых знаний, которые получены за период обучения в средней общеобразовательной школы B соответствии с программами Министерства образования и науки РФ.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221747A48586B2D44D140550D3B4194F57B9BF51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340955   (262880) от 26.11.2019
+
+Е. М. Ярославский | История ВКП(б). Изд. 2-е [2 части] (1935) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262880.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издательства:
+
+Настоящее издание учебника выходит с некоторыми изменениями, внесенными в текст 1-го издания автором и редакцией. Эти изменения внесены с учетом замечаний, сделанных преподавателями и слушателями различных учебных заведений.
+(   Читать дальше...   )Жанр: История, политология, публицистика, социологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9FBAEACF49333B342729AF7BD14BF4C8486498
 ```
 
 https://mybot314.ru/tekegram_catalog/

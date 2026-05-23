@@ -6,7 +6,7 @@ ESET NOD32 Smart Security 10.0.369.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411365.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Acronis Backup Advanced Universal 11.7.50058 + BootCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411361.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Navicat Premium 11.2.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411358.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Flash Player 23.0.0.205 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411350.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BELOFF [dp] 2020.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411323.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ RedCrab Calculator 7.15 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411322.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Aurora3D DesignBox 1.09.01 Portable by poni-koni [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411266.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ K-Lite Codec Pack Update 11.5.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411261.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ESET NOD32 Internet Security 10.0.369.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411226.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Vivaldi 2.0.1309.37 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411162.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Internet Download Manager 6.12.22.3 Final RePack by KpoJIuK [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_411135.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Raxco PerfectDisk Professional/Server 12.5 Build 312 Final RePack by KpoJIuK [Р
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_411113.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ IObit Uninstaller 5.1.0.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411099.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Auslogics File Recovery 6.1.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411095.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ ESET NOD32 Antivirus 10.0.369.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411089.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ R-Studio 8.1 Build 165145 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411072.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ JetBrains Rider 2020.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411026.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Adobe Photoshop Lightroom Classic 2020 9.4.0.10 (x64) RePack by SanLex [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411018.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ant Download Manager Pro 1.10.0 Build 53224 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410978.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ TSR Watermark Image 3.5.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410974.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mozilla Firefox Quantum ESR 60.2.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410972.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ CorelDRAW Graphics Suite X6 16.0.0.707 Retail [Английский + Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_410944.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ WinTools.net Premium 15.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410941.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ace Translator 15.3.1.1531
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410933.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Vivaldi 2.0.1309.37 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410828.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410813.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Reg Organizer 8.25 DC 06.02.2019 Final RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754953.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chromium 97.0.4692.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754947.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Spotify 1.1.76.447 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754936.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Adobe Flash Player 17.0.0.169 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754897.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VLC media player 2.2.1 Final + Portable (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754887.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BetterZip 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754861.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Dee C'rell - Nachtmusik (2018) Holm Records [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754857.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Corvus Corax - Viator (1998) [APE|Lossless|image + .cue] <Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754854.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ SketchUp Pro 2019 v19.0.684 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754835.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VN v1.34.12 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754810.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Зарубежные клубные новинки vol.2 (2011) [MP3|320 kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754806.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Advanced IP Scanner 2.4.2601 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754790.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Ancient Sacred Knowledge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754774.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754768.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754760.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mozilla Thunderbird 52.7.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754759.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pale Moon 27.8.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754757.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Mozilla Thunderbird 52.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754752.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Watercolor Studio Pro 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754748.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Ruler App v2.1.4 [Ru/En]  - Линейка в вашем смартфоне ил
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754717.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Dash 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754700.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Sketch 53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754693.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Process Lasso Pro 9.0.0.442 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754594.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Q-Dir 6.98.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754593.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Ilan Eshkeri - Centurion(Центурион) (2009/2010) [MP3|320 kbps]<Soundtra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754551.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754537.jpg" />
 </div>
 
 

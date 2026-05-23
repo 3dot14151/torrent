@@ -6,7 +6,7 @@ Adobe Premiere Elements 13.1 x86-x64 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590277.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ AMD Catalyst Display Drivers 15.7 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590271.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DLL-FiLes.com Fixer 3.2.9.3064 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590270.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adobe Photoshop Elements 13.1 x86-x64 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590269.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adobe Illustrator CC 2015 (v19.0.1) x86-x64 RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590267.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Adobe Dreamweaver CC 2015 (v16.0.1) x86-x64 RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590266.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ DAEMON Tools Ultra 3.1.0.0368 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590260.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Adobe Flash Professional CC 2015 (v15.0.1) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590259.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Sandboxie 5.55.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590225.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sandboxie plus 1.0.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590221.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Edge 101.0.1210.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590212.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Firefox Browser 100.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590196.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Chromium 101.0.4951.67 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590195.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ant Download Manager Pro 2.7.0 Build 81003 (Giveaway) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590193.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ RegCool 1.319 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590188.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ EarthView 6.17.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590154.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VidCoder 7.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590153.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ SIV (System Information Viewer) 5.64 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590152.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MSI Kombustor 4.1.16.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590151.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Celemony - Melodyne Studio 5 5.2.0.006 STANDALONE, VST 3, AAX (x64) Repack by R2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590150.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ CareUEyes 2.2.0.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590145.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ KiCad 6.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590143.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ SUMo Pro 5.15.0.522 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590117.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Iridium Browser 2022.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590109.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rainlendar Lite 2.18 Build 171 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590105.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Daum PotPlayer 1.6.55124 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589958.jpg" />
 </div>
 
 

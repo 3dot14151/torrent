@@ -6,7 +6,7 @@ Borderlands: Trilogy (2009-2014) [Ru/En] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G. R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673724.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Solarix (2015) [En/Tu] (1.6) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673524.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Fidelio Incident (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672308.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Agent 9 (2019) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671930.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RICO (2019) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671928.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ eXoDOS Collection v3.11 - Volume 5 Action (2018) [En] (3.11) Repack eXo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670022.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Battlezone (2017) [Ru/Multi] (1.08/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669385.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2.0/upd2/dlc) Repack Other s [Definitive Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668692.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Lazaretto (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667566.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0/upd2) Repack Other s [Definitive
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667360.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Singularity (2010) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666934.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Doom [En] (L) 1993
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666901.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ TimeShift (2007) [Ru/Multi] (1.02) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662940.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Perception (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662934.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Putrefaction 2: Void Walker (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662931.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dead Island + Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0upd2/dlc) Repack xa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661642.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Perception (2017) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660807.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Secret Doctrine (2017) [Ru/En/Ch] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658798.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (62662/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658750.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656488.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Bulletstorm (2011) [Ru/En] (1.0.7147/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656482.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru/En]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655520.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Conarium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655508.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Depth Hunter (Lossless RePack/v1.10) [Multi5/+] 2011 | R.G. Catalyst и R.G. ExP
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655193.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ AMOK (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653048.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648908.jpg" />
 </div>
 
 

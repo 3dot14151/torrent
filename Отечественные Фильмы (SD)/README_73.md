@@ -1,107 +1,3 @@
-###  Публикация: 931189   (512664) от 25.08.2015
-
-Нинкина любовь (2015) HDTVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Нина всю себя посвятила младшей сестре. На собственную любовь и счастье времени не хватило. Жизнь ее скучна и однообразна. Но судьба приготовила на Нинкину долю много приключений и переживаний. Совсем скоро в ее жизни появятся двое мужчин, и далеко не сразу Нина поймет, кто из них ее настоящая любовь…Производство: Россия, Кинокомпания РусскоеЖанр: МелодрамаРежиссер: Игорь ПеринАктеры: Любовь Баханкова, Илья Алексеев, Илья Соколовский, Людмила Гаврилова, Василий Кортуков, Андрей БулатовПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CF9BEE3D1FCA9B7E505242C4A39881330B13A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315546   (512618) от 20.07.2019
-
-Один день лета (2018) WEB-DLRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вся жизнь недавней провинциалки, а теперь москвички Кати — одно сплошное селфи с чередой знаменитостей. Любые интриги ради лайка, любые подвиги во имя статуса «звезды инстаграм». Но количества подписчиков по-прежнему недостаточно, и ради заветной цели она отправляется в Санкт-Петербург, чтобы сделать селфи с загадочным художником, скрывающим свою личность, и тем (   Читать дальше...   )Производство: Россия, ЛенфильмЖанр: Комедия, музыка, мелодрамаРежиссер: Александр ИгудинАктеры: Татьяна Бабенкова, Алекс Коморовски, Степан Ледков, Андрей Носков, Юрий Гальцев, Максим Леонидов, Иван Краско, Эра Зиганшина, Анастасия Лазо, Алексей КопыловСубтитры: ОтсутствуютПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4117DBD2500572F2468CC350C43F31C9B65074EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931222   (512583) от 25.08.2015
-
-Охотник (2014) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Роберт — профессиональный киллер, один из лучших в этом опасном деле. Но иногда даже самые лучшие допускают ошибки. Одна ошибка Роберта, оборачивает все вокруг против него, увлекая в опасную игру всех, кто встречается ему на пути.Производство: Молдова, Shepherd Company & Patria ProductionЖанр: Боевик, ТриллерРежиссер: Иван НаниевАктеры: Паша Парфений, Борис Кулибаба, Лусия Андриуца, Иван Банару, Владимир Гончаров, Михаил Цуркан, Анжела ЧиобануПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC72ACD4EE698D4FA5C1774D6894E042FB9BFFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535804   (512330) от 20.08.2012
-
-Взбунтуйте город, граф! (1992) VHSRip2DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Эксцентрическая мистико-фантастическая комедия. Нечистая сила осуществляет грандиозный проект по установлению дьявольского порядка во всем мире. Центром эксперимента избран город П...Жанр: Фантастика, Приключения, КомедияРежиссер: Сергей ГурьяновАктеры: Игорь Гладнев, Лариса Каменских, Валерий Серегин, Владимир Шульга, Владимир Семеновых, Олег Исаев, Рамис Ибрагимов, Александр Донец, Татьяна Хорошева, Татьяна Облогина, Ирина Сахно, Татьяна Жаркова, Левон Исаакян, Татьяна Новикова (II), Сергей АраповПродолжительность: 01:28:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561912   (512239) от 07.07.2022
 
 Мой папа — вождь (2022) WEBRip
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512239.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512064.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511900.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509875.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509850.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509489.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509174.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509097.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508040.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507983.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507880.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507784.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507036.jpg" />
 </div>
 
 
@@ -448,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506911.jpg" />
 </div>
 
 
@@ -474,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506885.jpg" />
 </div>
 
 
@@ -500,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506714.jpg" />
 </div>
 
 
@@ -526,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505841.jpg" />
 </div>
 
 
@@ -552,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505807.jpg" />
 </div>
 
 
@@ -578,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503891.jpg" />
 </div>
 
 
@@ -605,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503579.jpg" />
 </div>
 
 
@@ -631,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503168.jpg" />
 </div>
 
 
@@ -657,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503165.jpg" />
 </div>
 
 
@@ -668,6 +564,113 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C27F1940260B16AB97F99A62AACA68D8C866532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541006   (502438) от 30.08.2012
+
+Тартарен из Тараскона (2003) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательный и романтичный Тартарен из Тараскона, у многих вызывающий
+насмешки и развлекающий горожан своей полной неприспособленностью,
+однажды совершает геройский поступок…Жанр: Комедия, мелодрамаРежиссер: Дмитрий Астрахан, Валентина МакароваАктеры: Анатолий Равикович, Николай Караченцов, Александр Абдулов,    Александр Филиппенко, Инна Ульянова, Сергей Никоненко, Елена Захарова,    Елена Карпович, Павел Баршак, Татьяна ЗолотковаПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B423655108D6B296B57E946AEDC6859479BB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138748   (501584) от 01.09.2009
+
+Обратная сторона (2009) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о герое нашего времени. Он любит, мечтает так же, как и ты. Но однажды ему придется столкнуться с «обратной стороной» жизни, и его судьба круто изменится. Ему противостоит Бек, человек из «тёмного мира». Жестокая схватка двух сторон, где цена победы — собственная жизнь.
+Герой понимает, что в прошлое нет возврата. Все начинается с загадочного похищения (   Читать дальше...   )Производство: КазахстанЖанр: Боевик, КриминалРежиссер: Куат ИсаевАктеры: Санжар Мадиев, Дмитрий Дюжев, Аша Матай, Дмитрий Скирта, Жанна КуанышеваПеревод: ОригинальныйПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138202   (501582) от 01.09.2009
+
+Полторы комнаты или сентиментальное путешествие на Родину (2009) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это фильм по литературным сочинениям Бродского, по его рисункам, по материалам его биографии, но прежде всего он инспирирован прозой Бродского.Производство: РоссияЖанр: БиографияРежиссер: Андрей ХржановскийАктеры: Алиса Фрейндлих, Сергей Юрский, Григорий Дитятковский, Артем Смола, Сергей Дрейден, Алексей Девотченко, Александр Леньков, Светлана Крючкова, Сергей Барковский, Александр БаргманПродолжительность: 02:04:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934796   (500990) от 06.09.2015
+
+Третья попытка (2015) HDTVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настя и Олег пять лет вместе. Настя - медсестра, Олег - музыкант в оркестре, постоянно пропадающий на репетициях... Их семейное счастье во многом держится на Насте - нежной, заботливой жене, готовой во всём поддерживать своего любимого. Но однажды, придя домой раньше времени, Настя застаёт мужа с любовницей. Поддавшись раскаянию Олега, Настя прощает его, но счастье (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Игорь МужжухинАктеры: Екатерина Рябова, Александр Асташенок, Александр Пашков, Анжелика Кошевая, Пётр Баранчеев, Сергей Ерошенков, Андрей Рогожин, Татьяна ХрамоваПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342F929EDA577E7EE87C716FD7DBFE0A7A1BE830
 ```
 
 https://mybot314.ru/tekegram_catalog/

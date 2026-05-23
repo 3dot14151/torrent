@@ -6,7 +6,7 @@ RollBack Rx Professional 12.9 Build 2711739098 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060708.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Magic Uneraser Home / Office / Unlimited Edition 7.2 RePack (& Portable) by TryR
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060357.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tenorshare 4DDiG 10.7.0.16 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059597.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ R-Studio Network 9.5 Build 191709 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059459.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ R-Studio Network / Technician 9.5 Build 191709 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059369.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ R-Studio Network 9.5 Build 191709 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059230.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hekasoft Backup & Restore 1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057888.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Coolmuster Android Assistant 6.0.112 RePack (& Portable) by elchupacabra [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056996.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ R-Studio Network / Technician 9.5 Build 191686 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054688.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ R-Studio Network 9.5 Build 191686 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054344.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ R-Studio Network / Technician 9.5 Build 191683 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053707.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ R-Studio Network 9.5 Build 191683 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053413.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MiniTool Power Data Recovery 12.8 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051585.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ R-Studio Network 9.5 Build 191671 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051061.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ R-Studio Network / Technician 9.5 Build 191671 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051025.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AOMEI Backupper Technician Plus 8.1.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051024.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ AOMEI Backupper Technician Plus 8.1.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050988.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AOMEI Backupper Technician Plus 8.1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048700.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ AOMEI Backupper Technician Plus 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048580.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ DiskDigger 2.0.13.4139 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047081.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ O&O DiskImage Professional 21.2.207 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046663.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046608.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046569.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ R-Studio Network Technician 8.15 Build 180125  [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042639.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MiniTool Power Data Recovery Business Technician 9.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037676.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Active Disk Image Professional 10.0.3 [Multi/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037640.jpg" />
 </div>
 
 

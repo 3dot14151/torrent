@@ -6,7 +6,7 @@ Driver Magician 4.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330204.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SIV (System Information Viewer) 5.05 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330203.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Emsisoft Internet Security 11.0.0.5911 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330174.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Titan FTP Server Enterprise 11.30 Build 2350 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330167.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GOM Player 2.2.72 Build 5234 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330166.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lim Stickers 2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330165.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Total Uninstall 6.16.0 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330164.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330163.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe components: Flash Player 19.0.0.245 + AIR 19.0.0.241 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330156.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Emsisoft Anti-Malware 11.0.0.5911 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330145.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ashampoo Burning Studio 2016 16.0.0.17 Final RePack (& Portable) by D!akov [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330143.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ICE Book Reader Professional 9.4.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330142.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PowerISO 6.4 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330103.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ICE Book Reader Professional 9.4.4 Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330093.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AIMP 4.00 Build 1670 RC 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330091.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows Firewall Control 4.5.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330087.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Scanitto Pro 3.9 Portable by SpeedZodiak [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330041.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ JetBrains CLion 1.2.1 Build #CL-143.382 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330040.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ashampoo Burning Studio 2016 16.0.0.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330039.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Scanitto Pro 3.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330038.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ JetBrains RubyMine 8.0.1 Build #RM-143.382 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330030.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Destroy Windows 10 Spying 1.5 Build 693 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329963.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Luxion Keyshot PRO 6.0.264 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329953.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Garbage Collector 1.3.0 Build 14.11.2015 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329952.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Classic Shell 4.2.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329881.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Windows Enterprise VL Editions xp pe StartSoft 84-2015 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329861.jpg" />
 </div>
 
 

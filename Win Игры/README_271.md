@@ -1,29 +1,3 @@
-###  Публикация: 1417443   (357353) от 20.10.2020
-
-Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярной игры-симулятора Рыбалка: Баренцево море приглашает Вас снова надеть фуражку капитана: исследуйте большой океан Новой Шотландии, испытайте свои силы в совершенно новых методах рыбалки и с удовольствием пользуйтесь огромным разнообразием высокодетализированных кораблей в коммерческом рыболовном симуляторе Рыбалка:Северная Атлантика.Тип издания: RepackРазработчик: Misc GamesЖанр: СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Норвежский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Норвежский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C3866F01762D65AF0001C5231636252173FC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577740   (356990) от 19.11.2012
 
 The Fall: Mutant City [Ru/Ge] (RePack) 2011 | R.G. Catalyst
@@ -32,7 +6,7 @@ The Fall: Mutant City [Ru/Ge] (RePack) 2011 | R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356990.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356989.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Assassin's Creed 3 (Patch/1.01) 2012
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356984.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Witches' Legacy 7: Awakening Darkness / Наследие ведьм 7: Восс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356416.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Demon Archive. The Adventure of Derek / Архив Демона. Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356415.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0) License GOG [GOG Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356282.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Anomaly 2 (2013) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356225.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Omensight (2018) [Ru/Multi] (1.04) License CODEX [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356016.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Overload (2018) [Ru/Multi] (1.0.1875) Repack R.G. Catalyst
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356008.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ WARSAW (2019) [Ru/Multi] (Build 76) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355955.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Final Exam (2013) [Ru/En] (1.0u3) RePack Audioslave
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355917.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Reigns: Game of Thrones (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355826.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.2/dlc) Repack R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355813.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Grim Tales 9: Threads of Destiny (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355712.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ League of Light 2: Wicked Harvest / Лига Света 2: Нечестивый 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355447.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Deer Hunter: Reloaded (2017) [En/Ge/Fr] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355381.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Resident Evil 6 (2013) [Ru/En] (1.0.6.165/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355253.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Assassin's Creed 3: Трейнер (+5) | LinGon
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354762.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Assassin's Creed 3: Трейнер (Trainer/+6) | FLiNG
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354628.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Worlds Align: Beginning (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354310.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Candle (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353990.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ Minoria (2019) [Ru/Multi] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353951.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353805.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353568.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Sea Of Lies 4: Tide Of Treachery / Море лжи 4: Поток предате�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353296.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Sea Of Lies 4: Tide Of Treachery / Море лжи 4: Поток предате�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BDB52D131573444605D66BDAC706028AFF3234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178952   (352846) от 29.10.2017
+
+Nights of Azure 2: Bride of the New Moon (2017) [En/Ja/Ch] (1.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрокам предстоит столкнуться с рядом уникальных и подлых существ, в борьбе против которых необходимо будет полагаться на тесные связи со своими товарищами. В бою всегда будет участвовать главная героиня Aluche, дополнительный персонаж на выбор, и до двух монстров-служителей.Тип издания: LicenseРазработчик: KOEI TECMO GAMESЖанр: RPG, Third-person, 3D, JapaneseЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D17DE01062DD554308ED2B463D7C93224FECEC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

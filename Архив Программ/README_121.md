@@ -6,7 +6,7 @@ ReviverSoft Driver Reviver 5.39.1.8 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013339.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 8.75 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013333.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MSI Kombustor 4.1.12.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013332.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Firefox Browser 89.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013325.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013303.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ GeoGebra 6.0.644.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013253.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Opera 76.0.4017.175 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013243.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Chromium 91.0.4472.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013240.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Autorun Organizer 5.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013203.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Vidiot 0.3.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013202.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ XnViewMP 0.98.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013199.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TaskSchedulerView 1.68 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013197.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Arturia - FX Collection 2021.01-04 VST, VST3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013189.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Viber 15.4.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013171.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ TechSmith SnagIt 2021.4.1 Build 9895 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013169.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Bandicam 5.1.1.1837 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013130.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Opera 76.0.4017.175 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013070.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Firefox Browser 78.11.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013051.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Firefox Browser 89.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013050.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Q-Dir 9.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013049.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Privacy Eraser Free 5.12.0 Build 3912 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013043.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Opera 76.0.4017.177 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013033.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Soft Organizer Pro 9.01 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013031.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Balabolka 2.15.0.786 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013025.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ ActivePresenter Pro Edition 8.5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013024.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Nox App Player 7.0.1.2002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013019.jpg" />
 </div>
 
 

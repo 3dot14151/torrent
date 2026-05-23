@@ -6,7 +6,7 @@ Gegege no Kitarou (2018) | Китаро из леса Гегеге [ТВ-6] [201
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599589.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Grancrest Senki / Record of Grancrest War / Легенда о Гранкрест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597601.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cowboy Bebop: Tengoku no Tobira / Ковбой Бибоп: Достучатьс�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597362.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_597196.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mobile Police Patlabor: The Movie / Полиция Будущего (фильм 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597191.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Pokemon: Black and White. Rival Destinies / Покемон: Чёрное и Бе
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596748.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ryuu no Haisha | The Dragon Dentist | Драконий зубной [2017, Speci
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595686.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593034.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592677.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591992.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Grisaia no Rakuen / The Eden of Grisaia / Эдем в серых тонах [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591285.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Fantastic Children / Фантастические дети [2004, TV, 26] DVDrip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591251.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Trinity Blood / Кровь Триединства [2005, TV, 24 серии] BDri
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587841.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 720p Hi10p raw
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587495.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586889.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585914.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Samurai Seven | Семь Самураев | 7 самураев [2004, TV, 26] HD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584898.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Galilei Donna | Девы Галилея [2013, TV, 01-11 из 11] BDRip 400p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581915.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 01-24 из
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581913.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581719.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Pokemon: Advanced (6 Season) / Покемон: Новое поколение (6 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580140.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579961.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25] BDRip 400
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579960.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Psycho-pass | Психопаспорт (два сезона) [2012-2014, TV, 22 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577382.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Pandora Hearts / Сердца Пандоры [2009, TV, 25] DVDrip raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577381.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Aoki Hagane no Arpeggio: Ars Nova / Arpeggio of Blue Steel / Арпеджио г
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575889.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1525836   (129002) от 22.01.2022
-
-Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Prison Tycoon: Under New Management – симулятор, в котором предстоит построить замысловатую тюрьму. Для достижения цели потребуется нанять персонал, выбирая из разных сотрудников и управлять пенитенциарным учреждением. Воспользовавшись имеющими возможностями, можно спроектировать реабилитационное место и зарабатывать на бизнесе большие деньги.Тип издания: LicenseРазработчик: Abylight StudiosЖанр: Стратегия, Строительство, МенеджментЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A7DB2D51658DE5B38643C248064C2EE04932C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525885   (128997) от 22.01.2022
 
 Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
@@ -32,7 +6,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128997.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Space Engineers / Космические инженеры (2019) [Ru/En] (1.207.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128992.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128891.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Chimeras 14: The Lost Film / Химеры 14: Потерянный фильм (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128887.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128839.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.1) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128812.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128811.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Spindle (2025) [Multi] (Build 20355770) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128808.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128562.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128344.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Fables of the Kingdom V / Сказочное королевство V (2023) [Ru
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128313.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Grim Tales 24: All Shades of Black / Страшные сказки 24: Все о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128303.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Another World: 20th Anniversary Edition (2013) [Ru/Multi] (8516704) Repack dixen
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128185.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128063.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127921.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127903.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cookie Cutter (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127901.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Christmas Fables 2: The Magic Snowflake (2023) [Multi] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127830.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Viking Brothers 5 / Братья викинги 5 (2023) [Ru] (1.0) Unofficial [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127733.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ River Tails: Stronger Together (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127729.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127535.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127527.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127525.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127523.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127331.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Legend of Keepers представляет собой хитроумную см�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E3E52C47EBD6CB78F87A0D05D1E193987F2362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685639   (127161) от 19.12.2023
+
+TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в фестиваль взрывоопасных гонок ТРЕЙЛ АУТ! Вас ожидают безбашенные гонки в разных уголках планеты, ваша главная цель дожить до финиша и взять главный кубок фестиваля! Аварии машин, крики вылетающих водителей, хайп от фанатов и невиданное разрушение всей трассы - всё это ожидает вас здесь! А так же переживите историю гонщика Михалыча, простая история, (   Читать дальше...   )Тип издания: RepackРазработчик: GOOD BOYSЖанр: Racing, Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544BD38F89808D9CC155F9805EE57784F8F18BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

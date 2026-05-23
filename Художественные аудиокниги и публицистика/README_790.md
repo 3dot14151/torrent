@@ -1,81 +1,3 @@
-###  Публикация: 1592830   (182459) от 24.11.2022
-
-Александр Зубенко | Фея Амазонки. Тайна алмаза (2022) [MP3, Олег Лобанов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о пропавшей советской экспедиции в 1966 году в джунглях Амазонки, в ходе которой геологи находят алмаз, ставший впоследствии бриллиантом весом 82 карата, и агентах четвёртого рейха, охотящихся за ним. В живых остаются два последних участника похода. Местонахождение бриллианта до сих пор остаётся загадкой.Жанр: ФантастикаПродолжительность: 05:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA1525475CD76A48D1144E565A20BC42E8F9524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665241   (182421) от 30.09.2023
-
-Зинаида Гаврик | Проклятая сказкой (2023) [MP3, Софья Шамаева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Писательница Варвара вдруг получает дар оживлять написанное. Радость быстро сменяется паникой – единожды вызванная к жизни история не желает заканчиваться, превращая жизнь Вари в кошмарный сюжет книги. С трудом доведя сюжет до логического конца, она даёт себе обещание – никогда больше не связываться с даром. Но однажды в гости приходит подруга с бутылкой вина и предлагает (   Читать дальше...   )Жанр: Городское фэнтези, Любовное фэнтезиИздательство: АРДИСПродолжительность: 15:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFA100C8881D9FFD50CB2457E6B5CCA430E5318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427732   (182411) от 29.11.2020
-
-Екатерина Радион | Метка северного ветра (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Попасть на отбор по ошибке и выбраться сухой из воды? Амала решила, что все неприятности уже позади, как на руке расцвела еще одна метка. Неизвестный маг хочет, чтобы она срочно вышла замуж… Иначе превратит ее в ледяную статую. Ее вновь обязывают выйти замуж, опять угрожают смертью. Но где найти жениха, если единственный мужчина – это наглый темный маг, который видит (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D16E344A61AC40A0BA93D805977699A9F792E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592896   (182370) от 24.11.2022
 
 Павел Матисов | Вечный данж (Книга 2). Аспекты бытия (2021) [MP3, Александр Степной]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182370.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182342.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182318.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182295.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182271.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182253.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182221.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182206.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182198.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182188.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182163.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182131.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182101.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182094.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182023.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182014.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181999.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181965.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181941.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181930.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181929.jpg" />
 </div>
 
 
@@ -643,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181926.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181909.jpg" />
 </div>
 
 
@@ -682,6 +604,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E059D87919B72D9E6C56EAE37CA16B4E9D23A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593116   (181905) от 25.11.2022
+
+Картер Браун | Рик Холман (Книга 6). Зеленоглазые джунгли (2022) [MP3, Сергей Пухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блистательный Голливуд! Очаровательные кинодивы, мужественные ковбои, влиятельные продюсеры, выгодные контракты. Погружающемуся в этот мир, он невольно кажется похожим на мир джунглей. Так же сверкают во тьме чьи-то хищные глаза и действуют те же законы - законы джунглей. Но Рик Холман чувствует себя здесь как рыба в воде. А сценарист Ларри Бейкер из Нью-Йорка попадает-таки (   Читать дальше...   )Жанр: детективПродолжительность: 03:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED055948A85E0182D94F3BD462BCDA513F8130B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593114   (181892) от 25.11.2022
+
+Картер Браун | Рик Холман (Книга 5). Блондинка в беде (2022) [MP3, Сергей Пухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Рик Холман - последняя надежда попавшей в беду голливудской элиты. Одна из самых крупных звезд американской "фабрики грез" неожиданно для нее отлучена от работы, как ей кажется, кто-то задался целью похоронить ее заживо. Холман берется выяснить, не связано ли все это с трагической гибелью дерзкого и капризного возлюбленного актрисыЖанр: детективПродолжительность: 04:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D326962F0BB30379BFA97F3848D1B640CEB19B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593112   (181877) от 25.11.2022
+
+Картер Браун | Рик Холман (Книга 4). Белое бикини (2022) [MP3, Сергей Пухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективные романы известного американского писателя, пожалуй, немного перегружены сексуальными сценами, чересчур подробной деталировкой их. Но ведь существуют же преступления, связанные с извращениями на почве секса и от этого никуда не денешься. А в целом эти романы отличаются «крутыми» сюжетами и увлекают динамичностью повествования.Жанр: детективПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4582952B4229A306F03D43688118F0DD6322FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

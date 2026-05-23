@@ -1,29 +1,3 @@
-###  Публикация: 1745171   (45706) от 25.08.2024
-
-3 Minutes to Midnight - A Comedy Graphic Adventure (2024) [Multi] (1.0.4) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-3 Minutes to Midnight – казуальное инди-приключение с всевозможными головоломками, наполненное сатирой и пародиями на современное общество, юмором (порой чёрным и грубым) и непредсказуемыми сюжетными поворотами. Этот проект использует вид сбоку, что позволяет передвигаться в двух измерениях. Задние фоны проработаны и выполнены в трёхмерном стиле. Доступно управление (   Читать дальше...   )Тип издания: SceneРазработчик: Scarecrow StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B451DE18D35136675ADEE2142F52319D5A9FD9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745167   (45703) от 25.08.2024
 
 Rise Eterna War (2024) [Multi] (20240813 2) License GOG
@@ -32,7 +6,7 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45703.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Cavalry Girls (2023) [Multi] (1.1.1715/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45695.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Can't Revert (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45683.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ LightRay (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45675.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Finding Mosey (2024) [Multi] (2.81) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45667.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45666.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.1.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45656.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Phantom Spark (2024) [Multi] (1.0.0:3004) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45653.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45644.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45626.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45622.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45621.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Beach Club Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45614.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45609.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45602.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45537.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Landlord's Super (2023) [Multi] (1.0.09) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45530.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45525.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45515.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45509.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45471.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Chromosome Evil 2 (2024) [Ru/En] (1.77) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45423.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45406.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45403.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45386.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C7FEEA9703A3CA837DBC24BCA0FF43B05906C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745816   (45372) от 28.08.2024
+
+Northgard (2018) [Ru/Multi] (3.5.15.39065/dlc) Repack Other s [The Viking Age Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандинавская стратегия Northgard с углублением в древнюю мифологию викингов, которые нашли Нордгард - город, полный богатств, мифов и древних легенд. Игра сочетает в себе миролюбивую графику и постепенное развитие вашего поселения. Однако викинги быстро охладили свой пыл, когда встретились с первой опасностью Northgard - зверским холодом, окутывающим все берега (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EC03B817E3824E6C900BEE1B374DE203034A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

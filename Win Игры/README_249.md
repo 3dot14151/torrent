@@ -1,29 +1,3 @@
-###  Публикация: 1062380   (441200) от 13.10.2016
-
-Mantis Burn Racing (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Гонка в Mantis Burn Racing стартует! В этой одной из самых красивых гонок с полным эффектом присутствия стремительное движение бампер-к-бамперу сочетается с интуитивно понятным, тактильным геймплеем и потрясающими визуальными эффектами. Сидя за рулем невероятного автомобиля, созданного с высокой степенью детализации специально для того, чтобы мчаться по завораживающим (   Читать дальше...   )Тип издания: RepackРазработчик: VooFoo StudiosЖанр: Racing (Cars), Arcade, Simulator, Top-down, 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E3004A782148282B3F14B83344D391CCA04911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062459   (441198) от 13.10.2016
 
 Kerbal Space Program (2015) [En] (1.2.0.1586) Repack Other s
@@ -32,7 +6,7 @@ Kerbal Space Program (2015) [En] (1.2.0.1586) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441198.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2/1.1.2/1.0/dlc) Repack R.G. Catalyst [Defini
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441178.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dead Island: Game of the Year Edition (2011) [Ru] (1.3.0/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441111.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.06/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441044.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dead Age 2 (2020) [Ru/Multi] (1.26) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439958.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ LOST EMBER (2019) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439779.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.182.64713/dlc) Repack xatab [Bear H
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439774.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Deadlings: Rotten Edition (2014) [Ru/Multi] (0.0.51) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439558.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Prison Architect (2015) [Ru/Multi] (1.0) License SKiDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439549.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Frozen Synapse: Prime (2014) [En/Multi] (upd4.1) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439545.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Blockscape (2014) [En] (322714) Repack Hazestalker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439399.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Dark Realm 2: Princess of Ice /Темный мир 2: Владычица льд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439202.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439030.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Paris 1925. Episode 1: The Shadow of the Freak [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438748.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438694.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Sable Maze: Sullivan River Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438568.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Spirit Walkers: Curse of the Cypress Witch / Искатели призраков
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438171.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ McPixel (L) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438143.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Gravity Ghost (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437702.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ The Dungeon of Naheulbeuk: The Amulet of Chaos (2020) [Multi] (1.0.373.34341) Re
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437569.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Shiny Summer / Блестящее Лето (2020) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437566.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437557.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437555.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Uncharted Tides: Port Royal / Неизведанные воды: Королев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437345.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Infinity Runner (2014) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437313.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Infinity Runner - это научно-фантастический экшен-р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F2AA9201F6924B063168F93859D0994E80087F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249089   (437155) от 22.09.2018
+
+Grim Tales 15: The Hunger / Страшные сказки 15: Голод (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатая часть увлекательной серии "Grim Tales" от Elephant Games и Большой рыбы. Ваша племянница Джеки Грэй была убита неизвестным злодеем, преступления которого остаются нераскрытыми вот уже 17-й год. Объединитесь с отцом полицейского Джеки и, используя свои способности, вернитесь в прошлое, чтобы остановить убийцу и спасти племянницу!Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F6609F74D91607D80156D51FD532874A5BC811
 ```
 
 https://mybot314.ru/tekegram_catalog/

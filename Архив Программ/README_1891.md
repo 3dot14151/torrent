@@ -6,7 +6,7 @@ Tone2 - Electra 2.8.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HWiNFO 7.65 Build 5255 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164360.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Q-Dir 7.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164346.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ApowerREC 1.5.3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164330.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Pano2VR Pro 6.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164309.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164306.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Topaz Video AI 4.0.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164290.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Skype 8.107.0.215 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164277.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ocenaudio 3.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164271.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Google Chrome 119.0.6045.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164260.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Topaz Photo AI 2.0.7 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164258.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Viber 21.3.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164257.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ TagScanner 6.1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164253.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ simplewall 3.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164249.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Google Chrome 79.0.3945.88 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164248.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Google Chrome 79.0.3945.88 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164228.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ OpenHashTab v3.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164227.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ FastStone Capture 10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164224.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Google Chrome 119.0.6045.106 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164222.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Webcam Surveyor 3.8.7 Build 1182 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164210.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Windows and Office Genuine ISO Verifier 11.12.43.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164205.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Volume2 1.1.7.444 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164200.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164198.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Topaz Video AI 4.0.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164185.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ PotPlayer 231102 (1.7.22031) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164182.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ PrivaZer 4.0.60 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164176.jpg" />
 </div>
 
 

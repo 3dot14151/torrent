@@ -6,7 +6,7 @@ Google Chrome 115.0.5790.171 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207276.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XY VPN - Security Proxy VPN 4.5.006 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207274.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MediaInfo 23.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207273.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wondershare Filmora 11.7.3.814 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207272.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft .NET 7.0.3 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207271.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Phase One Capture One 23 Enterprise 16.2.3.1463 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207270.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ TechTool Pro 18 v.18.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207264.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ FanControl V165 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207260.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Mozilla Thunderbird 115.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207257.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Rhinoceros 3D 7.22.22255.5001 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207253.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ TheAeroClock 8.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207243.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Telegram Desktop 4.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207241.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ R-Studio Network 9.3 Build 191223 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207235.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Vivaldi 6.1.3035.257 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207228.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ImgDrive 1.9.9.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207226.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 20.09.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207221.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ PicPick Free+Pro 7.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207217.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ JetBrains PyCharm Professional for Mac 2023.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207215.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Topaz Video AI 3.1.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207214.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Blue Iris 5.4.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207210.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ App Cleaner & Uninstaller Pro 8.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207207.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Internet Download Manager 6.41 Build 17 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207206.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Opera One 101.0.4843.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207202.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Google Chrome 115.0.5790.171 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207201.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207200.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ AWR Design Environment 10.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207198.jpg" />
 </div>
 
 

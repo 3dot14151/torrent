@@ -6,7 +6,7 @@ Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868881.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868614.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868225.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [Т
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867883.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Girls Bravo / Браво, девушки! [2004, TV, 11 + 13 + SP] DVDRip 480p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867806.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Okusama wa Joshikosei / Wife is a High School Girl / Жена-школьница
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867801.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Hachimitsu to Clover | Honey and Clover | Мед и клевер (первый �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867288.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Shisha no Teikoku | The Empire of Corpses | Империя мертвых [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865958.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865728.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Uchuu Patrol Luluco | Space Patrol Luluco | Космопатрульная Лу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865600.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864131.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Www.Working!! | Www.Wagnaria!! [2016, TV, 12 эп.] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864037.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ ViVid Strike! | Решающий Удар [2016, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864028.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Udon no Kuni no Kiniro Kemari | Udon no Kuni no Kin`iro Kemari | Poco's Udon Wor
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863913.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Yuuri!!! on Ice | Yuri!!! on Ice | Юрий на льду [2016, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863799.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Hatsukoi Monster / First Love Monster / Монстр первой любви [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863796.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Long Riders! | Марафонцы [2016, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863791.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Gate Keepers | Gatekeepers | Хранители врат [2000, TV, 24 эп.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863736.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Medaka Box: Abnormal | Medaka Box 2 | Ящик предложений Мэдак
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863470.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Путешес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862508.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Bang Dream! 3rd Season | Ура мечте! (ТВ-3) [2020, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861685.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860889.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Punch Line | Punchline | Вся суть в трусах | Изюминка [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860649.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Prince of Stride: Alternative / Принц страйда: Альтернати�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860418.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859865.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Infinite Dendrogram / Бесконечная Дендрограм [2020, TV, 13]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859734.jpg" />
 </div>
 
 

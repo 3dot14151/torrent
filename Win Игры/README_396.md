@@ -1,29 +1,3 @@
-###  Публикация: 1823003   (104370) от 09.10.2025
-
-Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятва крови (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Новая история хэллоуинских кошмаров. Скучающие друзья жаждут доказать свою храбрость и немного повеселиться в ночь Хэллоуина. Они случайно пробуждают древнее существо, скрывающееся в самом сердце разрушающегося поместья, и их приключение становится смертельно опасным. Тени превращаются в монстров. Кошмары вторгаются в реальный мир. Девушка исчезает на глазах ошеломленных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2FDA5C21414F71303A6F33302BE27AEDAAF37A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750860   (104138) от 22.09.2024
 
 30XX (2023) [Ru/Multi] (1.3.0/dlc) Repack FitGirl [Deluxe Edition]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104138.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104136.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104004.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103559.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102695.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102634.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Abandoned: Chestnut Lodge Asylum / Заброшенная клиника "Каш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102476.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Dark Tales: Edgar Allan Poe's Murders in the Rue Morgue / Страшные ис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102466.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102409.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102336.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ MUD: FIM Motocross World Championship (L) [Multi5/-] 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102328.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Toy Soldiers + 2 DLC [En] (RePack) 2012 | Naitro
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102114.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101860.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Fireburst (Lossless RePack) {1.0} [Multi5/-] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101663.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101610.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Metel - Horror Escape (2020) [Ru/En] (1.01) Repack Necros [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101587.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Royal Romances 6: Fortunes and Foes / Королевские романы 6: У�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101434.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Ба
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101392.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101379.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101378.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Book Travelers 3: A Gothic Story / Книжные странники 3: Готи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101361.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ GNOG (2018) [Ru/Multi] (1.0.7) License GOG [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100871.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100808.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.62) License GOG [Original Soundtrac
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100803.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Talisman (2014) [Ru/Multi] (84935/dlc) License GOG [Digital Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100802.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Talisman: Волшебное приключение от Games Workshop - это
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE309DBDF9D08B079245E7732FC524955DBBEBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822345   (100782) от 06.10.2025
+
+Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luck & Loot - динамичный рогалик с кубиками, где стратегия и хаос сталкиваются. Создавайте собственные кубики, используйте синергию дикой добычи и погружайтесь в проклятые миры Элдралита, где каждый раз судьба вершится по-новому. Перехитрите жестоких врагов в пошаговых боях, используйте высокорискованные модификаторы и раскройте тёмные тайны мира, застрявшего (   Читать дальше...   )Тип издания: RepackРазработчик: SMARTcreativeЖанр: Инди, Ролевые игры, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B22273539820C19CDBF1B01D2FA109E9D23A691
 ```
 
 https://mybot314.ru/tekegram_catalog/

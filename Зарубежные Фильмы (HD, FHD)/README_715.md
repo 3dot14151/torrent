@@ -1,55 +1,3 @@
-###  Публикация: 1333694   (301056) от 26.10.2019
-
-Идеальная кожа / Perfect Skin (2018) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются вокруг девушки по имени Катя, которая испытывает серьезные финансовые проблемы, и поэтому просит свою хорошую подругу Люси приютить её у себя дома на несколько дней. После бурного вечера в клубе девушки отправляются к Бобу — экстравагантному татуировщику, который оказывается восхищен красотой кожи Кати и предлагает ей сделать тату. А через (   Читать дальше...   )Производство: ВеликобританияЖанр: Ужасы, триллерРежиссер: Kevin ChickenАктеры: Ричард Брэйк, Наталья Кострцева, Джо Вудкок, Том Эшли, Jemima Bennett, Oscar Bennett, Дэвид Кристофер-Тернер, Сартаж Гаревал, Emma-Jane Hinds, Камерон ДжекПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced), английскиеПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8147EC36D446AD8171E0AF010997B773B0B71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333790   (301053) от 26.10.2019
-
-Сверх(НЕ)естественное / Extra Ordinary (2019) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Скромная Роуз обладает экстрасенсорными способностями, но соседи достают ее лишь просьбами изгнать духов надоедливых родственников. Однажды в ее родном городке объявляется рок-звезда Кристиан Уинтер. Наделенный дьявольской силой, он околдовывает местную девушку, и ее отец в отчаянии просит Роуз о помощи. У героини появляется шанс раскрыть свой дар, а заодно устроить (   Читать дальше...   )Производство: Ирландия, Бельгия, Blinder Films, Epic Pictures GroupЖанр: Комедия, ужасы, фэнтезиРежиссер: Майк Ахерн, Энда ЛогманАктеры: Маив Хиггинс, Бэрри Уорд, Уилл Форте, Клаудия О`Доэрти, Джэми Бимиш, Terri Chandler, Ристерд Купер, Emma Coleman, Кэрри Краули, Мэри МакЭвойПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6685EFD60E5FFD1205F5E6730F0DE169EC3981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333724   (301048) от 26.10.2019
 
 Венеция зовет / Venise n'est pas en Italie (2019) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301048.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300959.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300954.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300785.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300628.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300605.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300604.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300587.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300574.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300572.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300570.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300569.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Yesterday / Yesterday (2019) BDRip [H.265/1080p-LQ] [10-bit]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300461.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300444.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300428.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300402.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300401.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300376.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300357.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300340.jpg" />
 </div>
 
 
@@ -583,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299735.jpg" />
 </div>
 
 
@@ -609,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299637.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299575.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299095.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E912EA21E7A8E573C9740DE96C284E9950FF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423345   (299094) от 13.11.2020
+
+Октагон: Боец vs Рестлер / Cagefighter (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисс – величайший чемпион ММА и легенда октагона. Оказаться с ним в одной клетке – все равно что поставить себя под ядерный удар. Но его следующим соперником – в рамках «боя века» – неожиданно выбран знаменитый рестлер Рэнди Стоун – ярый провокатор и шоумен, готовый на всё, чтобы развлечь зрителей. Два мира, и только одна победа.Производство: Великобритания / Anamorphic Media, Echolands Creative Group, Trilight EntertainmentЖанр: Боевик, спортРежиссер: Джесси КиньонесАктеры: Алекс Монтаньяни, Джина Гершон, Джонатан Гуд, Бренна Коутс, Чак Лиделл, Элайджа Бэйкер, Джейсон Ресо, Джорджия Браднер, Лео Фафард, Лоуелл ДинПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B057BA509710765D21F04FD543AB5BA7F610E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423134   (299080) от 13.11.2020
+
+Бескрайняя ночь / The Vast of Night (2019) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец 1950-х, городок Каюга в штате Нью-Мексико. Почти все жители собираются на вечерний матч местной баскетбольной команды, а большая любительница читать в журналах о достижениях науки и техники юная Фэй и её приятель Эверетт заступают на ночные дежурства. Девушка работает телефонисткой, и в эту смену со связью происходит что-то странное - звонки обрываются, а по (   Читать дальше...   )Производство: США / GED CinemaЖанр: Детектив, триллер, фантастикаРежиссер: Эндрю ПаттерсонАктеры: Сьерра Маккормик, Джейк Хоровиц, Гэйл Кронау, Брюс Дэвис, Cheyenne Barton, Марк Бэник, Gregory Peyton, Адам Дитрих, Мэллори Родак, Молли МиллиганПеревод: Многоголосый профессиональныйСубтитры: Русские (forced for HDRezka, full), английские, французские, немецкие, китайскиеПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F93A78B19C21E8A9E8FC49F89D65D5838789631
 ```
 
 https://mybot314.ru/tekegram_catalog/

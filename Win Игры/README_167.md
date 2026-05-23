@@ -1,29 +1,3 @@
-###  Публикация: 1220609   (702203) от 20.04.2018
-
-For The King (2017) [Ru/Multi] (1.0.7724) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Компьютерный игровой проект For The King в переводе означает «за короля!». По жанру он – кооперативный стратегический рогалик, созданием которого занималась студия Iron Oak Games.Тип издания: LicenseРазработчик: IronOak GamesЖанр: Strategy, Roguelike, ActionЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882D7075277FADA432D3247CDA16BC8E259C4CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220655   (702202) от 20.04.2018
 
 For The King (2018) [Ru/Multi] (1.0.7724) License RELOADED
@@ -32,7 +6,7 @@ For The King (2018) [Ru/Multi] (1.0.7724) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702202.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Mike was Сursed (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702191.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702111.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ City Bus Simulator 2018 (2018) [En] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702104.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.5.3/dlc) License CODEX [Field Marshal Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702016.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Roguelands (2015) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701716.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Ice Lakes (2016) [En/Fi] (1.2) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701596.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Labyrinths of the World 12: Hearts of the Planet (2020) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701574.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700804.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Bayonetta (2017) [Ru/Multi] (1.0) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700231.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Steampunk Tower 2 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700043.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20200813/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699120.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ ELDEN RING (2022) [Ru/Multi] (1.02/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699050.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Dark Romance 10: Hunchback of Notre-Dame / Мрачная история 10: Г�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699035.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699021.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698908.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698673.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Inner Voices (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698376.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Spirit of Revenge 3: Gem Fury (2015) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698356.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Door Kickers (2014) [Ru/Multi] (1.0.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698270.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2018) [Ru/Multi] (0.96) License PL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698259.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Everything (2017) [En] (1.06.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698247.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17512) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698244.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698155.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Dark Dimensions 7: Blade Master (2016) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698020.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Daily Magic с гордостью представляет новую игру �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF608B3546284A02A3462D7861D38DCC8446F707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027242   (697905) от 18.06.2016
+
+Spirit of Revenge 3: Gem Fury / Месть духа 3: Самоцвет ярости (2015) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша сестра нуждается в помощи. Пропала ее дочь Лиза и еще несколько детей, отдыхавшие в летнем лагере. Вы, как парапсихолог и сотрудник полиции привыкли к преступным деяниям разнообразных призраков и потусторонних сил. Но готовы ли вы к встрече с духом мести, который бесчинствует в городе?Тип издания: UnofficialРазработчик: Vendel GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F796FDDA8AAE6D1B8F8924869F5455FE450D8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

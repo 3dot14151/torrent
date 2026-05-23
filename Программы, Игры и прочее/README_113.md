@@ -1,55 +1,3 @@
-###  Публикация: 1673953   (163093) от 03.11.2023
-
-JetAudio 12.0.1 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-jetAudio проигрывает практически все цифровые музыкальные файлы (.wav, .mp3, .ogg, .flac, .m4a, .mpc, .tta, .wv, .ape, .mod, .spx, .opus, .wma*, .mid** и др.). К тому же, jetAudio обеспечивает высококачественное звучание и предлагает широкий выбор звуковых эффектов, таких как расширение стереобазы (X-Wide), реверберация (Reverb) и усиление низких частот (X-Bass). (   Читать дальше...   )Тип издания: PlusРелиз состоялся: 03.11.2023Разработчик: Team JetПоддерживаемая ОС: Android: 5.0 и вышеЯзык интерфейса: Русский, Английский  и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B4E5747CC00CB6CC9787007650389DD6C17FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598393   (162784) от 18.12.2022
-
-HD VideoBox Plus v2.31 FIX-20221215 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-HD VideoBox Plus — это самый крупный онлайн кинотеатр на андроид медиа-приставке — десятки тысяч фильмов, а также мультфильмов, сериалов и телепрограмм. Смотреть видеофайлы можно с источников: Bazon, Zona, Filmix, UaFilm, Kinokong и многие другие. В настройках можно указать, какие каталоги использовать и выбрать качество. Также в версии Plus доступен поиск и скачивание (   Читать дальше...   )Тип издания: Mod (получен Plus)Релиз состоялся: 15.12.2022Разработчик: dkc7dev (barbarian_ua)Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B2E04453A20023247ADC1B4DD0EE603DCC71A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399078   (162654) от 18.12.2020
 
 YouTube Downloader v7.1 [Ru/En] (обновляемая)
@@ -58,7 +6,7 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162654.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешен�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162601.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162398.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162395.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162389.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162381.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ Plus Messenger (Telegram+) v10.2.3.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162292.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ English LinDuo HD v5.29.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162226.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162199.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ Among Us Mega Mod v2020.11.17a [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161670.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161600.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ Daff Moon Phase (Фазы Луны) v3.23 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161315.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Grooz VPN - Fast & Secure WiFi 1.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161097.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ Camera FV-5 v5.3.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161083.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160838.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ InShot - Фото и видеоредактор v1.982.1424 Mod by maxi123444 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160836.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ vpnify - Безлимитный VPN 2.1.5.3 Mod by PieMods [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160537.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ ImageToolbox 2.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160427.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ Background Video Recorder Pro v9.3.93 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160402.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ AI Image Enlarger 3.0.4 Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160389.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ VK X 6.6.2_pub [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160211.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ CapCut 9.7.0(9700100) Mod by Alien (ToonXTech) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160006.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ Recipe finder 1.0.1 [Ru/Multi] (авторская)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159936.jpg" />
 </div>
 
 
@@ -661,7 +609,7 @@ XY VPN - Security Proxy VPN 4.7.305 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159792.jpg" />
 </div>
 
 
@@ -672,6 +620,58 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:259BE51E8E2A0777FF0DB389FFDCCA0F1DF819BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599371   (159712) от 23.12.2022
+
+Yoga VPN - безопасный прокси 7.0.530 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный VPN, неограниченная пропускная способность, разблокировать APP, прокси-сервер безопасности, супер-быстрый, самый стабильный, простой - Yoga VPN - лучшее VPN-приложение на рынке!Тип издания: VIPРелиз состоялся: 19 дек. 2022 г.Разработчик: Sarah HawkenПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086BF6D2DD864A9DCD964597E4D17ABB9727232D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599412   (159698) от 23.12.2022
+
+VPN Master -VPN-прокси Hotspot 5.8.008 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найдите и присоединяйтесь к лучшему VPN 2022 года для потоковой передачи Android и игр - VPN Master. Доступ к любым сайтам и приложениям быстрее и проще, чем когда-либо, с VPN Master. VPN Master Lite быстрее и легче, что позволяет вам экономить место на телефоне.Тип издания: ModРелиз состоялся: 19 дек. 2022 г.Разработчик: Unlimited DT Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D2D1C6941BF758565F9103B2A43B52BBABC176
 ```
 
 https://mybot314.ru/tekegram_catalog/

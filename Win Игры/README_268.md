@@ -1,29 +1,3 @@
-###  Публикация: 1176906   (367314) от 23.10.2017
-
-Chimeras 6: Blinding Love / Химеры 6: Слепящая любовь (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жители Парижа в опасности! Уже несколько молодых людей найдены слепыми и парализованными. Вам предстоит расследовать это непростое дело, и вы понимаете, что здесь не обошлось без сверхъестественных сил. Сможете ли вы выяснить, кто нападает на горожан или сами станете жертвой?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7672C8AB02AB4D139297B02543CCC25B75DACE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176748   (367311) от 23.10.2017
 
 Maze 3: Nightmare Realm / Лабиринт 3: Царство кошмара (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Maze 3: Nightmare Realm / Лабиринт 3: Царство кошмара (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367311.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Halloween Chronicles 3: Cursed Family (2020) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367177.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Neptune: Arena FPS (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367155.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BloodLust Shadowhunter (2015) [En] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367126.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Alien Breed Trilogy (2010) [Ru/En] (12.10.2015) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367124.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.0/dlc) License CODEPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367077.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366962.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.14.12800/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366959.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366958.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366954.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) SteamRip =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366850.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Monster Truck Championship (2020) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366846.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Gears Tactics (2020) [Ru/Multi] (1.0/dlc) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366840.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Silent Nights 2: Childrens Orchestra (2014) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366729.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Autumn Dream (2016) [Ru/En] (1.6.9.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365900.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Haunted Legends 13: Twisted Fate / Легенды о призраках 13: Ск
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365727.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.15/dlc) Repack Other s [Cultist Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365663.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ SEUM: Speedrunners from Hell (2016) [Ru/Multi] (3266/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365557.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Panzer Strategy (2018) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365549.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Gods Basement (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365423.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Yoku's Island Express (2018) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365418.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365416.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ RESONANCE OF FATE / END OF ETERNITY (2018) [Multi] (1.0) License CODEX [4K / HD 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365402.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Prodigy Tactics (2017) [Multi] (Update 6) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365221.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Velocity Stream (2015) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365202.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Velocity Stream - необычные гонки в мире будущего, г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99FE32B5BDAD36815D85DC7146BA2B33D6CD09C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177198   (365169) от 24.10.2017
+
+Ominous Objects 3: Trail of Time / Зловещие вещи 3: Тропами времени (2015) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городок в горах Глокенверк скован холодом. Однако это не обычное явление погоды.... Люди замерзают прямо на дорогах, а животные превращаются в диковинных зверей. Башня с часами - центр всего происходящего, и скоро смертельным холодом будет скован весь мир, это всего лишь вопрос времени. Вам вместе с вашим верным помощником, мистером Дженкинсом, предстоит удивительное (   Читать дальше...   )Тип издания: UnofficialРазработчик: Daily MagicЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC6499BF5C29E1602AE8F69AC88E075B8EB2A9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2117.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Parkitect (2018) [Ru/Multi] (1.11f3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2114.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ House Builder (2021) [Ru/Multi] (Build 15-09-2025/dlc) Repack FitGirl [Pack and 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2100.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RoadCraft (2025) [Ru/Multi] (4.0.526486 526543/dlc) Repack FitGirl [Rebuild Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1731.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (1.0.15.0/dlc) Repack FitGirl [Complete 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1664.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Do No Harm (2025) [Ru/Multi] (1.2.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1407.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1235.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) Repack Other s [The Galactic Te
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1053.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.38/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_940.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.3.3f1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_926.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_809.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.173s) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_682.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (Hotfix #80) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_676.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (19.1.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_673.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_454.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PixARK (2019) [Ru/Multi] (1.216/dlc) Repack R.G. Alkad
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Placid Plastic Duck Simulator (2022) [Ru/Multi] (2.2.0/dlc) Repack FitGirl [More
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sketch 70.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179204.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179199.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tipard Video Converter Ultimate 10.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179197.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ SUMo Pro 5.16.3.528 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179178.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Firefox Browser 107.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179174.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Edge 107.0.1418.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179166.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Aqua Mail Pro 1.40.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179164.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ KMSAuto++ Portable 1.8.5 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179149.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Pale Moon 31.4.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179140.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ GOM Mix Pro 2.0.5.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179139.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ MediBang Paint Pro 26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179138.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Uninstall Tool 3.7.1 Build 5699 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179130.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ FurMark 1.24.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179127.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Moon+ Reader Pro 7.8 (build 708002) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179114.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Windows 11 Manager 1.1.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179096.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Revo Uninstaller Mobile 3.0.380G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179085.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ PDF Expert 2.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179078.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Office 2013-2021 C2R Install 7.4.9 b03 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179077.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ StopUpdates10 3.8.2022.1129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179061.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ tinyCam Monitor PRO 15.3.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179056.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Desktop Calendar 2.3.84.5303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179054.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ OnionFruit Connect 2022.1123 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179053.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ WinX HD Video Converter Deluxe 5.16.2 (акция Comss) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179052.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Total Commander 3.40b2d-BETA [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179048.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ CPU-Z 2.03.1 Portable by Visit [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179037.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Wise Data Recovery 5.1.8.336 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179034.jpg" />
 </div>
 
 

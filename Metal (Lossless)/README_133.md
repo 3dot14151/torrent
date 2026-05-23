@@ -6,7 +6,7 @@ Evoken - Atra Mors (2012) [FLAC|Lossless]<Death Doom Metal/Funeral Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542745.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ The Levitation Hex - The Levitation Hex (2012) [FLAC|Lossless]<Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542736.jpg" />
 </div>
 
 
@@ -73,7 +73,7 @@ Stray Gods - Storm The Walls (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542699.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542697.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Dee Snider - For the Love of Metal (2018) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542508.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Haunter - Discarnate Ails (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541226.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Milopkl - Heavy Stuff (2022) [FLAC|Lossless|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541225.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Abbath - Dread Reaver (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541139.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Malphas - Divinity's Fall (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541133.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Masterplan - PumpKings (2017) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540934.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Enemies Swe - Behind Enemy Lines (2005) [FLAC|Lossless|image + .cue] <Sleaze, Gl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540764.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Lycanthia - Oligarchy (2012) [FLAC|Lossless]<Gothic Metal/Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540751.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Saralee - Darkness Between (2006) [FLAC|Lossless]<Gothic Metal, Love Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540744.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Tempestuous Fall - The Stars Would Not Awake You (2012) [FLAC|Lossless]<Epic Fun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540593.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Liquid Tension Experiment - Liquid Tension Experiment 2 (1999) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540498.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ The Black Dahlia Murder - Deflorate (2009) [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540068.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Behemoth - Demonica (2006) 2CD, Compilation, Limited Edition [FLAC|Lossless|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540064.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Majesty - Legends (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540063.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wolverine - Cold Light Of Monday (2003) [APE|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539281.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Mooncitadel - Night's Scarlet Symphonies (2020) [FLAC|Lossless|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539275.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Milopkl - Rust (2021) [FLAC|Lossless|tracks] <Speed, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539272.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Miss May I - Deathless (2015) [FLAC|tracks|WEB-DL]<Melodic Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539111.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Lanfear - This Harmonic Consonance (2012) [FLAC|Lossless]<Progressive Metal/Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538776.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Pain - Coming Home (2016) [FLAC|Lossless|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537869.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Morticide - One With The Darkness (2022) [FLAC|Lossless|tracks] <Death, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537522.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Mortal Thrall - A Path to Fire (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537519.jpg" />
 </div>
 
 

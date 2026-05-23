@@ -6,7 +6,7 @@ kalachevaschool, Анна Эгида | Летний экстрим-скетчи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852540.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ kalachevaschool, Анна Эгида | Онлайн-курс «Летний эк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852534.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ kalachevaschool, Анна Эгида | [Анна Эгида] Онлайн-кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852528.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Lynda.com | Photoshop CC один-на-один: Продвинутый (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852006.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Udemy, Neil Bettison | Создание средневековой катапу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851380.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ YanSculpts | Скульптинг для начинающих в Blender 2.79 и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851276.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ kalachevaschool, Анна Михеева | Стильные аксессуары
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849533.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ kalachevaschool, Анна Михеева | Вечерние платья (2018) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849530.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849528.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ kalachevaschool, Светлана Плакасова | Синий ирис (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849526.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ kalachevaschool, Светлана Плакасова | Лиловая глици
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849425.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ kalachevaschool, Александра Балашова | Героини сказ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849420.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ kalachevaschool, Александра Балашова | Волшебные су
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849414.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ kalachevaschool, Александра Балашова | Мужские перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849407.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Motion Design School | Cinema 4D Journey (2019) PCRec [H.264/1080p-LQ] (урок
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849352.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ kalachevaschool, Анна Михеева | Ювелирные украшения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849296.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ FlippedNormals | Скульптинг инопланетянина в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847924.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847909.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Max Twain, Katy Joker | KIARA (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845820.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Max Twain, Many Wayne | IDOL (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845818.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Max Twain, Stan Air | QUEENY (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845809.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ CG Cookie | Введение в видеоэффекты в Blender 2.63 / Intro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844638.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Udemy | Симуляция жидкости с помощью Mantaflow в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844633.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Udemy | Создание видеоэффектов с помощью продв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844551.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Udemy, Josh Gambrell | Недеструктивное твёрдотельное
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844401.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842496.jpg" />
 </div>
 
 

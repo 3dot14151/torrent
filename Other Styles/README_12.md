@@ -6,7 +6,7 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980356.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Pictu
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980258.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980256.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980253.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979263.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979122.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979110.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979005.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978942.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978790.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978728.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978723.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978608.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978544.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978539.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978291.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978184.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978150.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978002.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Pictur
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977949.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ah Nee Mah (Diane & David Arkenstone) - Ancient Visions (2005) [FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976958.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976836.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976765.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976718.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975681.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975610.jpg" />
 </div>
 
 

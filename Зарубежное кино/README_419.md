@@ -1,55 +1,3 @@
-###  Публикация: 1495644   (878931) от 13.09.2021
-
-Сакура / Sakura (2020) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Где-то в Японии живет счастливая семья с тремя детьми. В семье Хасэгава трое детей. Хадзимэ – старший сын, красив и популярен. Средний Каору – обычный студент университета. Мики – младшая сестра, и она по-настоящему восхищается своим самым старшим братом. А еще есть Сакура, собака семьи, которая всегда рядом с ними. Однажды Хадзимэ попадает в аварию, и у семьи начинаются (   Читать дальше...   )Производство: Япония, Shochiku Co., Ltd.Жанр: ДрамаРежиссер: Хитоси ЯдзакиАктеры: Такуми Китамура, Нана Комацу, Рё Ёсидзава, Синобу Тэрадзима, Масатоси Нагасэ, Кахо Мидзутани, Тамиясу Тё, Масая Като, Юи Кобаяси, Касуми ЯмаяПеревод: Двуголосый любительский (STEPonee)Субтитры: Русские (SubQueens), английские - отдельными файламиПродолжительность: 01:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819E29CA78D8A500BD0B246A806AC30C7155E12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996519   (878906) от 14.03.2016
-
-В поисках огня / Digging for Fire (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Тим и Ли - семейная пара, приезжающая с трехлетним сыном на уикенд в загородный дом друзей. На выходных они решают отдохнуть от общества друг друга. Тим закатывает вечеринку с друзьями, а Ли уезжает с сыном к родителям. У каждого в этот вечер случится встреча, которая теоретически может изменить их жизнь.Производство: СШАЖанр: ДрамаРежиссер: Джо СванбергАктеры: Джейк Джонсон, Розмари ДеУитт, Орландо Блум, Бри Ларсон, Сэм Рокуэлл, Майк Бирбиглия, Сэм Эллиотт, Анна Кендрик, Джудит Лайт, Крис МессинаПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуютПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CC7BAB4FDEABD186F5327B978076D1F417AB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996528   (878905) от 14.03.2016
 
 В поисках огня / Digging for Fire (2015) WEB-DL [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878905.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878898.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878856.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878841.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878818.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878810.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878808.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878807.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878804.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878783.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878779.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878778.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878763.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878726.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878722.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878719.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878716.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878715.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878713.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878712.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878710.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878709.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878708.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878698.jpg" />
 </div>
 
 
@@ -669,6 +617,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C656FCFC86B19B22DDFBB25BBEFF3BABE6DA144B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996378   (878689) от 14.03.2016
+
+На гребне волны / Point Break (1991) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственная банда серфингистов, среди белого дня, совершает ограбления банков. Полиция и ФБР поражены профессиональностью и скоростью проведения преступлений.
+ Следствие ведет молодой и претенциозный агент ФБР, который, рискуя жизнью, внедряется в банду и раскрывает это дело, но неожиданно для самого себя он осознает, что вернуться к нормальной жизни он уже не сможет.Производство: США / JVC Entertainment, Largo EntertainmentЖанр: Боевик, Триллер, КриминалРежиссер: Кэтрин Бигелоу / Kathryn BigelowАктеры: Патрик Суэйзи, Киану Ривз, Гэри Бьюзи, Лори Петти, Джон К. МакГинли, Джеймс ЛеГрос, Джон Филбин, Боджесси Кристофер, Джулиан Рейес, Дэниэл Бир...Перевод: Дубляж (Хлопушка + вставки MVO), Профессиональный многоголосый (ТВ3)Продолжительность: 01:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A10201138550C9A91F078960D9EF1331FC2535F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996665   (878683) от 14.03.2016
+
+Белые цыпочки / White Chicks (2004) WEB-DLRip [H.264] [Unrated Edition] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изрядно проштрафившиеся агенты ФБР (братья афро-американцы) решают обелить себя перед руководством. Причем как в переносном, так и в прямом смыслах. Их миссией становится защита двух сестер Уилтон, наследниц огромной гостиничной империи, от похищения во время их переезда из нью-йоркского аэропорта в отель Хэмптонс.
+Вновь переоценив свои способности, братья придумывают (   Читать дальше...   )Производство: США / Revolution Studios, Wayans Bros. Entertainment, Gone North ProductionsЖанр: Комедия, БоевикРежиссер: Кинен Айвори УайансАктеры: Шоун Уайанс, Марлон Уайанс, Джейми Кинг, Фрэнки Фэйзон, Локлин Манро, Джон Хёрд, Бьюзи Филиппс, Терри Крюс, Бриттани Дэниэл, Эдди ВелесПеревод: Авторский (одноголосый, закадровый) х2Язык субтитров: Русский, английскийПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A62CFC9A1C3E1DA737A61A8AC167408BE89CA39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Good Old Days Vol 3: Disco House Sounds (2019) [MP3|320 Kbps] <Disco, Nu-Di
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746705.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746237.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746131.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [M
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746127.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745400.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , B
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745390.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744872.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743843.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741362.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741232.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741182.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741114.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741068.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741064.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Dee
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740992.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740908.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740388.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Spring Club Tunes 2018 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740319.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Ultra Cardio Dance & Aerobic Hits 2020 Workout Collection [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736656.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nikita Cano - Exhale (2020) [MP3|~245 Kbps (V0)] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734307.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Pure Body Workout Hits 2020 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732943.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731148.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Ultra Jogging Anthems 2019 Session [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731050.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Deep Vibes - Ibiza (2016) [MP3|320 кб/с] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730987.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Nothing But... Pure Progressive House Vol.02 (2017) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730600.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730443.jpg" />
 </div>
 
 

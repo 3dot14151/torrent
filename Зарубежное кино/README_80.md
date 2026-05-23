@@ -1,55 +1,3 @@
-###  Публикация: 1611309   (1040972) от 12.02.2023
-
-Целиком и полностью / Bones and All (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1980-е. 18-летняя Марен с отцом постоянно переезжают. Когда девушка пытается откусить палец новой подруге, и им снова приходится пуститься в бега, терпению отца приходит конец. Он уходит и оставляет дочери аудиокассету с объяснениями, немного денег и свидетельство о рождении. Марен отправляется на поиски матери, о которой у неё не осталось даже детских воспоминаний, (   Читать дальше...   )Производство: Италия, США / Frenesy Film Company, Per Capita Productions, The ApartmentЖанр: драма, мелодрама, ужасыРежиссер: Лука ГуаданьиноАктеры: Тейлор Расселл, Тимоти Шаламе, Kendle Coffey, Андре Холланд, Элли Паркер, Мадлен Холл, Кристин А. Дай, Марк Райлэнс, Шон Бриджерс, Анна Виктория КоббПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 02:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278F029B281E045CB11E0DB0997CE7A80F3C9B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610118   (1040964) от 12.02.2023
-
-Ложная память / Ipersonnia / Hypersleep (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Италия, ближайшее будущее. Переполненные шумные тюрьмы остались в прошлом. Теперь заключенные отбывают наказание в состоянии глубокого сна, это делает их безвредными и снижает угрозу рецидивов до нуля. Давид Дамиани, психолог, который следит за психическим состоянием спящих заключенных, много лет работает в системе и считает, что знает о ней все. Пока не сталкивается (   Читать дальше...   )Производство: Италия / Rai Cinema, Ascent Film, NIghtswim, Ministero della CulturaЖанр: фантастикаРежиссер: Альберто МашиаАктеры: Стефано Аккорси, Кацярына Шульга, Астрид Мелони, Андреа Джермани, Паоло Пьеробон, Сандра Чеккарелли, Alessandro Gazale, Франческо Ла Мантия, Тони Лаудадио, Джордано Де ПланоПеревод: Любительский многоголосый (Синема УС)Язык озвучки: Русский, ИтальянскийСубтитры: Русские (Translate), Английские, ИтальянскиеПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32349D04F669F784F0F508F82CFEA5811557DBE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438728   (1040849) от 09.01.2021
 
 О смерти, о любви / Dellamorte Dellamore (1994) HDRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040849.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040844.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040835.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040823.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040813.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040811.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040809.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040785.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040781.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040773.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040741.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040739.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040738.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040736.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040725.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040724.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040717.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040709.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040707.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040706.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040696.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040687.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1040685.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040678.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D5A6D8F2DB2DAA88E786128A3C15BFC6317D1A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611756   (1040677) от 13.02.2023
+
+Империя света / Empire of Light (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1980 год. Хилари — женщина средних лет, которая живёт в приморском городке на юге Англии и работает начальницей смены в кинотеатре Empire, переживающем не лучшие времена. Работу Хилари любит, но фильмы никогда не смотрит. Её одиночество слегка разбавляют безрадостные сексуальные отношения с женатым директором кинотеатра. Когда в Empire устраивается чернокожий молодой (   Читать дальше...   )Производство: Великобритания, США / Neal Street Productions, Searchlight PicturesЖанр: драма, мелодрамаРежиссер: Сэм МендесАктеры: Оливия Колман, Сара Стюарт, Майкл Уорд, Колин Фёрт, Тоби Джонс, Том Брук, Таня Муди, Ханна Онслоу, Кристал Кларк, Моника ДоланПеревод: Профессиональный многоголосый (TVShows, Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (translate), Английские (full, CC), MultiSubПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6EC06E4621B2608CF791D12ABEB35E96870F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611777   (1040673) от 13.02.2023
+
+Море страха / В глубину / Into the Deep (2022) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джесс знакомится с молодым привлекательным парнем по имени Бен, который приглашает ее к себе на яхту. Романтический круиз принимает неожиданный поворот, когда они подбирают терпящую бедствие Лекси, утверждающую, что Бен — маньяк, похищающий девушек. Кому верить и кто из пассажиров на борту — настоящий серийный убийца?Производство: США, Великобритания / Tea Shop Productions, Capstone Studios, Signature FilmsЖанр: ТриллерРежиссер: Кейт КоксАктеры: Элла-Рэй Смит, Джессика Александр, Мэттью Даддарио, Никкита Чадха, Джек Моррис, Эндрю Стил, Майкл ВоркайПеревод: Профессиональный многоголосый (Okko)Субтитры: Английские (Full, SDH)Продолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E02424EE5C70FB8221D4CE68ACD04999E1C753
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 898884   (662911) от 26.05.2015
-
-Точка невозврата (Убийца) / Point of No Return (The Assassin) (1993) BDRemux [VC-1/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жестокая, напичканная наркотиками, она была обвинена в убийстве и приговорена к смерти. Но секретная государственная служба превратила эту женщину из обитательницы камеры смертников в убийцу-профессионала, живущего взаймы…Производство: СШАЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Джон БэдэмАктеры: Бриджит Фонда, Гэбриел Бирн, Дермот Малруни, Мигель Феррер, Энн Бэнкрофт, Оливия д’Або, Ричард Романус, Харви Кейтель, Лоррейн Туссен, Джеффри ЛьюисПеревод: Дублированный, авторский (А. Гаврилов)Субтитры: Русские, английские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D051066ACEA753E0ECDFFD02A95DCD01730C5D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898958   (662906) от 26.05.2015
-
-Хозяин морей: На краю Земли / Master and Commander: The Far Side of the World (2003) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается во время наполеоновских войн. Военный парусник Ее Величества «Сюрприз», бороздящий просторы Атлантики, был неожиданно атакован огромным неизвестным кораблем, появившимся из тумана. Благодаря смелости и находчивости команды «Сюрпризу» удается уйти от смерти. Несмотря на тяжелые повреждения и потери, капитан Джек Обри по прозвищу Счастливчик (   Читать дальше...   )Производство: СШАЖанр: боевик, драма, приключения, военныйРежиссер: Питер УирАктеры: Расселл Кроу, Пол Беттани, Джеймс Д`Арси, Эдвард Вудалл, Крис Ларкин, Макс Пиркис, Джек Рэндолл, Макс Бениц, Ли Инглби, Ричард Пейтс, Роберт Паг, Ричард МакКейб, Йен Мерсер, Тони Долан, Дэвид Трелфал, Билли Бойд, Брайан Дик, Джозеф Морган, Джордж Иннес, Уильям Мэннеринг, Патрик ГаллахерПеревод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский (Captions), Русский , АнглийскийФормат: BDAVПродолжительность: 02:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB54B990B6A7E3B682D76B5A17D28BD0BDF72CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 898975   (662905) от 26.05.2015
 
 Особо опасны / Savages (2012) BDRip [H.264/1080p] [Unrated Cut]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662905.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662661.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662628.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_662502.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_662280.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662201.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662099.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662085.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662084.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662016.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662003.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661901.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661835.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661834.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661756.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661716.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661715.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661651.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_661469.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661181.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661107.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661097.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661077.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661069.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:855343C9B96A999A55F393CC82EA1322951658A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341016   (661059) от 25.05.2011
+
+Чарли и шоколадная фабрика / Charlie and the Chocolate Factory (2005) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фредди Хаймор, Джонни Депп, Хелена Бонэм Картер, Джеймс Фокс, Дэвид Келли, Кристофер Ли, Мисси Пайл, Хэрри Тэйлор, Ноа Тэйлор
+По одноимённому классическому произведению Роальда Даля о захватывающих приключениях эксцентричного шоколадного магната Вилли Вонки и добродушного мальчика Чарли из бедной семьи, проживающей неподалеку от необычной фабрики. Пятерым юным счастливчикам, среди которых оказывается и Чарли, удается обнаружить "золотые билеты" в плитке шоколада Вонки и выиграть экскурсию по легендарному кондитерскому предприятию, на территорию которого целых пятнадцать лет не ступала нога стороннего наблюдателя. Ослепленный чередой сменяющего друг друга великолепия, Чарли с головой погружается в необыкновенный мир Вонки.Жанр: Фэнтези, Приключения, Комедия, СемейныйРежиссер: Дэнни ЭлфманПродюсер: Ричард Д. Занук, Брэд Грэй, Лорни ОрлинзАктеры: Джонни Депп, Фредди Хаймор, Дэвид Келли, Хелена Бонем Картер, Ноа Тейлор, Мисси Пайл, Джеймс Фокс, Дип Рой, Кристофер Ли, Адам Годли, ФранцискаПеревод: Дублированный   / лицензия/Продолжительность: 01:55:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139008   (660994) от 01.06.2017
+
+Семейный уик-энд / Family Weekend (2013) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально о взаимопонимании и семейной гармонии в этом доме никто даже и не слышал. Еще бы, откуда же ей взяться в логове карьеристки, которая спит и думает только о собственной карьере и успехе, и художника-романтика, который далек от житейских проблем и живет в мире творчества. Несмотря на такое различие в темпераментах и образах жизни эти двое умудрились нажить (   Читать дальше...   )Производство: СШАЖанр: Драма, комедияРежиссер: Бенджамин ЭппсАктеры: Кристин Ченоуэт, Мэттью Модайн, Олеся Рулин, Джои Кинг, Эдди Хэсселл, Ширли Джонс, Хлоя Бриджес, Адам Саундерс, Робби Такер, Питер ГэйлПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8118D1FA702FABAA45BDF03829DE70A2B8DA39
 ```
 
 https://mybot314.ru/tekegram_catalog/

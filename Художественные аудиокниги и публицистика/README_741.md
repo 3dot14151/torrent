@@ -1,84 +1,3 @@
-###  Публикация: 1647204   (208684) от 17.07.2023
-
-Сергей Казиник, Григорий Родственников | Солнце в черных парусах (Книга 3) (2016) [MP3, Максим Тарлавин (Scaners)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Тьма покрыла облачный город. Рассеянный свет выстроившихся в ряд семи лун, с трудом пробивался через небесную перину, делая тени размытыми и какими-то потусторонними.
-Вместо привычного круглосуточного весёлого гула, стон стоял над всем парящим градом. Это, сжимая виски и скрепя зубами, страдали те, кто болезненно воспринимал смену давления, вызванного изменением (   Читать дальше...   )Жанр: ФантастикаИздательство: VIBOO, проект «ПослеSLовие...»
-Музыкальное оформление: Амаи Натсу
-Музыкальное сопровождение: ПостоянноеПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D249287FC94E8F764F7A37267B2F477E194D648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647203   (208666) от 17.07.2023
-
-Сергей Казиник, Григорий Родственников | Солнце в черных парусах (Книга 2) (2015) [MP3, Максим Тарлавин (Scaners)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Шестёрка боевых кораблей содружества Малауты вышла на дистанцию эффективного залпа и замерла в ожидании, выстроившись полукольцом. Рельсовые орудия хищно топорщились из-за отъехавших барбетов, стволы плазматронов слегка подрагивали в ожидании целеуказания, ракеты и торпеды были выдвинуты в боевое положение и хищно застыли в ожидании старта. Куда стрелять? В кого? (   Читать дальше...   )Жанр: ФантастикаИздательство: VIBOO, проект «ПослеSLовие...»Продолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4531163ABC7280252642C209A2992C79F85E5717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647468   (208585) от 18.07.2023
-
-Владимир Набоков | Камера Обскура (2007) [MP3, Леонид Ярмольник]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Камера обскура" (1931, опубл. 1932-1933) - пятый русский роман Владимира Набокова и второй из трех его романов на "немецкую" тему. Берлинский искусствовед Бруно Кречмар, увлекшись бездарной шестнадцатилетней актриской Магдой Петерс, тайной любовницей художника Роберта Горна, бросает семью и вовлекается в глумливый околоартистический круг, не подозревая, (   Читать дальше...   )Жанр: Классическая проза, РоманИздательство: Пятая авенюПродолжительность: 06:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFE692021A51E2C076E5F6853AFD1E08907F61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647409   (208557) от 18.07.2023
 
 Карина Демина | Я – Миха (Книга 3). Советник (2023) [MP3, Юджин Найт]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208557.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208527.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208499.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208490.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208473.jpg" />
 </div>
 
 
@@ -223,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208429.jpg" />
 </div>
 
 
@@ -252,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208427.jpg" />
 </div>
 
 
@@ -280,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208402.jpg" />
 </div>
 
 
@@ -306,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208362.jpg" />
 </div>
 
 
@@ -332,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208292.jpg" />
 </div>
 
 
@@ -360,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208273.jpg" />
 </div>
 
 
@@ -388,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208264.jpg" />
 </div>
 
 
@@ -414,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208259.jpg" />
 </div>
 
 
@@ -441,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208216.jpg" />
 </div>
 
 
@@ -467,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208211.jpg" />
 </div>
 
 
@@ -493,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208194.jpg" />
 </div>
 
 
@@ -519,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208188.jpg" />
 </div>
 
 
@@ -548,7 +467,7 @@ Ascold Flow | Поездатое путешествие (Книга 2). Путе
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208172.jpg" />
 </div>
 
 
@@ -574,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208170.jpg" />
 </div>
 
 
@@ -602,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208155.jpg" />
 </div>
 
 
@@ -630,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208142.jpg" />
 </div>
 
 
@@ -656,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208106.jpg" />
 </div>
 
 
@@ -682,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208084.jpg" />
 </div>
 
 
@@ -693,6 +612,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAC50F459AB3A3CF3BE78958905748DCE3510B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648850   (208074) от 25.07.2023
+
+Олег Кожин | Забытые богом (2023) [MP3, Олег Булдаков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир кончился не ядерным взрывом и не супервирусом. Просто однажды люди исчезли, будто кто-то смахнул фигурки незаконченной шахматной партии с доски. Но остались одиночки, забытые неведомой силой на опустевшей планете. Они цепляются за ускользающую реальность, живут как умеют, и видят тревожные сны. Сны, в которых кто-то убивает их, одного за другим…Жанр: Фантастика, ужасыИздательство: Книжное издательство БабицкогоПродолжительность: 11:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA803E972CFA4FB78EAE317449204B13E206BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648834   (208062) от 25.07.2023
+
+Алекс Кош | Кулак Полуденной Звезды (Книга 3). Проклятый (2023) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208062.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Проклятый» – роман Алекса Коша, третья книга цикла «Кулак Полуденной Звезды», жанр боевое фэнтези, городское фэнтези, темное фэнтези.
+
+Благодаря помощи Доктора я смог выбраться из плена Погонщика Трупов, но заплатил за это странную и непонятную цену – заключил контракт с призраком девушки без лица. Разумеется, текст контракта мне никто не озвучил, поэтому разбираться (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиИздательство: ИДДКПродолжительность: 07:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BE799CFF9D604761836610071FDC145FBD63D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610077   (208041) от 06.02.2023
+
+Пол Андерсон | Тау - Ноль (2023) [MP3, Сергей Оробчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208041.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом романе о тайнах Хроноса всерьез задумывается уже экс-физик, выбрав на сей раз для путешествий во времени... саму Вселенную! Экипаж звездолета «Леонора Кристина», слишком разогнавшись, совершает незапланированный «полет» к концу времен, проходит вместе с коллапсирующей Вселенной (с точки зрения релятивистской теории размеры звездолета становятся сравнимы с (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 06:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7909F091D26666B8F7F290704D34E399B2AB6464
 ```
 
 https://mybot314.ru/tekegram_catalog/

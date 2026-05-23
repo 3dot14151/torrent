@@ -1,29 +1,3 @@
-###  Публикация: 1527855   (202045) от 26.08.2023
-
-Endzone - A World Apart (2020) [Ru/En] (1.2.8630.30586/dlc) License GOG [Save the World Edition] (обновляемая)
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-2021 год. Группа террористов взрывает ядерные реакторы по всему миру, и планета погружается в хаос. Лишь немногим удалось укрыться в подземных бункерах, последних бастионах человечества. 150 лет спустя люди возвращаются наверх... под вашим руководством! В условиях крайне агрессивной среды, среди радиации и токсичных дождей, в недружелюбном климате вам предстоит доказать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Gentlymad StudiosЖанр: Симулятор, Стратегия, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E38AB7F1A39D9D4C33DA9A4308CC0E5273A38F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829513   (202034) от 25.10.2025
 
 Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe Edition]
@@ -32,7 +6,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202034.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202025.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Gunfire Reborn (2021) [Ru/Multi] (Build 20537927/dlc) Repack Let'sРlay [Bundles
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202009.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.71-2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201980.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201975.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Phasmophobia (2020) [Ru/Multi] (0.9.0.8) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201940.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Smurfs Kart (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201895.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Flying Shark (2023) [En] (7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201884.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201810.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201807.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201765.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Lone Soul (2025) [Ru/Multi] (1.0.1A/dlc) Repack Let'sРlay [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201764.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Kerbal Space Program 2 (2023) [Ru/Multi] (0.1.0.0.20892) Repack Chovka [Early Ac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201609.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201520.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ My Dream Setup (2023) [Multi] (20230224) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201294.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Funtasia (2022) [Multi] (0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201063.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.1.5.208/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201056.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ A Building Full of Cats (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200943.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Super Trunko Go (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200937.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Failure Drill (2023) [En] (0.9.4.0) Scene Tenoke [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200933.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200920.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ LEGO Pirates of the Caribbean: The Video Game (2011) [Ru/Multi] (1.0) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200889.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Life of Delta (2023) [Ru/Multi] (2.1.1) License GOG [Support Adventures Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200841.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Not For Broadcast (2022) [Ru/Multi] (2023.03.24a/dlc) Repack Chovka [Deluxe Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200781.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Phantom Brigade (2023) [Ru/Multi] (10688478) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200760.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Phantom Brigade - это гибридная тактическая ролева�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621732   (200733) от 26.03.2023
+
+Monster Energy Supercross - The Official Videogame 6 (2023) [Multi] (1.0) License TENOKE
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грязь, пот, адреналин и веселье - раскройте в себе гонщика с Monster Energy Supercross 6! Ощутите незабываемые эмоции чемпионата Monster Energy Supercross 2022 с официальными мотоциклами, гонщиками и трассами. Настройте игру под себя и сделайте ее максимально реалистичной. В этом году Supercross 6 станет по-настоящему вашим!Тип издания: LicenseРазработчик: Milestone S.r.l.Жанр: Гонки, Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B7CE6AB73DCABC91CE960FE275D6821DD02B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

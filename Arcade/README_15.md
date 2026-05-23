@@ -6,7 +6,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740669.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740018.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hell Yeah: Wrath of the Dead Rabbit (2012) [Ru/En] (1.0u1) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739539.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738654.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738627.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737974.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ One Piece: Pirate Warriors 4 (2020) [Ru/Multi] (1.0.1.0/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735948.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ The Escapists 2 (2017) [Ru/Multi] (27.666175/dlc) License GOG [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735501.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732419.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/upd14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731469.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731318.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Quantum Replica (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730431.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tumbleweed Express (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729229.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ STCC: The Game 2 (L) [Multi10/Ru] 2011 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_727944.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Dangerous Golf (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726933.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adele: Following the Signs (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726889.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723521.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Brigador (2016) [En] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723341.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Job Simulator (2016) [En] (1.0) Repack Other s [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722931.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.10) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722826.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Death's Gambit: Afterlife (2018) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722099.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BlazBlue: Centralfiction (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721934.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adele: Following the Signs (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721583.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719310.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.21/1.0.8) Repack R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714450.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ HeartZ: Co-Hope Puzzles (2016) [En/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713401.jpg" />
 </div>
 
 

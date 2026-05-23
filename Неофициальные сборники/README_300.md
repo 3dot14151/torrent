@@ -1,29 +1,3 @@
-###  Публикация: 516502   (652125) от 29.06.2012
-
-VA - Сливки Европы плюс 7 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40872700EBEE78DF28A1CEE062DEAB4C54B665B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516553   (652124) от 29.06.2012
 
 VA - XXXL Record Клубный марафон 50/50 (2012) [MP3|160-320 кб/с]<Club>
@@ -32,7 +6,7 @@ VA - XXXL Record Клубный марафон 50/50 (2012) [MP3|160-320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652124.jpg" />
 </div>
 
 
@@ -67,7 +41,7 @@ VA - Клубные Новинки Vol.96 (2012) [MP3|320 kbps]<Club|Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652122.jpg" />
 </div>
 
 
@@ -102,7 +76,7 @@ VA - Летний коктейль хитов (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652107.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ VA - My Favourite Hits of 1984 (9CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652035.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ VA - Miracle Summer Base Resistance (2016) [MP3|320 Kbps] <House, Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652013.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ VA - Hot Melody Trance - Day In The Air (2016) [MP3|320 Kbps] <Trance, Melodic, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652012.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ VA - Зарубежная Дискотека ХХ Века - 52 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652011.jpg" />
 </div>
 
 
@@ -253,7 +227,7 @@ VA - Зарубежная Дискотека ХХ Века - 56 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652010.jpg" />
 </div>
 
 
@@ -282,7 +256,7 @@ VA - Зарубежная Дискотека ХХ Века - 59 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652008.jpg" />
 </div>
 
 
@@ -311,7 +285,7 @@ VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652007.jpg" />
 </div>
 
 
@@ -340,7 +314,7 @@ VA - Emotional Day And Trance Beyond (2016) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652006.jpg" />
 </div>
 
 
@@ -369,7 +343,7 @@ VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652005.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ VA - Русская Дискотека ХХ Века - 22 (2010) [MP3|320 Kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652003.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ VA - Зарубежная Дискотека ХХ Века - 54 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652002.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ VA - Sleepy Hollow 2 Remasters Deep House (2016) [MP3|320 Kbps] <House, Minimal 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652001.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ VA - Русская Дискотека ХХ Века - 23 (2010) [MP3|320 Kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651999.jpg" />
 </div>
 
 
@@ -514,7 +488,7 @@ VA - Дискотека в ритме Карибских островов (2012)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651950.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651945.jpg" />
 </div>
 
 
@@ -575,7 +549,7 @@ VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651943.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651935.jpg" />
 </div>
 
 
@@ -645,7 +619,7 @@ VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651805.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651804.jpg" />
 </div>
 
 
@@ -703,7 +677,7 @@ VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651802.jpg" />
 </div>
 
 
@@ -732,7 +706,7 @@ VA - Русская Дискотека ХХ Века - 25 (Именной) (2010
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651798.jpg" />
 </div>
 
 
@@ -761,7 +735,7 @@ VA - Русская Дискотека ХХ Века - 27 (2010) [MP3|320 Kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651796.jpg" />
 </div>
 
 
@@ -775,6 +749,35 @@ VA - Русская Дискотека ХХ Века - 27 (2010) [MP3|320 Kbps]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:936C2555A86F2F16A9198BE21D5DC23228773292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031542   (651793) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 60 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Orlando - Whisper To A Scream ( 1985 )
+02. Oh Romeo - Once Is Not Enough ( 1984 )
+03. Knight Action - Single Girl ( Extended Version 1984 )
+04. Tc Mirage - Talking Eyes ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9BB0BE5BA71A7A250B72CEF365079C5605027F
 ```
 
 https://mybot314.ru/tekegram_catalog/

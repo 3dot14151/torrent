@@ -6,7 +6,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610894.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608865.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606650.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603996.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603517.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603323.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603258.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Metal Fatigue (2000) [En] (1.04hf) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599635.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597717.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596713.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594754.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594106.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593054.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592683.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Command & Conquer 3: Tiberium Wars (2007) [Ru] (1.09) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587821.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587744.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Command & Conquer: Red Alert 3 (2008) [Ru/Multi] (1.12) License PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586902.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585706.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Disney Сollection: Aladdin, The Lion King, The Jungle Book (1993-1994) [En] (1.
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585064.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584913.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Command & Conquer: Red Alert 3 — Uprising (2009) [Ru] (1.12) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584893.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584148.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582714.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580485.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579697.jpg" />
 </div>
 
 

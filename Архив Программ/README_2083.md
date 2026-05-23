@@ -6,7 +6,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 4.9.4 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103384.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PdfFactory Std & Pro 9.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103375.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Togu Audio Line - TAL-J-8 1.9.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103356.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Firefox Browser 132.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103355.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PeaZip 10.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103188.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Firefox Browser 132.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103157.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Telegram Desktop 5.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103115.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Light Image Resizer 7.1.2.63[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103032.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ GeoGebra 6.0.868.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103019.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ RegCool 2.019 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102702.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FastStone Capture 7.1 Final RePack (& portable) by KpoJIuK [Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102684.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SSD Fresh 2012.4 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102561.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft SQL Server 2012 Express (x86 and x64)  (Russian)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102557.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ The KMPlayer 3.0.0.1440 (LAV) (сборка 7sh3 от 30.04.2012) [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102539.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102528.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Lenovo WinDVD Disk v1.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102515.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Anthropics Portrait Professional Studio v10.9.3 Final + Portable [2012,ML\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102513.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Finale 2011 2011.r2 [Английский / Русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102485.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Tema windows 7 LIGTHVIDROVP+EXTRAS by rosy  2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102481.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Daum PotPlayer 1.5.32007 (x86-x64) [Русский] (Cборка 7sh3 от 30.04
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102435.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Bolide Slideshow Creator 1.2.1007.1649 Portable x32/x64 [Многоязычны�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102400.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Patifon (Патифон) 4.8 Portable x32/x64 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102384.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Windows XP Professional SP3 bY maestro1997 x86(AHCI) v2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102327.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ iZotope - Iris v.1.0 by UNION x86 x64[STANDALONE|VST|RTAS][английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102303.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ PictureCode Noise Ninja 2.3.7 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102294.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Ace Translator 9.3.8.671 Portable x32/x64  [Многоязычный + Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102202.jpg" />
 </div>
 
 

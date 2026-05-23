@@ -6,7 +6,7 @@ Hugh Coltman - Shadows Songs Of Nat King Cole (2015) [FLAC|tracks|WEB-DL]<Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508315.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Halie Loren - Butterfly Blue (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508166.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Clark Terry & Max Roach - Friendship (2002) Village Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507803.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Coltrane - My Favourite Things (1991) /ORO/[FLAC|image+.cue]<Avant-Garde Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507260.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Kenny Burrell - For Charlie Christian And Benny Goodman (1966/1967) /1991, Par M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507256.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Emily McEwan - In The Wee Small Hours (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507254.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John Coltrane - The Golden Age Of Jazz: My Favorite Things in Concert & Other Ra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507250.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507242.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507130.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sidney Bechet - 1923 - 1936 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507118.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Frank Foster - Well Water (1977) 2007, Piadrum Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506925.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreamb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506924.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Steve Smith & Vital Information - Vitalive! (1991) /Capitol Records/ [FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506329.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tony Reedus - Incognito (1991) /Enja/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506327.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kyrie Kristmanson & Quatuor Voce - Modern Ruin (2015) [FLAC|tracks|WEB-DL]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506326.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Horace Silver Quintet - Finger Poppin' (1959) 2003, Blue Note [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506319.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Melissa Tham - Falling In Love Again (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506264.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Peter White - Smile (2014) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506068.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505966.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Shakti with John McLaughlin - 6 альбомов (1976 - 2001) [FLAC, APE, Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_505860.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Teddy Edwards Quartet - Good Gravy (1981) /2015, Solid Records/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505503.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Thomas Chapin Trio - Third Force (1991) /Knitting Factory/ [FLAC|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505502.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sammy Price featuring Emmett Berry: Americans Swinging In Paris (1956) 2002, EMI
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505474.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Air Pocket (The Fowler Brothers) - Fly On (1975) /2015, Universal/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505451.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Art Porter - Pocket City (1992) /Polygram Records/ [FLAC|tracks+.cue]<Smooth, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505438.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Miles Davis - At Newport 1955-1975: The Bootleg Series Vol. 4 (2015) 4CD /Sony M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505425.jpg" />
 </div>
 
 

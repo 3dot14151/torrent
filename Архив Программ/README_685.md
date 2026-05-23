@@ -6,7 +6,7 @@ Download Master 6.9.1.1517 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703559.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703538.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703533.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Comsol Multiphysics 4.0.0.937 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_703520.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Opera 58.0.3135.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703467.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703460.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Macgo Windows Blu-ray Player 2.11.4.1945 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703439.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Start Menu X 5.87 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703437.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Media Encoder CC 2015.2 9.2.0.26 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703431.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Futuremark 3DMark 2.0.2530 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703426.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14366 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703414.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WinTools.net Premium 20.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703388.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PDF24 Creator 9.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703386.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ TrafficMonitor 1.79.1 Portable [En/Ch]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703382.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ FurMark 1.21.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703377.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CoolUtils Total Audio Converter 5.3.0.200 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703323.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ant Download Manager Pro 1.12.0 Build 57426 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703316.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ FastStone Capture 8.2 RePack (&Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703296.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703284.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ WinNc 6.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703282.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Topaz Video Enhance AI 1.5.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703275.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Adobe Media Encoder 2020 14.3.2.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703274.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VKMusic 4.84.3 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703273.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Emsisoft Mamutu 3.0.0.19 Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_703249.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Comodo Internet Security Premium 11.0.0.6802 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703240.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Simple Sticky Notes 4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703233.jpg" />
 </div>
 
 

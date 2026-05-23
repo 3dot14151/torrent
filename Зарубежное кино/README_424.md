@@ -1,56 +1,3 @@
-###  Публикация: 1105239   (876541) от 17.02.2017
-
-Я не сволочь / Je ne suis pas un salaud (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-После того как на Эдди жестоко напали на улице, он ошибочно указывает на Ахмеда, идеального виновного, которого он заметил за несколько дней до этой агрессии. В то время как судебный механизм набирает обороты в отношении Ахмеда, Эдди пытается оправиться в окружении своей жены и своего сына благодаря новой работе. Но вскоре, осознав серьезность своего жеста, Эдди (   Читать дальше...   )Производство: Франция, Centre National de la Cinématographie (CNC), Pictanovo Nord-Pas-de-Calais, Thelma FilmsЖанр: ДрамаРежиссер: Эмануэль ФинкельАктеры: Николя Дювошель, Мелани Тьерри, Дрисс Рамди, Марин Кайон, Николас Бридет, Ален Бежель, Антуан Гуи, Жоан СулеПеревод: Профессиональный многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:52:06Реклама: Присутствуют аудио и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8483160128E66AEC7C70B9D839CD187F40E534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374002   (876496) от 08.04.2020
-
-Кэндимэн 3: День мертвых / Candyman: Day of the Dead (1999) BDRip [H.264/720p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Кэролайн МакКивер преследуют кошмары. В снах она переносится в ужасное прошлое, где талантливый чернокожий художник совершил расовое преступление — полюбил белую девушку. Разъяренная толпа лишила его руки, вымазала медом и отдала его на растерзание диким пчелам.
-Через много лет ужасающая история превратилась в легенду о Кэндимэне: если пять раз произнести перед зеркалом (   Читать дальше...   )Производство: США / Artisan Entertainment, Aurora ProductionsЖанр: жасы, триллерРежиссер: Тури МейерАктеры: Тони Тодд, Донна Д’Эррико, Хсу Гарсиа, Уэйд Уильямс, Алексия Робинсон, Люпе Онтиверос, Марк Адэйр-Риос, Эрни Хадсон мл., Леонардо Гуерра, Майк МороффПеревод: Многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F24574B9FFFE052001969656E9E9801DB83041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105194   (876466) от 17.02.2017
 
 Боязнь воды / Fear of Water (2014) WEB-DL [H.264/720p-LQ]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876466.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876425.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876410.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876399.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876359.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876357.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876338.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876312.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876309.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876307.jpg" />
 </div>
 
 
@@ -321,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876306.jpg" />
 </div>
 
 
@@ -347,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876304.jpg" />
 </div>
 
 
@@ -373,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876298.jpg" />
 </div>
 
 
@@ -399,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876293.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876278.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876268.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876251.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876248.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876230.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876222.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876219.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876201.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_876131.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876112.jpg" />
 </div>
 
 
@@ -670,6 +617,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B28BE9865A036F4A233D823C41A9CE6DBA16DFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105406   (876106) от 17.02.2017
+
+Как выйти замуж за 3 дня / Високосный год / Leap Year (2010) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876106.jpg" />
+</div>
+
+
+###  Подробнее
+
+В англоязычных странах есть традиция — 29 февраля женщина может сделать предложение мужчине, и он не имеет права отказаться. И вот чопорная дама едет в Дублин, чтобы именно в этот день попробовать сделать предложение своему бойфренду.
+Но погода меняет её планы, и чтобы осуществить задуманное, ей приходится прибегнуть к помощи ворчливого ирландца — хозяина гостиницы. (   Читать дальше...   )Производство: США, Ирландия / Universal Pictures, Spyglass EntertainmentЖанр: мелодрама, комедияРежиссер: Ананд ТакерАктеры: Эми Адамс, Мэттью Гуд, Адам Скотт, Джон Литгоу, Ноэль О`Донован, Тони Рор, Пэт Лаффан, Алан Девлин, Йен МакЭлхинни, Доминик МакЭллиготПеревод: Дублированный (Лицензия R5)Язык субтитров: Русский, АнглийскийПродолжительность: 01:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEE3985B7CDFF01B39C937F94D4B41EA2224A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105181   (876083) от 17.02.2017
+
+По соображениям совести / Hacksaw Ridge (2016) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медик американской армии времён Второй Мировой войны Дезмонд Досс, служивший во время битвы за Окинаву, отказывается убивать людей и становится первым идейным уклонистом в американской истории, удостоенным Медали Почёта.Производство: Австралия, США, Cross Creek Pictures, Demarest Media, IM GlobalЖанр: Военный, Драма, ИсторияРежиссер: Мэл ГибсонАктеры: Эндрю Гарфилд, Ричард Пирос, Джейкоб Уорнер, Мило Гибсон, Дарси Брайс, Роман Геррьеро, Джеймс Лагтон, Касия Стелмах, Хьюго Уивинг, Рэйчел ГриффитсПеревод: Авторский (одноголосый, закадровый) (Д.Есарев)Язык субтитров: Русские, АнглийскиеПродолжительность: 02:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698B36C8380671AE3422708EF9E1E48BFD813210
 ```
 
 https://mybot314.ru/tekegram_catalog/

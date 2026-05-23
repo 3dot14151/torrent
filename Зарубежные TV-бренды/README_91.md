@@ -1,29 +1,3 @@
-###  Публикация: 1070799   (363793) от 08.11.2016
-
-Discovery. Как работают машины / Machines: How They Work (2016) HDTVRip (1-10 серий из 10)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Описание сериала, собственно, заложено в его названии. Многие видели подобные программы - "Как это устроено?", "Как это работает?", из этой передачи вы узнаете о работе самых разных по устройству и назначению машин.Телекомпания: Канада, Discovery ChannelЖанр: документальный, техникаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEECFA1DFB9E398B0DAC67E3F9AEE728BD942610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255599   (363621) от 18.10.2018
 
 Animal Planet: Неизведанный Индокитай / Wildest Indochina (2014) HDTV [H.264/1080i-LQ] (сезон 1, эпизоды 1-5 из 5)
@@ -32,7 +6,7 @@ Animal Planet: Неизведанный Индокитай / Wildest Indochina (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363621.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363614.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362878.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362461.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Animal Planet. Древо жизни / Africa's Trees of Life (2015) HDTV [H.264
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361367.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Animal Planet. Другой Китай с Найджелом Марвеном / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361242.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Animal Planet: В дебрях Индии / Wildest India (2011) HDTV [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361241.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Animal Planet. Смертельные острова / Deadly Islands (2014) HDT
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361237.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Animal Planet: Планета мутантов (Жизненная сила) / M
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361016.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Animal Planet: Неизведанные острова / Wildest Islands (2012-2
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361015.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359969.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359876.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359366.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Discovery. Жизнь и смерть на Эвересте / To Live or Die on 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359245.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359023.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358909.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358902.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358765.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358760.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Animal Planet. Гангстеры дикой природы / Gangland Killers (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358750.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358555.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358355.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357946.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Discovery: Американские Изобретатели / Invent It Rich (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357867.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357673.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0A74A8C49F78AF2ACB3D7C77B9211FD6F0A6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417483   (357551) от 20.10.2020
+
+NG: Подъем "Коста Конкордии" / The Raising the Costa Concordia (2014) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это эксклюзивная история о том, как проводились работы по подъёму и эвакуации круизного лайнера "Коста Конкордия", потерпевшего кораблекрушение около итальянского острова Джильо 13 января 2012 года.Производство: Великобритания / Windfall FilmsЖанр: ДокументальныйРежиссер: Colin CampbellПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

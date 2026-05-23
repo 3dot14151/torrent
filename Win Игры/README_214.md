@@ -1,29 +1,3 @@
-###  Публикация: 924142   (560654) от 02.08.2015
-
-Maze: Subject 360 (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Мистическая история втянет Вас в захватывающее, леденящие кровь приключение - Вам предстоит выбраться из ужасного Лабиринта, хранящего множество смертельных ловушек и секретов. Здесь, в Лабиринте, Вы столкнетесь с Вашими страхами, и только от Вас зависит сумеете ли Вы их преодолеть! Амулет "Ловец Снов" поможет справиться с трудностями, но именно Вам придется (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639FD7EA7A8D55F07D78972B0DAA97F68403D873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924138   (560652) от 02.08.2015
 
 Final Cut: The True Escapade / Последний дубль. Настоящая авантюра (2014) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
@@ -32,7 +6,7 @@ Final Cut: The True Escapade / Последний дубль. Настоящая
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560652.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Westerado: Double Barreled (2015) [En] (1.0u2) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560406.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Aggression: Reign over Europe / Агрессия (2007) [Ru] (1.23) Repack R.G. 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560308.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Saga of the Nine Worlds 3: The Hunt / Сага о Девяти Мирах 3: О�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560167.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560163.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Alter Cosmos (2018) [En/Pl] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560022.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ Where Angels Cry 2: Tears of the Fallen / Там, где плачут ангел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559983.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Myths of the World 9: Island of Forgotten Evil / Мифы народов мир�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559849.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Virus Z (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559417.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (1.01) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559378.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0.4/dlc) License GOG [The Collection]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559335.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Turmoil (2016) [Ru/Multi] (1.2.8.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559192.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord (2013) [Ru/En] (1.1.2) Re
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559101.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Traffic Manager / Verkehrsplaner: Die Simulation [Ge\En] (L) 2011
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559007.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ Grow Up (2016) [Ru/Multi] (1.0/upd1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558973.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ Mark of the Ninja (2013) [Ru/Multi] (2.1.0.6 GOG) License GOG [Special Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558895.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Football Manager 2015 SS Kits Graphic Megapack (2014) [Multi] (3.0) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558617.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Football Manager 2015 Cut-Out Facepack Graphic Megapack (2014) [Multi] (6.3) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558607.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Football Manager 2015 Metallic Logos Graphic Megapack (2014) [Multi] (5.3) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558602.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ The Settlers Online (2011) [Ru] (от 25.06.15) Unofficial
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558532.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558480.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558401.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (4514) Rip Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558378.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ The Saboteur (2009) [Ru/Multi] (1.3.22140/hotfix/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558374.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Firewatch (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558364.jpg" />
 </div>
 
 
@@ -672,6 +646,35 @@ Firewatch (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F95D3AE31BCF19AFBF32FBE71E3223C587AB654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531284   (558334) от 04.08.2012
+
+Manhunt 2 [Ru] (RePack) 2009 l R.G. Element Arts
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558334.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC-версия второй части кровавого триллера — одной из самых скандальных игр в истории мировой индустрии развлечений.
+В ходе секретных лабораторных испытаний произошла роковая ошибка, приведшая к катастрофическим последствиям. Из всех участников неудачного эксперимента уцелели двое пациентов — Даниель Лэм и Лео Каспер. Теперь «Проект Пикмана» не остановится ни перед чем, чтобы уничтожить свидетелей и скрыть правду о случившемся.
+Последние шесть лет ты находился в психиатрической клинике. Открыв глаза, ты видишь человека в белом халате. Его тело медленно оседает на пол. Из твоих дрожащих рук падает окровавленный шприц. Что происходит ? Как ты здесь очутился ? Кто ты такой ?
+Двери открыты. Это твой единственный шанс на спасение. Когда-то тебя лишили права на жизнь. Пришло время его вернуть(   Читать дальше...   )Тип издания: RePackРазработчик: Rockstar London, Rockstar Toronto, Rockstar NorthЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA534F90C644F5A5A2567EFADF8CB6282B748E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

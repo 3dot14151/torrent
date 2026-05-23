@@ -6,7 +6,7 @@ PhonerLite 2.55 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393765.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Search tool 1.0.0.142 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386718.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WirelessKeyView 2.00 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386604.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ TeamSpeak 3 Client 3.0.19.4 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381807.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BitTorrent Pro 7.9.5 Build 41203 Stable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378860.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Internet Explorer 11 Final 11.0.9600.163428 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378596.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ RadioMaximus 2.23.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377267.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ TapinRadio 2.10.9 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377253.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NeoDownloader 3.0.3 Build 209 RePack by вовава [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375993.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ RaidCall 8.2.0 (1.0.3231.155) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372862.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ MyLanViewer 5.6.5 RePack (& Portable) by TryRooM [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370576.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adblock Plus 1.5.855 for Internet Explorer (Development Builds) [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368326.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BEncode Editor 0.7.1.0 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367593.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tipard Video Downloader 5.0.60 RePack (& Portable) by TryRooM [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367182.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ inSSIDer Office Enterprise 4.4.0.6 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364681.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CCProxy 8.0 Build 2016.10.13 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363636.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ummy Video Downloader 1.10.3.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358581.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ K-Meleon76 Pro RC ru Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357645.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Poedit Pro 1.8.6 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357408.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ IP Hider Ever 6.0.0.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352768.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ LogMeIn Hamachi 2.2.0.541 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344359.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Baidu Browser 43.21.1000.275 portable by xxx-man-by [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343829.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ OkMap Desktop 17.6.2 (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342971.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340622.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Freemake Video Downloader 3.8.2.21 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338107.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335247.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Wanterlude 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055422.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Super Drift Blade (2025) [Multi] (1.0.3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055421.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.3.0.0/dlc) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055337.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Worldwide Rush (2025) [Ru/Multi] (1.2.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055333.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-27) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055295.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Car For Sale Simulator 2023 (2023) [Ru/Multi] (1.2.9) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055276.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055275.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055274.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Victoria 3 (2022) [Ru/Multi] (1.12.4/dlc) Repack Wanterlude [Ultimate Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055262.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.19.1031/dlc) Repack Necros [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055261.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ City Tales - Medieval Era (2025) [Ru/Multi] (1.0.0.4/dlc) Repack Let'sРlay [Flu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055260.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Archimedes II: Some Like It Hot / Архимед II: Некоторые любя
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055259.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055232.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055231.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Foundation (2019) [Ru/Multi] (1.11.0.11/dlc) Repack Other s [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055143.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055142.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack FitGirl [Definitive Annove
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055141.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DeadCore Redux (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055140.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055139.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.1.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055138.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack seleZen [Definitive Annove
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055137.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hidden Portals 2: Chronicles of the Sunbound / Скрытые порталы 2: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055104.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Bye Sweet Carole (2025) [Multi] (1.0.11) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055102.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DOOM Eternal (2020) [Ru/Multi] (Build 19435158/dlc) Repack HardwareMining [Delux
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055013.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055012.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Super Woden: Rally Edge (2026) [Ru/Multi] (Build 21510214) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054983.jpg" />
 </div>
 
 

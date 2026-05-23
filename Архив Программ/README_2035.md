@@ -6,7 +6,7 @@ Ungoogled Chromium 121.0.6167.184-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116369.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 122.0.6261.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116368.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Firefox Browser ESR 115.8.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116360.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YT Downloader 9.6.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116357.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ doPDF 11.9.440 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116354.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Photoshop 2024 25.5.0.375 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116313.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Photoshop 2024 25.5.0.375 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116307.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Photoshop Lightroom Classic 2024 13.2.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116303.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ LEX LIVE 10 RC FIX 23 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116300.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Total Commander 11.03 Extended 24.2 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116293.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ GoodbyeDPI 0.2.2 Launcher 6.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116280.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Total Commander 11.03 MAX-Pack 2024.02.21 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116275.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Photoshop 2024 25.5.0.375 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116268.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.5 Build 7 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116261.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ KMPlayer 2024.2.22.14 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116242.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VueScan Pro 9.8.27 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116234.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Light Image Resizer 6.2.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116232.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Floorp Browser 11.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116231.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Wise Force Deleter 1.5.5.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116228.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ XnView MP 1.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116226.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Light Image Resizer 6.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116224.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ USB Device Tree Viewer 4.0.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116222.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Opera One 107.0.5045.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116220.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ LibreOffice 7.6.5.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116216.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ExamDiff Pro Master Edition 14.0.1.24 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116215.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Image Uploader 1.4.0 Build 5129 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116212.jpg" />
 </div>
 
 

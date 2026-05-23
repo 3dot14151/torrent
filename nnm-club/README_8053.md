@@ -1,25 +1,51 @@
-###  Публикация: 1019610   (748699) от 24.05.2016
+###  Публикация: 1523779   (748370) от 13.01.2022
 
-VA - Exia Emotions Vol.1 (2016) [MP3|320 кб/с] <Trance>
+VA - Liquid Flow Recap 2021 (2021) [AAC|~315 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Marnel - Floating in Space (4:45)
+02. Heft - Perfomance (4:47)
+03. Paul Format - Feelings (3:41)
+04. Fernando Ferreira - Backwoods Worker (5:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54376D2F199BF25C682FAA1D8D615173CEAFAB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523816   (748369) от 13.01.2022
+
+Boxy SVG 3  v3.74.1 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Daf - Darkness (Witness45 Remix) 6:18
-02. Roman Messer - Imagination (Original Mix) (feat. Ange) 6:36
-03. Dmitry Plotnikov - Now Or Never (Original Mix) 5:55
-04. Mino Safy - Karama (Original Mix) 6:56(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:15
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2012-2022 Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39C221703BFB557891EA44910E6C890864B2E9C3
+magnet:?xt=urn:btih:D529BA88E7529773774F6069E094481CCFB15703
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019644   (748698) от 24.05.2016
+###  Публикация: 1523769   (748368) от 13.01.2022
 
-Damian Fink - Universal Trance (2016) [MP3|320 кб/с] <Trance>
+VA - Sun Travellers, Vol. 1 (2019) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Музыки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Fink the Tunnel (Original Mix) (06:45)
-02.Rendezvous (Original Mix) (11:43)
-03.Exalted5 (Original Mix) (10:24)
-04.Triangle Over Me (Original Mix) (09:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:16
+01. S.Poliugaev - Time Out (Original Mix) (6:16)
+02. Chris le Blanc, Miss Luna, Susanna Rosza - Essaouira to Ibiza (Original Mix) (5:16)
+03. Stefano DG - I Am Gonna Break (Original Mix) (6:05)
+04. Alex & Chris, Fernando Opera - Space (Original Mix) (8:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BBB859509E02A9D8227FC8033E8B1B5DA585723
+magnet:?xt=urn:btih:5BE8BECAB16324CCA74418AE2DE89FF2681D70A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019812   (748697) от 24.05.2016
+###  Публикация: 1523773   (748367) от 13.01.2022
 
-VA - Inside Progress vol. 2 (2007) [FLAC|Lossless|tracks + .cue] <Progressive Trance,Trance>
+VA - Sun Travellers, Vol. 3 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Музыки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Percussion Bullet - Enveloop (07:39)
-02. Sunhize - Fly with Me (07:24)
-03. Eniak - Inner Desert (06:53)
-04. Myproduct - Kinky Girl (04:32)(   Читать дальше...   )Жанр: Progressive Trance,TranceПродолжительность: 01:11:01
+01. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
+02. Marga Sol - Voyager (Original Mix) (5:44)
+03. Kanedo, Smitty - Mirandas (Original Mix) (6:13)
+04. Marga Sol, Darles Flow - Silent Day (6:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:49:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ED6C3A06FAA8C9C716287B27056D58FC0720598
+magnet:?xt=urn:btih:7C30A75AF220854AD10B78414BCB06C16E1783A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396181   (748696) от 14.07.2020
+###  Публикация: 1523841   (748366) от 13.01.2022
 
-Harold Land - A Lazy Afternoon (1995) Postcards [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+VA - The Essential Downtempo, Vol. 2: Chillout Your Mind (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Afternoon [4:24]
-02. You Don't Know What Love Is [3:45]
-03. In a Sentimental Mood [4:26]
-04. Nature Boy [3:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:45:48
+01. Matt Sour - Calm Before the Storm (4:52)
+02. Der Waldläufer - Blossom Sun (Original Mix) (5:28)
+03. Michael e - Theme from a Pleasant Interlude (Original Mix) (6:16)
+04. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D27DDD3596269676F6C96183447DFD179108DB4E
+magnet:?xt=urn:btih:B7A0738089E78F1E0CF12471D2A3059C5805B691
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396180   (748695) от 14.07.2020
+###  Публикация: 1523730   (748365) от 13.01.2022
 
-James Moody - Something Special (1986) Novus [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+VA - Bar Lounge Costes, Vol. 1 (2019) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moody's Mood Update [7:39]
-02. Real Feels Good [8:43]
-03. Nubian Fantasies [7:05]
-04. Transfer to Manhattan [7:34](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:48:52
+01. One Groove Ensemble - Jazz Dreams (Original Mix) (3:00)
+02. The Soul Crusaders, Marc Hartman - Stargazer (Original Mix) (4:56)
+03. Marga Sol - Palm Tree Chill (Original Mix) (5:23)
+04. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:22:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F4B05F11C4471D2B9C51392DF79BCF2DBF9205C
+magnet:?xt=urn:btih:75AFB1A7F977733F238AF4A41662E337744B42A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396176   (748694) от 14.07.2020
+###  Публикация: 1523835   (748364) от 13.01.2022
 
-The Vanguard Jazz Orchestra - Up from the Skies: Music Of Jim McNeely (2006) Planet Arts [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+VA - Jazzy Weekend, Vol. 2 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Jazzy>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Up from the Skies [8:54]
-02. The Life of Riley [8:28]
-03. In This Moment [9:14]
-04. Don't Even Ask! [9:49](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:08:58
+01. Living Room - A Wonderful Day (Sophisticated Jazz Version) (3:01)
+02. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)
+03. Steven Solveig - Smoking Jazz (Original Mix) (2:29)
+04. Music Of The Earth - Mellow Jazz (Original Mix) (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzyПродолжительность: 02:11:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59FAD05BDBA3DAE5FD45E6E10893A7DC8533EC01
+magnet:?xt=urn:btih:3A4A2C77B65DA1550E3C3D85AF1023ED9175DDA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,190 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396178   (748693) от 14.07.2020
+###  Публикация: 1523781   (748363) от 13.01.2022
 
-Buddy Rich - Quiet Riot 1940-e (2004) Proper Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Dateless Brown [3:19]
-02. Desperate Desmond [3:10]
-03. Rags to Riches [2:44]
-04. Quiet Riot [2:54](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 01:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12AA13469F095BF75B135CD1F45B326EE5E745D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396210   (748692) от 14.07.2020
-
-Футбол. Чемпионат России 2019-2020. Обзор матчей 25-го тура (2020) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Тинькофф Российская Премьер-Лига. Чемпионат России по футболу 2019-2020 — 28-й по счёту сезон высшего дивизиона системы футбольных лиг России. Первую часть сезона турнир носил название РПЛ (Российская премьер-лига). Со второй половины проводится при поддержке титульного спонсора банка «Тинькофф» и носит название Тинькофф РПЛ (Тинькофф Российская премьер-лига).
-Обзор (   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185E53A9F3B2B975750BAA5BA401438AEB930928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396289   (748691) от 14.07.2020
-
-Pharoah Sanders - Love In Us All (1973) 2007, Universal [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Everywhere [19:55]
-02. To John [20:42]Жанр: Avant-Garde Jazz, Post-Bop, Soul-JazzПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13457CF5E362624D84F19A03D41213FA0784827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396213   (748690) от 14.07.2020
-
-Pungent Stench - Smut Kingdom (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-01. Aztec Holiday 05:00
-02. Persona Non Grata 04:31
-03. Devil's Work and Our Contribution 04:04
-04. Brute 04:39(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396234   (748689) от 14.07.2020
-
-Футбол. Примера Дивисьон (Ла Лига). Чемпионат Испании 2019-2020. Обзор 32-го тура (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Примера Дивисьон (Ла Лига). Чемпионат Испании по футболу 2019-2020.
-Обзор матчей 32-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB89EFCAAA5B68BFE62D883849054F044FCCEE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396265   (748688) от 14.07.2020
-
-Sentenced - Buried Alive (2006) 2xCD [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:Жанр: Melodic Death Metal, Gothic MetalПродолжительность: 01:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE6D92BA79A9DCE7B621F884FEC224FCB420AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396232   (748687) от 14.07.2020
-
-Sentenced - Buried Alive (2006) 2CD German Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal, Gothic Metal>
+Cauldron - New Gods (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Melodic Death Metal, Gothic MetalПродолжительность: 01:57:52
+01. Prisoner Of The Past
+02. Letting Go
+03. No Longer
+04. Save The Truth - Syracuse(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D3F1325BD77425654899848C3DF54EF3157C9DF
+magnet:?xt=urn:btih:CF963FD2F14BE595F90DB14C7F9B08CCFD8A14F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396408   (748686) от 14.07.2020
+###  Публикация: 1523767   (748362) от 13.01.2022
 
-Rez Abbasi Acoustic Quartet - Intents and Purposes (2015) [FLAC|Lossless|tracks + .cue] <Fusion, Contemporary Jazz>
+VA - Sunset Emotions 5 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Market (Zawinul) - 7:57
-02. Butterfly (Hancock) - 7:36
-03. Joyous Lake (Martino) - 8:00
-04. Medieval Overture (Corea) - 4:56(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:53:41
+01. Peter Mac, Simply Chill - Hope (Original Mix) (4:32)
+02. Chris le Blanc, Nightzone - Left Without a Kiss (5:27)
+03. Lemongrass - Sur La Mer (4:31)
+04. Skyeez - Home (Original Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C3860CF1D84DAA4264AF548376FF52CEAAB4A0E
+magnet:?xt=urn:btih:ED42E49914A2B93785F126EF895E2552308A52DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,28 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396140   (748685) от 14.07.2020
+###  Публикация: 1523808   (748361) от 13.01.2022
 
-The Lawrence Arms - Skeleton Coast (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk>
+CheckBook Pro 2.7.1 [En]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Quiet Storm [02:07]
-02. PTA [01:54]
-03. Belly of the Whale [01:59]
-04. Dead Man's Coat [02:49](   Читать дальше...   )Жанр: PunkПродолжительность: 00:34:19
+CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2002-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:211F9C8E9D25477106B7651732BF79524FFA39F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,28 +282,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396273   (748684) от 14.07.2020
+###  Публикация: 1523921   (748360) от 13.01.2022
 
-AOOOM - Wandering forLost Beauty (2020) [MP3|320 Kbps] <Progressive Metal,Doom Metal, Instrumental Music>
+SiteSucker 4.3.2 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Namaste Power (10:50)
- 02. Lost Cosmos Mirror (14:24)
- 03. Beauty Mistake (16:04)
- 04. Sorrow Exit (22:22)(   Читать дальше...   )Жанр: Progressive Metal,Doom Metal, Instrumental MusicПродолжительность: 01:16:47
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:976633F0CCE85DE7BD87CD06C291F21981AEBC8A
+magnet:?xt=urn:btih:F317608DF673729997237F70170E5D10A1323144
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,27 +309,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396191   (748683) от 14.07.2020
+###  Публикация: 1019832   (748359) от 24.05.2016
 
-Л. Лонго | Уроки антифашистского Сопротивления (1980) [DJVU, PDF]
+VA - Best EDM in Town (2016) [MP3|320 кб/с] <Progressive, Electro, Club>
 
->>Разное (категория книг)
->>Публицистика
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Луиджи Лонго (1900—1980) — видный деятель итальянского и международного рабочего и коммунистического движения, соратник Антонио Грамши и Пальмиро Тольятти, один из основателей партии итальянских коммунистов.
-
-Луиджи Лонго был профессиональным революционером, которому в течение многих лет довелось руководить подпольной деятельностью коммунистов в фашистской Италии; (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU, PDF
+001. JockeyBoys - Higher (Extended Mix) 04:46
+002. Zelazny & Luqus - Jumpers (Extended Mix) 04:23
+003. DJ Skip - Jealousy 03:02
+004. Cire - How We Party (Club Mix) 04:04(   Читать дальше...   )Жанр: Progressive, Electro, ClubПродолжительность: 07:33:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFC36F14301BA7219E15560665C0BD70B016891D
+magnet:?xt=urn:btih:717A66A6B574B9F6ECBF86873201DA98CD546C05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +338,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396361   (748682) от 14.07.2020
+###  Публикация: 1523771   (748358) от 13.01.2022
 
-Perry Rosewood - Citroen Melodie (1979) LP [MP3|320 Kbps] <Disco, Easy Listening, Jazz-Funk, Instrumental>
+VA - Sun Travellers, Vol. 2 (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Pop
->>Зарубежная поп-музыка
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Citroen-Melodie (Deux Chevaux) (4:09)
-02. Santa Ponsa (4:14)
-03. Black Magic Ladies (5:09)
-04. My Way To Laredo (5:21)(   Читать дальше...   )Жанр: Disco, Easy Listening, Jazz-Funk, InstrumentalПродолжительность: 00:56:55
+01. DMTunes - Ser Mio (Original MIx) (4:42)
+02. Martin Liege - Balearic Jazz (Original Mix) (3:43)
+03. Sami Sivananda - Samadhi Vibes (Original Mix) (3:16)
+04. Michael e - Amanda (Original Mix) (5:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FED26770A132BF5565D935A6047A103CC39938E
+magnet:?xt=urn:btih:C3C811D3D52A8ABB6CC1739DEE6D4BA8CF55540C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,28 +367,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396253   (748681) от 14.07.2020
+###  Публикация: 1019934   (748357) от 24.05.2016
 
-Футбол. Примера Дивизион (Ла Лига). Чемпионат Испании 2019-2020. 33-й тур. Барселона — Атлетико М (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Журнал | IT Expert №5 (май-июнь 2016) [PDF]
 
->>Спорт и активный отдых
->>Футбол
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Примера Дивизион (Ла Лига). Чемпионат Испании по футболу 2019-2020. 33-й тур
-30 июня 2020, вторник. 23:00 МСК
-Барселона (Барселона) — Атлетико (Мадрид)
-Стадион: Камп Ноу (Барселона, Испания), вместимость: 99354(   Читать дальше...   )Телекомпания: Матч! ТВЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:44:29
+IT Expert - журнал для профессионалов в области IT. На страницах издания можно узнать новости и статьи о последних технологических разработках, о тестировании новых продуктов, оценку рыночной ситуации в различных сегментах IT-индустрии как в России, так и за рубежом.Жанр: Журнал для профессионалов в области ITФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8FD2A73C6235F64488937987A7264EDA64C361F
+magnet:?xt=urn:btih:A4E02C64E361E891E1D894501E663304F55BA707
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,28 +393,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396300   (748680) от 14.07.2020
+###  Публикация: 1019806   (748356) от 24.05.2016
 
-VA - Soft Emotion: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo, Background>
+VA - Музыка дороги Сборник русского шансона 6 (2016) [MP3|256 кб/с] <Шансон>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Martin Vogel - Heaven Can’t Wait
-002. Back 2 U - Morning Sun
-003. The Soul Crusaders - Sway
-004. Funky Valley - Merefa(   Читать дальше...   )Жанр: Lounge, Downtempo, BackgroundПродолжительность: 08:24:43
+001. Владимир Чернов & Икона - Батя
+002. Орская Маргарита - Любимый Муж Мой
+003. Константин Крымский - Может Быть
+004. Бумеr - До Поры До Времени(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:15:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DF51C01D833898109E396377640B41A09E68472
+magnet:?xt=urn:btih:1DC32E6CF030BD794893B2767731B33F925C7140
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,86 +422,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396352   (748679) от 14.07.2020
+###  Публикация: 1019568   (748355) от 24.05.2016
 
-Футбол. Примера Дивизион (Ла Лига). Чемпионат Испании 2019-2020. 33-й тур. Реал Мадрид — Хетафе (2020) IPTVRip [H.264/1080p-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Примера Дивизион (Ла Лига). Чемпионат Испании по футболу 2019-2020. 33-й тур
-02 июля 2020, четверг. 23:00 МСК
-Реал (Мадрид) — Хетафе (Хетафе)
-Стадион: Альфредо ди Стефано (Мадрид, Испания), вместимость: 6500(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396345   (748678) от 14.07.2020
-
-Детское Королевство - На ферме у Зенона. Часть 1 (2020) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Бартолито
-02. Гудящая машина
-03. Перчерон
-04. Попугайчик Пепе(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA1CD4C3E68AAB0FED2F657718ED6F099096E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396302   (748677) от 14.07.2020
-
-VA - The Night In Question (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
+VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Anna Jarvinen - Psalm
-002. The Slow Readers Club - Jericho
-003. John Vanderslice - Fireworks
-004. Mumrunner - Remember Me(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 06:04:12
+01. Digital Emotion - Don`t Stop ( 1984 )
+02. Mo-Do - Eins, Zwel, Polizel ( 1994 )
+03. C.C.Catch - Cause You Are Young ( 1986 )
+04. Michael Jackson - Bad ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0D20659FB424B388CCAECB70F2F672012F3F367
+magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,26 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467565   (748662) от 02.05.2014
+###  Публикация: 1523728   (748354) от 13.01.2022
 
-BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008) SATRip
+Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [AAC|~327 Kbps] <Jazz-Pop>
 
->>Зарубежные TV-бренды
->>BBC
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стремление жить дольше - едва ли не самая давняя человеческая мечта. Но в то время как ученые всего мира веками искали ответ, несколько изолированных сообществ нашли ответ сами собой - не подозревая об этом. На удаленном японском острове Окинава, в калифорнийском городе Лома Линда и в горах Сардинии - люди живут дольше, чем где-либо еще на земле.
-В этих уникальных сообществах группа ученых, посвятивших свою жизнь поискам эликсира долголетия, пытается раскрыть их тайны. Horizon предпринимает путешествие по всему миру, чтобы встретиться с людьми, которые могут показать нам всем, как жить более долгой и здоровой жизнью.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:58
+01. Scott Bradlee's Postmodern Jukebox, Mario Jose, India Carney, Dave Koz - Perfect Duet (4:38)
+02. Scott Bradlee's Postmodern Jukebox, Sara Niemietz - Who Can It Be Now? (3:22)
+03. Scott Bradlee's Postmodern Jukebox, Hannah Gill, Casey Abrams - Crazy (4:29)
+04. Scott Bradlee's Postmodern Jukebox, LaVance Colley, Lee Howard - That's What I Like (3:44)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:58:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC42215AE9ADFC88695146DE29FC13BFFE2C9B99
+magnet:?xt=urn:btih:191E0B58D81176C1C36B651409577F434C6A8A46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,51 +480,243 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 782661   (748657) от 02.05.2014
+###  Публикация: 1019970   (748353) от 24.05.2016
 
-В спорте только девушки (2014) Blu-Ray [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Три друга-сноубордиста попадают в опасную для жизни переделку. Спасаясь от погони, парни «внедряются» в женскую сборную по сноуборду.Производство: РоссияЖанр: Комедия, СпортРежиссер: Евгений НевскийАктеры: Лянка Грыу, Александр Головин, Екатерина Вилкова, Илья Глинников, Александр Ведменский, Михаил Трухин, Алена Чехова, Алексей Золотовицкий, Дмитрий Мухамадеев, Татьяна РыбинецПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826DD7E9B8268BE2AED9F680484FD0666965FFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019846   (748656) от 24.05.2016
-
-Mozilla Firefox 47.0 beta 8 (x86/x64) [Ru]
+Internet Download Manager 6.25 Build 19 RePack by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский | Английский | Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21FBAB9C9B64D4EE216AA19C6D951813E46841A1
+magnet:?xt=urn:btih:D21214DC6BE9CCADA36A0102532964DE8855C04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523758   (748352) от 13.01.2022
+
+VA - Sunset Emotions 1 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sami Sivananda - Temple Tunes (Original Mix) (6:46)
+02. Sunyata Project - Bird of Satori (Original Mix) (4:46)
+03. Dharma Frequency - Oriental Pleasure (Original Mix) (3:54)
+04. La Estación Del Mar - Las Flores De Fouxi (Original Mix) (3:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0CD7EB16D71E2BF0A2601359F074A1DB7285B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019763   (748351) от 24.05.2016
+
+AVG Internet Security 2016 16.71.7598 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748351.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVG Internet Security 2016 - комплексный антивирус с улучшенным обнаружением угроз, благодаря "облачной" службе File Reputation, простым в управлении фаерволом и оптимизированной работой с технологией AVG Scan Turbo для быстрого сканирования вашего компьютера.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FD3F1F24262F69C5ACEACBFA47CDC0134827C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523805   (748350) от 13.01.2022
+
+SideNotes 1.4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748350.jpg" />
+</div>
+
+
+###  Подробнее
+
+SideNotes - это боковая панель, которая заполнит заметками одну из сторон экрана вашего Mac. Текст, код или изображения - SideNotes справится со всем, что позволит вам хранить важные данные под рукой. Для удобства переносите заметки в настраиваемые папки, назначайте цвет и добавляйте флажки к задачам. Это общая полка для всего действительно важного.Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2020-2022 ApptoriumПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B929D9814C2C8DD150AB1B9779A225DDFBADA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020012   (748349) от 24.05.2016
+
+Журнал | Автомир [Россия] №23 (май 2016) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748349.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7357DB5E6193CD46E505C0AF57AF5F3AE720E291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523834   (748348) от 13.01.2022
+
+VA - Modern Urban Jazz 2 (2022) [AAC|~313 Kbps] <Jazz, Nu Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. A. Jeron - Rough (2:35)
+02. Flow Bop, Lo Greco Bros - Velvet Sun (5:40)
+03. DOUT.D - Hope (1:49)
+04. Paolo Sessa, Polose - The Moon (3:53)(   Читать дальше...   )Жанр: Jazz, Nu JazzПродолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AB8393AC2BAFDD1AA3C7ACFF8B28D436499BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019587   (748347) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O'Kay - The Wild Wild Western ( 1989 )
+02. Al Bano & Romina Power - Felicitа ( 1982 )
+03. Scotch - Delirio Mind ( 1985 )
+04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523962   (748346) от 13.01.2022
+
+Permute 3 v3.8.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9E45935FE30BB12CE4B3E2252EFC9D0A3B076E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523768   (748345) от 13.01.2022
+
+Magic Battery 7.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Magic Battery показывает уровень заряда батареи поддерживаемых устройств ввода и наушников, подключенных через Bluetooth, в строке меню. Также поддерживаются внутренние батареи.
+Информация о батарее будет отображаться в строке меню и в главном окне.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A094D77EEF2491799144663DA3B6EAC2EBEE9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

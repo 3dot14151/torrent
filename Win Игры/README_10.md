@@ -6,7 +6,7 @@ Across the Obelisk (2021) [Ru/Multi] (1.7.5/dlc) Repack Let'sРlay [Complete Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062933.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ New Cycle (2024) [Ru/Multi] (26-490.03) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062890.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EverSiege: Untold Ages (2026) [Ru/Multi] (0.2.134369) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062885.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lost Soul Aside (2025) [Ru/Multi] (1.101/dlc) Repack HardwareMining [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062884.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Conductor: Eternal Service (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062867.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Retro Rewind: Video Store Simulator (2026) [Multi] (Build 1966/dlc) Repack FitGi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062866.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Damon and Baby (2026) [Multi] (01.03) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062846.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Screamer (2026) [Multi] (Build 22340215/dlc) Repack Other s [Digital Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062845.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062765.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mask of Soul (2026) [Ru/Multi] (Build 22531021) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062760.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Solasta: Crown of the Magister (2020) [Ru/Multi] (1.5.97/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062541.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Royal Revolt Survivors (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062445.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Overthrown (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062444.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Project Castaway (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062434.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Project Castaway (2024) [Ru/Multi] (1.0.1) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062432.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Everybody's Golf Hot Shots (2025) [Multi] (1.0.8) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062426.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ No Vacation for an Executioner (2026) [Ru/Multi] (1.21) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062323.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Kotama and Academy Citadel (2026) [Multi] (1.00.02.01) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062321.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Caribbean Legend: Age of Pirates (2026) [Ru/Multi] (1.0.1/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062320.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack Other s [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062319.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack FitGirl [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062318.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Trasamire Campaigns (2023) [En] (1.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062295.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Runeborn (2025) [Ru/Multi] (1.0.10) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062294.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ iRacing Arcade (2026) [Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062293.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ BioShock Remastered (2016) [Ru] (Build 8552765) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062274.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (Build 223150
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062273.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Light Image Resizer 4.7.3.0 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511883.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 41.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511872.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AlwaysMouseWheel 3.56 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511843.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ZJMedia Easy DVD Player 4.6.3.2057 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511840.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Atomix Virtual DJ Pro Infinity 8.0.0 build 2425.1050 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511834.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Uninstaller 5.0.3.171 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511833.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ashampoo Uninstaller 5.0.6 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511832.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AutoHideDesktopIcons 2.75 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511829.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tipard Video Downloader 5.0.38 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511787.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ IObit Smart Defrag 4.2.1.817 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511763.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ProcessKO 3.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511762.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NewFileTime 2.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511758.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ GPU Shark 0.9.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511755.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ExperienceIndexOK 1.05 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511699.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Format Factory 3.7.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511697.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skype-Cryptor 1.5 RePack by Topten [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511686.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NVIDIA GeForce Hotfix driver For Windows 10 355.80 + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511621.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BELOFF 2019.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511600.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ultimate Windows Tweaker 4.0.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511587.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Total Commander 8.52 LitePack | PowerPack | ExtremePack 2015.8 Final + Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511586.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ CCleaner 5.09.5343 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511532.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ashampoo Photo Optimizer 5.1.2 DC 20.08.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511467.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ IK Multimedia - MODO BASS 2 2.0.2 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511450.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Raise Data Recovery for FAT/NTFS 5.4 DC 20.08.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511408.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ WebcamMax 7.6.6.2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511403.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ JetBrains PyCharm Professional 2022.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511391.jpg" />
 </div>
 
 

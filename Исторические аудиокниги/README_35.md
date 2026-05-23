@@ -1,58 +1,3 @@
-###  Публикация: 1648413   (231316) от 23.07.2023
-
-Наталья Павлищева | Трон любви. Сулейман Великолепный (2022) [MP3, Денис Тимофеев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Хотите увидеть блистательную эпоху Сулеймана Великолепного глазами его славянской жены Роксоланы? Желаете заглянуть в запретный мир гарема и смертельно опасных дворцовых интриг? Слушайте этот любовно-исторический роман, перед которым меркнет телесериал «Великолепный век»!
-
-Как не только завоевать сердце султана, но и остаться любимой и желанной даже через 20 лет (   Читать дальше...   )Жанр: исторические любовные романыПродолжительность: 08:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377C098DEF4DB8B1EA9FF3463E839EDC9E479C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649177   (230858) от 26.07.2023
-
-Генри Райдер Хаггард | Аллан Квотермейн (Книга 1). Аллан Квотермейн (2019) [MP3, Ольга Андреева]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет аудиокнигу знаменитого английского романиста Генри Райдера Хаггарда – «Аллан Кватермэн» – первую в одноименной культовой серии. Его творчество широко известно у нас по книгам «Копи царя Соломона» и «Дочь Монтесумы», однако два этих произведения – лишь малая часть богатого творческого наследия автора.
-«Я похоронил недавно моего мальчика, (   Читать дальше...   )Жанр: Исторические приключенияПеревод: Вера КарпинскаяИздательство: МедиаКнигаПродолжительность: 07:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D13B66186FE2920A5A5197B6CA74B3E21A28F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512766   (229226) от 26.11.2021
 
 Николай Тычков | Маленькие пленники Бухенвальда (2021) [MP3, Татьяна Янчук]
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229226.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228697.jpg" />
 </div>
 
 
@@ -115,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228548.jpg" />
 </div>
 
 
@@ -143,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227660.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226295.jpg" />
 </div>
 
 
@@ -195,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225987.jpg" />
 </div>
 
 
@@ -221,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225898.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224851.jpg" />
 </div>
 
 
@@ -273,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223995.jpg" />
 </div>
 
 
@@ -299,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222499.jpg" />
 </div>
 
 
@@ -325,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221353.jpg" />
 </div>
 
 
@@ -351,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221345.jpg" />
 </div>
 
 
@@ -377,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220879.jpg" />
 </div>
 
 
@@ -403,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220878.jpg" />
 </div>
 
 
@@ -429,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218659.jpg" />
 </div>
 
 
@@ -455,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217644.jpg" />
 </div>
 
 
@@ -482,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215869.jpg" />
 </div>
 
 
@@ -508,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215833.jpg" />
 </div>
 
 
@@ -534,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215480.jpg" />
 </div>
 
 
@@ -560,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212835.jpg" />
 </div>
 
 
@@ -586,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212104.jpg" />
 </div>
 
 
@@ -613,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212100.jpg" />
 </div>
 
 
@@ -640,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211513.jpg" />
 </div>
 
 
@@ -666,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211396.jpg" />
 </div>
 
 
@@ -677,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E7B5E1831BDD8C087BD6B8D1C7A16250A42E360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166916   (211033) от 07.08.2022
+
+Дмитрий Мережковский | Христос и Антихрист (Книга 1). Смерть богов (Юлиан отступник) (2006) [MP3, Олег Федоров]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211033.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смерть Богов (Юлиан Отступник)» (1896) - одно из известнейших произведений выдающегося русского писателя Д.С. Мережковского (1866-1941). В этом романе, представляющем собой первую часть трилогии «Христос и Антихрист», автор убедительно и ярко, на богатом историческом материале показывает борьбу зарождающегося христианства с религиозными воззрениями античности.
+ (   Читать дальше...   )Жанр: ИсторияПродолжительность: 12:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5798C64A322D7025DCCD8EAE11A253A9B927C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270348   (210347) от 18.08.2022
+
+Валентин Пикуль | Псы господни (2018) [MP3, Андрей Кузнецов, Юлия Степанова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210347.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокниге, представляемой студией АРДИС, вниманию слушателей предлагается последний, незавершённый роман Валентина Пикуля «Псы господни». Россия, истерзанная безумным Иваном Грозным, измученная опричниной. Испания, выжженная кострами инквизиции – опоры трона Филиппа II. Страшное время религиозной истерии и болезненного распутства, бесконечных войн, казней.Жанр: Историческая литератураИздательство: АрдисПродолжительность: 06:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE495065BAE339CA29D44D3ADE2AB2DD1D9AAAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

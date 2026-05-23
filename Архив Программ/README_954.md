@@ -6,7 +6,7 @@ SafeInCloud Password Manager 16.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566809.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ICE Book Reader Professional 9.6.1 + Lang Pack + Skin Pack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566807.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VeraCrypt 1.18a Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566796.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GOM Player 2.3.6 Build 5260 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566793.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PcBoost 4.7.30.2012 [Multi(Rus)] + Portable by Valx (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566786.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Aiseesoft Total Video Converter 6.2.32 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566783.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Aiseesoft FoneLab for Android 3.1.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566763.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566751.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AnyDesk 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566728.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Gmer 2.2.19882 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566708.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ uTorrent 3.4.8 Build 42501 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566705.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566704.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VeraCrypt 1.18 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566695.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ TapinRadio Pro 1.70.6 + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566613.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Duplicate Cleaner Pro 4.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566585.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Password Keeper 1.08 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566581.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7172.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566554.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MEmu 3.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566530.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NetSetMan 3.4.5 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566482.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ BatWithParameters 1.0.0.18 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566478.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ AVS All-In-One Install Package 2.2.1.86 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566463.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ PDF24 Creator 7.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566452.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Icecream Slideshow Maker 1.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566450.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ BotRadio 1.1.0.0 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566442.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ KMS Tools Portable by Ratiborus 04.06.2022 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566431.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ USB Device Tree Viewer 2.5.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566381.jpg" />
 </div>
 
 

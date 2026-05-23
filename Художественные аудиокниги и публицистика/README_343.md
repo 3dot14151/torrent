@@ -1,82 +1,3 @@
-###  Публикация: 1281984   (745245) от 12.02.2019
-
-Дэниел Галуй | Симулакрон-3 (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Загадочные события происходят вокруг Дуга Хола. Погибает его наставник, известный ученый Хэннон Фуллер, затем исчезает его знакомый, а из памяти сотен людей стирается информация об исчезнувшем. Самого Хола все чаще одолевают приступы неизвестной болезни... Дуг подозревает, что это каким-то образом связано с таинственным открытием доктора Фуллера. Хол начинает собственное (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 04:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD33CC3D4CA3CEF5A6D1876D5963C36FC67C436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281896   (745236) от 12.02.2019
-
-Лев Толстой | Метель. Избранная проза (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказа «Метель» родился во время возвращения писателя с Кавказа в Ясную Поляну. Повествование ведётся от первого лица. Главный герой в сильную метель отправляется на санях в опасное, но необходимое путешествие. Лишь чудом ему и его спутникам удаётся избежать гибели.
-Повесть «Отец Сергий» рассказывает об удивительном событии, случившемся в Петербурге во времена (   Читать дальше...   )Жанр: Русская классикаПродолжительность: 06:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D79845DC9CF566B831FEE9C606246D2C5609E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020540   (745224) от 26.05.2016
-
-Александр Нечволодов | Сказания о Русской земле (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Автор знаменитого труда "Сказания о Русской земле" Александр Дмитриевич Нечволодов - боевой генерал, действительный член Императорского русского военно-исторического общества. В семье последнего русского императора Николая II первое издание "Сказаний" стало настольной книгой. В разных учебных заведениях царской России исследование долгие годы (   Читать дальше...   )Жанр: Историческая книгаПродолжительность: 07:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FA1F87AB0499E866E5B899E74D4BBFA2BD9B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020438   (745208) от 26.05.2016
 
 Дмитрий Волкогонов | Триумф и трагедия. Политический портрет Сталина. Книга 2 (2010) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745208.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_745207.jpg" />
 </div>
 
 
@@ -138,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745199.jpg" />
 </div>
 
 
@@ -164,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745198.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745160.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745159.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745155.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745153.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745147.jpg" />
 </div>
 
 
@@ -324,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745139.jpg" />
 </div>
 
 
@@ -350,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745097.jpg" />
 </div>
 
 
@@ -376,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745095.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745093.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745032.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744933.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744930.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744929.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744922.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744895.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744837.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744834.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744829.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744826.jpg" />
 </div>
 
 
@@ -675,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2E5BECB1FA086DD5176C340F62AE30BECCAC126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524219   (744784) от 15.01.2022
+
+Георгий Смородинский | Темный Завет Ушедших (Книга 4). Последняя надежда Антрумы (2022) [MP3, Геннадий Коршунов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир Аркона стал для Олега Смирнова a.k.a. Криса Венома почти родным. Здесь он мог быть кем угодно – хоть мастером-убийцей, хоть великим полководцем, ведущим за собой войска умертвий. В этой удивительной реальности он прошел уже столько испытаний, что ничто, казалось, не сможет выбить его из колеи. Кроме, пожалуй, проклятия и смерти. Но и тут выход найдется – нужно (   Читать дальше...   )Жанр: LitRPGПродолжительность: 15:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D23D13B0EE8721392A8FF291BD0398C0D559858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217185   (744756) от 03.04.2018
+
+Роберт ван Гулик | Судья Ди. Жемчужина Императора (2018) [MP3, Ирина Воробьева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландский историк, писатель и дипломат Роберт ван Гулик приобрел всемирную известность как автор оригинальных и увлекательных детективных бестселлеров о судье Ди, средневековом китайском Шерлоке Холмсе.
+Достоверные детали быта, нравы и обычаи, особенности законодательства и судопроизводства средневекового Китая, в изобилии присутствующие на страницах романа, позволят (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 05:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40585F2C59F8E5082B18F6FE8B9153C3C8477D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020241   (744743) от 26.05.2016
+
+Александр Никонов | Свобода от равенства и братства. Моральный кодекс строителя капитализма (2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здравый смысл, ответственность и свобода. Свобода воли, свобода от предрассудков, свобода от глупости — таковы простые принципы новой морали современного цивилизованного мира. Александр Никонов продолжает выполнять свою просветительскую миссию, помогая читателю осмыслить закономерности развития Цивилизации, избавиться от ложных иллюзий и найти свое место в стремительно (   Читать дальше...   )Жанр: Публицистика, научно-образовательнаяПродолжительность: 15:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5A85B50A2D7BF086E810377F0C06038E289873
 ```
 
 https://mybot314.ru/tekegram_catalog/

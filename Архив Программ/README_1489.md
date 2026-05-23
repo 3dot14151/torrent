@@ -6,7 +6,7 @@ Windows 10 Manager 3.1.7.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277044.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced SystemCare Pro 13.0.2.171 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277043.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CCleaner 5.25.5902 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277035.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Firefox ESR 45.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277030.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Viber 6.5.3.1676 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277023.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Paint.NET 4.0.13 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277021.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Total Commander 7.56a ExtremePack + PowerPack + LitePack 2010.12a 7.56a Final 20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277018.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ YouTube Video Downloader PRO 5.9.0 (20171128) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276974.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CCleaner 5.25.5902 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276937.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mozilla Firefox ESR 52.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276865.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ CCleaner 5.25.5902 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276852.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ MAGIX Vegas Pro 17.0.0.353 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276848.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Bat! Professional 7.4 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276820.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AIDA32 3.94.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276784.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VLC Media Player 2.2.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276757.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe Flash Player 24.0.0.186 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276744.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Adobe Flash Player 24.0.0.186 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276732.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DAEMON Tools Lite 10.5.0.221 Unlocked [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276730.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Cumulative Update KB4051033 for Windows 10 1607 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276707.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Acronis BootCD 10PE x86/x64 by naifle (30.11.2017) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276702.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Adobe Acrobat Pro DC 2018.009.20050 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276692.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mozilla Firefox 50.1.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276682.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Auslogics Disk Defrag Professional 4.8.1.0  RePack (& Portable) by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276664.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ OriginPro 2017 SR0 b 9.4.0.220 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276642.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ O&O ShutUp10 1.4.1386 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276641.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ KMS Tools Portable 06.12.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276629.jpg" />
 </div>
 
 

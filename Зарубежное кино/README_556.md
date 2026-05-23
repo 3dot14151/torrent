@@ -1,56 +1,3 @@
-###  Публикация: 1009758   (807580) от 22.04.2016
-
-Крампус / Krampus (2015) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-История о демоне, который во время Рождества выискивает непослушных детей, чтобы наказать их.Производство: США, Новая Зеландия / Legendary Pictures, Universal PicturesЖанр: ужасы, фэнтези, комедияРежиссер: Майкл ДогертиАктеры: Адам Скотт, Тони Коллетт, Дэвид Кокнер, Эллисон Толман, Кончата Феррелл, Эмджей Энтони, Стефания Оуэн, Криста Штадлер, Марк АткинПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, английский, болгарский, китайский, хорватский, чешский, эстноский, греческий, иврий, венгерский, индонезийский, корейский, латышский, литовский, польский, португальский, румынский, словенский, испанский, тайский, турецкий, украинскийПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598B34CDE66F5EC99A010FC2BB34CFBE463D288F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383814   (807572) от 17.05.2020
-
-Проект Даллас / The Dallas Connection (1994) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Четверо гениальных ученых работали над программой всемирного разоружения. Троих из них убивают, остается только один.
-Задание федеральных спецагентов — спасти ему жизнь и Землю. И сексапильная красотка — главный козырь в этом.Производство: США / atlas International Film, H.R.S. Funai Co. Ltd., Sidaris Entertainment, World Media SalesЖанр: БоевикРежиссер: Кристиан Дрю СидарисАктеры: Брюс Пенхалл, Марк Барриере, Джули Стрэйн, Родриго Обрегон, Саманта Филлипс, Джули К. Смит, Венди Хэмилтон, Джералд Окамура, Роланд Маркус, Кэссиди ФиллипсПеревод: Многоголосый профессиональный, авторскийСубтитры: Английские (SDH)Продолжительность: 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BA8D08106CA027B50139AA498314F0D7D8ECA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377967   (807571) от 17.05.2020
 
 Скалолаз / Cliffhanger (1993) BDRip [H.265/1080p] [10-bit] [Remastered]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807571.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807565.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807561.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807556.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_807475.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807472.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807468.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807467.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807463.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807436.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807435.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807434.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807431.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807428.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807223.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807181.jpg" />
 </div>
 
 
@@ -475,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807179.jpg" />
 </div>
 
 
@@ -501,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807124.jpg" />
 </div>
 
 
@@ -527,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807047.jpg" />
 </div>
 
 
@@ -553,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807020.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807018.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807013.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806960.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806950.jpg" />
 </div>
 
 
@@ -672,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:161C58A370E5BABA73BEC1FE6BB4F620737C5EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884385   (806938) от 03.04.2015
+
+Репли-Кейт / Repli-Kate (2002) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник лаборатории по клонированию Макс встретил "идеальную женщину" - красивую, умную и очень сексуальную репортершу Кейт. К его несчастью она не обращает внимания на упертых в науку "ботаников" типа Макса. Но ему совершенно случайно удается клонировать Кейт. На пару со своим приятелем Генри Макс превращает свою Репли-Кейт в совершенно потрясающую (   Читать дальше...   )Производство: Германия, США, Helkon Media AG, Zide-Perry Productions, Silver Nitrate PicturesЖанр: Фантастика, КомедияРежиссер: Фрэнк ЛонгоАктеры: Эли Ландри, Джеймс Родэй, Десмоннд Аскью, Юджин Леви, Райан Алосио, Тодд Роберт Андерсон, Курт Фуллер, Айми Аллен, Аманда Рейн, Мелисса Гринспен, Джастин Шилтон, Нед Броуер, Кент Дэвис, Эмилио Борели, Дэвид Кларк, Дженнифер Экхолс, Джоэль, Майкли, Кевин Бэйлдс, Джереми Попофф, Аллен Шелленбергер, Джордж АланПеревод: Многоголосый закадровый, Профессиональный - Екатеринбург-Арт
+Двухголосый закадровый, Профессиональный - R5Продолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6352F875FD969E3A42300E1833EC5E197F1552E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883453   (806789) от 03.04.2015
+
+187 / One Eight Seven (1997) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где обитают ублюдки? Учитель из Бруклина Тревор Гарфилд видит их каждый день в школе. Это готовые бандиты, от которых можно ждать чего угодно. Один из них из мести совершает попытку убить Гарфилда. После этого Гарфилд переезжает в Лос-Анджелес и оказывается в таком же дерьме. Когда его терпению пришел конец, он заставил подонков расплачиваться кровью за каждый совершенный (   Читать дальше...   )Производство: США | Icon Entertainmnet International, R U Dun ProductionsЖанр: Триллер, ДрамаРежиссер: Кевин РейнольдсАктеры: Сэмюэл Л. Джексон, Клифтон Коллинз, Тони Плана, Энтвон Тэннер, Ричард Рили, Келли Роуэн, Карина Арройяве, Лобо Себастьян, Джек Келер, Джона Руни, Деметриус Наварро, Эбони Моника Соломон, Джонни Богрис, Доминик ХоффманПеревод: Профессиональный двухголосый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92439197BF218FAECA53148974C399C20780E8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

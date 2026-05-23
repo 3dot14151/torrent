@@ -1,56 +1,3 @@
-###  Публикация: 1761685   (34804) от 08.12.2024
-
-Hear Clear / Услышать на расстоянии v1.1.9.1 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Небольшое приложение, призванное помочь улучшить восприятие речи слабослышащим. В наличии возможность записи с встроенного микрофона, микрофона наушников или BT-микрофона. В наличии несколько предустановок эквалайзера и настройка предусиления. Обработанные звукозаписи можно сохранять в памяти устройства.Тип издания: PremiumРелиз состоялся: 07.12.2024Разработчик: Ronasoft MediaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CD09CF7DB48238CDF72E7564A55939FFFBDF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764870   (34745) от 09.12.2024
-
-Яндекс Музыка, Книги, Подкасты PLUS 2024.12.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Яндекс.Музыку можно слушать онлайн и без интернета. Десятки миллионов треков в одном приложении.
-🔑 Активирована подписка Plus, удалена реклама, музыка в высоком качестве, работают тексты песен, поддержка arm7 и arm64 устройств.Тип издания: ModРелиз состоялся: 04.12.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C538E8E868E9E372EA4F92E43FA0912032C60351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764829   (34736) от 09.12.2024
 
 MiHome v9.10.700 Mod by Vevs [Ru]
@@ -59,7 +6,7 @@ MiHome v9.10.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34736.jpg" />
 </div>
 
 
@@ -88,7 +35,7 @@ Blasphemous 1.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34645.jpg" />
 </div>
 
 
@@ -117,7 +64,7 @@ PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34630.jpg" />
 </div>
 
 
@@ -143,7 +90,7 @@ Monument Valley 3 v1.0.14999 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34527.jpg" />
 </div>
 
 
@@ -171,7 +118,7 @@ Machinarium 3.1.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34444.jpg" />
 </div>
 
 
@@ -197,7 +144,7 @@ Kovoclak 1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34409.jpg" />
 </div>
 
 
@@ -223,7 +170,7 @@ Little Nightmares 124 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34354.jpg" />
 </div>
 
 
@@ -252,7 +199,7 @@ Age of History 3 1.035 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34334.jpg" />
 </div>
 
 
@@ -281,7 +228,7 @@ Very Little Nightmares 1.2.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34303.jpg" />
 </div>
 
 
@@ -309,7 +256,7 @@ Pine: A Story of Loss 1.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34289.jpg" />
 </div>
 
 
@@ -338,7 +285,7 @@ Meadowfell v1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34288.jpg" />
 </div>
 
 
@@ -366,7 +313,7 @@ The Abandoned Planet v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34282.jpg" />
 </div>
 
 
@@ -394,7 +341,7 @@ The Rise of the Golden Idol v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34279.jpg" />
 </div>
 
 
@@ -422,7 +369,7 @@ Death’s Door v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34274.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ Civilization VI: NETFLIX 1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34236.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ TV+ v2.0.2 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34212.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ Dune: Imperium Digital 2.1.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34208.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ Balatro 0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34206.jpg" />
 </div>
 
 
@@ -564,7 +511,7 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34141.jpg" />
 </div>
 
 
@@ -592,7 +539,7 @@ Trudograd 1.0.75 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34138.jpg" />
 </div>
 
 
@@ -620,7 +567,7 @@ Forgotten Memories: Remastered 1.9.102 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34118.jpg" />
 </div>
 
 
@@ -646,7 +593,7 @@ Conquistadorio v25 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34112.jpg" />
 </div>
 
 
@@ -672,7 +619,7 @@ GRIS 1.0.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34095.jpg" />
 </div>
 
 
@@ -700,7 +647,7 @@ Gomorrah v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34075.jpg" />
 </div>
 
 
@@ -714,6 +661,61 @@ Gomorrah v1.0.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DDB93201ED0B95AE5132A013EB8A9B84F9F441B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766004   (34071) от 15.12.2024
+
+Endling *Extinction is Forever 1.3.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сможет ли лиса-мать сохранить в живых своих маленьких детенышей?
+Испытайте мир, разоренный человечеством. Посмотрите на него глазами последней лисы на Земле в этом экологически сознательном приключении.
+Откройте для себя разрушительную силу человеческой расы, которая изо дня в день портит, загрязняет и эксплуатирует самые ценные ресурсы природной среды.
+Исследуйте (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 24 апр. 2023 г.Разработчик: HandyGamesПоддерживаемая ОС: Android 9+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CAA9AFE58816CCDF1F7C337AA6D79C0FF2FCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765868   (34060) от 15.12.2024
+
+Carrion 1.0.35 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34060.jpg" />
+</div>
+
+
+###  Подробнее
+
+CARRION — хоррор, в котором вам предстоит оказаться в роли хищника, аморфного существа неизвестного происхождения. Выслеживайте и пожирайте всех, кто причастен к вашему заточению, сея страх и панику в каждом уголке лаборатории. Растите, эволюционируйте и обретайте все новые сокрушительные способности на своем пути к свободе и кровавому возмездию.Тип издания: UnlockedРелиз состоялся: 19 нояб. 2024 г.Разработчик: DevolverDigitalПоддерживаемая ОС: Android 6.0+Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835B107DA44A61D7D5C87700F3AA62B7112B6BCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

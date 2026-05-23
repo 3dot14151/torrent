@@ -1,57 +1,3 @@
-###  Публикация: 1804403   (13046) от 29.06.2025
-
-Мульти Таймер Секундомер v2.13.11 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Мультитаймер — это настраиваемые интервальные таймеры и секундомеры, выполненные в отличном дизайне. Таймеры запускаются одновременно или по отдельности. Результаты секундомера можно сохранять.
-Используйте Мультитаймер для готовки, обучения, работы, игр и для всего другого, где он может вам помочь.Тип издания: PremiumРелиз состоялся: 27.06.2025Разработчик: LemonClipПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702EDF77B9441B463D7BB7F04698353F6D972B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804392   (13035) от 29.06.2025
-
-FixPlus — Редактор лица и тела v1.47.118 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-🌟 FixPlus — Ваш универсальный фоторедактор и ретушер селфи с ИИ 🌟
-Раскройте свою красоту с FixPlus — универсальным фоторедактором на базе ИИ, который помогает изменить форму тела, улучшить лицо, исправить выражения и создавать безупречные селфи за секунды.Тип издания: ProРелиз состоялся: 29.06.2025Разработчик: Photo Editor & Collage MakerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CC1B64EB3FE4510B160C0B6B7C8C68B91B1E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804618   (12978) от 30.06.2025
 
 One Read / Все Документы Читатель - Офис v1.2.4.48 Mod by vadj [Ru/Multi]
@@ -60,7 +6,7 @@ One Read / Все Документы Читатель - Офис v1.2.4.48 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12978.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ Sleep as Android: отличный сон v20250620 Mod by Alex.Strannik [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12791.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ inShot / Фото и видеоредактор v2.141.1494 Mod by Mixroot [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12664.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ SD Card Test Pro v2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12467.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ Happy Color® – игра раскраска v2.19.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12435.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ ByeByeDPI v1.5.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12409.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ Earth 3D v9.4.1 Mod by ApplicazioniCR [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12152.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ Karing 1.2.0.810 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12106.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.29 [Nightly] Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12076.jpg" />
 </div>
 
 
@@ -299,7 +245,7 @@ VN - Video Editor / VN - Видеоредактор v2.7.0 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11698.jpg" />
 </div>
 
 
@@ -325,7 +271,7 @@ AIDA64 v2.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11542.jpg" />
 </div>
 
 
@@ -351,7 +297,7 @@ Fake GPS v5.6.2 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11403.jpg" />
 </div>
 
 
@@ -377,7 +323,7 @@ Battery Guru: Monitor & Health v2.3.23 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11380.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ Umagic AI / ИИ Рисует v1.7.7 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10983.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10898.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10896.jpg" />
 </div>
 
 
@@ -482,7 +428,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso v14
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10886.jpg" />
 </div>
 
 
@@ -510,7 +456,7 @@ YouCut - Video Editor v1.680.1208 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10876.jpg" />
 </div>
 
 
@@ -536,7 +482,7 @@ NokoPrint v5.22.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10869.jpg" />
 </div>
 
 
@@ -563,7 +509,7 @@ Sketchbook v6.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10858.jpg" />
 </div>
 
 
@@ -590,7 +536,7 @@ ByeByeDPI v1.6.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10826.jpg" />
 </div>
 
 
@@ -616,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10797.jpg" />
 </div>
 
 
@@ -642,7 +588,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.21.6 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10794.jpg" />
 </div>
 
 
@@ -668,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10777.jpg" />
 </div>
 
 
@@ -680,6 +626,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABFCAEF78E7CDF33FF51B5E6277EAC024EECE4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808046   (10679) от 22.07.2025
+
+VK Музыка: песни и подкасты v8.0 Mod by VK Equals [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10679.jpg" />
+</div>
+
+
+###  Подробнее
+
+В VK Музыке можно слушать треки из ВКонтакте и ОК, найти интересные подкасты на русском языке и аудиокниги, включить любимое радио. Музыка без интернета: оформите подписку, скачайте песни прямо в приложении и слушайте офлайн.Тип издания: ModРелиз состоялся: 20.07.2025Разработчик: VK.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808210   (10618) от 23.07.2025
+
+Калькулятор Плюс v8.0.1 Pro Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я - Калькулятор Плюс, идеальный калькулятор для Android. Я прост в использовании, и благодаря оригинальному дизайну, я более удобен, чем классический калькулятор. Мне нравится экономить Вам время и работу. Я помню все Ваши вычисления, и всегда могу показать всю историю, что делает меня идеальным для суммирования квитанций, сведения балансов, и даже для подсчета налогов. (   Читать дальше...   )Тип издания: Pro / Paid / AntiSplitРелиз состоялся: 22.07.2025Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75A2F834DDE21AF6AB5920AA287929961753931
 ```
 
 https://mybot314.ru/tekegram_catalog/

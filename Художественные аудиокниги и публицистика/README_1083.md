@@ -1,85 +1,3 @@
-###  Публикация: 1802774   (14103) от 19.06.2025
-
-Анастасия Рубашевская | Норвегия изнутри. Как на самом деле живут в стране фьордов и викингов? (2023) [MP3,  Елена Калиниченко]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Норвегия – это страна, где природа, культура и история удивительным образом сочетаются и переплетаются. Это крупнейший в мире экспортер лосося и семги, а еще страна находится на втором месте по добыче нефти и природного газа в Европе. Норвежцы еще в XIX веке придумали лыжный спорт, а викинги-мореплаватели открыли Америку задолго до Колумба. Несмотря на во многом (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 11:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CC7046907A7B5C0D4C77FCD0048827C9E0ED51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802776   (14100) от 19.06.2025
-
-Катерина Нечунаева | Испания изнутри. Как на самом деле живут в стране фламенко и сиесты? (2025) [MP3,  Анна Османова]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Как много вы знаете об Испании?
-
-Испания – страна страсти, вкусной еды и вечной сиесты. Одной из причин, почему она известна на весь мир, является ее великолепное культурное наследие. Барселона с готическими кварталами и великолепными произведениями Антонио Гауди, Мадрид с потрясающими музеями мирового уровня, белые города Андалусии, арабская архитектура Кордовы (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD869F98FD9DC4F88EB2BF8CFE805AC620FFCBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802778   (14099) от 19.06.2025
-
-Ирина Мун | Южная Корея изнутри. Как на самом деле живут в стране k-pop и дорам? (2023) [MP3, Анастасия Портная]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Что мы знаем о Южной Корее?
-
-Кажется, что это таинственная и далекая азиатская страна, о которой мы почти ничего не знаем… Но скорее всего вы не раз слышали про музыку K-pop, смотрели дораму «Игра в кальмара» и фильм «Паразиты», пробовали кимчхи, тестировали патчи для глаз или пользовались продукцией компаний LG или Samsung. Да, все это появилось именно в Южной Корее! (   Читать дальше...   )Жанр: ПублицистикаИздательство: ЭксмоПродолжительность: 07:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B078E62429D2D31059660C111B6CF890ED0519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802772   (14095) от 19.06.2025
 
 Марина Чижова| Япония изнутри. Как на самом деле живут в стране восходящего солнца? (2023) [MP3, Анастасия Салова]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14095.jpg" />
 </div>
 
 
@@ -117,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14083.jpg" />
 </div>
 
 
@@ -145,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14079.jpg" />
 </div>
 
 
@@ -171,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14064.jpg" />
 </div>
 
 
@@ -198,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14054.jpg" />
 </div>
 
 
@@ -225,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14018.jpg" />
 </div>
 
 
@@ -251,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14006.jpg" />
 </div>
 
 
@@ -278,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14005.jpg" />
 </div>
 
 
@@ -304,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14002.jpg" />
 </div>
 
 
@@ -331,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13987.jpg" />
 </div>
 
 
@@ -357,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13982.jpg" />
 </div>
 
 
@@ -384,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13979.jpg" />
 </div>
 
 
@@ -410,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13933.jpg" />
 </div>
 
 
@@ -436,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13917.jpg" />
 </div>
 
 
@@ -462,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13911.jpg" />
 </div>
 
 
@@ -488,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13886.jpg" />
 </div>
 
 
@@ -514,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13871.jpg" />
 </div>
 
 
@@ -542,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13870.jpg" />
 </div>
 
 
@@ -568,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13782.jpg" />
 </div>
 
 
@@ -595,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13714.jpg" />
 </div>
 
 
@@ -621,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13682.jpg" />
 </div>
 
 
@@ -649,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13681.jpg" />
 </div>
 
 
@@ -675,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13679.jpg" />
 </div>
 
 
@@ -686,6 +604,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F79A737DEF727E26DE2FD735BCBFCA55C2048E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803509   (13678) от 23.06.2025
+
+Кристин Ханна | Женщины (2025) [MP3, Марина Лисовец]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытание войной и право на признание. Новый роман автора «Соловья»
+Новая пронзительная книга Кристин Ханны, автора знаменитых романов «Соловей», «Четыре ветра» и «Улица светлячков», уже ставшая главным американским бестселлером прошлого года.
+
+Главная героиня, двадцатилетняя Фрэнсис Макграт или просто Фрэнки, — прилежная студентка-медсестра из благополучной семьи, (   Читать дальше...   )Жанр: Современная зарубежная литератураИздательство: ВИМБОПродолжительность: 17:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82786F22468C67B24135621F06E0E158335DB941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803445   (13674) от 23.06.2025
+
+Екатерина Сафро | От Норвегии до Перу. История одного почти кругосветного путешествия (2025) [MP3, Саша Магерова]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы к захватывающему путешествию по миру?
+Присоединяйтесь к Екатерине Сафро и Денису Загорье, которые за 11 месяцев посетили более 20 стран и поделились своими увлекательными приключениями в дневниках – каждый из которых наполнен смехом, остроумием и невероятными открытиями!
+В 2014 году Екатерина Сафро вместе с Денисом Загорье, в рамках проекта «Мир для любви», (   Читать дальше...   )Жанр: Города и люди, Городские легендыИздательство: АСТПродолжительность: 10:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D344FC3DD0353759DFAB42314B461C30C4EB47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803517   (13672) от 23.06.2025
+
+Джозеф Шеридан Ле Фаню | Дом у кладбища (2025) [MP3, Артём Кухарев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13672.jpg" />
+</div>
+
+
+###  Подробнее
+
+В деревушке Чейплизод неподалеку от Дублина при выкапывании новой могилы на местном погосте обрушивается старое захоронение, обнаружившее необычную находку – треснувший череп с отверстием, похожим на пулевое. С этого момента спокойный темп деревенских дел и жизнь местных жителей навсегда меняется: разгадка давнего убийства и тайна личности жертвы ведет из 1810-х (   Читать дальше...   )Жанр: Зарубежная классика, Мистический детективИздательство: Аудиокнига(АСТ)Продолжительность: 26:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768419C6F605ADDBEB9E0BEFF600C85DEB6AEF04
 ```
 
 https://mybot314.ru/tekegram_catalog/

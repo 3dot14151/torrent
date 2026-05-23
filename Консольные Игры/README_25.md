@@ -1,109 +1,3 @@
-###  Публикация: 514804   (656306) от 25.06.2012
-
-[Xbox360] Brave: The Video Game [ENG] (XGD2) (RegionFree) [+KINECT] (2012)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Брось вызов судьбе и испытай свое сердце, отправившись в путешествие с принцессой Меридой и ее друзьями, чтобы снять проклятье и спасти королевство!
-
-Главная героиня игры и мультфильма Disney/Pixar «Храбрая сердцем» — дочь короля Шотландии Фергюса и королевы Элинор, искусная лучница Мерида. Девушка выбирает свой путь в жизни самостоятельно, и однажды, отказавшись следовать древним традициям, бросает вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому лорду Дингволлу. Неосторожные поступки Мериды грозят повергнуть королевство в хаос, и тогда она отправляется за советом к эксцентричной отшельнице. Однако та, вместо того, чтобы помочь, накладывает на девушку весьма опасное заклятье… Преодолеть могущественное волшебство будет очень непросто, и юной принцессе придется полагаться лишь на собственную храбрость.Тип издания: ЛицензияРазработчик: Disney Interactive StudiosЖанр: Action / AdventureЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C5532F7E482D229B971CF16F12886738C7182D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515778   (655156) от 26.06.2012
-
-[Wii] The Amazing Spider-Man [Multi 3][PAL][2012]
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Игроку предстоит перевоплотиться в Питера Паркера, паренька, которого укусил радиоактивный паук. Вы обретёте нечеловеческую силу, ловкость и способность бегать по стенам. В общем, судьба предрешена: надеваете яркий костюм, маску и отправляетесь вершить уличное правосудие. Известно, что игровая история начнётся с того момента, которым закончится фильм.Разработчик: BeenoxЖанр: action, adventureЯзык интерфейса: Multi 3 (EN, FR, ES)Формат: Образ в формате WBFS инструкция здесь!!!.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF471AFE5D4448A6DFEECD37B1AAB8B873AF81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435314   (654640) от 28.03.2022
-
-DOOM Eternal (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.23 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Хватай мощное оружие и отправляйся разносить в клочья новых и хорошо знакомых демонов, заполонивших неизведанные миры Doom Eternal. Прорывайся сквозь измерения и сокрушай всё на своём пути с невероятной силой и скоростью. Демоны разбегаются по сторонам, черти прячутся в котлах – тяжёлая поступь Палача Рока слышна даже в аду, где импам и ревенантам снятся кошмары (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action, ShooterЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D131C6E1295E7662C1F5E6330C95D6367EB65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139517   (654485) от 07.06.2017
-
-Dead Nation + Road of Devastation DLC (2014) [PSVita] [EUR] 3.60 [HENkaku] [PSN] [Ru/En]
-
->>Консольные Игры
->>PS Vita
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Dead Nation вас ждет встреча с огромными полчищами зловещих живых мертвецов. Сюжет игры повествует о распространении по планете неизвестного смертельного вируса, превращающего людей в ужасных зомби. Мир в опасности. По улицам, залитым кровью и усыпанным трупами, бродят толпы ненасытных мертвецов. Вся надежда на вас. Вы один из тех немногих, кто обладает иммунитетом (   Читать дальше...   )Тип издания: PSNРазработчик: Housemarque, Climax StudiosЖанр: Action, Shoot-'Em-Up.Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7B164FB370A1E05CF20C6A9C0C584153FDD0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 342914   (653030) от 01.06.2011
 
 NASCAR: The Game 2011 [Wii] [NTSC] [Eng] (2011)
@@ -112,7 +6,7 @@ NASCAR: The Game 2011 [Wii] [NTSC] [Eng] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653030.jpg" />
 </div>
 
 
@@ -138,7 +32,7 @@ LEGO Star Wars: The Force Awakens / LEGO Звездные войны: Пробу
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652961.jpg" />
 </div>
 
 
@@ -164,7 +58,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Xbox360] [RegionFree]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652951.jpg" />
 </div>
 
 
@@ -190,7 +84,7 @@ Test Drive: Ferrari Racing Legends (2012) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652793.jpg" />
 </div>
 
 
@@ -216,7 +110,7 @@ YouTube v.1.11 для PS3 (2015) [PS3] [Repack]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652774.jpg" />
 </div>
 
 
@@ -243,7 +137,7 @@ Batman: Arkham City Armored Edition / Batman: Arkham City Armoured Edition (2012
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650907.jpg" />
 </div>
 
 
@@ -271,7 +165,7 @@ Ice Age 4: Continental Drift - Artic Games [Wii] [PAL] [Multi 6] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650789.jpg" />
 </div>
 
 
@@ -298,7 +192,7 @@ Battlefield Hardline (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650649.jpg" />
 </div>
 
 
@@ -326,7 +220,7 @@ Bassmaster Fishing 2022 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.19] [Ru/Multi
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650355.jpg" />
 </div>
 
 
@@ -352,7 +246,7 @@ LEGO Star Wars: The Force Awakens / LEGO Звездные войны: Пробу
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649013.jpg" />
 </div>
 
 
@@ -378,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648982.jpg" />
 </div>
 
 
@@ -404,7 +298,7 @@ ExerBeat: Gym Class Workout [Wii] [PAL] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648967.jpg" />
 </div>
 
 
@@ -432,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648927.jpg" />
 </div>
 
 
@@ -461,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648924.jpg" />
 </div>
 
 
@@ -491,7 +385,7 @@ Cave Story [WiiWare] [RegionFree] [RUS] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648854.jpg" />
 </div>
 
 
@@ -519,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648800.jpg" />
 </div>
 
 
@@ -547,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648782.jpg" />
 </div>
 
 
@@ -575,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647419.jpg" />
 </div>
 
 
@@ -601,7 +495,7 @@ Trilogy Agarest: Generations of War 1, Zero, 2 (2009-2012) [PS3] [EUR] 2.76, 3.6
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646796.jpg" />
 </div>
 
 
@@ -629,7 +523,7 @@ Lego Jurassic World / LEGO Мир Юрского Периода (2015) [PS4] [EU
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646433.jpg" />
 </div>
 
 
@@ -655,7 +549,7 @@ Madagascar Kartz [Multi5] [PAL] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644811.jpg" />
 </div>
 
 
@@ -681,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644556.jpg" />
 </div>
 
 
@@ -695,6 +589,114 @@ Ratchet & Clank — это серия игр жанра платформер, р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC562CFF46FE19E073530CFB229A9E66462C398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518269   (642746) от 03.07.2012
+
+[PS2] Bloody Roar 4 [Мультиязычный] (2003)
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloody Roar 4 — четвёртая часть серии консольных файтингов от компаний Eighting/Hudson Soft. Игра единственная в серии получила рейтинг M из-за наличия крови в игре. Эта игра стала последней из игр серии выпущенных на PlayStation 2.
+Игра стала еще более кровавой, мрачной и жестокой. К 14 персонажам, пришедшим из предыдущих частей, добавилось еще трое. Для каждого из бойцов написана собственная история и, разумеется, неизменной осталась фирменная черта сериала: возможность превращать бойцов в свирепых животных.Жанр: FightingЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA9366E956B1D528FE9227A55A5840B5B2B126D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518569   (642434) от 03.07.2012
+
+[PS2] Twisted Metal Black [RUS] (2001)
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоигра в жанре гонок на выживание, разработанная компанией Incog Inc. Entertainment в 2001 году. Первая игра в серии, вышедшая на PlayStation 2.
+Основной сюжетной линией игры является турнир, и ставка на этом турнире, не много не мало - жизнь… Побороться за главный приз съезжаются самые отъявленные бандиты и маньяки, ищущие новых жертв, убийства и крови, герои, грезящие славой, и отвергнутые жизнью люди, жаждущие мести… В этой битве насмерть выживет только один, только один получит главный приз, побороться за который стоит, даже ценой собственной жизни… Уникальная по своей красоте графика не оставит равнодушными даже далеких от таких мрачных игр людей. Огромное количество всеразличных интерактивных объектов на уровнях, интересное освещение и озвучание показывают истинную мощь движка игры. Высококачественный продукт, не имеющий себе равных. Гениальное творение современной игровой индустрии, достойное продолжение легендарной серии.
+Oтличное звуковое сопровождение и достойная графика.
+Окунитесь с головой в жестокую (   Читать дальше...   )Жанр: Гонки на выживаниеЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7D68C087C238BF6535879F3823A2CDDB47EA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541733   (642255) от 04.04.2022
+
+PAW Patrol The Movie: Adventure City Calls / Щенячий патруль в кино: Город приключений зовет (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой город - большие приключения! Когда Райдер и Щенячий патруль узнают, что мэр Хамдингер захватил шумный мегаполис, они должны броситься в бой, чтобы спасти Город приключений от его эгоистичных планов. Щенкам нужно, чтобы ВЫ присоединились к Четырехлапой команде! Итак, Город приключений, вот и мы! Станьте своими любимыми щенками, включая Чейза, Скай, Маршала (   Читать дальше...   )Тип издания: LicenseРазработчик: DRAKHAR STUDIOЖанр: AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D914A8BBD95B05D2457EFD78B274ACB315803134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680618   (642118) от 17.07.2013
+
+Cocoto Festival [Wii] [PAL] [Multi 5] (2009)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642118.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре  Cocoto Festival вы обнаружите до 150 совершенно новых игр-стрелялок с возможностью совместной игры до 4 человек одновременно. С новым аксессуаром, эксклюзивной винтовкой Wii™, вам останется только наслаждаться  этой лёгкой, быстрой и забавной игрой.Разработчик: Neko Entertainment, Kylotonn EntertainmentЖанр: Party/ShooterЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: WBFS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B34236CC423E2C8047BB95E6A517E1BE59712BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

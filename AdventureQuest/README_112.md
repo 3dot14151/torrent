@@ -1,29 +1,3 @@
-###  Публикация: 1807854   (10830) от 21.07.2025
-
-Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в кошмарный мир "Who's at the door?", захватывающего симулятора ходьбы и приключения, где вы оказываетесь запертым в маленьком доме, страдая от психоза и потеряв память. Это не просто игра, это испытание вашей психики, где грань между реальностью и галлюцинациями размывается до предела. Вам предстоит внимательно исследовать окружение, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: SKONEC EntertainmentЖанр: Приключенческие игры, Инди, СимуляторыЯзык озвучки: Английский, Корейский, Японский, Китайский и другиеЯзык субтитров: Русский, Английский, Корейский, Французский и другиеЯзык интерфейса: Русский, Английский, Корейский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D31EDE953341080D64AB1C224BC6CEBDD1B4C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550250   (10736) от 22.07.2025
 
 Them and Us (2021) [Ru/Multi] (1.1.2/dlc) License GOG [Bundle]
@@ -32,7 +6,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) License GOG [Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10736.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.17) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10669.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10506.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ to a T (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10474.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dread: The Cold Case (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10436.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10290.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10266.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10195.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10176.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Laser Tag Massacre (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10153.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10147.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9979.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Luto (2025) [Ru/Multi] (Build 19401226) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9905.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9826.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Girls Made Pudding (2025) [Multi] (1.2.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9775.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9774.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9762.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9695.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9614.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9612.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9606.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9581.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9571.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9525.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9508.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ South of Midnight - новое приключение от Compulsion Games. П�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7626BCD80209CDD9A6EDBDB4CDE722D4951CF980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785115   (9501) от 03.08.2025
+
+Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9501.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей культового хита Scratches и мистической Serena - новое леденящее душу путешествие в самые тёмные глубины вашего разума. ASYLUM - это амбициозное хоррор-приключение от первого лица, погружающее вас в психоделическую атмосферу Психиатрической Лечебницы Ханвелл. В роли бывшего пациента, страдающего от странных видений, вам предстоит исследовать запутанную (   Читать дальше...   )Тип издания: LicenseРазработчик: SenscapeЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F2D47C86267001A451237FDFC72D13DF8F09AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

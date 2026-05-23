@@ -1,56 +1,3 @@
-###  Публикация: 622206   (959836) от 22.02.2013
-
-Мужчина нарасхват / Playing for Keeps (2012) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Звезда футбола и просто шикарный мужчина по воле случая становится тренером детской футбольной команды. С этого момента для своих подопечных и их обольстительных мамочек он — «Мужчина нарасхват»…Производство: США | Eclectic Pictures, Evil Twins (I), Millennium FilmЖанр: Мелодрама, КомедияРежиссер: Габриэле МуччиноАктеры: Джерард Батлер, Джессика Бил, Ума Турман, Кэтрин Зета-Джонс, Деннис Куэйд, Ной Ломакс, Джеймс Таппер, Джуди Грир, Абелла Уайсс, Грант ГудманПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH)Продолжительность: 01:45:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747766   (959554) от 21.01.2014
-
-Шестой день / The 6th Day (2000) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-В начале третьего тысячелетия самым суровым законом стал «закон Шестого дня». Он запрещал клонирование людей и создание искусственных копий человека. Но огромная подпольная империя вопреки запрету выращивает человечество нового будущего, сотни управляемых теней.
-Налаженная машина преступления не давала сбоев, пока в ее совершенный механизм не вмешалась случайность: (   Читать дальше...   )Производство: США/ Phoenix PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Роджер СпоттисвудАктеры: Арнольд Шварценеггер, Майкл Рапапорт, Тони Голдуин, Майкл Рукер, Сара Уайнтер, Венди Крюсон, Родни Роулэнд, Терри Крюс, Кен Поуг, Роберт ДюваллПеревод: Дублированный (Невафильм, 2000)Продолжительность: 02:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725F435028325EEEAD5615BBE72D542098B47448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 748033   (959549) от 21.01.2014
 
 Александр / Alexander (2004) BDRip [720p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959549.jpg" />
 </div>
 
 
@@ -87,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959538.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959531.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959526.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959525.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959509.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959485.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959483.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959481.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ Starперцы / Last Vegas (2013) BDRemux [1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959470.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959426.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959425.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959424.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959421.jpg" />
 </div>
 
 
@@ -426,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959388.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959387.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959386.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959384.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959378.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959377.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959375.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959372.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959304.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959302.jpg" />
 </div>
 
 
@@ -677,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA61CD22701CAD94F60624AEDDD57F8D3D408A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360563   (959293) от 16.02.2020
+
+Дэниел ненастоящий / Daniel Isn`t Real (2019) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё будучи ребёнком из-за одиночества и всё время ругавшихся родителей Люк стал дружить с мальчиком Дэниелом. Они весело проводили время и постоянно играли, вот только кроме самого Люка Дэниела никто не видел. Однажды воображаемый друг предложил подмешать маме таблеток, после чего та велела сыну запереть Дэниела в кукольном домике и не выпускать. Прошло несколько (   Читать дальше...   )Производство: США / SpectreVision, Ace Pictures (II), ACE Pictures EntertainmentЖанр: триллер, фэнтезиРежиссер: Адам Иджипт МортимерАктеры: Майлз Роббинс, Патрик Шварценеггер, Эндрю Айала, Эндрю Бриджес, Кэти Чанг, Майкл Куомо, Гриффин Роберт Фолкнер, Джамар Грин, Жаклин Хонулик, Чаквуди ИвуджиПеревод: Любительский одноголосый (ХиХиДок)Субтитры: Русские, английскиеПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D8160D7619FEEB834F46479CFFDDC32FE09BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622310   (959208) от 23.02.2013
+
+Вишенка на новогоднем торте / La cerise sur le gateau (2012) [H.264/720p-LQ] HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аманда уверена — с мужчинами всегда все слишком сложно! Ее подруга считает, что Аманде пора остепениться и сделать, наконец, окончательный выбор, а психоаналитик ставит ей неутешительный диагноз: «Мадам-катастрофа», которая убивает все свои романы, едва они начинают стремиться к обручальным кольцам. Но даже женщина, которая упорно отказывается стать счастливой, не застрахована от случая. Само провидение ставит точку в ее сомнениях, словно кладет последнюю вишенку на торт.Жанр: КомедияРежиссер: Лаура МорантеПродюсер: Франческо Джиамматтео, Бруно Песери, Сара БенольеАктеры: Лаура Моранте, Паскаль Элбе, Изабель Карре, Самир Гесми, Патрис Тибо, Фредерик Пьеро, Лусилия Клеман, Эннио Фантастичини, Ванесса Ларре, Жорж КлэссПеревод: Профессиональный (Многоголосый)Формат: MKVПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF867A949B4E1178687BA6E42FC46271B1A3AC2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

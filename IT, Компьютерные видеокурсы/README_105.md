@@ -1,248 +1,3 @@
-###  Публикация: 1689558   (124722) от 02.01.2024
-
-IAmTimCorey, Tim Corey | C# Mastercourse (2023) WEB-DL [EN]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-C# - это язык программирования, используемый для создания приложений для веба, мобильных устройств, настольных компьютеров и в играх. Мир функционирует на приложениях. Изучая C#, вы осваиваете навык, который миру нужен прямо сейчас. Если вы знаете C#, то варианты карьеры практически безграничны.
-
-Мастер-курс по C# от Тима Кори разработан, чтобы перевести вас из начинающего (   Читать дальше...   )Производство: IAmTimCoreyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 70:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB8BDBDE6D6D1DE2A3AC0161796B3DCD614F1E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689515   (124706) от 02.01.2024
-
-Udemy, Virtual Pair Programmers, Richard Chesterwood, Prageeth Warnak | Kubernetes Hands-On - Deploy Microservices to the AWS Cloud (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Kubernetes в настоящее время является одной из самых актуальных тем, и инженеры, обладающие навыками работы с Kubernetes, пользуются большим спросом. Получите эти навыки с помощью этого курса! Это отличная возможность поработать над реальным проектом Kubernetes и достичь высокого профессионального уровня на настоящих проектах.
-На протяжении всего курса вы будете (   Читать дальше...   )Производство: Udemy, Virtual Pair ProgrammersЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 28:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1CA8B4F57019093E42698C0DBF0D74C4D0DA45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690348   (124125) от 06.01.2024
-
-Вадим Сайфутдинов | Chat GPT и 1С (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-ChatGPT (от англ. Generative Pre-trained Transformer «генеративный предварительно обученный трансформер») — чат-бот с генеративным искусственным интеллектом, разработанный компанией OpenAI и способный работать в диалоговом режиме, поддерживающий запросы на естественных языках.
-Пошаговая система обученияЖанр: Обучающий миникурсЯзык озвучки: РусскийПродолжительность: 01:21:42Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864586A3AB5FB7EE7FD9474BE3134DBE3505F35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690345   (124119) от 06.01.2024
-
-Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользователь Excel (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Станьте мастером Excel, изучая продвинутые возможности программы на реальных примерах вместе с Excel практиком. В ходе этого курса вы научитесь пользоваться продвинутыми Excel инструментами, которые превращают Excel из обычной программы электронных таблиц в мощный инструмент динамического анализа. Я научу вас осуществлять на практических примерах ваши идеи и замыслы, (   Читать дальше...   )Производство: StepikЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 06:18:51Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FD9E9AD5C36EF161C3628E097F7946E24164A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690680   (123894) от 08.01.2024
-
-Онлайн школа RealManual, Василий Егоров | Gitlab-CI - только практика (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Разберем конвейер для CI\CD процессов, хранение и версионирование кода, сборку имеджей для докера, а так же реальные кейсы из жизни без лишней воды и теории.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 04:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02150E638B262165D520CCFF497446D5818C395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690742   (123893) от 08.01.2024
-
-Stepik, Renat Lotfullin | Excel VBA – Программирование макросов в Excel  (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-xcel VBA – Программирование макросов в Excel. Stepik. Ренат Лотфуллин.
-Автоматизируйте сложные задачи с помощью Microsoft Excel VBA и Excel макросов, улучшайте рабочие процессы и экономьте время при создании проектов Excel. Пройдите путь от новичка до эксперта по Microsoft Excel VBA
-Чему вы научитесь
-    ✅Улучшить свои текущие файлы Excel и автоматизировать свою (   Читать дальше...   )Производство: StepikЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 10:01:44Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690699   (123867) от 08.01.2024
-
-Онлайн школа RealManual, Василий Егоров | Vault: пароли под защитой (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Друзья, сегодня стартует предзаказ на новый курс по Hashcorp Vault.
-На котором мы рассмотрим правильное хранение паролей, на практике разберем использование за пределами кластера k8s и много интересного.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B84A5284D4A7D396E48D08C9FB614371F8414E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690703   (123866) от 08.01.2024
-
-Онлайн школа RealManual, Василий Егоров | Loki: не ври, что логов нет (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Чему вы научитесь на курсе:
-    ✅Разворачивать систему логирования
-    ✅Настраивать хранение логов
-    ✅Запускать сборщики логов на хостах(   Читать дальше...   )Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690592   (123850) от 08.01.2024
-
-Linkedin Learning, Liam Cleary | Metasploit Essential Training (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-As a security or IT professional, you need to know how to check security within your environment, and one of the most commonly used tools available is Metasploit. It lets you conduct basic security checks, full assessments, and penetration testing so you can avoid becoming the target of an attack. Join instructor Liam Cleary to learn how and why you should add Metasploit (   Читать дальше...   )Производство: Linkedin LearningЖанр: обучающее видеоЯзык озвучки: АнглийскийПродолжительность: 04:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DF3519DDA118E754581B3B62AA4BE9E1E418DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690669   (123840) от 08.01.2024
 
 Элеонора Сазонова  | Видеоуроки по программе Power Point (2023) WEB-DL [AD] [RU]
@@ -251,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123840.jpg" />
 </div>
 
 
@@ -280,7 +35,7 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123192.jpg" />
 </div>
 
 
@@ -306,7 +61,7 @@ IAmTimCorey, Tim Corey | Blazor From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123165.jpg" />
 </div>
 
 
@@ -332,7 +87,7 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123163.jpg" />
 </div>
 
 
@@ -358,7 +113,7 @@ SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123142.jpg" />
 </div>
 
 
@@ -386,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123018.jpg" />
 </div>
 
 
@@ -415,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123016.jpg" />
 </div>
 
 
@@ -441,7 +196,7 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123015.jpg" />
 </div>
 
 
@@ -467,7 +222,7 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123014.jpg" />
 </div>
 
 
@@ -493,7 +248,7 @@ Stepik, Глеб Учитель | Проектирование архитект�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123010.jpg" />
 </div>
 
 
@@ -519,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123005.jpg" />
 </div>
 
 
@@ -545,7 +300,7 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122992.jpg" />
 </div>
 
 
@@ -574,7 +329,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122984.jpg" />
 </div>
 
 
@@ -601,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122692.jpg" />
 </div>
 
 
@@ -630,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122669.jpg" />
 </div>
 
 
@@ -658,7 +413,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122399.jpg" />
 </div>
 
 
@@ -687,7 +442,7 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122299.jpg" />
 </div>
 
 
@@ -699,6 +454,250 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31818A1D662CD15D5A00491A1C06D804BD28DCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692789   (122296) от 18.01.2024
+
+education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122296.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 модулей курса, в которых более 30 уроков и обширная база знаний
+Модуль 0. "Вводный модуль"
+Модуль 1. "Excel и Google таблицы для эффективной работы"
+Модуль 2. "Формулы в Excel"(   Читать дальше...   )Производство: education.empireschoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:00:34Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BCFDB7A8309CB7649C510D4C549976BB2AB078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692786   (122257) от 18.01.2024
+
+Net Ninja | TypeScript Masterclass (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122257.jpg" />
+</div>
+
+
+###  Подробнее
+
+TypeScript - это строго типизированный язык программирования, построенный на основе JavaScript, с добавленными дополнительными функциями, в первую очередь возможностью добавлять типы к значениям.
+
+Он предоставляет множество преимуществ, которых нет в одном лишь JavaScript, включая хорошую обратную связь об ошибках во время разработки, улучшенное автозаполнение и (   Читать дальше...   )Производство: Net NinjaЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 05:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC5422D89C39F9558C2F2A1ED641B1247B26193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692784   (122201) от 18.01.2024
+
+WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс "Протоколы WebRTC высшего уровня" предназначен для более глубокого изучения работы WebRTC. В некотором роде это продолжение нашего курса "Протоколы WebRTC низкого уровня" и рассчитан на то, чтобы пройти его после. Здесь мы погрузимся в протоколы, используемые поверх RTP и RTCP, которые служат для управления и организации доставки медиаконтента (   Читать дальше...   )Производство: WebRTCcourseЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 05:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7354DEC1F08F6BA4C2C9B9758E2A594676ED02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693125   (122064) от 19.01.2024
+
+Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer (2022) WEB-DL [AD] [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122064.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧТО ТАКОЕ МАСТЕР-КЛАСС ОБС 2021?:
+Высокоэффективный мастер-класс, предназначенный для того, чтобы познакомить вас с бесплатной и мощной программой под названием Open Broadcaster Software. Курс состоит из 4 очень простых для понимания модулей, которые шаг за шагом проведут вас от абсолютного новичка к созданию вашего первого видео в OBS.
+
+ДЛЯ КОГО МАСТЕР-КЛАСС ОБС (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: Английский, РусскийПродолжительность: 02:19:54Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196933611D20146BDC9109641C55A5EBF42AD440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693275   (121968) от 20.01.2024
+
+Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в курс по Kubernetes. В этом курсе вы получите глубокое понимание и практический опыт работы с Kubernetes. Kubernetes сейчас является де-факто стандартом для развертывания контейнеризированных приложений в production среде и является обязательным инструментом для всех DevOps-инженеров и разработчиков программного обеспечения, которые хотят научиться (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 05:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C761E6BEBF2562AAF69F62335FAC34B67E536B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693491   (121934) от 20.01.2024
+
+Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121934.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Продвинутый Front End" - это обширный курс от Гэри Саймона, посвященный созданию динамичных интерактивных лендингов. В курс входит работа с JavaScript, GSAP и Three.js, начиная от простых анимаций до сложных проектов. Курс включает практические задания и итоговый проект, целью которого является повышение навыков веб-разработки на 2024 год.Жанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 08:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF39EC3037FA7D450221414CF1ED25AF1CCE2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693587   (121793) от 21.01.2024
+
+Udemy, D&A Programming | Программирование в Scratch с 6 лет, от 0 до создания игры (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программирование стало доступным каждому. Программирование - это творческий процесс, и удовольствие от него - вот настоящий залог будущего успеха. Программирование в Scratch - это не скучные  и 1 с уроков информатики. В среде обитают свои персонажи, а код складывается как конструктор из блоков. Написание кода происходит с помощью перетягивания блоков-команд из списка (   Читать дальше...   )Производство: UdemyЖанр: программирование, видеоурок, ScratchЯзык озвучки: русскийПродолжительность: 03:48:04Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF914864F673DEAA48CA197E3D29CA2A8669637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693738   (121782) от 21.01.2024
+
+Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы задумываетесь над тем, чтобы сменить сферу деятельности, но не уверены до конца, куда всё таки попадёте, с чем придётся работать и в целом что делает дизайнер интерфейсов – этот курс поможет вам немного погрузиться в работу дизайнера и точно понять, ваша эта сфера или нет. Курс охватывает не только базовые понятия и принципы дизайна, но и приоткрывает завесу (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:01:19Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583AAF223089C4DB408902907FDD1378427434DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693745   (121640) от 22.01.2024
+
+Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте потенциал React Native и создайте впечатляющие приложения для iOS и Android с помощью этого полного курса. Независимо от того, новичок вы или опытный разработчик, этот курс предназначен для того, чтобы оснастить вас навыками и знаниями, необходимыми для создания надежных мобильных приложений с использованием React Native.
+
+В разделе "Начало работы" (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 19:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A54298BCBE8276390ADD42EB7D866EAEC26580
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Shiranpuri / Minding My Own Business [2012, TV-special] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892971.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892016.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Musekinin Kanchou Tylor | The Irresponsible Captain Tylor | Безответст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891911.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891769.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891535.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Housekishou Richard-shi no Nazo Kantei | The Case Files of Jeweler Richard | З�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891526.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ ID:Invaded | ID: Вторжение [2020, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891325.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Aria The OVA: Arietta | Ария OVA-1 [2007, OVA] BDRip 716p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890845.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Aria The Natural | Ария (второй сезон) [TV-2][2006, TV, 26 эп. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890830.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Aria The Origination | Ария (третий сезон) [TV-3][2008, TV, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890753.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Golden Time / Золотая пора [2013, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890752.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Aria The Animation | Ария (первый сезон) [TV-1][2005, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890719.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890536.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Denpa Onna to Seishun Otoko | Радиосигнал от чудачки, Юно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890514.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890419.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Ijiranaide, Nagatoro-san | Don't Toy With Me, Miss Nagatoro | Не издева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890411.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890406.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Gekijouban Blood-C: The Last Dark / BLOOD-C: Последний Тёмный [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890216.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Aria the Avvenire | Ария: Будущее [2015, OVA, 3 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890194.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ixion Saga: Dimension Transfer / ИКСИОН САГА: Пространстве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889990.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Kud Wafter | Куд Вафтер [2020, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889178.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Uchuu Senkan Yamato 2199 | Star Blazers 2199 | Space Battleship Yamato 2199 | К
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889135.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Aria the Crepuscolo | Ария: Сумерки [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889013.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, Web, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888586.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Jashin-chan Dropkick | Dropkick on My Devil! | Пинок с наскока Дз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888427.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 1219010   (717020) от 12.04.2018
-
-Все святые / All Saints (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает правдивую историю о бывшем продавце Майкле, который стал пастырем. Его первым заданием на новом поприще становится поездка в провинциальный городок в Теннесси, где ему нужно закрыть одну маленькую церковь. Если он успешно справится с заданием, то будет переведён в церковь в большом городе, и это назначение нужно и ему и его семье. Однако с виду (   Читать дальше...   )Производство: США, Affirm Films, Provident FilmsЖанр: ДрамаРежиссер: Стив ГомерАктеры: Кара Буоно, Бэрри Корбин, Джон Корбетт, Дэвид Кит Грегори, Алан Уильямс, Патрик Джонсон, Шонда Пирс, Джессиджеймс Локоррьер, Нельсон ЛиПеревод: Многоголосый закадровый, профессиональный (Лицензия)Субтитры: отсутствуют.Продолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEA3F251890565A111FA998C668B910B5AD2B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400662   (716993) от 06.08.2020
-
-Возвращение сестры уличного бойца / Kaette kita onna hissatsu ken / Return of the Sister Street Fighter (1975) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Исчезает Сурей, давняя подруга Корю. Детектив Со просит Корю отправиться в Йокогаму и поговорить с Сьюзи Вон, которая работает в клубе Империя и которая последней видела Сурей. Корю незамедлительно следует в Йокогаму и вступает в противоборство с бандой контрабандистов золота.Производство: Япония, Toei TokyoЖанр: Боевик, криминалРежиссер: Кадзухико ЯмагутиАктеры: Эцуко Сихоми, Акане Кавасаки, Меи-Хо Чанг, Мива Чо, Митчи Лове, Дзиро Чиба, Ринъити Ямамото, Масаси Исибаси, Шоичи Сакагучи, Акеми ХаякаваПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C276B011D34658CFFE40721E9383FB21636ED343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 892809   (716966) от 27.04.2015
 
 Восставший из ада: Откровения / Hellraiser: Revelations (2011) BDRip [H.264/720p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716966.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716964.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716915.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716914.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716907.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716905.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716903.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716902.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716853.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716850.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716841.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716833.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716831.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716830.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716829.jpg" />
 </div>
 
 
@@ -458,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716828.jpg" />
 </div>
 
 
@@ -484,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716827.jpg" />
 </div>
 
 
@@ -511,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716724.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716720.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716717.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716693.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716692.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716691.jpg" />
 </div>
 
 
@@ -669,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716615.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB207856F1F03C4BEC410229FC9F52A7E3CB5177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400461   (716609) от 06.08.2020
+
+Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [H.264/720p] [TWN Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексика. Милая девушка Даниэла Рамос, а для друзей просто Дани, вместе с братом приходит с утра работать на завод, но там выясняется, что их вскоре заменят автоматикой. И это не единственная угроза, которую представляют для девушки машины: тут же на неё нападает присланная из будущего и практически неубиваемая модель терминатора REV-9. Но на защиту Дани встает Грэйс (   Читать дальше...   )Производство: США, Китай / Paramount Pictures, Twentieth Century Fox, Skydance MediaЖанр: Фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Линда Хэмилтон, Арнольд Шварценеггер, Маккензи Дэвис, Наталия Рейес, Гэбриел Луна, Диего Бонета, Алисия Боррачеро, Энрике Арсе, Стивен Кри, Ферран ФернандесПеревод: Дублированный, авторскийСубтитры: Русские (Forced, full),  английские (Forced, full)Продолжительность: 02:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFC877A48EB41BA5500FA49E2AAEF69EF1DEA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532074   (716494) от 18.02.2022
+
+Гамера против Дзигэра / Гамера против Джайгера / Gamera tai Daimaju Jaiga / Gamera vs. Jiger (1970) BDRip [H.264/720p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1970 год. Мировым сообществом решено провести всемирную выставку Экспо-70 в Японии. На выставке будут представлены различные достижения науки и промышленности. Также там найдут себе место древние реликвии и артефакты. В их числе - Дьявольский свисток. Эта огромная статуя была обнаружена на острове Вестер. Однако, когда статую увезли с острова, там внезапно началось (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: фантастика, боевик, приключения, семейныйРежиссер: Нориаки Юаса, Сигэо ТанакаАктеры: Цутому Такакува, Келли Варис, Кэтерин Мерфи, Кон Омура, Дзюнко Ясиро, Франц Грубер, Рё Хаями, Идзуми Умэносукэ, Акира НацукиПеревод: Одноголосый любительский (Emslie)Язык озвучки: Русский, японскийСубтитры: русские, английскиеПродолжительность: 1:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3733115E340037CE5EE6159CA434EE91FDE31EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

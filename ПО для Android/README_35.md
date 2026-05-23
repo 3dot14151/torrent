@@ -1,57 +1,3 @@
-###  Публикация: 1366614   (922026) от 12.03.2020
-
-MyScript Calculator II 2.1.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Calculator 2 превратить ваше устройство в интерактивный лист бумаги. Просто записывайте вычисления и сразу получайте результаты. Используйте жесты редактирования и добавляйте новые элементы в любом месте. Используйте результаты предыдущих вычислений, перетаскивая их. Calculator 2 обрабатывает все ваши действия на лету.
-
-В основе Calculator 2 лежит технология MyScript (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13 февраля 2019 г.Разработчик: MyScriptПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04FB38FC6E24C0B6086D59D66253FDD2B5290F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366605   (922011) от 12.03.2020
-
-Magic DosBox v1.0.79 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-DosBox - высоко оптимизированный и быстрый эмулятор MS-DOS для Android с уникальной системой управления для воспроизведения в любом месте вы находитесь без необходимости внешнего оборудования. Играть в любимые игры для DOS и Windows теперь стало намного проще. Если играть на сенсорном экране вам не удобно, то в DosBox имеется поддержка геймпадов, мыши, клавиатуры. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.09.2019Разработчик: bruenorПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE3C8E7E28464AD88D3726C427347070B15D5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366642   (921986) от 12.03.2020
 
 Ghost Commander File Manager + All Plugins v1.56.2B2 [En]
@@ -60,7 +6,7 @@ Ghost Commander File Manager + All Plugins v1.56.2B2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921986.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ Happy Color – Color by Number v2.2.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920574.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ WiFi Analyzer Premium v1.3 build 8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920134.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920133.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ XRecorder Pro 1.2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920082.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ GameKeyboard + v6.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919126.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ Groovepad - Music & Beat Maker v1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918977.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918970.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918966.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918862.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918853.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918756.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918492.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ ProCam X (HD Camera Pro) 1.16 (Paid) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917096.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ PhotoPills v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915776.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ SimpleRockets 2 v0.9.205 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915672.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ DraStic DS Emulator vr2.5.2.0a build 101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915668.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ AIDE Premium Key v3.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915543.jpg" />
 </div>
 
 
@@ -529,7 +475,7 @@ App Cloner v2.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915526.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915404.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ Apex Launcher Pro v4.7.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915380.jpg" />
 </div>
 
 
@@ -607,7 +553,7 @@ Screen Stream Mirroring v2.5.4e [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915374.jpg" />
 </div>
 
 
@@ -633,7 +579,7 @@ LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Ф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915283.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915270.jpg" />
 </div>
 
 
@@ -673,6 +619,59 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DEB5AB7BF8DA73590D395814E5E44956CB65C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367358   (915229) от 16.03.2020
+
+Sci-Fi Launcher Pro v2.8.8 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sci-Fi Launcher Pro позволит вам почувствовать себя самым настоящим профессиональным хакером. Множество встроенных команд и настроек обеспечат вам доступ ко многим возможностям. Мгновенно найти нужное приложение или контакт телефона поможет тема Aris. Можно не только находить, но и удалять, перемещать, читать информацию о приложении, контакте, отключать поиск, добавлять (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.03.2020Разработчик: Aris Open UniverseПоддерживаемая ОС: Android 4.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367225   (915226) от 16.03.2020
+
+SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное приложение создано компанией Lenovo и впервые появилось на смартфонах и планшетах компании. Теперь оно доступно всем Android-пользователям. Благодаря SHAREit вы можете передавать любые файлы на устройства, где установлена такая же программа.
+Данное приложение выгодно отличает тот факт, что в подключении к Интернету оно не нуждается, а также может похвастаться (   Читать дальше...   )Тип издания: Mod (Вырезана реклама / Ad Free)Релиз состоялся: 10.03.2020Разработчик: SHAREit Technologies Co.Ltd ЕЩЁ!Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6198C619CE9AD5B4E7186195776D499A30B82D
 ```
 
 https://mybot314.ru/tekegram_catalog/

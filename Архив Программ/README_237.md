@@ -6,7 +6,7 @@ ORPALIS PaperScan Professional 3.0.98 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WhatsApp 0.4.930 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947913.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alien Skin Exposure X 1.1.0.2099 Revision 32351 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947911.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947901.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Avast Free Antivirus 2016 11.1.2253 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947892.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Advanced Onion Router 0.3.0.20 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947891.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Exact Audio Copy 1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947846.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AIMP 4.60 build 2177 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947844.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ O&O ShutUp10 1.7.1408 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947833.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Topaz DeNoise AI 2.0.0 RePack (& Portable) by magkms [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947756.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Native Instruments - Kontakt 6.2.2 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947746.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Soft4Boost Easy Disc Burner 5.1.0.505 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947514.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Soft4Boost Secure Eraser 4.3.3.491 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947435.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Soft4Boost Document Converter 4.7.3.477 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947311.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MAGIX Video Pro X2 9.0.2.12 [German/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947268.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ KLS Backup 2015 Professional 8.4.3.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947200.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AIMP 4.12 Build 1880 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947104.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Punto Switcher 4.3.4 Build 1753 beta  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947093.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Slimjet 7.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947055.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ SpeedyFox 2.0.18 Build 110 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947034.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ FlylinkDC++ r503 build 19449 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947006.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ True BoxShot 2.1.1.56 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946962.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Calibre 2.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946948.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ WinX HD Video Converter Deluxe 5.9.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946946.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Duplicate Cleaner Pro 4.0.4 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946940.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ AdwCleaner 6.042 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946926.jpg" />
 </div>
 
 

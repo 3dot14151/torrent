@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799393.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Spotify 1.1.71.560 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799382.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Serif Affinity Photo 1.10.4.1198 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799378.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Process Hacker 3.0.4372 Nightly + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799376.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ JetBrains Rider 2018.3.1 Build #RD-183.5253.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799366.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Opera 57.0.3098.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799362.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NetSpot PRO – Wi-Fi Reporte‪r‬ 2.13.1033  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799360.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Pixelmator Pro 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799359.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ JetBrains ReSharper Ultimate 2018.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799349.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AOMEI Backupper Technician Plus 6.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799345.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DaisyDisk 4.21.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799339.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799334.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Notepad++ 7.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799332.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799330.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ ABViewer Enterprise 14.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799324.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ DisplayFusion Pro 9.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799320.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ iZotope - RX 9 Audio Editor Advanced 9.1.0 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799296.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ qBittorrent 4.3.9 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799295.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ RS Recovery Software 2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799284.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Uninstall Tool RePack (&Portable) by D!akov 3.5.7 build 5611 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799277.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Ori Uplift - Uplifting Only, Episode 216 (2017) [MP3|192 Kbps] <Trance, Upliftin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799258.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Leaf 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799257.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ iFinance 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799253.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Lingon X 4.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799249.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Elian West - Uplifting Trance Collection Vol 6 (2017) [MP3|320 Kbps] <Uplifting 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799247.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ SteerMouse 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799246.jpg" />
 </div>
 
 

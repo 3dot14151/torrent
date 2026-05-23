@@ -1,56 +1,3 @@
-###  Публикация: 1360114   (960576) от 15.02.2020
-
-Планета страха / Planet Terror (2007) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Полиция крохотного городка вынуждена иметь дело с жертвами смертельного вируса, превращающего людей в зомби. Народное ополчение возглавляет Черри с автоматом вместо ножного протеза и владеющий боевыми искусствами Рэй.Производство: США / Dimension Films, Troublemaker Studios, Rodriguez International PicturesЖанр: ужасы, фантастика, боевик, триллер, комедия, приключенияРежиссер: Роберт РодригесАктеры: : Роуз МакГоун, Фредди Родригес, Марли Шелтон, Джош Бролин, Майкл Бин, Джефф Фэйи, Брюс Уиллис, Навин Эндрюс, Майкл Паркс, Том Савини, Квентин Тарантино, Электра Авеллан, Элиз Авеллан, Ребел Родригес, Стэйси ФергюсонПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: русские, английскиеПродолжительность: 01:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00155C927EAB7CBA7A18E043A734391BAE1AD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357950   (960567) от 15.02.2020
-
-Расскажи мне, как я умру / Tell Me How I Die (2016) BDRemux [H.264/1080p] [GER Transfer] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда студенты колледжа соглашаются принять участие в загадочном эксперименте, а добрый доктор скрывает от них информацию о возможных побочных эффектах — жди беды. И главные герои ужастика испытали последствия контролируемого употребления наркотиков на своей шкуре.
-Дело в том, что счастливчики, побывавшие в затяжном трипе, начали видеть галлюцинации со сценами своей (   Читать дальше...   )Производство: США / Big Block Media Holdings, Base Station, Supergravity PicturesЖанр: Ужасы, Триллер, ДетективРежиссер: Донн Дж. ВиолаАктеры: Нэйтан Кресс, Вирджиния Гарднер, Кирби Блисс Блэнтон, Райан Хига, Марк Фурз, Итан Пек, Уильям Мапотер, Марк Ролстон, Марни Алексенбург, Кристофер АлленПеревод: Одноголосый любительский (Хихикающий доктор)Субтитры: отсутствуютПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E401631748D6EE5A9E61DC34267F8573A17550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360120   (960565) от 15.02.2020
 
 Блэйд 2 / Blade II (2002) BDRip [H.265/1080p] [10-bit]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960565.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960563.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960562.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960552.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960530.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960528.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960527.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960524.jpg" />
 </div>
 
 
@@ -267,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960521.jpg" />
 </div>
 
 
@@ -293,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960519.jpg" />
 </div>
 
 
@@ -319,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960516.jpg" />
 </div>
 
 
@@ -345,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960488.jpg" />
 </div>
 
 
@@ -371,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960485.jpg" />
 </div>
 
 
@@ -397,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960483.jpg" />
 </div>
 
 
@@ -423,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960476.jpg" />
 </div>
 
 
@@ -449,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960424.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.265/1080p] [10-bit]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960412.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960410.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960408.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960389.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960302.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960297.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960296.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959945.jpg" />
 </div>
 
 
@@ -671,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622206   (959836) от 22.02.2013
+
+Мужчина нарасхват / Playing for Keeps (2012) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звезда футбола и просто шикарный мужчина по воле случая становится тренером детской футбольной команды. С этого момента для своих подопечных и их обольстительных мамочек он — «Мужчина нарасхват»…Производство: США | Eclectic Pictures, Evil Twins (I), Millennium FilmЖанр: Мелодрама, КомедияРежиссер: Габриэле МуччиноАктеры: Джерард Батлер, Джессика Бил, Ума Турман, Кэтрин Зета-Джонс, Деннис Куэйд, Ной Ломакс, Джеймс Таппер, Джуди Грир, Абелла Уайсс, Грант ГудманПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH)Продолжительность: 01:45:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747766   (959554) от 21.01.2014
+
+Шестой день / The 6th Day (2000) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_959554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале третьего тысячелетия самым суровым законом стал «закон Шестого дня». Он запрещал клонирование людей и создание искусственных копий человека. Но огромная подпольная империя вопреки запрету выращивает человечество нового будущего, сотни управляемых теней.
+Налаженная машина преступления не давала сбоев, пока в ее совершенный механизм не вмешалась случайность: (   Читать дальше...   )Производство: США/ Phoenix PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Роджер СпоттисвудАктеры: Арнольд Шварценеггер, Майкл Рапапорт, Тони Голдуин, Майкл Рукер, Сара Уайнтер, Венди Крюсон, Родни Роулэнд, Терри Крюс, Кен Поуг, Роберт ДюваллПеревод: Дублированный (Невафильм, 2000)Продолжительность: 02:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725F435028325EEEAD5615BBE72D542098B47448
 ```
 
 https://mybot314.ru/tekegram_catalog/

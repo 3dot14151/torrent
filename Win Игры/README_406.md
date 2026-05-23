@@ -1,29 +1,3 @@
-###  Публикация: 1804407   (65641) от 29.06.2025
-
-Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Куранари Такеши, обычный студент, посещает подводный тематический парк LeMU. Происходит авария, в результате которой Такеши и еще 6 человек остаются запертыми в LeMU, на глубине 51 м. Без надежды на спасение, Такеши обследует LeMU вместе с загадочной девушкой Цугуми и работницей на полставки Ю, пытаясь найти способ выбраться на поверхность.Тип издания: SceneРазработчик: MAGES. Inc.Жанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (традиционный)Язык интерфейса: Английский, Японский, Китайский (традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AECE2A3A74F89F0C27842D655B059D563DE074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804641   (65587) от 01.07.2025
 
 Sun Haven (2023) [Ru/Multi] (2.5.1E/dlc) Repack FitGirl [Ultra Bundle]
@@ -32,7 +6,7 @@ Sun Haven (2023) [Ru/Multi] (2.5.1E/dlc) Repack FitGirl [Ultra Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65587.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64658.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Halloween Stories 9: The Death Card (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63904.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Villages & Dungeons (2025) [Ru/Multi] (10033/dlc) Repack Let'sРlay [Crystal Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63889.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ The Divine Invasion (2020) [Ru/Multi] (Build 20224638) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63849.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63780.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63754.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4374033/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63679.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63676.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ IMMORTALITY (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63670.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Stellar Ghosts Settlers (2024) [En] (1.0.220) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63654.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Disco Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63625.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Russian Soul Simulator / Симулятор Русской Души (2024) [Ru/E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63562.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63519.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Lucky Season: King of Fools (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63512.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (13655355/dlc) Repack Othe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63136.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0/dlc) Repack Other s [Suprem
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63125.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Big Adventure: Trip to Europe 7 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63076.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Connected Hearts 4: Cost of Beauty / Связанные сердца 4: Цена
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63066.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Zoonomaly (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63023.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ YOKO (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63020.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ House Flipper 2 (2023) [Ru/Multi] (13653866/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63007.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.0/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62943.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ The Thaumaturge (2024) [Ru/Multi] (70.100/dlc) Repack FitGirl [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62939.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62934.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Somerville (2022) [Multi] (1.0) License Razor1911
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FA6C448CA713BA8C5354579BA3B1CFE015BD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707061   (62918) от 15.03.2024
+
+Beneath the Mountain (2024) [En] (1.3) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beneath the Mountain погружает пользователей в подземные ходы древних и суровых дварфов, где предстоит занять роль короля небольшой цивилизации. Гномы обосновались глубоко под землей, прорывая туннели и застраиваясь необходимыми производственными постройками и домами для жителей. Игроку предстоит координировать действия народа, направляя персонажей на выполнение (   Читать дальше...   )Тип издания: RepackРазработчик: Omnis Rector StudiosЖанр: Экшены, Казуальные игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA636C8F2D65151F61372A815E70CFB9B8B2FECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

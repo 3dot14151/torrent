@@ -1,81 +1,3 @@
-###  Публикация: 1421209   (321540) от 03.11.2020
-
-Марта Уэллс | Стратегия отхода (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сбежав с планеты «Сохранения», Киллербот надеется обрести свободу от запрограммированных в нем обязательств перед людьми. Но, как обычно, что-то идет не так, и андроид снова вмешивается в разборки между корпорациями и бывшими клиентами. Занимаясь просмотром сериалов и самоанализом, он летит на планету Майлу, чтобы добыть информацию о давних врагах. И пускай люди (   Читать дальше...   )Жанр: Зарубежная фантастика, Космическая фантастика, Научная фантастикаПродолжительность: 7:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CC6072D595E59D0B3E32ABF0BB298571498A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958456   (321507) от 22.11.2015
-
-Оганес Диланян | Уролога.net (2011) [MP3, Надежда Винокурова]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Книга Оганеса Диланяна способна поднять настроение даже самому мрачному мизантропу, а шутки из нее давным-давно стали поговорками, которые живут своей жизнью и гуляют по сети. И если у вас не задался день или просто паршивое настроение, пара страниц из этой книги помогут лучше самого дорогого аптечного лекарства. Конечно, когда-нибудь, через тысячу лет, все мужчины (   Читать дальше...   )Жанр: Юмористическая прозаПродолжительность: 06:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD91583C12C8DFDBD45B8E9E5F92E73B0597CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259269   (321381) от 03.11.2018
-
-Агата Кристи | Эркюль Пуаро. Смерть лорда Эджвера (2018) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-И снова великий сыщик всех времен – Эркюль Пуаро пытается докопаться до правды. Американская актриса Сильвия Уилкинсон уже давно не скрывала, что хотела бы расстаться со своим мужем, лордом Эджвером. Ведь у нее на примете был мужчина и познатнее, и побогаче… Поэтому, когда Эджвера нашли мертвым у себя в кабинете, ни у кого не возникло сомнений в виновности Сильвии. (   Читать дальше...   )Жанр: ДетективИздательство: АудиокнигаПродолжительность: 06:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F73FCAC2372A3E7E49FB8BF980F5D417B4EC6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844183   (321355) от 24.11.2014
 
 Лев Николаевич Толстой | Семейное счастье (1960) [MP3, Людмила Шеленцова и др.]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321355.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321350.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321311.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321302.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321293.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321285.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ Dark Knight, Blaadwin Dufo | Город Тысячи Мостов (2016) [MP3]
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321171.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321170.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321169.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321156.jpg" />
 </div>
 
 
@@ -345,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321046.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321032.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320995.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320992.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320982.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320975.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320901.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320885.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320884.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320847.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320803.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320802.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320794.jpg" />
 </div>
 
 
@@ -669,6 +591,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE01F98155FA75C178808DBEFCCA9B51DFF777DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075207   (320787) от 22.11.2016
+
+Джон Гришэм | Серая гора (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саманте Кофер казалось, что ей обеспечена блестящая карьера в солидной юридической фирме на Уолл-стрит, однако когда разразился кризис, ее мгновенно выкинули на улицу. И теперь единственная предложенная ей вакансия – это место юриста в затерянном в горах шахтерском городке Брэйди… Саманта, решив сменить обстановку и «отсидеться» в провинции в нелегкие времена, думала, (   Читать дальше...   )Жанр: ТриллерПродолжительность: 17:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A134A379BB3A9299FADC0612AB4BAAC8D11C5B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582618   (320780) от 10.10.2022
+
+Наталья Щерба | Фениста (Книга 1). Сонный дом (2021) [MP3, Алексей Багдасаров, Юлия Яблонская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудно быть самой младшей! У Фини эталонная старшая сестра и крутейший старший брат, а от самой Фини сплошные проблемы. Одно слово, непутевая. А еще у Фини есть необыкновенная странность – она может заснуть и проснуться только через несколько дней, а то и недель. Доктора разводят руками, родители приходят в отчаяние. И никто не знает, что во сне Фини подвластна любая (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 17:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2D17528692462F64B8E39490483C6BCF49D97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582685   (320756) от 10.10.2022
+
+Робин Хобб | Мир Элдерлингов. Сага о Фитце и Шуте (Книга 3). Судьба убийцы (2022) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фитц уверен, что его дочь уже не вернуть, и мечтает лишь о мести.
+Ему еще только предстоит узнать, что она жива. Даже ее похитители не догадываются, какая судьба ей уготована, но Би никогда не сдается. Ее везут в Клеррес, обитель Слуг, и туда же стремятся Фитц и его спутники. И когда все пути сойдутся на загадочном Белом острове, тайное станет явным и пророчества (   Читать дальше...   )Жанр: Зарубежное фэнтезиПеревод: Наталья АллунанПродолжительность: 40:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350633494194EF0412E80FE33B0CBB64344C5ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1000628   (857562) от 26.03.2016
-
-VA - Trance Desire Volume 64 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-01. Moreno J - Welcome Home (06:06)
-02. Wellenrausch feat. Andre Berger - Virtual Self (Album Mix) (06:57)
-03. Trance Arts feat. Hysteria! - Still Have a Choice (Uplifting Mix) (05:10)
-04. Sou Kanai feat. Claire Willis - Stay (Dennis Pedersen Remix) (04:54)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1685EE6AA96A475625EF7BDAB56FEDD4E7115F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000824   (857558) от 26.03.2016
 
 VA - Wonder Hydro Calling People (2016) [MP3|224-320 кб/с] <Nu Disco, Dutch, Funky, Vocal, Future House>
@@ -35,7 +6,7 @@ VA - Wonder Hydro Calling People (2016) [MP3|224-320 кб/с] <Nu Disco, Dutch, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857558.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Super Dance Party Vol.5 (2016) [MP3|320 кб/с] <Hands Up, Pop, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857523.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Dr. Metal Presents: Vol.6 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857520.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857462.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - Музыкальное зимнее настроение выпуск № 3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857457.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Давай, наливай. Сборник радио Шансон 4 (2016)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857448.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Новая Жажда Скорости Без Тормозов vol.3 (2016)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857427.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - DJ Tools Essential: DJ Samples DJ Mixtools (2016) [MP3|255-320 кб/с] <Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857423.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857374.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Running Of Dance Hits Friends (2017) [MP3|320 Kbps] <Pop, House, Club, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857367.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Club Dance Hits DFM (2016) [MP3|320 кб/с] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857358.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ VA - Deep House Collection Vol.110 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857349.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857311.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ VA - Стопудовые зимние хиты от Европы Плюс вы�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857290.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ VA - Top 100 Зайцев.Нет Февраль (2017) [MP3|192-320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857151.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ VA - Beatport Progressive House: Sound Pack #64 (2020) [MP3|320 Kbps] <Progressi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856903.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ VA - не Громкие новинки недели 64 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856776.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Creedence Clearwater Revival & John Fogerty - 100% Creedence (2020) [MP3|320 Kbp
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856562.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ VA - Whiskey Blues - Blues Soldier (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856456.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ VA - Miami Tech Drums Language (2016) [MP3|263-320 кб/с] <Bigroom, Tropical, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855938.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ VA - Finding Around Blessing (Energy Tech Trance) 002 (2017) [MP3|320 Kbps] <Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855756.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ VA - Шансон максимальный (2016) [MP3|320 кб/с] <Шансо�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855731.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ VA - Serpentine Desires: Deep House Mix (2017) [MP3|160-320 Kbps] <Deep House, E
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855684.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ VA - Color Drifting: Progressive Life (2017) [MP3|320 Kbps] <Progressive House, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855679.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ VA - Полный отрыв. Зимние хиты выпуск № 10 (2017) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855677.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ VA - Полный отрыв. Зимние хиты выпуск № 10 (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4688EF0AF8812D2573DBAB9A21829BE664D0DCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110138   (855668) от 01.03.2017
+
+VA - Trance Traveling 86 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Attila Syah & LTN - Bromo (Original Mix)  4:28
+02.  PureNRG - Prophecy (Istoria 2017 Anthem)  5:16
+03.  Cold Blue - Gold Rush (Niko Zografos Remix)  5:20
+04.  TrancEye - Cosmodrome (Extended Mix)  6:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, VocalПродолжительность: 04:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6C0CBA00C17B3FE5F485852E23FCC4A5463EA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

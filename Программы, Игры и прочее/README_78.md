@@ -1,57 +1,3 @@
-###  Публикация: 1420064   (333667) от 31.10.2020
-
-Deep Town: Шахтерская фабрика v4.6.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Deep Town: Шахтерская фабрика - кликер для Android-устройств, в котором игрок отправится под землю для строительства города роботов. Для этого нужно использовать все инструменты, доступные для раскопки и добычи ресурсов. Чтобы вести раскопки и добывать металлическую руду, нужно применять высокотехнологичный инструментарий. С его помощью необходимо пробивать один (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 28 октября 2020 г.Разработчик: Rockbite GamesПоддерживаемая ОС: Android 4.0.3 и вышеЖанр: Strategy (Стратегия)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34827E5AA058DC4FD44027C4E413FAD73B24D7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420387   (333565) от 31.10.2020
-
-AR Plan 3D Ruler v3.7 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-AR Plan 3D - инновационное приложение для измерений, которое использует дополненную реальность (AR) для быстрого измерения в помещении. Технология AR позволяет накладывать виртуальную рулетку на реальные поверхности, что значительно упрощает и ускоряет процесс измерения и создание трехмерного плана этажа.
-С помощью приложения линейки AR Plan 3D вы можете:
-1) Измерять (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14 июля 2020 г.Разработчик: GrymalaПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10076252EE79178087E585227CC941F28A4FD72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420051   (333402) от 31.10.2020
 
 Five Nights at Freddy’s: HW v1.0 [Ru]
@@ -60,7 +6,7 @@ Five Nights at Freddy’s: HW v1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333402.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ zetaTorrent Pro 3.7.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333249.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ En16 2019.819.2020.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333241.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332198.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332191.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332049.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ Defense zone 2 HD 1.5.1 [Ru/Multi] + mod
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331798.jpg" />
 </div>
 
 
@@ -246,7 +192,7 @@ tTorrent Pro 1.5.4.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330104.jpg" />
 </div>
 
 
@@ -272,7 +218,7 @@ SwiftKey Keyboard 6.0.0.161  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330043.jpg" />
 </div>
 
 
@@ -298,7 +244,7 @@ GreenNet: Hotspot VPN Proxy v1.5.45 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329681.jpg" />
 </div>
 
 
@@ -324,7 +270,7 @@ Unique VPN | Fast VPN Proxy 1.3.33 b43 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329676.jpg" />
 </div>
 
 
@@ -350,7 +296,7 @@ XP VPN (Xtra Power) 3.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329632.jpg" />
 </div>
 
 
@@ -377,7 +323,7 @@ AirRadio Pro v5.0.0 [Ru/Multi] - Радиосканер переговоров �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329117.jpg" />
 </div>
 
 
@@ -403,7 +349,7 @@ Solo Launcher 2.4.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329026.jpg" />
 </div>
 
 
@@ -429,7 +375,7 @@ Kiwi VPN Proxy: Safer & Faster 42.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328800.jpg" />
 </div>
 
 
@@ -455,7 +401,7 @@ HAWA VPN Super VPN Proxy Maste 1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328798.jpg" />
 </div>
 
 
@@ -482,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326952.jpg" />
 </div>
 
 
@@ -508,7 +454,7 @@ Mario Yoshis Island 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326396.jpg" />
 </div>
 
 
@@ -536,7 +482,7 @@ Angry Birds Rio 2.6.0 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326390.jpg" />
 </div>
 
 
@@ -562,7 +508,7 @@ Tangle / Клубок v72.20.4.22 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324395.jpg" />
 </div>
 
 
@@ -588,7 +534,7 @@ Planimeter - GPS area measure v 4.5.4 [Ru/Multi] - инструмент для �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323515.jpg" />
 </div>
 
 
@@ -614,7 +560,7 @@ Agenda 2018 Pro v5.16 [Ru/Multi] - Простой ежедневник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322864.jpg" />
 </div>
 
 
@@ -643,7 +589,7 @@ Garmin: City Navigator Europe NT 2019.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322722.jpg" />
 </div>
 
 
@@ -669,7 +615,7 @@ Johnny Trigger v1.11.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321901.jpg" />
 </div>
 
 
@@ -681,6 +627,59 @@ Johnny Trigger v1.11.5 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F86B62F62C150A440276E079A41C1F1CBEEE1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421184   (321900) от 03.11.2020
+
+Image Colorizer Pro v2.0.3 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colorize Images - отличное приложение для всех кто ценит результативность и при этом своё время. Проект предлагает автоматический процесс колоризации чёрно-белых фотографий и прочих вариантов изображений в которых отсутствуют какие либо цвета, кроме базовых. Это позволяет не тратить огромное количество часов для правильного и аутентичного подбора палитры для того (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 8 сентября 2020 г.Разработчик: VertexshareПоддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C179F33E7149187AEAD8C6D1B4450E34229F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421210   (321777) от 03.11.2020
+
+Cookies Must Die v1.1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боритесь со злобным печеньем
+Возьмите под свой контроль Джейка, который был наделен особыми способностями, благодаря экспериментам ученым, и теперь он стал настоящим суперагентом. Смертоносное желе, печенье-мутанты, злые конфеты и другие опасные сладости сеют хаос и разруху в городе. Только Джейк, благодаря своим умениям, способностям и мощному оружию, сможет противостоять (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 27 октября 2020 г.Разработчик: Rebel TwinsПоддерживаемая ОС: Android 4.1 и вышеЖанр: Action (Экшен)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14055B557DF7439D0FB02C7E8F7141DC5FC40C27
 ```
 
 https://mybot314.ru/tekegram_catalog/

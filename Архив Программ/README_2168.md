@@ -6,7 +6,7 @@ AIMP 5.30 Build 2555 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53337.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera One 111.0.5168.25 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera One 111.0.5168.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53332.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Icecream Video Converter Pro 1.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53329.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sumatra PDF 3.6.16355 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53324.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ kiloHearts Subscription 2.2.4 VST/VSTi, VST3/VSTi3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53321.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Soft Organizer Pro 9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53317.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Chromium 126.0.6478.57 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53316.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tablacus Explorer 24.6.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53310.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Icecream PDF Editor Pro 3.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53303.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Viber 22.9.0.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53302.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ OneCommander Pro 3.84.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53295.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ CrystalDiskInfo 9.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53270.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ JetBrains PhpStorm 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53268.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Rainlendar Pro 2.21.1 Build 178 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53266.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ NirLauncher Package 1.30.12 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53243.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Excite Audio - Bloom Bundle 1.1.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53230.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ JetBrains CLion 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53225.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Viber 22.9.0.2 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53220.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ JetBrains Rider 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53217.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Internet Download Manager 6.42 Build 11 RePack by elchupacabra (15.06.2024) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53212.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ JetBrains RubyMine 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53210.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ CherryTree 1.1.3.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53192.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Process Lasso Pro 14.1.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53187.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53175.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Multi Commander Full Edition 14.0 Build 3016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53141.jpg" />
 </div>
 
 

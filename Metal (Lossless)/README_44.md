@@ -6,7 +6,7 @@ Kilmara - Across The Realm Of Time (2018) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002075.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Eons Enthroned - Into the Arcane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002074.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sorceress Of Sin - Constantine (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002073.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kobra And The Lotus - 7 albums (2009-2019) [FLAC|Lossless|image + .cue | tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001905.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001723.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001470.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Concerto Moon - Ouroboros (2019) [WavPack|Lossless|image + .cue] <Neoclassical M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001349.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nawather - Kenz Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Oriental Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001190.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Rage - Wings of Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000888.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nightwish - Decades: Live in Buenos Aires (2019) 2CD [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000864.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Compos Mentis - Fragments Of A Withered Dream (2003) [WavPack|Lossless]<Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000543.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Seventh Wonder - The Great Escape  (2011) / Japanese Edition / [FLAC|Lossless]<P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000473.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999428.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Coffin Texts - The Tomb of Infinite Ritual (2012) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999409.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Shining - 7 Альбомов (2000 - 2009) [FLAC|Lossless]<Depressive Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999376.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Dimmu Borgir - 5 CD (1994 - 1998) [FLAC|Lossless]<Symphonic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999306.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Majesty - Thunder Rider (Limited Edition) (2013) [FLAC (tracks+.cue)|Lossless]<H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998933.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Triosphere - The Road Less Travelled (2010) Japan Edition [WavPack|Lossless]<Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998648.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ The Faceless - Autotheism (2012) [FLAC|Lossless]<Progressive / Technical Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998603.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Nebulous - The Quantum Transcendence Of Death (2013) [FLAC|Lossless]<Technical D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997859.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Therion - 3 Albums + 2 Singles + 1 Compilation (1991-2001) [FLAC|Lossless]<Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996687.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Infernal Poetry - Paraphiliac (2013) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996204.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995912.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Bullet For My Valentine - The Poison (2006) [FLAC|Lossless]<Heavy Metal, Rock, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994455.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994019.jpg" />
 </div>
 
 
@@ -795,7 +795,7 @@ A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993677.jpg" />
 </div>
 
 

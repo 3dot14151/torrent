@@ -1,56 +1,3 @@
-###  Публикация: 856826   (956072) от 06.01.2015
-
-Судья Дредд / Judge Dredd (1995) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-В третьем тысячелетии мир переменился. Климат, народы — все перевернулось… Земля превратилась в ядовитую, выжженную пустыню, которую стали называть «Проклятая земля». Миллионы людей сосредоточились в нескольких огромных городах, на улицах которых царили хаос и преступники. Система правосудия не смогла справиться с анархией, и был создан новый порядок — элитные подразделения, (   Читать дальше...   )Производство: США / Cinergi Pictures Entertainment Inc., Hollywood PicturesЖанр: Фантастика, Боевик, Триллер, КриминалРежиссер: Дэнни КэннонАктеры: Сильвестр Сталлоне, Арманд Ассанте, Роб Шнайдер, Юрген Прохнов, Макс фон Сюдов, Дайан Лэйн, Джоэнна Майлз, Джоан Чэнь, Бальтазар Гетти, Морис РоевзПеревод: Многоголосый закадровый, авторский х3Язык субтитров: ОтсутствуютПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BBD72705373EF25C26A72D7E025680F3EF7E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749029   (955994) от 24.01.2014
-
-Полетта / Paulette (2012) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Полетт — вредная старушка с непростым характером. Она ненавидит соседей, поскольку те мусорят и шумят. Она не любит своего внука и придумала ему прозвище Черныш, поскольку дочь вышла замуж за чернокожего полицейского (зятя Полетт называет Обамой).
-Когда социальные службы начинают за долги описывать ее имущество, она принимает нестандартное решение: отправляется к (   Читать дальше...   )Производство: Франция, Canal+ (fr), GaumontЖанр: Комедия, Криминал, ДрамаРежиссер: Жером ЭнрикоАктеры: Бернадетт Лафон, Кармен Маура, Доминик Лаванан, Франсуаз Бертен, Андре Пенверн, Исмаэль Драме, Жан-Баптист Анумон, Аксель Лафон  Пако Бублар, Махмаду КулибалиПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEEB8677037BC2DAF132C2E223054FE91206B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 855031   (955974) от 06.01.2015
 
 Исчезнувшая / Gone Girl (2014) DVD5 [BD -> DVD]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955974.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955960.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ Va-банк / Runner Runner (2013) HDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955881.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955861.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955859.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955858.jpg" />
 </div>
 
 
@@ -217,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955830.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955783.jpg" />
 </div>
 
 
@@ -272,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955770.jpg" />
 </div>
 
 
@@ -298,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955769.jpg" />
 </div>
 
 
@@ -324,7 +271,7 @@ Va-банк / Runner Runner (2013) BDRemux [1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955760.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955758.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955752.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955747.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955745.jpg" />
 </div>
 
 
@@ -454,7 +401,7 @@ Va-банк / Runner Runner (2013) HDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955703.jpg" />
 </div>
 
 
@@ -480,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955695.jpg" />
 </div>
 
 
@@ -506,7 +453,7 @@ Va-банк / Runner Runner (2013) Blu-Ray [1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955692.jpg" />
 </div>
 
 
@@ -532,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955691.jpg" />
 </div>
 
 
@@ -559,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955682.jpg" />
 </div>
 
 
@@ -585,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955676.jpg" />
 </div>
 
 
@@ -611,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955595.jpg" />
 </div>
 
 
@@ -637,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955590.jpg" />
 </div>
 
 
@@ -663,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955589.jpg" />
 </div>
 
 
@@ -676,6 +623,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:286F83BECE891B03963D93C96B43F836190DD94A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980504   (955583) от 29.01.2016
+
+Отбросы / The Throwaways (2015) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный боевик о талантливом хакере. Действие начинается где-то в степях Казахстана. Именно здесь благородный хакер Дрю Рейндольд по кличке Блэк Джек, самопровозглашенный Робин Гуд мировой паутины, взламывает сайты экстремистских организаций. Совсем недавно он «хакнул» маскирующийся под обычный новостной портал сайт, набирающий и тренирующий джихадистов. После (   Читать дальше...   )Производство: США / The Combine, UFO International ProductionsЖанр: Фэнтези, Боевик, ТриллерРежиссер: Тони Буи / Tony BuiАктеры: Питер Брук, Джеймс Каан, Ноэль Кларк, Кевин Диллон, Даррелл Д’Силва, Валентин Ганев, Дон Хэндфилд, Кристиан Хильборг, Сэм Хантингтон, Николай ИльчевПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5689E95A8716135D8E44CA9B026C4881259C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749102   (955570) от 24.01.2014
+
+Несносный дед / Jackass Presents: Bad Grandpa (2013) BDRip [720p] [Unrated Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955570.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 86-летний старикан по имени Ирвинг Зисман путешествует по Америке с необычным компаньоном — восьмилетним «внуком» Билли.
+• По дороге заводной дедушка знакомит впечатлительного Билли с людьми, местами и ситуациями, которые вряд ли укладываются в рамки привычных представлений о воспитании. Парочка столкнется со стриптизерами, разъяренными участниками помпезного детского (   Читать дальше...   )Производство: США | Dickhouse Productions, MTV FilmsЖанр: КомедияРежиссер: Джефф ТреймейнАктеры: Джонни Ноксвил, Джексон Николл, Грег Харрис, Джорджина Кэйтс, Камбер Хейлик, Джилл Килл, Мэдисон Дэвис, Джордж Фонан, Грэси Мерседес, Мэрилинн ЭллейнПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244671FCA992D48F0845F064E81C23750015C4BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Visual Studio Code 1.80.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195150.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Luminar Neo 1.12.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195148.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Floorp Browser 10.16.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195146.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HWiNFO 7.60 Build 5170 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195140.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SanDisk (Western Digital) SSD Dashboard 3.8.2.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195134.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Maxthon Browser 7.1.6.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195132.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.1.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195130.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Corona Renderer 10.1 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195119.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Avast Premium Security 23.7.6074 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195072.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v5 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195031.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ AIMP 5.11 Build 2434 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195015.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Microsoft Office 2021 for Mac LTSC v.16.75 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195014.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ OpenVPN 2.6.5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195010.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ simplewall 3.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195005.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Volume2 1.1.8.464 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194995.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194992.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194989.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FxSound Pro 1.1.19.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194987.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194985.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Uninstall Tool 3.7.3 Build 5717 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194983.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Modern Tweaker 1.9.1 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194969.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Rainmeter 4.5.18 Build 3727 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194940.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ nthLink 6.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194938.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Koodo Reader 1.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194928.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adguard 7.14.0 (7.14.4316.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194922.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Kodi 20.2 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194915.jpg" />
 </div>
 
 

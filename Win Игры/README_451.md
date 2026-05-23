@@ -1,29 +1,3 @@
-###  Публикация: 1741724   (47460) от 08.08.2024
-
-Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный визуальный роман, в котором пользователи получают возможность взять под управление паренька по имени Айзава Юичи, что является простым школьником. Главный герой возвращается домой спустя долгое время отсутствия и спонтанно оказывается затянут в круговорот романтических приключений, что вынуждают юношу пересмотреть свои привычные взгляды на мир и собственную (   Читать дальше...   )Тип издания: SceneРазработчик: VISUAL ARTSЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8ADBA4967016EC6DA81115DAB228D2D2BCCDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741721   (47428) от 08.08.2024
 
 MeteoHeroes (2022) [Multi] (1.0) License GOG
@@ -32,7 +6,7 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47428.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47414.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Arranger: A Role-Puzzling Adventure (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47395.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0-012215) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47388.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mystical Riddles 5: Haunted Portraits / Мистические загадки 5:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47370.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ PIGROMANCE (2022) [Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47360.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47359.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47311.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ MARS 2120 (2022) [Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47289.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47285.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47280.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47278.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47277.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Aerial_Knight's We Never Yield (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47268.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47260.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47258.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47255.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47241.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Taxi Rush (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47175.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Smack Studio (2021) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47137.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47094.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Voltaire: The Vegan Vampire (2023) [Multi] (1.03.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47093.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47090.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Zoo Simulator (2024) [Ru/Multi] (1.00.23) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47078.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47077.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57DEF607E9F873D1CF145022E79EC41177E37CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739268   (47071) от 12.08.2024
+
+Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bo: Path of the Teal Lotus - яркий платформер, предлагающий сыграть за очаровательную героиню, которая является небесным цветком. Девушка обладает акробатическими способностями, а ее смертельное оружие - серьга. Вместе с девочкой потребуется исследовать таинственный мир, вдохновленный японской мифологией. В игре представлено множество ярких и запоминающихся персонажей, (   Читать дальше...   )Тип издания: SceneРазработчик: Squid Shock Studios, Christopher Stair, Trevor YoungquistЖанр: Метроидвания, 2DЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83931E2BB1AE0A1C13E4FE89874F48872B79C166
 ```
 
 https://mybot314.ru/tekegram_catalog/

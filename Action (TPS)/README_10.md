@@ -6,7 +6,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863789.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863672.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Way of the Samurai 3 (2016) [En/Multi] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860294.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Phoning Home (2017) [Ru/Multi] (1.0/upd6) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860114.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Phoning Home (2017) [Ru/Multi] (1.0/upd6) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860097.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Grand Theft Auto IV (2010) [Ru/Multi] (1.2.0.32/dlc) Repack Other s [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859737.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Hitman - Game of the Year Edition (2016) [Ru/Multi] (1.16.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859239.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/upd3/dlc) Repack =nemo
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858610.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858115.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tomb Raider: Underworld [Ru/En] (RePack / 1.1) 2008 | R.G. REVOLUTiON
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857720.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DreadOut: Keepers of The Dark (2016) [En] (1.0.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856963.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru] (1.0.4) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856817.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Evil Within (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856213.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mafia: Definitive Edition (2020) [Ru/En] (Build 7368608/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853988.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847358.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Castlevania: Lords of Shadow (2013) [Ru] (1.0.2.9upd2) Repack xatab [Ultimate Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845614.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Congo (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844580.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Carnivore Land (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842618.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Aragami (2016) [Ru/Multi] (01.07) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840983.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Assassin's Creed Трилогия  [Ru] (RePack) 2008-2011 | RG Packers
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840488.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Blade of Darkness (2001) [Multi] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837753.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Overlord (2007) [Multi] (1.4/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835789.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Dead Rising 3 (2014) [Ru/En] (1.0.0.6/upd 6/dlc) Repack R.G. Catalyst [Apocalyps
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835763.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) SteamRip R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834527.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Save Our Souls - Episode 1 (2017) [En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834513.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Silver Bullet: Prometheus (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833697.jpg" />
 </div>
 
 

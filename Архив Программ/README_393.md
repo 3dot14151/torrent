@@ -6,7 +6,7 @@ DAEMON Tools Pro 7.1.0.0595 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NirLauncher Package 1.23.52 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844313.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HWiNFO 7.12 Build 4580 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844312.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ W.A. Production - InstaComposer 1.0.0 Beta VSTi, VSTi3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844310.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Firefox Browser 93.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844307.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GPU Caps Viewer 1.53.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844301.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Revo Uninstaller Pro 4.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844299.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ HandBrake 1.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844291.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Defender Tools 1.06 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844261.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Photoshop Lightroom CC 2015.9 (6.9) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844230.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Total Commander 9.0a - Titan v7 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844229.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Windows 8.1 with Update 3 RUS-ENG x86 -16in1- (AIO)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844218.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Deep Data Recovery 2.1.1 [En] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844173.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AOMEI Backupper Technician Plus 6.6.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844158.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SIGERSHADERS XS Material Presets Studio 2.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844124.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Zoom Player MAX 16.5 Build 1650 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844046.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ MAGIX Vegas Pro 19.0 Build 381 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844037.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Realtek High Definition Audio Driver 6.0.8924.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844003.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Ableton - Live Suite 11.0.11 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843924.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Windows XP Pro SP3 Rus VL Final x86 Diablik94 Edition [13.03.2011/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_843767.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Sweet Home 3D 3.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843763.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Right Click Enhancer Professional 4.3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843615.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Windows 10 TP Language Pack build 10036 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843378.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Display Driver Uninstaller 15.7.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843208.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Photo Supreme 5.4.0.2834 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843049.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Allavsoft Video Downloader Converter 3.22.4.7420 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843043.jpg" />
 </div>
 
 

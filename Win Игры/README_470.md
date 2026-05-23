@@ -1,29 +1,3 @@
-###  Публикация: 1754212   (40918) от 09.10.2024
-
-Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Танцуйте со смертью в Бездне и открывайте всё более захватывающие элементы игрового процесса, невидимые на поверхности. Используйте слабости врага, устраивайте жестокие расправы, умело распоряжайтесь ресурсами и вовремя выплёскивайте свой гнев, чтобы переломить ход игры. Каждая новая битва - свидетельство вашего мастерства.Тип издания: RepackРазработчик: PlaySideЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A62E74D3021F1DD5B607E00985C3CB4BF65EA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754209   (40909) от 09.10.2024
 
 Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Wanterlude [Ultimate Edition]
@@ -32,7 +6,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Wanterlude [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40909.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Decepticon [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40906.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Thyria (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40902.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (1.0.96.0927.1622) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40879.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40877.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Windowed Borderless Gaming (2012) [En] (2.1.0.1) Portable
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40851.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.004) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40849.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Espresso Tycoon (2023) [Ru/Multi] (Update 14) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40831.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack FitGirl [Ultimate Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40819.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.2.1.12/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40756.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40736.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40730.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40723.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Thyria (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40719.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Grim Realms (2024) [Multi] (1.0.1.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40717.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40709.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40693.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.6.24/dlc) License GOG [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40649.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Mech Engineer (2020) [Ru/Multi] (1.0.65) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40640.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40633.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Kvark (2023) [Ru/Multi] (1.0.5.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40629.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40607.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40603.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40598.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.43094/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40593.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Everspace 2 (2021) [Ru/Multi] (1.3.43094/dlc) Repack Wanterlude
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8A20EEEDEFFE0EACDCEE939F441E70B6F3AA2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737071   (40564) от 12.10.2024
+
+Cash Cow DX (2024) [En] (1.1.2.0) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святая корова, все дело в moooney! Отправляйтесь в безумное приключение, в котором вы будете бегать, прыгать и скользить, чтобы спасти богатство Cash Cow из лап этих подлых свиней и вернуть то, что принадлежит ей по праву! Не сомневайтесь - эта игра крепкая, как гвоздь! Вы готовы принять вызов?Тип издания: LicenseРазработчик: pixel games SARL-SЖанр: ЭкшеныЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11DC4C91BC55E84992FF52122A57C51A00452E17
 ```
 
 https://mybot314.ru/tekegram_catalog/

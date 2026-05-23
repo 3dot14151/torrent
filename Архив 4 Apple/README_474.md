@@ -6,7 +6,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276369.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AirRadar 5 v5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276336.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tweak Photos 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276335.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Exposure Software Snap Art 4 v4.1.3.268 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276325.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ IP Scanner Pro 3.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276315.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tipard Mac Video Enhancer 9.1.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276312.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Exposure Software Eye Candy 7 v7.2.3.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276309.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Wifi Signal Strength 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276242.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Feeder 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276113.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PaintCode 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276110.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Short Menu 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276089.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ BBEdit 11.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276086.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ AnyTrans 5.3.0 (20161212) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276025.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Adobe Audition 2020 13.0.0.519 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275989.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Exif Editor 1.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275981.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ iFinance 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275922.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Lyn 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275908.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Pixelmator Pro 1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275849.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ iMazing 2.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275793.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Dead Cells v.1.5 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275760.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Adobe After Effects 2020 17.0.0.557 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275753.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Coda 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275684.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ GraphicConverter 10 v10.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275227.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ RightFont 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275223.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Path Finder 8.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275208.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Pixelmator 3.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275202.jpg" />
 </div>
 
 

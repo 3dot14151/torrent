@@ -6,7 +6,7 @@ Lacey Free Music & Video Downloader 2.52 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026607.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CudaText 1.129.0.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026601.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PrivaZer 4.0.20 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026599.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ PrivaZer 4.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026596.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Process Lasso Pro 10.0.0.164 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026591.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WhatsApp 2.2108.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026589.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bootstrap Studio 5.5.4 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026587.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Google Chrome 89.0.4389.90 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026575.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Google Chrome 89.0.4389.90 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026572.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WhatsApp 2.2108.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026571.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Download Master 6.19.8.1659 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026560.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NetLimiter Pro 4.1.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026552.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Visual Studio 2019 Professional 16.9.1 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026547.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Microsoft Visual Studio 2019 Enterprise 16.9.1 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026546.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Nox App Player 7.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026533.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ FontExpert 2021 18.0 Release 3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026529.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Blackmagic Design DaVinci Resolve Studio 17.1 Build 24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026510.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VMware Workstation Player 16.1.0 build 17198959 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026504.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Radmin VPN 1.1.4287.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026480.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Adobe Acrobat Pro DC 2021.001.20145 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026472.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Acronis True Image 2021 Build 39184 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026467.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ K-Lite Codec Pack Update 16.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026392.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Chromium 89.0.4389.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026387.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ DirPrintOK 5.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026383.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Microsoft Edge 89.0.774.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026380.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Microsoft Edge 89.0.774.50 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026372.jpg" />
 </div>
 
 

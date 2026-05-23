@@ -1,56 +1,3 @@
-###  Публикация: 1800609   (15680) от 04.06.2025
-
-Мобильный электрик v5.4 Pro Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для электрических расчетов, которые используются в работе электрика и домашних мастеров. Возможность сохранения результата расчета сечения в текстовом формате,с последующим просмотром.
-По каждому расчету (кроме законов Ома) дана отдельная справка.Тип издания: Pro (с Маркета)Релиз состоялся: 02.06.2025Разработчик: Анатолий ТарасенкоПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800984   (15433) от 07.06.2025
-
-Proton VPN 5.11.39 Mod [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Proton VPN — это единственное в мире бесплатное приложение VPN, которое безопасно в использовании и уважает вашу конфиденциальность. Наш быстрый VPN предлагает безопасный, конфиденциальный, зашифрованный и неограниченный доступ в интернет с дополнительными функциями конфиденциальности и безопасности. Proton VPN также разблокирует доступ к популярным веб-сайтам и (   Читать дальше...   )Тип издания: ModПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650110   (15298) от 08.06.2025
 
 WireGuard 1.0.20250531 [En] (Обновляемая)
@@ -59,7 +6,7 @@ WireGuard 1.0.20250531 [En] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15298.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15258.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ Food.ru: пошаговые рецепты v02.04.01 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15234.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ Reanimation inc / Скорая Помощь Inc v72 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14949.jpg" />
 </div>
 
 
@@ -166,7 +113,7 @@ Photomath v8.44.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14923.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ GPS Data Premium / GPS данные Glonass координаты v2.9.00 Mod by 
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14875.jpg" />
 </div>
 
 
@@ -218,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14845.jpg" />
 </div>
 
 
@@ -244,7 +191,7 @@ Muviz Edge v2.0.4.0 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14844.jpg" />
 </div>
 
 
@@ -270,7 +217,7 @@ VaporCam (90s) / 90-е - Глюк VHS Видеоэффекты v1.7.7 Mod by Ale
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14826.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ Solid Explorer File Manager v2.8.63 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14757.jpg" />
 </div>
 
 
@@ -325,7 +272,7 @@ MX Player Pro v1.93.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14574.jpg" />
 </div>
 
 
@@ -351,7 +298,7 @@ GPS АнтиРадар v49.0 Mod by СМАРТОС [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14561.jpg" />
 </div>
 
 
@@ -377,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14559.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ Ebook Converter / Конвертер электронных книг v1.16.4 Mod
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14536.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ Relive: Бег, Заезд, Поход v5.65.0 Mod by victorovich31 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14509.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ Human Anatomy Atlas v2026.00.019 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14248.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ Sipnetic v1.1.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14185.jpg" />
 </div>
 
 
@@ -509,7 +456,7 @@ CCleaner Pro: ПО для очистки 25.12.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14024.jpg" />
 </div>
 
 
@@ -535,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13932.jpg" />
 </div>
 
 
@@ -564,7 +511,7 @@ Translate AI - Camera & Voice v2.0.8 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13929.jpg" />
 </div>
 
 
@@ -593,7 +540,7 @@ EOBD Facile: OBD 2 авто сканер v3.76.1110 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13918.jpg" />
 </div>
 
 
@@ -619,7 +566,7 @@ Tone Generator PRO v3.84 Mod by NURIK [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13909.jpg" />
 </div>
 
 
@@ -645,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13899.jpg" />
 </div>
 
 
@@ -671,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13803.jpg" />
 </div>
 
 
@@ -682,6 +629,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0757454D5940B4FE23B52BE0D4DBB8FC1D1DD938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804023   (13361) от 26.06.2025
+
+Photo Studio PRO v2.8.2.4360 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 25.06.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804219   (13205) от 28.06.2025
+
+HDRezka TV v1.4.0 Mod by App Rezka TV [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13205.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDRezka TV — это неофициальный клиент для просмотра видео из онлайн-кинотеатра HDRezka на Android TV и Google TV. Приложение имеет английский/русский интерфейс, а также требует установленную на устройстве версию андроид не ниже 7.0 Nougat. Без рекламы. Полная поддержка Android TV и пульта.Тип издания: FreeРелиз состоялся: 27.06.2025Поддерживаемая ОС: Android TV 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9756DCB742079C4FD8CD75BBF926EC50A609BB43
 ```
 
 https://mybot314.ru/tekegram_catalog/

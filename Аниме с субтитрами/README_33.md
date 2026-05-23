@@ -6,7 +6,7 @@ Kami-sama Hajimemashita 2 OVA / Очень приятно, Бог OVA-2 [2015, O
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841106.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Magi: Sinbad no Bouken | Маги - Приключение Синбада [2014,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841058.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Виолетта Эве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840749.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Zegapain | Дзэгапэйн [2006, TV, 26 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839952.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Burn Up! Warrior | Burn-Up W - On the Case & In your Face | Разгон! Дуб
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839895.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839876.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ God Eater / Пожиратель Богов [2015, TV, 13 из 13] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839405.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kami nomi zo Shiru Sekai: Megami Hen | The World God Only Knows: Goddesses Arc |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838338.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Magica Wars / Mahou Shoujo Taisen / Войны девочек-волшебниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838192.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ookami-san to Shichinin no Nakama-tachi / Волчица и семеро дру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837565.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Majimoji Rurumo: Kanketsuhen | Magimoji Rurumo: The Conclusion | Ведьмоч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836685.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Furuba / Fruits Basket / Корзинка фруктов [2001, TV, 26 из 26] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836338.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Megazone 23 | Мегазона 23 OVA-1,2,3 [1985, OVA, 3 эп.] BDRip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836326.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Re-Main | Ре-Мейн [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836015.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Cencoroll | Сэнкоролл [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835914.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833865.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Ookami-san to Shichinin no Nakama-tachi / Волчица и семеро дру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831802.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Bright: Samurai Soul | Яркость. Душа самурая [2021, Movie] WEB
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831746.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Santa no Yama: Yousei no Mori | В горах у Санты: Эльфийски�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831574.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Yukiwatari | Прогулки по снегу [1994, Movie] VHSRip 360p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831460.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Little Polar Bear: Shirokuma-kun, Fune ni Noru | Белый медвежонок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831454.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ D4 Princess / Drill for Princess / Тренировка для принцесс�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830487.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ikkitousen: Great Guardians / Школьные войны (сезон трети
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830486.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Senki Zesshou Symphogear GX | Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830470.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Dog Days'' | Собачья Жизнь 3 [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830347.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Fate/Kaleid Liner Prisma Illya Zwei Herz! | Судьба: Девочка-вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830277.jpg" />
 </div>
 
 

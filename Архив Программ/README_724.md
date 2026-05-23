@@ -6,7 +6,7 @@ ApowerREC 1.5.5.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684222.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ One Commander 3.4.43.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684221.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Autorun Organizer 5.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684213.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Waterfox Current G4.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684212.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HWiNFO 7.21 Build 4715 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684210.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MAGIX Sound Forge Pro Suite 16.0.0.72 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684209.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ICQ 10.0 build 12094 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684200.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GPU-Z 0.8.9 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684199.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Viber 13.6.0.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684175.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Telegram Desktop 2.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684163.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Allavsoft Video Downloader Converter 3.17.2.7015 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684133.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ FileZilla 3.41.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684123.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PrivaZer 3.0.66 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684122.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NirLauncher Package 1.23.58 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684116.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Vit Registry Fix Pro 14.7.1 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684111.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ StartAllBack 3.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684109.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ QuickCPU 4.3.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684107.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684054.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Blue Cat's PatchWork 1.72 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684045.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ HashTab 6.0.0.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684041.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Techsmith Snagit 13.0.0 Build 6248 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684038.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Soft Organizer Pro 8.11 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684010.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ FastStone Capture 9.4 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683997.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Media Player Classic Home Cinema 1.8.5 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683990.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ ExamDiff Pro Master Edition 10.0.1.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683983.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ K-Lite Codec Pack Update 14.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683979.jpg" />
 </div>
 
 

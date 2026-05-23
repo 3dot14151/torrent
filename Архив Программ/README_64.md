@@ -6,7 +6,7 @@ Athentech Perfectly Clear Complete 3.11.2.1917 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032280.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Autorun Organizer 5.02 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032273.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CrystalDiskInfo 8.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032255.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Viber 14.7.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032250.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Format Factory 5.6.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032245.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Format Factory 5.6.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032239.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.9 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032234.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032181.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PotPlayer 1.7.21419 (x64) DC 210209 Stable RePack (& portable) by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032178.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032171.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7265.5000 (2021.02) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032169.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Acrobat Pro DC 2021.001.20135 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032166.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ F-Secure Freedome VPN 2.40.6717 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032161.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5122.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032156.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ QOwnNotes 23.3.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032109.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Telegram Desktop 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032104.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ WinCatalog 2020.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032085.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Emurasoft EmEditor Professional 20.5.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032084.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Avast Clear 21.1.5968.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032076.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PeaZip 7.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032075.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ reaConverter Pro 7.628 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032074.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft Edge 88.0.705.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032063.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Calibre 5.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032059.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PanoramaStudio 3.5.6 (12.02.2021) Pro RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032025.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ashampoo Burning Studio 22.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032017.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Avast Free Antivirus 21.1.2449 (build 21.1.5968.0) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032006.jpg" />
 </div>
 
 

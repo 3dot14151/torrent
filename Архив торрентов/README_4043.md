@@ -6,7 +6,7 @@ Soulver 3 v3.4.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184586.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ PhotoChef 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184575.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ URI Handler – Open With Picker 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184572.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Exif Pilot 6.22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184562.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MetaImage 1.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184561.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ DesktopClock3D 1.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184552.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ GlueMotion 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184551.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Principle 5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184546.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ CPU-Z 2.08.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184545.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ EZ CD Audio Converter 11.2.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184541.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Topaz Photo AI 2.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184535.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Topaz Video AI 3.5.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184526.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ SSH Config Editor Pro 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184522.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ start 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184516.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184512.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Iridient Developer 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184506.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Keyboard Maestro 9 v9.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184502.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ GoldWave 6.78 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184500.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ SnapMotion 4.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184496.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ QuickMemoryTestOK 4.67 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184491.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184490.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Auslogics File Recovery 11.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184487.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WSCC (Windows System Control Center) 7.0.7.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184480.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ DxO PhotoLab Elite 6.10.0 build 284 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184467.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Wise Menu 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184465.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ AMD Radeon Software Adrenalin Edition 23.9.3 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184460.jpg" />
 </div>
 
 

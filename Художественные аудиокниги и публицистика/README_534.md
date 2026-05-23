@@ -1,82 +1,3 @@
-###  Публикация: 1332141   (471808) от 03.08.2022
-
-Александр Михайловский, Юлия Маркова | Никто кроме нас (Книги 1-9). (2019-2022) [MP3, Олег Троицкий][Обновляемая]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Девятая книга серии «Никто кроме нас». Аналог Балканских войн нашего мира завершился полным разгромом Османской империи. Павший Стамбул оборотился Константинополем, Российская империя твердо встала в Черноморских Проливах, Сербия обрела Косовский Край и разделила с Черногорией Санджак, Болгария воссоединилась в пределах территорий проживания болгарского народа, притязаниям (   Читать дальше...   )Жанр: Боевая фантастика, историческая фантастика, попаданцыПродолжительность: 12:27:50; 12:14:47; 11:44:50; 11:50:54; 11:38:01; 11:26:58; 11:32:08; 11:07:11; 11:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B869837DD0DB3571633B11EC328F4EED6A0873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160777   (471672) от 26.08.2017
-
-Олег Кожин | Для Всех (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-К обычному парню Михаилу , художнику и немного наркоману приходит в гости его бывшая однокурсница по "художке" Кристина. Ну а дальше начинается настощий ад...
-Немного странно выглядит одичалость людей — почти первобытная с этим оружием из костей  — но, пожалуй, у кошмара и не может быть никакой логики. Только ночь, падающая на холм в одно мгновение, и приходящие (   Читать дальше...   )Жанр: Ужасы, мистикаПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED53133E42FB132196D7CB287C71971CFDDA25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160665   (471666) от 26.08.2017
-
-Андрей Щербаков | 9600 бод и все-все-все (2017) [MP3, Freshman]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-9600 бод и все-все-все — юмористическое произведение времен Фидонета (издано в 1992 году). Автор (Андрей Щербаков) в сатирической форме повествует о Винни-Пухе и сопутствующих персонажах как о фидошниках.Жанр: Юмор. ITПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401B6E428651A75B9F1AD848A598D00A8284ED16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548002   (471611) от 16.09.2012
 
 GO-БЛИН | Ночной позор [2012] [MP3]
@@ -85,7 +6,7 @@ GO-БЛИН | Ночной позор [2012] [MP3]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471611.jpg" />
 </div>
 
 
@@ -112,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471595.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471532.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471466.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471394.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471390.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471308.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471247.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471240.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471230.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471173.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471163.jpg" />
 </div>
 
 
@@ -401,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471048.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470997.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470984.jpg" />
 </div>
 
 
@@ -479,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470980.jpg" />
 </div>
 
 
@@ -505,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470978.jpg" />
 </div>
 
 
@@ -531,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470945.jpg" />
 </div>
 
 
@@ -558,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470940.jpg" />
 </div>
 
 
@@ -584,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470920.jpg" />
 </div>
 
 
@@ -610,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470882.jpg" />
 </div>
 
 
@@ -636,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470845.jpg" />
 </div>
 
 
@@ -662,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470838.jpg" />
 </div>
 
 
@@ -674,6 +595,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC00CFF2F8BAF25BFC26227462E5D5164E638C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939229   (470813) от 23.09.2015
+
+Уильям Гибсон | Мона Лиза овердрайв (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир, живущий по новым законам, – в мир, подчиненный компьютерным супертехнологиям. Это – мир гигантских корпораций, мир хакеров – "ковбоев", мир полусвихнувшейся виртуальной Вселенной. Это – мир, в котором искусственный разум научился создавать своих демонов и богов.Это – мир, в котором живет Мона Лиза эры "хай-тех" – девушка, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FF335232854E14FB32F8C71317658DBFB40C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939275   (470807) от 23.09.2015
+
+Юрий Брайдер, Николай Чадович | Бастионы Дита (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странствия Артема по мультивселенной продолжаются.
+Из мира замёрзшего океана он попадает в странный город Дит, где все живут в страхе перед пришельцами Изнанки. В этом мире постоянно случаются сокрушения – на поверхности планеты оказываются куски чужого пространства, их выжигают огнём и травилом. Дитсы предсказывают сокрушения с помощью птиц слепышей, которые чуют (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7B312ED7166752E3A623611B95AC6E4C246822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940131   (470805) от 23.09.2015
+
+Елена Чудинова | Мечеть парижской Богоматери (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман известной писательницы Е.Чудиновой повествует о нашем возможном будущем. Евросоюз в одно прекрасное утро объявляет ислам государственной религией. Собор Парижской Богоматери превращается в кафедральную мечеть, как некогда это случилось со Св. Софией в Константинополе. О терроризме и сопротивлении, о гетто и катакомбной католической Церкви повествует роман, (   Читать дальше...   )Жанр: Фантастика, боевик, альтернативная историяПродолжительность: 10:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE2003FCC68AC463E8985AFEDDA6DE1A6A8D630
 ```
 
 https://mybot314.ru/tekegram_catalog/

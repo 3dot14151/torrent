@@ -1,29 +1,3 @@
-###  Публикация: 1754410   (5310) от 30.08.2025
-
-ELDEN RING (2022) [Ru/Multi] (1.16.1/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FBD093AAEFDE70BAED10DB773C583C2D41AF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683120   (5309) от 30.08.2025
 
 Legends of Amberland II: The Song of Trees (2023) [En] (1.24) License GOG
@@ -32,7 +6,7 @@ Legends of Amberland II: The Song of Trees (2023) [En] (1.24) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5309.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/En] (1.1.
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5308.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Kynseed (2018) [En] (1.2.11.14505) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5307.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Caves of Lore (2023) [En] (1.8.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5306.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5305.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Knights of the Chalice 2 (2022) [En] (1.91) License GOG [Archmage Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5304.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5303.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997/1.0.1.3725653 Update 1) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5295.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Legends of Amberland: The Forgotten Crown (2019) [Ru/Multi] (1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5284.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Residual (2021) [Ru/Multi] (1.3.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5281.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Synergy (2024) [Ru/Multi] (2508200455) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5276.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5264.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5257.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Panzer Knights (2020) [Ru/Multi] (1.1.7/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5249.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Tiny Bookshop (2025) [Ru/Multi] (Build 19513764) Repack Other s [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5248.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612/dlc) Repack FitGirl [Premium
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5247.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.2/dlc) Repack FitGirl [
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5241.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Prison Escape Simulator: Dig Out (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5236.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Talisman: Digital 5th Edition (2024) [Ru/Multi] (Build 84407/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5223.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Kingdom's Deck (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5217.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.1.8.7/dlc) Repack Pioneer
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5215.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (07.12.2017) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5208.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5197.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5187.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5185.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03B5DE4001212A6BBAD13204BD8D442C518296D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815475   (5182) от 30.08.2025
+
+LEGO Builder's Journey (2021) [Ru/Multi] (4.0.0) Repack FitGirl
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Builder's Journey - это лирическая головоломка, которая разворачивается в мире из элементов и кубиков LEGO. Кубик за кубиком проходите уровни, решая головоломки, которые иногда требуют следовать инструкциям, а иногда - дать волю воображению, нарушив правила. В этой истории есть взлёты и падения, сложные задачи и минуты торжества. Смело экспериментируйте, и, возможно, (   Читать дальше...   )Тип издания: RepackРазработчик: Light Brick StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E8BA6661160891564D369BDCF1714349C79E5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

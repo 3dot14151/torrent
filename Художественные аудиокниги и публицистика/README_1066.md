@@ -1,81 +1,3 @@
-###  Публикация: 1792626   (20800) от 20.04.2025
-
-Эрих Мария Ремарк | Триумфальная арка (2013) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Роман "Триумфальная арка" написан известным немецким писателем Э.М. Ремарком (1898-1970). Автор рассказывает о трагической судьбе талантливого немецкого хирурга, бежавшего из фашистской Германии от преследований нацистов. Ремарк с большим искусством анализирует сложный духовный мир героя. В этом романе с огромной силой звучит тема борьбы с фашизмом, но (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: Нигде не купишьПродолжительность: 21:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C171DDF1BB4E435C1A8240A8C888F22CEC831929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792705   (20799) от 20.04.2025
-
-Валерий Шарапов | Тревожная весна 45-го (2020) [MP3, Александр Серов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-1945 год. После демобилизации в Москву возвращается бывший командир разведроты майор Александр Васильков. Здесь он встречает своего заместителя капитана Старцева. Комиссованный после ранения, тот уже два года работает старшим следователем в МУРе. Старцев зовет командира на службу в Уголовный розыск. Людей не хватает, а криминальная обстановка в столице – сродни фронтовой. (   Читать дальше...   )Жанр: Криминальные боевикиИздательство: Литрес Паблишинг, ЭксмоПродолжительность: 07:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A787D1F84DEC5D60F9CB62C58356A8EC7493661B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792784   (20794) от 20.04.2025
-
-Лев Овалов | Январские ночи. Повесть о Розалии Землячке (2022) [MP3, Александр Харитонов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
-</div>
-
-
-###  Подробнее
-
-Лев Овалов известен читателям как автор многих увлекательных романов и повестей. Им написано свыше тридцати книг, первые его произведения были отмечены еще А.М. Горьким и А.С. Серафимовичем. Автора всегда интересовала современная партийная проблематика. За последнее время вышли его романы «Партийное поручение», «История одной судьбы» и повесть «Помни обо мне». К (   Читать дальше...   )Жанр: Биография, историческая прозаИздательство: Аудиокнига своими рукамиПродолжительность: 08:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71E53016E703ADF2A91EF72A30E91D4A8F5B5EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792962   (20756) от 21.04.2025
 
 Артем Сластин | Первый пользователь (Книга 3) (2025) [MP3, Михаил Алексеев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20756.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20727.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20711.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20695.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20685.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20650.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20649.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20646.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20645.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20642.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20585.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20578.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20577.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20576.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20524.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20508.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20480.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20472.jpg" />
 </div>
 
 
@@ -562,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20426.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20413.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20402.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20339.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20319.jpg" />
 </div>
 
 
@@ -678,6 +600,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555DD6A31334BA9248A1A850C108105CB43990DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793629   (20295) от 25.04.2025
+
+Денис Деев | Я – другой (Книга 6). СПАС I (2024) [MP3, Алексей Семёнов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20295.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Службе Помощи Астронавтам Солнечной работает всего два сотрудника – я да мой напарник Мирко. Несмотря на скромный штат, мы спасли сто тридцать семь жизней, восемнадцать кораблей и шесть орбитальных станций.
+Казалось бы, что для нас нет нерешаемых задач! Однако находка на астероиде меняет все: кристалл, обнаруженный там, признает меня Спасителем и отдает в руки (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 07:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6528A7F0ABDCC495A07C894AD85E8100391C5A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652867   (20289) от 25.04.2025
+
+П.Е. Ахмадулин | Холодильник (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20289.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дональд Кросс после случившихся потрясений превратился в затворника. Бывший гениальный ученый отказался от общения с бывшими коллегами и знакомыми, окончательно запершись в своей квартире, благо, его состояния хватило бы на несколько таких жизней. Спустя годы бывший партнер по бизнесу силой вынудил установить в квартире Кросса некое устройство, которое изменило (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD02EC7AF45D751B543AB847CCE70AC8FFFF6E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793710   (20273) от 25.04.2025
+
+Константин Симонов | Живые и мёртвые (Книга 1). Живые и мёртвые (2015) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20273.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1955 году Константин Михайлович Симонов приступает к работе над романом «Живые и мёртвые». С 1958 по 1960 год писатель живёт в Ташкенте. Вернувшись в Москву, он привозит законченный роман. Завершена первая часть большого правдивого произведения о Великой Отечественной войне, найдены герои, с которыми читатель пройдёт путь от первых дней отступления до разгрома (   Читать дальше...   )Жанр: книги о войне, литература 20 века, психологическая проза, советская литератураИздательство: СОЮЗПродолжительность: 21:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67BD8E72A27ABCC0BB47FCC9C0359F715D03FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

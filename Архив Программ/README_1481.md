@@ -6,7 +6,7 @@ KMSAuto Helper 1.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282311.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pale Moon 28.7.2 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282204.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 8.54.0.85 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282195.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera 64.0.3417.92 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282191.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IObit Driver Booster Pro 7.1.0.533 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282189.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ ICE Book Reader Pro 9.5.4 + SkinPack Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282140.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EZ CD Audio Converter 5.0.4.1 Ultimate RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282139.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Google Chrome 55.0.2883.87 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282131.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Bridge CC 2017 7.0.0.93 RePack by KpoJIuK (10.12.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282128.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Winstep Xtreme 16.12 Full [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282127.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NVIDIA GeForce Desktop 376.19 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282126.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Nox App Player 6.5.0.0003 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282063.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ TeamViewer 12.0.71503 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281998.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe After Effects CC 2017.0 14.0.1.5 RePack by KpoJIuK (10.12.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281982.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ OpenVPN 2.3.14 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281978.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281964.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ FonePaw Android Data Recovery 3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281917.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ qBittorrent 4.1.9 Dark (x64) Repack by suratovvlad
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281910.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Mozilla Firefox Quantum 57.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281890.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Reg Organizer 8.04 Portable by Kopejkin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281888.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Google Chrome 55.0.2883.87 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281860.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ SamDrivers 16.11 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281840.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Winstep Xtreme 16.12 Full RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281828.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ WizNote 4.2.651 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281810.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Reg Organizer 8.04 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281754.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.95.4500 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281736.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1638208   (247726) от 07.06.2023
-
-Bread & Fred (2023) [Multi] (1.011) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Bread & Fred - это сложный кооперативный платформер от Apogee, в котором два игрока должны сообща прыгать и карабкаться на вершину снежной горы. Играйте за Хлеба и Фреда в их изнурительном, а иногда и безумном восхождении, которое требует точности при каждом прыжке. Каждый раз, приземляясь, вы будете ближе к вершине и на шаг ближе к освоению платформера, но ваше (   Читать дальше...   )Тип издания: LicenseРазработчик: SandCastles StudioЖанр: Action, Arcade, PlatformerЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C9F9C405DCE7C75C53EF7C685DE2F69337D6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833759   (247721) от 02.11.2025
 
 Farthest Frontier (2022) [Ru/Multi] (1.0.0) Repack FitGirl
@@ -32,7 +6,7 @@ Farthest Frontier (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247721.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Car Dealership Simulator (2023) [Multi] (1.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247709.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247695.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247674.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247671.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247662.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Evil West (2022) [Ru/Multi] (0.48) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247595.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [Ru/Multi] (4.52.36
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247544.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247536.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Crying Suns (2019) [Ru/Multi] (3.0.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247520.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247472.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247450.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247447.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247446.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ A Game of Thrones: The Board Game (2020) [Multi] (1.1.0.1494/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247393.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2168) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247388.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247373.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247371.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Undead Horde (2019) [Ru/Multi] (1.2.2) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247362.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ The Simulacrum (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247307.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247288.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247273.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Moonscars (2022) [Multi] (1.6.009) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247235.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Thymesia (2022) [Ru/Multi] (21.24723) License GOG [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247105.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247093.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8308296F56F0B65C0A7B10758739C5BB6C7E3D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644682   (247092) от 09.07.2023
+
+A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247092.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Total War Saga Thrones of Britannia – самостоятельная независимая часть в серии «Total War», стратегия в реальном времени, в которой вы сможете переписать историю и поучаствовать в событиях, предопределивших в свое время будущее Британии… По сюжету на дворе 878 год. Страна, которой в будущем суждено стать великой, разваливается на кусочки, и вам придется оказать (   Читать дальше...   )Тип издания: RepackРазработчик: Creative AssemblyЖанр: RTSЯзык озвучки: Русский, английскийЯзык субтитров: Русский, английскийЯзык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0B2A850C3B219D8C0FB377B2F66E3427BAC4BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

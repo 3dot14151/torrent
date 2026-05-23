@@ -1,82 +1,3 @@
-###  Публикация: 1400908   (714880) от 07.08.2020
-
-Михаил Геллер, Александр Некрич | Утопия у власти. История Советского Союза с 1917 г. до наших дней (2020) Книга первая.[MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Утопия у власти», систематизированное, исчерпывающее и фундаментальное исследование новой и новейшей истории России. Настоящая книга — первое московское издание, история СССР, написанная свободно, без всякой цензуры.Жанр: ИсторияПродолжительность: 05:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49481723EAE1CD5D4DC7E77E6E5C5ACE7B642988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400894   (714877) от 07.08.2020
-
-Алексей Калугин | Полет мотылька (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Все происходящее вокруг нас – это реальность или бесконечный сон, который мы видим? А может, мы сами персонажи чьих-то грез, марионетки, подвешенные на ниточки чужих сновидений? Тогда кто тот кукловод, который заставляет плясать нас под свою дудку и меняет декорации, когда ему вздумается? Ерунда – скажет кто-то. Но именно от ответов на эти вопросы зависит судьба (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 10:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35395E1F733C2E9832B1057603B982463A8A385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400840   (714875) от 07.08.2020
-
-Василий Кораблев | Жильцы пятого измерения (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Проверяя почтовый ящик Верочка обнаружила розовую бумажку.
-“Увеличение размеров вашей жилплощади без регистрации и смс. У вас маленькая квартира, а хочется, чтобы она стала больше? Но денег, конечно, на новую просторную квартиру у вас нет? Маленькая зарплата, незапланированные дети, родственники за которыми требуется уход и поэтому они живут с вами?Жанр: Ужасы, мистикаПродолжительность: 02:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD85B3B92AF2A4DF3DA006F25A34F2874E7952C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532472   (714734) от 19.02.2022
 
 Сандроне Дациери | Убить Отца (2020) [MP3, Сергей Кирсанов]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714734.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714730.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714716.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714647.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714637.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714528.jpg" />
 </div>
 
 
@@ -247,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714473.jpg" />
 </div>
 
 
@@ -275,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714420.jpg" />
 </div>
 
 
@@ -303,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714334.jpg" />
 </div>
 
 
@@ -329,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714251.jpg" />
 </div>
 
 
@@ -355,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714247.jpg" />
 </div>
 
 
@@ -381,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714244.jpg" />
 </div>
 
 
@@ -407,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714180.jpg" />
 </div>
 
 
@@ -433,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714144.jpg" />
 </div>
 
 
@@ -460,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714142.jpg" />
 </div>
 
 
@@ -486,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714138.jpg" />
 </div>
 
 
@@ -512,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714135.jpg" />
 </div>
 
 
@@ -538,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714128.jpg" />
 </div>
 
 
@@ -565,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714087.jpg" />
 </div>
 
 
@@ -592,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714074.jpg" />
 </div>
 
 
@@ -618,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714039.jpg" />
 </div>
 
 
@@ -644,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714021.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713969.jpg" />
 </div>
 
 
@@ -682,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3979128C6A9C8D8AAE000C756FE9350F1FC7B3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219494   (713898) от 14.04.2018
+
+Джуд Уотсон | Планета войн (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно джедаев приглашали разрешить спор. На сей раз у Куай-Гона и его ученика другая миссия: им предстоит спасти хранительницу мира Таллу. Женщина-джедай попала в плен к одной из воюющих сторон планеты Мелида-Даан. Здесь уже много лет идет война между двумя враждующими народами. Только Молодые — союз мятежных подростков — хотят остановить кровопролитие и восстановить (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 03:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8921B8721C04A740E46011273DD2D4CD0FB49FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024636   (713820) от 10.06.2016
+
+Клиффорд Саймак | Грот танцующих оленей (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа археологов изучает наскальные рисунки, найденные в пещере. В конце всех работ, когда стали паковать палатки, один из исследователей Бойд находит замаскированный грот, расписанный неизвестным художником двести веков назад — так показал углеводородный анализ, сделанный впоследствии по образцам красок и отпечаткам пальцев в лаборатории ФБР. Но череда случайностей (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F945D3CB1E91CB0860B5D25BA7BF70F07CD0C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219454   (713770) от 14.04.2018
+
+Гай Гэвриел Кей | Тигана (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мстя за смерть сына, король-чародей Брандин Игратский решает предать забвению само имя захваченной им земли, истребив ее защитников и рассеяв по полуострову Ладонь их братьев и сыновей. Но память убить невозможно. Она возрождается и становится силой, способной сопротивляться магии тирана. Сын погибшего принца Тиганы Алессан меняет сотни обличий, плетя сети заговора, (   Читать дальше...   )Жанр: ФентезиПродолжительность: 27:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66C8C660D5DA0A55657AE2BF2070AD1E28F648D
 ```
 
 https://mybot314.ru/tekegram_catalog/

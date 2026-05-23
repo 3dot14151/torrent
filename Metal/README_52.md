@@ -6,7 +6,7 @@ Supresion - Emerging Extermination (2015) [MP3|320 кб/с]<Thrash / Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612992.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mourning's Hope - The Storm Within (2015) [MP3|320 кб/с]<Progressive Metal, I
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612991.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Aeveron - 4 альбома, 1 EP (2004-2015) [MP3|320 кб/с]<Melodic Black / D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612924.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tulsadoom - Storms Of The Netherworld (2015) [MP3|320 кб/с]<Black Metal, Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612922.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Telergy - 3 альбома (2011-2015) [MP3|192-320 кб/с]<Epic / Symphonic / 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612919.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chaos Synopsis - Seasons Of Red (2015) [MP3|320 кб/с]<Death Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612811.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sinister - Dark Memorials (2015) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612797.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Thy Art Is Murder - Holy War (2015) [MP3||~245 кб/с (V0)]<Technical Deathcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612567.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ To/Die/For (To Die For) - Cult (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612514.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Udo Dirkschneider - My Way (2022) Cover album [MP3|320 Kbps] <Heavy Metal, Hard 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611032.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hellmotz - South Born (2015) [MP3|320 кб/с]<Southern / Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610984.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Exarsis - The Human Project (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610872.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Abnormal Thought Patterns - Altered State Of Consciousness (2015) [MP3|320 кб/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610776.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Next To None - A Light In The Dark (2015) [MP3|320 кб/с]<NWOAHM, Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610684.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Caliban - Dystopia (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609629.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Accept - 22Albums+3EP (1979-2012) [MP3|320 kbps]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_608867.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Megadeth - Killing Is My Business...And Business Is Good - The Final Kill (1985)
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608847.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Avantasia - Tobias Sammet's (2СD) (2010) [MP3|320 кб/с]<The Metal Opera>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607489.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Ayreon - 01011001 (2008) [MP3|320 кб/с]<Sympho Progressive Metal/Rock Opera>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607395.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Kimera - Faceless Mirror (2015) [MP3|320 кб/с]<Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607229.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ ParanoiD - Отторжение (2007) [MP3|192 кб/с]<Nu Metal ,Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605368.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Imminent Sonic Destruction - The Sun Will Always Set (2022) [MP3|320 Kbps] <Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603979.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Suotana - Land Of The Ending Time (2018) [MP3|320 Kbps] <Melodic Black Metal, Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603711.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Neutralization of Shit - Metal Covers Vol.1 (2017) Авторская разда
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603488.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Speckmann Project - Fiends of Emptiness (2022) [MP3|320 Kbps] <Death Metal, Olds
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603478.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Dozethrone - 13 Albums (2019-2022) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603472.jpg" />
 </div>
 
 

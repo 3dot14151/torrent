@@ -6,7 +6,7 @@ VA - Poolside Lounge 2026 (Deep Strips 5/8/26 ) [FLAC|Lossless|WEB-DL|tracks] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068573.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - A State of Trance 2026 (Mixed by Armin van Buuren) (2026) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068527.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Ori Uplift - Uplifting Only Episode 691 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068444.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ VA - Armin van Buuren - A State Of Trance 1276 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068443.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ VA - Mixadance 001-500 (2004-2014) <Electro House, Progressive House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068350.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Frontmusic - Deep Chill Lounge (2026) [MP3|320 Kbps] <Chillout, Lounge>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068328.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Saturday Vibes Dance Music Collection 2026 (2026) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068303.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Tangerine Dream - Pergamon (1981) 1992, Relativity Records [FLAC|Lossless|image 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068302.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Ori Uplift - Uplifting Only Episode 690 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068139.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Armin van Buuren - A State Of Trance 1275 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068138.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Trance Pathways #02 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067885.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - The Best Of Dream Dance (2006) 2 x CD, Compilation [FLAC|Lossless|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067882.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Balearic Guitar Nights, Vol. 1 (2026) [MP3|320 Kbps] <Lounge, Chill Out, Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067852.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Ibiza House Spring 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067849.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Moonraker - Volume 2 (1995) 2 CD, Compilation [FLAC|Lossless|image + .cue] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067848.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Dream Dance - Lost Trance Classics (2009) 2 x CD, Compilation [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067846.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Dream Dance - Best Of 15 Years (2011) 2 x CD, Compilation [FLAC|Lossless|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067845.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Sunset Salinas: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067706.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Lounge Reverie: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067705.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Zenith Echoes (Noon Chill Out Lounge), Vol. 1 (2026) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067640.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Blank & Jones - Milchbar - Seaside Season 18 (2026) [FLAC 24/44.1|Lossless|WEB-D
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067525.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - A-Mase - Deep Relax, Vol. 3 (2026) [MP3|320 Kbps] <Deep House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067460.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Electronic Lullaby, Vol. 1 (2026) [MP3|320 Kbps] <Chillout, Balearic, Downt
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067398.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Lazer Club - Forevermore (2026) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067386.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - 13 Years Of Suanda Music (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067295.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Sweet Dream Compilation Dream House Progressive (2026) [MP3|320 Kbps] <Prog
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067204.jpg" />
 </div>
 
 

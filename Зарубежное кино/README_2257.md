@@ -1,55 +1,3 @@
-###  Публикация: 1805513   (12319) от 06.07.2025
-
-Психи на воле / La Cavale des fous (1993) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Профессор Анри Туссен застал свою жену за изменой и попытался её убить в приступе слепой ревности. За это его отправили в психиатрическую клинику. Спустя 7 лет врач Бертран Даумале сообщает Анри, что его жена находится при смерти и желает получить от своего мужа прощение и последний поцелуй. Бертран согласен тайно вывезти Анри на свидание с женой. Но вместе с ними (   Читать дальше...   )Производство: Франция / Fideline Films, France 2 Cinéma, SofiarpЖанр: комедияРежиссер: Марко ПикоАктеры: Пьер Ришар, Мишель Пикколи, Доминик Пинон, Флоранс Пернель, Эдит Скоб, Марк Беттон, Жак Дени, Элен Сюржер, Ронни Кутёр, Жан-Поль Мюэль, Женни Клив, Даниэль Мартен, Жан-Клод Легуа, Жан-Квентин Шателен, Жан-Франсуа ДерекПеревод: профессиональный многоголосый (Селена Интернешнл; Инис)Язык озвучки: русский, французскийСубтитры: русские (ylnian), французскиеПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FF16CD42C132BFB1DF08A25DF88B40BE3ECC97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805454   (12314) от 06.07.2025
-
-Сплошные неприятности / Nothing But Trouble (1991) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-По мотивам рассказа Питера Эйкройда... Издатель финансового журнала Крис вызвался отвезти в Атлантик-сити обворожительную адвокатессу Дайану. За ними увязалась парочка латиноамериканских миллионеров, брат и сестра Фаусто и Реналда. Все надеялись на весёлое времяпрепровождение, а вышло... Начались все беды с сущего пустяка: Крис нарушил правила дорожного движения (   Читать дальше...   )Производство: США / Applied Action, Warner Bros. PicturesЖанр: комедияРежиссер: Дэн ЭйкройдАктеры: Чеви Чейз, Дэн Эйкройд, Джон Кэнди, Деми Мур, Вэлри Бромфилд, Тейлор Негрон, Рэймонд Дж. Бэрри, Брайан Дойл-Мюррэй, Джон Уэсли, Питер Эйкройд, Дэниэл Болдуин, Джим Стаскел, Дебора Ли Джонсон, Карла Тамбурелли, Джон ДевикисПеревод: дублированный (Варус видео), профессиональный многоголосый (HTB+), профессиональный двухголосый (Goodtime Media), авторский (Алексей Михалёв)Язык озвучки: русский, английскийСубтитры: русские (надписи с песнями и полные, Handino), английскиеПродолжительность: 01:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C951FF37504618EA86889521AD5479626DBFBB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805534   (12313) от 06.07.2025
 
 Психи на воле / La Cavale des fous (1993) BDRip [H.264/720p] [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12313.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12309.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12286.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12279.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12265.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12258.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12205.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Z – значит Захария / Z for Zachariah (2015) BDRip [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12172.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12154.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12099.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12077.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12035.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11957.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11949.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11899.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11880.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11866.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11833.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11829.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11827.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11809.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11785.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11783.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11780.jpg" />
 </div>
 
 
@@ -670,6 +618,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6628D1973A4C05C1B8001E9586FA1ACC885F1A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806268   (11724) от 12.07.2025
+
+Все проходит / Voorbij, voorbij / All Things Pass (1979/1981) DVDRip [H.264] [NL / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Второй мировой войны в Нидерландах голландский эсэсовец Нильс застрелил лидера сопротивления Ари. Его товарищи поклялись отомстить за его смерть. 35 лет спустя один из них, Аб, снова столкнулся с Нильсом. Он решил собрать своих старых друзей, чтобы убить его.
+
+Представляет собой завершение фильма Солдаты королевы (Оранжевый солдат) / Soldaat van Oranje / (   Читать дальше...   )Производство: НидерландыЖанр: драмаРежиссер: Пол ВерховенАктеры: Leontien Ceulemans, Андреа Домбург, Луис Хенсен, Симоне Клейнсма, Diane Lensink, Хидде Мас, Гус Остер, Ян Ретель, Пит Рёмер, Рик СхагенПеревод: субтитрыЯзык озвучки: НидерландскийСубтитры: Русские, английскиеПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174FAE94A591CBCC6528D4486E99D946188BFA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395387   (11677) от 13.07.2025
+
+Афера в Майами / Wasp Network (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубинское правительство направляет в Майами своих шпионов для предотвращения терактов, организуемых враждебными группировками. Но агенты под прикрытием не только успешно исполняют свою миссию, но и оказываются втянуты в подпольную торговлю кокаином, что грозит мировым скандалом.Производство: Франция, Бразилия, Испания, Бельгия / RT Features, CG Cinéma, Nostromo PicturesЖанр: Триллер, драма, криминалРежиссер: Оливье АссайасАктеры: Пенелопа Крус, Эдгар Рамирес, Гаэль Гарсиа Берналь, Ана де Армас, Вагнер Моура, Леонардо Сбаралья, Нолан Гуэрра, Осдеми Пастрана, Тони Плана, Джулиан ФлиннПеревод: Дублированный (iTunes)Субтитры: Французские (Forced, Full)Продолжительность: 02:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51968B046A1A2D24B51C4A6559086F83E439E7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

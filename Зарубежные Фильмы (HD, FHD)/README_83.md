@@ -1,56 +1,3 @@
-###  Публикация: 1458618   (1020273) от 19.04.2021
-
-Кундун / Kundun (1997) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Повествование о жизни и трагической судьбе четырнадцатого Далай-Ламы, одного из величайших религиозных деятелей нашей эпохи и духовного наставника буддистов всего мира. Хроника его детства и юности, наполненной тревогами за будущее древней нации, решительными попытками отстоять право Тибета на политическую и религиозную независимость.Производство: США, Монако, Марокко / De Fina-Cappa, Dune Films, Refuge Productions Inc.Жанр: Драма, военный, биография, историяРежиссер: Мартин СкорсезеАктеры: Тензин Тхутхоб Царонг, Гьюрме Тетхонг, Тулку Джамаянг Кунга Тензин, Тензин Еши Пайчанг, Тенчо Гьялпо, Тензин Топджар, Тсеванг Мигюр Кангсар, Тензин Лодо, Геши Йеши Гятсо, Лосанг ГятсоПеревод: Многоголосый профессиональный, Двуголосый профессиональный, АвторскийЯзык озвучки: Русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 02:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC297668F65656C923D138F8A8F84EB3E677D620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458553   (1020263) от 19.04.2021
-
-Вулкан / Volcano (1997) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Лос-Анджелес на своем веку достаточно повидал стихийных бедствий: землетрясений, пожаров, наводнений. Но сейчас «городу ангелов» предстоит столкнуться с самой страшной из когда-либо переживаемых им катастроф, которая грозит стереть его с лица земли.
-В одном из самых населенных районов Лос-Анджелеса внезапно пришел в активное действие вулкан. Раскаленная, грозящая (   Читать дальше...   )Производство: США / Twentieth Century Fox, Donner/Shuler-Donner Productions, Moritz OriginalЖанр: Фантастика, боевик, триллер, драмаРежиссер: Мик ДжексонАктеры: Томми Ли Джонс, Энн Хеч, Габи Хоффманн, Дон Чидл, Жаклин Ким, Кит Дэвид, Джон Корбетт, Майкл Рисполи, Джон Кэрролл Линч, Марселло ТедфордПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67596EC8C0A72D2C4EF5AD258D2D19A21D750A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458519   (1020237) от 19.04.2021
 
 Затерянные во льдах / Arctic (2018) BDRip [H.264/1080p]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020237.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020225.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020224.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020202.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020108.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020103.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020081.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020071.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020070.jpg" />
 </div>
 
 
@@ -296,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020056.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020052.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020046.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019931.jpg" />
 </div>
 
 
@@ -400,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019909.jpg" />
 </div>
 
 
@@ -427,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019907.jpg" />
 </div>
 
 
@@ -453,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019900.jpg" />
 </div>
 
 
@@ -479,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019893.jpg" />
 </div>
 
 
@@ -505,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019888.jpg" />
 </div>
 
 
@@ -531,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019884.jpg" />
 </div>
 
 
@@ -557,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019878.jpg" />
 </div>
 
 
@@ -583,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019873.jpg" />
 </div>
 
 
@@ -609,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019849.jpg" />
 </div>
 
 
@@ -635,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019776.jpg" />
 </div>
 
 
@@ -661,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019767.jpg" />
 </div>
 
 
@@ -672,6 +619,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C5DC47E79E091DE685F390B034544D59541501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463765   (1019751) от 22.04.2021
+
+Ангел мести / Vanquish (2021) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019751.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода на пенсию бывший комиссар полиции понял, что прикрывать продажных детективов было ошибкой. Но чтобы подчистить за собой город, он выбирает не самый гуманный способ — похитив невинного ребенка, он шантажирует его мать. Пытаясь спасти дочь, женщина становится орудием в войне против разбушевавшегося криминала. Впрочем, теперь ее гнева хватит не только на (   Читать дальше...   )Производство: США | Capstone Group, March On ProductionsЖанр: боевик, триллер, криминалРежиссер: Джордж ГаллоАктеры: Морган Фриман, Руби Роуз, Патрик Малдун, Ник Валлелонга, Джули Лотт, Екатерина Бэйкер, Джоэль Майкли, Пол Сэмпсон, Крис Маллинэкс, Майлз ДолеакПеревод: Двуголосый любительский |DVO Pazl Voice, ненормативная лексика|Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318BBB21652E833CE4B284DD052F852420A419E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459418   (1019745) от 22.04.2021
+
+Наследие костей / Legado en los huesos (2019) BDRip [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй фильм из серии «Трилогия о Бастане / Trilogia del baztan».
+Инспектор Амайя Салазар возглавляет расследование по поимке серийного убийцы в дождливом городе в самом сердце страны басков. В котором она родилась и куда надеялась никогда не возвращаться. Разрываясь между рациональной частью работы и местными мифами, Амайя должна побороть своих внутренних демонов, (   Читать дальше...   )Производство: Испания, Германия / ARTE, Atresmedia Cine, Nadcon FilmЖанр: триллер, криминалРежиссер: Фернандо Гонзалез МолинаАктеры: Марта Этура, Нене, Леонардо Сбаралья, Франсеск Орелья, Иманоль Ариас, Бенджамин Нортовер, Itziar Aizpuru, Патриция Лопез, Алисия Санчес, Eduardo Rosa и д.р.Перевод: Профессиональный (двуголосый закадровый) (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: РусскиеПродолжительность: 02:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA5DA484E8DD862F52183E8D01FB179C977C787
 ```
 
 https://mybot314.ru/tekegram_catalog/

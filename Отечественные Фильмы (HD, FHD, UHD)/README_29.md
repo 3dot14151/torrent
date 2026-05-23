@@ -1,82 +1,3 @@
-###  Публикация: 1106837   (869833) от 21.02.2017
-
-Время грехов (2008) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В Крыму не на шутку разбушевалась стихия: сильные дожди повлекли за собой оползни. Местный участковый Николай Еремин знает об опасности не понаслышке: несколько лет назад из-за бедствия в горах погибла его любимая жена.
-Однажды вечером, знакомые Еремина Зина, Игорь и Олег обнаруживают попавший под лавину автомобиль с двумя погибшими. В багажнике мужчины находят набитую (   Читать дальше...   )Производство: Россия, Украина / "Star Media"Жанр: ДетективРежиссер: Павел ТупикАктеры: Константин Милованов, Елена Панова, Игорь Савочкин, Павел Трубинер, Иван Марченко, Леся СамаеваПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A500EA42A960A6599DE00D876AB672A16015F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644604   (869045) от 16.04.2013
-
-Личное дело майора Баранова (2012) HDTVRip [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Майор Баранов, профессионал с непростым характером, за излишнее рвение отстранен от службы и мается на мелких подработках. Неожиданно ему предлагают поучаствовать в операции по разоблачению опасного преступника, сбежавшего из тюрьмы. И всё бы хорошо, но в деле оказывается слишком много "подводных камней": майору придётся ехать в маленький городок, устроиться (   Читать дальше...   )Производство: Россия / Кинокомпания "Русское"Жанр: Комедия, КриминалРежиссер: Роман ПросвирнинАктеры: Алексей Макаров, Мария Миронова, Максим Юдин, Леонид Громов, Дмитрий Зеничев, Сергей Гусинский, Нина Есина, Валерий Афанасьев, Андрей Селиванов, Татьяна Кречетова, Ефим Банчик, Михаил Богдасаров, Татьяна Кузнецова, Дмитрий Супонин, Алена Криг, Владимир Терещенко, Николай Сирин, Сергей Мезенцев, Светлана Рубан, Елена Коровчук, Сергей Баровский, Станислав Хапсаев, (   Читать дальше...   )Перевод: ОригиналСубтитры: ОтсутствуютПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766756   (868957) от 15.03.2014
-
-Вий (2013) BDRip [720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Начало XVIII века. Картограф Джонатан Грин совершает научное путешествие из Европы на Восток. Проследовав через Трансильванию и преодолев Карпатские горы, он попадает в затерянную среди непроходимых лесов деревушку. Только воля случая и густой туман могли занести его в это проклятое место. Народ, живущий здесь, не похож ни на один доселе виданный путешественником. (   Читать дальше...   )Производство: Россия, Украина, Германия, Великобритания, ЧехияЖанр: Фэнтези, Триллер, ПриключенияРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Алексей Чадов, Агния Дитковските, Андрей Смоляков, Игорь Жижикин, Олег Тактаров, Валерий Золотухин, Нина Русланова, Юрий Цурило, Александр ЯковлевПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D75DACAEE7EE3977BC32E769A4FB91F77ADB032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766871   (868700) от 15.03.2014
 
 Вий (2013) BDRemux [1080p]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868700.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867845.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867447.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867217.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864804.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864408.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864139.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864072.jpg" />
 </div>
 
 
@@ -297,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863959.jpg" />
 </div>
 
 
@@ -325,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862915.jpg" />
 </div>
 
 
@@ -352,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862867.jpg" />
 </div>
 
 
@@ -378,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862091.jpg" />
 </div>
 
 
@@ -404,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861803.jpg" />
 </div>
 
 
@@ -430,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861697.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861443.jpg" />
 </div>
 
 
@@ -482,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860115.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859859.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ All inclusive, или Всё включено (2011) BDRip [H.264/720p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859810.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859284.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858903.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858731.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858550.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858528.jpg" />
 </div>
 
 
@@ -675,6 +596,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8D7CA94809475E4A26FE0F3F81286B83400AAD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376680   (857984) от 18.04.2020
+
+ДАУ. Наташа / DAU. Natasha (2020) WEBRip [H.264/1080p-LQ] [PR]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857984.jpg" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1950-е. Наташа заведует столовой в секретном НИИ. Днём женщина поглощена работой, а по ночам выпивает с младшей коллегой Ольгой — подруги делятся друг с другом романтическим надеждами и мечтами о другом будущем. Однажды на вечеринке Наташа сближается с приглашенным французским ученым Люком Биге, а на следующий день её вызывает на допрос генерал КГБ.Производство: Германия, Украина, Великобритания, Россия / Phenomen Berlin Filmproduktions, Phenomen Ukraine, PhenomenЖанр: ДрамаРежиссер: Илья Хржановский, Екатерина ОртелАктеры: Наталия Бережная, Ольга Шкабарня, Александр Божик, Алексей Блинов, Анатолий Сидко, Люк Биже, Раиса Волощук, Валерий Андреев, Владимир АжиппоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D792198256E252DB0A96CDB94D9F18AA9C0FE39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375807   (857983) от 18.04.2020
+
+Не моё собачье дело (2020) WEB-DL [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никита Добрынин — аниматор в Московском зоопарке. Вместе с псом Михаилом и флегматичным приматом Джимом он ведет детское театральное шоу, в котором пытается убедить зрителей, что с животными можно разговаривать. Никита давно и безнадежно влюблен в свою коллегу Олю. Никита устраивает её, но Оле не хватает только, чтобы он был знаменит и богат. Все меняется, когда (   Читать дальше...   )Производство: Россия / Art Pictures StudioЖанр: КомедияРежиссер: Александр ЧерновАктеры: Данила Дунаев, Вячеслав Манучаров, София Игнатова, Алла Подчуфарова, Елена Глазкова, Федя Смирнов, Сергей Белоголовцев, Ольга Тумайкина, Андрей Леонов, Дмитрий НагиевПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A2720007E99703F415E92259BA005330E1C57B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109656   (857242) от 28.02.2017
+
+Фиктивный брак (1992) HDTV [H.264/1080i-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодые герои фильма хотели красиво начать свою жизнь и прожить ее вместе долго и счастливо. Для достижения этой мечты Вера и Олег нашли свой путь и средство: обман родителей, фиктивный брак Олега ради прописки, нужные, но сомнительные, знакомые Веры, устроившейся работать танцовщицей в ресторан. Все это - этапы авантюры, которая должна привести их к успеху. Однако (   Читать дальше...   )Производство: Россия, Украина / Юпитер, Ялтинская киностудияЖанр: ДрамаРежиссер: Николай ЛырчиковАктеры: Александр Баширов, Петр Вельяминов, Вячеслав Шалевич, Константин Родин, Светлана Музыченко, Мария Полицеймако, Сергей Крылов, Майя Булгакова, Николай ЛещуковПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6315B0456CDBFD053A41D30C7809AACA3ACDF519
 ```
 
 https://mybot314.ru/tekegram_catalog/

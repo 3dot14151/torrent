@@ -6,7 +6,7 @@ EagleGet 2.0.4.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444247.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hotspot Shield Elite 5.20.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444242.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Malwarebytes Anti-Malware Corporate 1.80.0.1010 Portable by SpeedZodiac [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444234.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SamDrivers 19.8 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444188.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Topaz A.I. Gigapixel 4.4.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444178.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wondershare Filmora 8.7.4.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444139.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CCEnhancer 4.5.3 + Portable[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444137.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ XMedia Recode 3.3.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444114.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wise Disk Cleaner 9.31.649 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444073.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Atrise Lutcurve 1.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444055.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Atrise Lutcurve 1.5.3. Portable by BALISTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444052.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Windows 10 Enterprise Technical Preview (x86, x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443995.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WinAVI All-In-One Converter 1.7.0.4646 Portable by Baltagy [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443970.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ GPU-Z 2.4.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443952.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AMD Radeon Software Crimson ReLive Edition 17.9.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443947.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Amazing Slider Enterprise 6.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443941.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Blackmagic Design DaVinci Resolve Studio 15.1.0.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443928.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ oCam 418.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443925.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Slimjet 12.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443876.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Opera Next 12.10 1612 beta RC  (x86+x64) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443819.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ WinAVI All-In-One Converter 1.7.0.4646 [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443806.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Adobe Acrobat Reader DC 2018.011.20063 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443793.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Adobe Acrobat Pro DC 2018.011.20063 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443786.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Blumentals Surfblocker 5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443767.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Foxit PhantomPDF Business 5.4.2.0918 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443742.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ AMD Catalyst Application Profiles 12.9 CAP1 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443739.jpg" />
 </div>
 
 

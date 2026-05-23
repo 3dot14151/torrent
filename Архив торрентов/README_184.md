@@ -6,7 +6,7 @@ Spotify 1.1.59.714 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014508.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014507.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ LRTimelapse Pro 5 v5.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014493.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ant Download Manager Pro 2.2.5 акция (Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014467.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Realtek Ethernet Driver 10.049 /8.086 /7.140 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014455.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AIMP 4.70 Build 2251 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014451.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Battle Axe (2021) [Multi] (1.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014427.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ AIMP 4.70 build 2251 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014423.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VideoProc (former MacX Video Converter Pro) 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014398.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ TinkerTool System 7 v7.3 + TinkerTool 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014390.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Sketch 72.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014389.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PDF Shaper Professional 11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014364.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Aiseesoft Video Converter Ultimate 10.2.16 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014363.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RAM Saver Professional 21.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014338.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Movavi Video Editor Plus 2021 v21.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014317.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Movavi Video Suite 21.3.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014286.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Revo Uninstaller Pro 4.4.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014271.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ SoundSource 5.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014239.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ SQLPro for SQLite 2021.55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014237.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MacCleaner 2 PRO 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014229.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Allavsoft Video Downloader Converter 3.23.6.7816 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014227.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FBackup 9.0.290 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014226.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sound Control 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014224.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Skype 8.72.0.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014213.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ DjVu Reader Pro 2.5.2 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014212.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Pocket 7.43.0.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014210.jpg" />
 </div>
 
 

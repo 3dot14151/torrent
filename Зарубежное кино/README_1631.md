@@ -1,57 +1,3 @@
-###  Публикация: 1269366   (216745) от 16.12.2018
-
-Обитель зла: Возмездие / Resident Evil: Retribution (2012) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Смертельный T-вирус, созданный в лабораториях корпорации «Амбрелла», продолжает захватывать Землю, превращая мировое население в легионы пожирающих плоть зомби. Последняя надежда человечества Элис внедряется в самое сердце самой тайной исследовательской базы корпорации и узнает еще больше о собственном таинственном прошлом. Не имея путей к отступлению, Элис продолжает (   Читать дальше...   )Производство: США, Германия, Франция, Канада | Constantin Film Produktion GmbH, Davis-Films, Impact PicturesЖанр: Ужасы, Боевик, Фантастика, ТриллерРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Сиенна Гиллори, Йохан Урб, Ли Бинбин, Ариана Энджинир, Мишель Родригес, Борис Коджо, Кевин Дюран, Одед Фер, Колин Сэлмон, Робин Касянов, Офилио Портильо, Шон Робертс, Тошио Оки, Такато Йамашита, Меган ЧарпентьеПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6634AFE01337A810ADE524E2F55967580643228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269616   (216736) от 16.12.2018
-
-Основной инстинкт / Basic Instinct (1992) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Детектив Ник Каррен ведет расследование по делу об извращенном убийстве на сексуальной почве. Подозрение падает на подругу убитого Кэтрин — писательницу, автора шокирующих романов, которая в своей последней книге подробно описала абсолютно аналогичное преступление.
-
-Но обворожительная, неимоверно сексуальная писательница, обладает удивительной способностью манипулировать (   Читать дальше...   )Производство: США, Франция / Canal+, Carolco Pictures Inc.Жанр: Триллер, Драма, ДетективРежиссер: Пол ВерховенАктеры: Майкл Дуглас, Шэрон Стоун, Джордж Дзундза, Джинн Трипплхорн, Дэнис Арндт, Лейлани Сарелл, Брюс А. Янг, Челси Росс, Дороти Мэлоун, Уэйн Найт ...Перевод: Профессиональный двухголосый закадровый, Профессиональный многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 02:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A334E847E7EA9BF82CA90287D2C0D26B95A53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269360   (216727) от 16.12.2018
 
 Обитель зла 3 / Resident Evil: Extinction (2007) BDRip [H.265/1080p] [10-bit]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216727.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216716.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216701.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216681.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216655.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216654.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216637.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216620.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216606.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216601.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216598.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216595.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216584.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216554.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216547.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216508.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216500.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216497.jpg" />
 </div>
 
 
@@ -529,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216481.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216474.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216463.jpg" />
 </div>
 
 
@@ -607,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216446.jpg" />
 </div>
 
 
@@ -633,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216396.jpg" />
 </div>
 
 
@@ -659,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216370.jpg" />
 </div>
 
 
@@ -670,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BE7A84C95280C273BC7AA8D9FDDD4C51108191C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966798   (216301) от 19.12.2015
+
+Добрый день, Рамон / Guten Tag, Ramon (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамон - мексиканский парень, который очень хочет вырваться из пыльной и унылой деревни, где единственный способ выжить: попасть в местную банду. Рамон пытается бежать в Штаты, но ему фатально не везет: все пять попыток оборачиваются неудачей. Но удача улыбается ему: парню предлагают работу в Германии. Попав в чужой мир, с непонятным языком и странными обычаями, главный (   Читать дальше...   )Производство: Мексика, ГерманияЖанр: ДрамаРежиссер: Хорхе Рамирес СуаресАктеры: Кристиан Феррер, Ингеборг Шёнер, Адриана Барраса, Арселия Рамирес, Рюдигер Эверс, Эктор Котсифакис, Мариус Бегай, Карл ФридрихПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 02:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E4D1E484CB6495331DEB9C4458A29FE9A74B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426071   (216299) от 23.11.2020
+
+Мать / Maza / Mother (2020) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать-одиночка Акико не уделяет должного внимания маленькому сыну Шухею, а больше занимается собственной личной жизнью, встречаясь со случайными мужчинами. Акико - единственный человек, на которого Шухей может положиться. Однажды Шухэй, став подростком, принимает шокирующее решение - убивает своих бабушку и дедушку.Производство: Япония, Happinet(I)., Kadokawa, Star SandsЖанр: Драма, криминал, триллерРежиссер: Тацуси ОмориАктеры: Масами Нагасава, Даикэн Окудаира, Садао Абэ, Кахо, Сарутоки Минагава, Тайга Накано, Кахо Цутимура, Хана Кино, Сё Гундзи, Хало АсадаПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские, немецкие - отдельными файламиПродолжительность: 02:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F79846E2B4DC62E808EBDDF6F98C851E29A8311
 ```
 
 https://mybot314.ru/tekegram_catalog/

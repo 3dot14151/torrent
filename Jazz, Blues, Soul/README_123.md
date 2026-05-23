@@ -6,7 +6,7 @@ Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804559.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Henderson - Quiet Now: Lovesome Things (1999) Verve [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804516.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beth Garner - Snake Farm (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804509.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Moacir Santos - Carnival of the Spirits (1975) Remaster, 2012, EMI Music[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804392.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jan Lundgren Trio - Svenska landskap (2003) Sittel Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804388.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Miles Davis - Miles in St. Louis 1963 (1981) Soulard Intertainment Co. [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804382.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804339.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Reuben Wilson - Got to Get Your Own (1975) 2008, Dusty Groove America[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804307.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Jazz Crusaders featuring Wayne Henderson - Kick The Jazz (2008) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804298.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lonnie Mack - The Best Of Lonnie Mack: The Alligator Records Years (2014) [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804289.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Gregory Fine (Григорий Файн) Trio - Happy Bluesday (1999) Boheme Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803657.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Blue Note Blend (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803651.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Sexy Jazz for Lovers (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803358.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Julian Cannonball Adderley and Strings (1955) 1988, Emarcy [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802964.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sadao Watanabe - Minha Saudade (2001) Universal [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802963.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cannonball Adderley - Alto Giant (1969) 1996, Nippon Crown [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802956.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ The Black And Blues Band - Flick The Switch (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802954.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jeremy Steig - Jigsaw (1992) Triloka Records [FLAC|Lossless|image + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802953.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Stephanie K. - A Word Before You Go (2018) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802832.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Jimi Barbiani Band - Boogie Down The Road, Live! (2017) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802816.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Oscar Benton - I Am Back (2018) [MP3|320 Kbps] <Blues Rock, Americana>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802710.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ John Hicks - Is That So? (1990) Remaster, 2015, Solid Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802677.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Art Farmer - In Europe (1970) Remaster, 2006, Enja[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802563.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Art Farmer & Benny Golson - Meet the Jazztet (1960) Remaster, 2002, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802561.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Billy Cobham - Magic (1977) Reissue 2004 [APE|Lossless|image + .cue] <Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802560.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Mike Pachelli - Fade To Blue (2016) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802443.jpg" />
 </div>
 
 

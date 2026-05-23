@@ -6,7 +6,7 @@ Steganos Safe 13.0.1.9898 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256192.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256169.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comfy File Recovery 3.2 [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256132.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Intel® Processor Identification Utility 4.50 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256093.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft v 2.2 Solar decline v 2.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255962.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kaspersky Internet Security 2013 13.0.0.3279 Technical Preview
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255825.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AusLogics BoostSpeed 5.3.0.0 RePack (& portable) by KpoJIuK [Русский/Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255824.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Infix PDF Editor 5.15 Professional [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255736.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ WinUtilities Professional 10.53 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255731.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PROMT Expert NMT 23.0.59 +  Dictionaries & AddOn Collection [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255563.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Monkey's Audio 10.08 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255552.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Sumatra PDF 3.5.15443 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255549.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Autodesk 3ds Max 2024 RePack by xetrin [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255528.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 03.2023 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255523.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Altium Designer 23.3.1 Build 30 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255522.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Q-Dir 11.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255507.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Ventoy 1.0.91 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255501.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ CudaText 1.190.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255447.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Calibre 6.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255445.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Perfectly Clear WorkBench 4.4.0.2479 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255442.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Sumatra PDF 3.5.15473 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255440.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ StaxRip 2.15.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255439.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Wise Care 365 Pro 6.5.3.625 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255438.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ BurnAware Professional 16.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255410.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ EarthView 7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255405.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ YT Downloader 7.25.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255403.jpg" />
 </div>
 
 

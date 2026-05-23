@@ -1,139 +1,3 @@
-###  Публикация: 1869768   (1068499) от 
-
-Нонсенс / Neonsenseu / The Nonsense (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Юна — беспристрастная страховая следователь, чья задача отделять правду от лжи в делах о выплатах. Расследование смерти мужчины, разбившегося при падении, приводит её к Сун Гю — загадочному попечителю умершего, чьи «сеансы смехотерапии» балансируют на грани гениальности и шарлатанства. Чем глубже Юна погружается в дело, тем острее встает вопрос: перед ней просветлённый (   Читать дальше...   )Производство: Корея Южная /  Korean Academy of Film ArtsЖанр: детектив, триллер, драмаРежиссер: Ли Джэ-хиАктеры: О А-ён, Пак Ён-у, О Мин-э, Ли Джу-миПеревод: Многоголосый любительский (KimchiTV)Язык озвучки: Русский, КорейскийСубтитры: ОтсутствуютПродолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16496BDC3CD8062ECC69CAAC60B35F9F428A65E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869745   (1068498) от 
-
-YouTube канал "Азербайджанские Фильмы" (1925-2013) WEBRip [H.264/720p]
-
->>Коллекции / *логии
->>Отечественное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции удалённого YouTube канала "Азербайджанские Фильмы" / UCkYwiOL-VQebtwalCoYkKzA по состоянию на 15 августа 2021 года.
-
-Бакинская киностудия основана в 1920-е годы как первая киностудия в Азербайджанской ССР.
-Первоначально называлась «Азербайджанская кинофабрика» или Бакинская киностудия художественных фильмов.(   Читать дальше...   )Производство: СССР, Бакинская киностудия, АзербайджанфильмЖанр: Отечественная КлассикаПродолжительность: 161:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF00F4DDB800A14036D70F8AFE7875DE943413B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869766   (1068497) от 
-
-Mr. Big - Hey Man (2026 Remastered) (1996) Remastered, 2026, evoXS [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Trapped in Toyland (04:25)
- 02. Take Cover (04:38)
- 03. Jane Doe (03:36)
- 04. Goin' Where the Wind Blows (04:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A853473325C3BA01A67F14ADFE9DC6F6A8F35E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869771   (1068496) от 
-
-Папины дочки. Новые (2026) WEBRip [H.264/2160p] [4K, SDR, 8-bit] (сезон 5, серии 1-20 из 20)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Даша возвращается домой после двух лет отсутствия и сталкивается с неожиданными проблемами: Веник отвык от жены, а повзрослевшие дочки стали слишком самостоятельными. Параллельно Боря и Галина Сергеевна учатся быть родителями, Диана и Лиза ищут своё место в изменившейся семейной иерархии, а Соня решает переехать в Петербург, что не нравится Венику, который не готов (   Читать дальше...   )Производство: Россия | «Start»Жанр: КомедияРежиссер: Павел БрусочкинАктеры: Филипп Бледный, Анастасия Сиваева, Елизавета Арзамасова, Мирослава Карпович, Дарья Мельникова, Татьяна Орлова, Андрей Леонов, Алексей Демидов, Нонна Гришаева, Ольга Волкова и др.Субтитры: Русские (SDH)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84780501FF2DD1193C28254854C0F359749E4D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869772   (1068495) от 
-
-Вот это драма! / The Drama (2026) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Чарли и Эмма влюблены друг в друга и вот-вот поженятся. Место свадьбы выбрано, приглашения разосланы, до долгожданной церемонии остаются считанные дни. Но одно, казалось бы, невинное откровение переворачивает всё — Чарли узнаёт об Эмме то, что предпочёл бы не знать. Теперь на пути к «долго и счастливо» их отношениям предстоит пройти через неожиданную драму.Производство: США / A24, Live Free or Die Films LLC, Square PegЖанр: драма, мелодрама, комедияРежиссер: Кристоффер БорглиАктеры: Зендея, Роберт Паттинсон, Алана Хаим, Мамуду Ати, Хейли Гейтс, Зои Уинтерс, Ханна Гросс, Сидни Леммон, Анна Барышников, Майкл Эбботт мл.Перевод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE581F5D573B9B132D7613C606D9DEF8DFFEB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869774   (1068494) от 
 
 Chromium 148.0.7778.97 + Portable [Multi/Ru]
@@ -142,7 +6,7 @@ Chromium 148.0.7778.97 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068494.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068493.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068492.jpg" />
 </div>
 
 
@@ -220,7 +84,7 @@ Icecream Screen Recorder Pro 7.47 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068491.jpg" />
 </div>
 
 
@@ -246,7 +110,7 @@ AMS Ландшафтный Дизайн 3D 14.5 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068490.jpg" />
 </div>
 
 
@@ -273,7 +137,7 @@ WILL: Follow The Light (2026) [Ru/Multi] (Build 23125391) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068489.jpg" />
 </div>
 
 
@@ -299,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068488.jpg" />
 </div>
 
 
@@ -325,7 +189,7 @@ Stolen Realm Survivors (2026) [Ru/Multi] (0.148/dlc) Repack Let'sРlay [Ultimate
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068487.jpg" />
 </div>
 
 
@@ -351,7 +215,7 @@ YouTube канал "Pustinnik25" - Советская музыка (2018) WEBRip
 >>РњСѓР·С‹РєР°Р»СЊРЅС‹Рµ РєР»РёРїС‹
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068486.jpg" />
 </div>
 
 
@@ -380,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068485.jpg" />
 </div>
 
 
@@ -406,7 +270,7 @@ ShareX 20.1.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068484.jpg" />
 </div>
 
 
@@ -432,7 +296,7 @@ LeafView 4.2.0 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068483.jpg" />
 </div>
 
 
@@ -460,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068482.jpg" />
 </div>
 
 
@@ -487,7 +351,7 @@ Babylon | Вавилон [2019, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068481.jpg" />
 </div>
 
 
@@ -514,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068480.jpg" />
 </div>
 
 
@@ -540,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068479.jpg" />
 </div>
 
 
@@ -566,7 +430,7 @@ Telegram Desktop 6.8.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068478.jpg" />
 </div>
 
 
@@ -594,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068477.jpg" />
 </div>
 
 
@@ -620,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068476.jpg" />
 </div>
 
 
@@ -646,7 +510,7 @@ Wondershare PDFelement Pro 12.1.17.4188 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068475.jpg" />
 </div>
 
 
@@ -672,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068474.jpg" />
 </div>
 
 
@@ -683,6 +547,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F623BCAD8C4A909845E776ABB8A39094EE290F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869796   (1068473) от 
+
+Михаил Атаманов | Стратег из ниоткуда (Книга 2) (2026) [MP3, Иван Чабан]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая попытка Тимофея легализоваться в мире Элаты, куда его призвали насильно, закончилась смертью и болезненным уроком, что не стоит дерзить сильным мира сего, пока сам ты слаб и неизвестен. Герой этот урок усвоил. И начал строить своё собственное государство из того, что имеется под рукой. А под рукой у Тимофея оказались орки - дикие, кровожадные и плохо управляемые. (   Читать дальше...   )Жанр: Попаданцы в магические миры, Боевое фэнтезиИздательство: 1С-ПаблишингПродолжительность: 10:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645D835FEDBFD047C48643EE804FB4BB9C1FFCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869797   (1068472) от 
+
+Firefox Browser 150.0.2 [Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E465A15DD19B2D88988D439FA64B5FF3B76EF6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869803   (1068470) от 
+
+Полицейский гонщик / Poliziotto sprint (1977) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейскому Марко начальство никак не желает выделить скоростную машину, а его старенькая модель не может выжимать большие скорости, из-за чего в большинстве случаев преступникам удаётся удрать, а сам полицейский не раз попадает в аварии. Во время одной из таких погонь машина Марко переворачивается, и погибает напарник. Далее следует служебное расследование и увольнение (   Читать дальше...   )Производство: Италия / Cleminternazionale CinematograficaЖанр: драма, криминал,боевикРежиссер: Стельвио МассиАктеры: Маурицио Мерли, Лилли Карати, Джанкарло Сбраджа, Анджело Инфанти, Глауко Онорато, Орацио Орландо, Гаэтано Балестрьери, Розарио БореллиПеревод: любительский одноголосый (Horror Maker)Язык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A452725E9E19BF5BD10C0D86DC07C3E4F32657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869804   (1068469) от 
+
+Testament - Practice What You Preach (2026 Remastered) (1989) Remastered, 2026, Nuclear Blast [FLAC 24/96|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Practice What You Preach (04:55)
+ 02. Perilous Nation (05:51)
+ 03. Envy Life (04:17)
+ 04. Time Is Coming (05:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAA4C62F21AD649999197E1F84CCE97FF323645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869802   (1068468) от 
+
+K-Lite Codec Pack 19.7.0 Mega / Full / Standard / Basic [En]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068468.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C830462A88DB82FFF91004C0984BFD30423F8A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

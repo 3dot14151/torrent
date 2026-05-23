@@ -6,7 +6,7 @@ WizTree 3.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017550.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ON1 Photo RAW 2021.5 v15.5.0.10396 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017547.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hard Disk Sentinel PRO 5.70.4 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017533.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EF Commander + Portable 2021.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017508.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ StartIsBack++ 2.9.12 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017503.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 (v20h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017490.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Fedora 34 Workstation Server Spins [x86_64] 10xDVD, 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017486.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Radmin VPN 1.1.4289.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017478.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Hookshot 1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017456.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ GoodNotes 5 v5.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017455.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ djay - DJ App & AI Mixer 3.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017454.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Sensei 1.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017451.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ NCH Express Accounts Plus 9.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017448.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Viber 15.1.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017447.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sketch 72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017445.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sublime Text 4.0 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017444.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ PhoneRescue for iOS 4.1.0.20210430 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017443.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Total Video Converter Pro 4.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017441.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Capture One 21 Pro Pro Beta3 v14.2.0.115 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017438.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ FBackup 9.0.261 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017418.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mozilla Thunderbird 78.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017409.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ DS Audio - Thorn 1.2.2 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017395.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ XnViewMP 0.98.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017394.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Viber 15.2.0.0 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017393.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Opera 76.0.4017.107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017392.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Nitro Pro 13.40.0.811 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017387.jpg" />
 </div>
 
 

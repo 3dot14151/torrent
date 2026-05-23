@@ -6,7 +6,7 @@ Krallice - Ygg Huur (2015) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913776.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sepultura - Quadra (2020) Japanese Edition [WavPack|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913671.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mortemia (Morten Veland - ex-Tristania, Sirenia) - Misere Mortem (2010) [APE|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912930.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Skyliner - Condition Black (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912673.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cholane - Caution! (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912671.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ House of Spirits - 2 Albums (1994,1999) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912669.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Soulrest - Angst, Ghouls and Superstitions (2021) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912581.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ The Murder of My Sweet - Echoes of the Aftermath (2017) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912514.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Kreator - Gods of Violence (2017) 3CD Mailorder Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912255.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Megaherz - Erdwarts (2015) EP [FLAC|Lossless|image + .cue] <Industrial Metal, ND
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911868.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Schlafes Bruder - Heute War Gott Nicht Hier (2013) [FLAC|Lossless]< Symphonic Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911242.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Jaded Star - Memories From The Future (2015) [FLAC|Lossless|tracks + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910891.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Seven Sisters - Seven Sisters (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910877.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Trappazat - From Dusk Till Dawn (2012) [FLAC|Lossless|image + .cue] <NWOBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910856.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Whispering Woods - 2 Albums (2011-2015) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910780.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Machine Head - Catharsis (2018) [FLAC|Lossless|tracks + .cue] <Groove Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910760.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Astarte - Doomed Dark Years (1998) Reissued, 2002 [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910612.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Crashtime - Valley Of The Kings (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910573.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910138.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Helloween - Keeper Of The Seven Keys (Parts I & II)(US 1-st press) (1987, 1988) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910059.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Killswitch Engage - Killswitch Engage (2009) Special Edition [FLAC|Lossless|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909262.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Killswitch Engage - Disarm The Descent (2013) Special Edition [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909257.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Killswitch Engage - The End Of Heartache (2004) Reissue, 2005, Roadrunner Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909250.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Killswitch Engage - Incarnate (2016) Special Edition [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909069.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Never-Trust - Bras De Fer (2014) [FLAC|Lossless|image + .cue] <Thrash Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908950.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Feinstein - Hail And Farewell (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908916.jpg" />
 </div>
 
 

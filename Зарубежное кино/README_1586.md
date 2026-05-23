@@ -1,55 +1,3 @@
-###  Публикация: 1579846   (232293) от 29.09.2022
-
-Скрежет / Pahanhautoja / Hatching (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-12-летняя Тинья занимается гимнастикой и всячески пытается угодить озабоченной имиджем матери — достичь высот в спорте и быть идеальной дочерью. Однажды после череды неприятных событий девочка находит брошенное, как она думала, птичье яйцо, решает не дать ему погибнуть и забирает домой. Находка достигает невероятных размеров, и вскоре из яйца вылупляется неведомая (   Читать дальше...   )Производство: Финляндия, Швеция / Evil Doghouse Productions, Film i Väst, Hobab, Silva Mysterium Oy, uMedia FamilyЖанр: УжасыРежиссер: Ханна БергхольмАктеры: Сиири Солалинна, София Хейккиля, Яни Воланен, Рейно Нордин, Ойва Оллила, Ида Мяаттянен, Сайя Лентонен, Стелла Леппикорпи, Хертта Ниминен, Аада ПунакивиПеревод: Дублированный (Back Board Cinema)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72E2BB48B0152A48813C1274E989205454B5DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635657   (232273) от 26.05.2023
-
-Заяц Ватанена / Le lievre de Vatanen (2006) DVDRip [МVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о фотографе, который в современном мире, как человек, исчерпал ресурсы своего мастерства, разочаровался и пострадал от жизни, окружающей его. Случайно он оказывается в машине, которая по пути через лес сбивает зайца. Встреча с зайцем явилась для Тома Ватанена знаком с неба. Заяц стал для него проводником в новую жизнь. И в этой жизни, в лесу, он обретает (   Читать дальше...   )Производство: Франция, Бельгия, Болгария  / Artemis Productions, Bi Plan Prod., Canal+Жанр: фэнтези, драмаРежиссер: Марк РивьерАктеры: Кристофер Ламберт, Жюли Гайе, Реми Жирар, Франсуа Морель, Йохан Лейзен, Эрик Годон, Жан-Мари Винлин, Венсан Мартен, Кристиан Синниже, Филипп Гран’АнриПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E228D7058C55DA6E7D32E78DB5F7F1425AAC4422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635515   (232266) от 26.05.2023
 
 Меррик / Merrick (2017) WEB-DLRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232266.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232262.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232259.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232253.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232252.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232251.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232244.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232239.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232238.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232221.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232211.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232205.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232189.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232184.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232175.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232159.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232147.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232145.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232143.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232136.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232131.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232121.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232115.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232114.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAB902564EA7C46FDA257FCACA4A7445786DEAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580220   (232104) от 30.09.2022
+
+Под наблюдением / Wire Room (2022) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федеральному агенту поручено следить за членом картеля по контрабанде оружия и любой ценой сохранить ему жизнь. Когда в дом объекта врывается команда наемников, агент решает нарушить правила и связывается с гангстером напрямую, чтобы спасти ему жизнь, но подвергает опасности всю операцию.Производство: США / Emmett/Furla Films, Five Star Films, Grindstone Entertainment Group, Herrick EntertainmentЖанр: боевик, триллерРежиссер: Мэтт ЭскандариАктеры: Кевин Диллон, Брюс Уиллис, Оливер Тревена, Тексас Бэттл, Шелби Кобб, Кэмерон Дуглас, Марти Дункан, Джон Д. Хикман, Себастьен Лардж, Адам Уэль ПоттерПеревод: Дублированный (Pride Production)Субтитры: Английские (full, SDH)Продолжительность: 01:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDA354A47C4602E67AD2BEB0C5A9BE990AC6E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635861   (232101) от 27.05.2023
+
+Янтарные копы / Бурштинові копи / Burshtynovi kopy (2021) WEBRip [H.264/720p] [UKR]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патрульный Максим с детства мечтал следить за правопорядком, чтобы делать мир безопасным и справедливым. Все шло по плану, но журналисты застали Максима во время дежурства с напарницей в неуставной ситуации. За это Максима переводят из Киева в поселок глубоко в житомирских лесах. Там он и его новый напарник Богдан переходят дорогу янтарной мафии. Сможет ли Максим (   Читать дальше...   )Производство: Украина / МамахохоталаЖанр: комедияРежиссер: Алина БухтияроваАктеры: Евгений Янович, Олег Маслюк, Дарья Петрожицкая, Алина Паш, Владимир Кравчук, Игорь Портянко, Александр Рудинский, Андрей Бурым, Алиса Тункевич, Виталина БибливПеревод: отсутствуетЯзык озвучки: украинскийСубтитры: отсутствуютПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E817267FFDC2A3866204149D575DE1BB82DEAA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

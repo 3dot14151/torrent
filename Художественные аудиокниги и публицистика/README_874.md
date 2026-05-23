@@ -1,84 +1,3 @@
-###  Публикация: 1087499   (139192) от 31.12.2016
-
-Алина Знаменская | Прогулка под луной (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Молоденькая учительница Маша, сама слишком хорошо знавшая, каково это — расти сиротой, решила удочерить талантливую девочку Алю.
-Могла ли Маша предположить, что этот искренний самоотверженный поступок станет началом странной, полной опасных приключений и невероятных событий, почти детективной истории? Могла ли представить, что отец Али, человек, которого она считала (   Читать дальше...   )Жанр: РоманПродолжительность: 09:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E390ECB1F9D1899A1E83CC2FEEC2B42E60EB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442985   (139191) от 24.11.2023
-
-Иоганн Вольфганг Гёте | Поэзия (2008) [MP3, Илья Прудовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Поэтическая библиотека».
-Иоганн Вольфганг Гёте – величайший немецкий поэт и мыслитель, автор бессмертного «Фауста». Его творчество занимает особое место в мировой литературе. А переводы стихов Гёте, выполненные В. А. Жуковским, М. Ю. Лермонтовым, Ф. И. Тютчевым, А. А. Фетом, А. К. Толстым, сами являются блестящими образцами поэзии.
-«Гёте как человек и деятель» (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 03:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4F7A4F4E51E056CEBC22C23A3527E7294C0580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087546   (139153) от 31.12.2016
-
-Жюль Верн | Треволнения одного китайца в Китае (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой книги — молодой человек, получивший блестящее образование, изнывает от безделья. Отсюда — апатия, черная меланхолия, неудовлетворенность жизнью. «Испытание несчастьем!» — вот что нужно главному герою. И наш герой отправляется в путешествие…Жанр: ПриключенияПродолжительность: 04:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D9AF4E0064BDD298015F3F938E808187F689AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087331   (139137) от 31.12.2016
 
 Наталья Будур | Нансен. Человек и миф (2016) [MP3]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139137.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139101.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139094.jpg" />
 </div>
 
 
@@ -169,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139051.jpg" />
 </div>
 
 
@@ -195,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139049.jpg" />
 </div>
 
 
@@ -222,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139046.jpg" />
 </div>
 
 
@@ -248,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139036.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139013.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138988.jpg" />
 </div>
 
 
@@ -327,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138986.jpg" />
 </div>
 
 
@@ -354,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138975.jpg" />
 </div>
 
 
@@ -380,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138960.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138943.jpg" />
 </div>
 
 
@@ -433,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138932.jpg" />
 </div>
 
 
@@ -459,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138919.jpg" />
 </div>
 
 
@@ -485,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138911.jpg" />
 </div>
 
 
@@ -513,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138891.jpg" />
 </div>
 
 
@@ -539,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138846.jpg" />
 </div>
 
 
@@ -565,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138837.jpg" />
 </div>
 
 
@@ -591,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138830.jpg" />
 </div>
 
 
@@ -617,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138816.jpg" />
 </div>
 
 
@@ -644,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138773.jpg" />
 </div>
 
 
@@ -671,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138769.jpg" />
 </div>
 
 
@@ -682,6 +601,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08881E74F50CF3A68CF8831C571C1EE65E97F518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087447   (138763) от 31.12.2016
+
+Альфред Ван Вогт | Волшебник Линна (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение романа «Империя атома». Империя Линн оказалась перед угрозой инопланетного вторжения. Появились те, кто когда-то уже пытался уничтожить человечество. Загадочные Риссы…
+Мутант Клэйн и его бывший соперник варвар Чиннар отправляются в опасное путешествие в дальний космос, чтобы найти способ предотвратить неминуемую гибель Земли и всей Солнечной системы.Жанр: ФантастикаПродолжительность: 07:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663E52C6C962D0E2B5E9C5D1E71476936A23E882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195962   (138693) от 31.12.2017
+
+Андрей Иванов | Харбинские мотыльки (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138693.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Харбинские мотыльки" — это 20 лет жизни художника Бориса Реброва, который вместе с армией Юденича семнадцатилетним юношей покидает Россию. По пути в Ревель он теряет семью, пытается найти себя в чужой стране, работает в фотоателье, ведет дневник, пишет картины и незаметно оказывается вовлеченным в деятельность русской фашистской партии Константина Родзаевского. (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 15:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834139C9AD066EFBE70D36F4F24A1166B26DA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087947   (138669) от 31.12.2016
+
+Говард Лавкрафт | Притаившийся ужас (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ Говарда Лавкрафта о бедствии, постигшем селение близ возвышенности Темпест-Маунтин, на которой расположен мрачный и давно необитаемый особняк Мартенсов.
+Особняк стал обителью Затаившегося Страха. О нем среди местных жителей ходят самые необычные и ужасные истории. Герой рассказа, узнав об очередном разгуле смерти в одном из селений из газет, отправляется (   Читать дальше...   )Жанр: Mистика, ужасыПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6320B22482013801E6EC10C60835BE863EC20E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

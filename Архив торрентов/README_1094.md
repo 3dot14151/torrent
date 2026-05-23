@@ -6,7 +6,7 @@ Airflow 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798119.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auburn Sounds - Panagement 2 2.4.0 (FULL) VST, VST3, AAX (x86/x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798113.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ R-Wipe & Clean 20.0.2336 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798101.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Streamlabs OBS 1.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798095.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ SiSoftware Sandra Lite 2021.11.31.53 (R8 31.53) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798094.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Adobe Character Animator 2022 22.0.0.111 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798089.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ StartAllBack 3.0.5 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798075.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe InDesign 2022 17.0.0.096 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798053.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Youtube Downloader HD 4.2 RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798050.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ SiteSucker Pro 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798013.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Screen Wonders 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798011.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VisualDiffer 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798009.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798006.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Pacifist 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797996.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ iNet Network Scanner 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797993.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MacPilot 13 v13.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797986.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Black Hole - Black Pyramid 125 (2021) [MP3|320 Kbps] <Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797981.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Unclutter 2.1.24 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797979.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ PrivaZer 4.0.34 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797975.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ AIMP 5.00 Build 2342 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797963.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ TBProAudio - DSEQ3 3.5.4 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797958.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ AquaSoft Stages 12.3.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797947.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Bootstrap Studio 5.8.5 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797940.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ WhatsApp 2.2142.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797938.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Movavi Video Editor Plus 2022 v22.0.0 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797935.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Universal Media Creation Tool 03.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797928.jpg" />
 </div>
 
 

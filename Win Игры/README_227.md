@@ -1,29 +1,3 @@
-###  Публикация: 927959   (523048) от 15.08.2015
-
-Royal Bounty HD (2015) [Ru/Multi] (1.0.0.210) Repack MasterDarkness
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Royal Bounty HD - приятный подарок для поклонников серий Heroes of Might and Magic и King's Bounty. Игра разрабатывается Brian Kemper, человеком непосредственно участвовавшем в создании HoMM 3 и 4. Royal Bounty HD сделана для ценителей старых приключенческих RPG в духе King's Bounty (1990).Тип издания: RepackРазработчик: iosoftwareЖанр: RPG / IsometricЯзык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Чешский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Чешский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276930BC8B5012383B219317BB5D5FDCB2B956F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928169   (523047) от 15.08.2015
 
 Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
@@ -32,7 +6,7 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523047.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Pike and Shot: Campaigns 1494-1698 (2015) [En/Multi] License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523000.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522713.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522706.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Kingdom Wars 2: Definitive Edition (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522692.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.2.1) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522620.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Steel Division: Normandy 44 (2017) [Ru/Multi] (300093748/dlc) Repack R.G. Cataly
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522619.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Spirits of Mystery 5: Chains of Promise (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522523.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Enigma Agency: The Case of Shadows / Тайное агентство: Дело �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522416.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ New York Mysteries 2: High Voltage / Загадки Нью-Йорка 2: Выс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522373.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Turmoil (2015) [En] (0.0.0.185) License  [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522284.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) SteamRip 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522283.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Saints Row: Gat out of Hell (2015) [Ru/En] (1.0/upd2/dlc) RePack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522280.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Vermillion Watch 6: Parisian Pursuit (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522259.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Cloudbuilt (2014) [Ru/Multi] (1.53/dlc) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522214.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522208.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Redemption Cemetery 14: Dead Park / Кладбище искупления 14: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522127.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ TANGLEWOOD (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521926.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Inscryption (2021) [Ru/Multi] (1.10) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521798.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Suburban Mysteries: The Labyrinth of the Past (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521343.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Dream (2013) [Ru/Multi] (1.12/upd2) Repack R.G. Freedom
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521263.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Fallen A2P Protocol (2015) [Multi] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521256.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ SpellForce 2: Shadow Wars [Ru] (L/1.02) 2006
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521169.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ State of Mind (2018) [Ru/Multi] (1.1.24167.3) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520946.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520713.jpg" />
 </div>
 
 
@@ -675,6 +649,32 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l Fenixx
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE9385B7A08E1E5673C4AA42284C5856307EDFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929038   (520200) от 18.08.2015
+
+The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) Repack R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война в Борговии закончилась, но будущее все еще мрачное. Город мистических наук лежит в руинах, остатки различных фракций грызут друг другу глотки за оставшиеся клочки власти. Волна жутких событий сотрясает землю, бывший союзник превратился в страшного злодея, древнее зло грозит миру темного восточно-европейского фэнтези.Тип издания: RepackРазработчик: NeocoreGamesЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD90F5F2AC34BD6195C2F8E663AAD2CE04B23810
 ```
 
 https://mybot314.ru/tekegram_catalog/

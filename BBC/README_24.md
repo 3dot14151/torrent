@@ -1,29 +1,3 @@
-###  Публикация: 1268777   (224683) от 12.12.2018
-
-BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезоны 1-2, серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь - перед вами самые редкие зверята в мире. Эти суматранские тигрята дают надежду на будущее для всего своего вида, который находится на грани вымирания. Первые четыре месяца жизни тигрята проведут в доме одной австралийской семьи, где они смогут всецело положиться на своего приёмного отца - эксперта по тиграм Джилса Кларка. Он хочет, чтобы люди полюбили (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаРежиссер: Бет БруксПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7E56C60BFBF63DED5D1DBE7C52D33A0F274F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425096   (223497) от 19.11.2020
 
 BBC: Горизонт. Как построить машину времени / Horizon. How to Build a Time Machine (2018) HDTVRip [H.264/720p-LQ]
@@ -32,7 +6,7 @@ BBC: Горизонт. Как построить машину времени / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223497.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Биологические часы - как они работают? / Bod
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222343.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222022.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220854.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220432.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220273.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219090.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217608.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217361.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216934.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215931.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211376.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ BBC. Белая королева и ее соперницы / The Real White Que
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209885.jpg" />
 </div>
 
 
@@ -372,7 +346,7 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208846.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207777.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207042.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206960.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205760.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204799.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203941.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203763.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196491.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194581.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193602.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188364.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BCE1D387D45BD49B6EB610D8DEC8EB2188CD641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592311   (183454) от 22.11.2022
+
+BBC: Приключeния Брайана Кокса в пространстве и времени / Brian Cox's Adventures in Space and Time (2021) WEB-DLRip [H.264] (серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский учёный и телеведущий Брайан Кокс за свою карьеру снял множество фильмов о космосе. Но наука не стоит на месте, и новые открытия опровергают и дополняют наши представления о Вселенной. Как продвинулась наука за последние десять лет? Что нового мы узнали? Возможно, многие предыдущие фильмы Брайана требуют пересмотра через призму новейших открытий?Производство: Великобритания / BBC Studios, British Broadcasting Corporation (BBC)Жанр: Документальный, космосРежиссер: Стивен Кутер, Гидеон Брэдшоу, Крис Холт, Михаэль Лачман, Пол Олдинг, Нат Шарман, Мартин Джонсон, Ник Стэйси, Tom Beard, Дэвид Бриггс, Аластер Дункан, Мэттью Диас, Джиллз Харрисон, Алекс Хемингуэй, Наоми Ло, Роб Лиделл, Стив Смит, Kate Szell, Пол Ванезис, Эшли ВэйПеревод: Двуголосый профессиональный (Lucky Production)Субтитры: ОтсутствуетПродолжительность: 4 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15905F9E246C93E3B56A0F4C74F29E68F7A525D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

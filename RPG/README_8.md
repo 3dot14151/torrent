@@ -6,7 +6,7 @@ Antology Gothic / Антология Gothic [Ru/En/De] (L) 2001 - 2011
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974434.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973885.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (L) 2009-2010
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973053.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Pine (2019) [Ru/Multi] (1a21a22c/Patch 7) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972699.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430) Repack xatab [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971442.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ GOD EATER 3 (2019) [Ru/Multi] (2.40) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968333.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ The Quest (2015) [En] (1.6.7) Repack Animanyak
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968202.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Atelier Dusk Trilogy (2020) [Multi] (1.0) License CODEX [Deluxe Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964873.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ys I & II Chronicles [En] (L) 2013 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964859.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964336.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Victor Vran ARPG (2015) [Ru/En] (2.07.20190131/dlc) Repack Other s [Overkill Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963877.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WARSAW (2019) [Ru/Multi] (Build 103) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955126.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru/En] (1.0.0.2/dlc) Repack R.G. Меха�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954723.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (ph3 update/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953654.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951378.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Costume Quest + 1 DLC [Ru] (Repack/1.0.0.11) 2013 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950348.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949933.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License PLAZA [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948399.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Risen [Ru/En/Multi7] (L) 2009 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946778.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946438.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Conglomerate 451 (2020) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946293.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Меха�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943983.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943255.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943251.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942456.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Fallout 2 (1998) [En] (1.02d) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939209.jpg" />
 </div>
 
 

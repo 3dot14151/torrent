@@ -6,7 +6,7 @@ USDownloader 1.3.5.9 Portable (11.09.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530876.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pale Moon 28.6.0.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530706.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VueScan Pro 9.1.14 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530669.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ LibreOffice 6.2.5.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530612.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Comodo Dragon 52.15.25.663 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530584.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Bat! Professional 7.3.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530579.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MKVToolNix 9.4.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530576.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530575.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ USB Disk Security 6.2.0.18 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530567.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Handy Start Menu 1.71 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530561.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530559.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ FolderSizes 6.1.61 Professional Edition [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530556.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Paint.NET 4.0.11 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530495.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ qBittorrent 3.3.7 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530419.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Total Commander 8.01 Final x86+x64 [MAX-Pack 2012.8.2] + Sielent/Extra/Win8-setu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530365.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Ultimate Calendar 1.8.1.1 (Update 1) Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530323.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Auslogics Disk Defrag Professional 4.8.0.0 DC 09.09.2016 RePack (& Portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530305.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ USB Disk Security 6.2.0.18 RePack by KpoJIuK [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530271.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ DAEMON Tools USB 1.0.0.0034 Beta [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530265.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Nik Software HDR Efex Pro 2.002 Rev 20471 [MULTi + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530257.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ DisplayFusion Pro 4.0.1 [Mult/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530256.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Smith Micro Poser Pro 11.0.5.32974 + Content + Reality [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530189.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ CyberLink PowerDVD Ultra 12.0.1905.56 RePack by KpoJIuK [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530133.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ CyberLink PowerDVD Ultra 12.0.1905.56 RePack by qazwsxe [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530129.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Text Editor Pro 23.0.1 + Portable + bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530070.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Connectify Pro 3.6.0.24540 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530022.jpg" />
 </div>
 
 

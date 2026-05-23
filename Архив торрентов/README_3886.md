@@ -6,7 +6,7 @@ Windows 10 Manager 3.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209613.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ZEDGE 8.10.4 Mod by Mixroot, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209611.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ByClick Downloader Premium 2.3.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209608.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft PowerToys 0.71.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209605.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PotPlayer 230707 (1.7.21953) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209600.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FastStone Capture 10.2 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209592.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Manager 3.7.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209586.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Topaz Photo AI 1.4.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209584.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Macrorit Disk Scanner 6.5.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209583.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Macrorit Partition Extender 2.3.0 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209581.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PotPlayer 230707 (1.7.21953) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209571.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PC Cleaner Pro 9.3.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209570.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Opera One 100.0.4815.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209567.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209551.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DigiKam 8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209546.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Topaz Video AI 3.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209537.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ AOMEI Partition Assistant Technician Edition 10.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209535.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 26.08.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209517.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Topaz Video AI 3.1.0 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209516.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NetLimiter 5.1.7.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209509.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Windows 10 Manager 3.8.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209508.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ AIMP 5.03 build 2398 RePack (& Portable) by elchupacabra (x86/x64) Standard [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209501.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Adobe Substance 3D Painter 8.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209487.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ AOMEI Partition Assistant Standard Edition 10.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209485.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ AIDA64 Extreme Edition 6.75.6117 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209463.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ GOM Player Plus 2.3.83.5350 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209443.jpg" />
 </div>
 
 

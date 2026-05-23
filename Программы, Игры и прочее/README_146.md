@@ -1,55 +1,3 @@
-###  Публикация: 1730979   (52933) от 18.06.2024
-
-Smart Launcher 6.4 build 031 Lite-Mod by Number one' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 14.06.2024Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730994   (52927) от 18.06.2024
-
-Zaycev.net v9.4.0 Mod by Timozhai  [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вместе с Zaycev.net вы сможете не только слушать, но и скачать музыку бесплатно. Слушайте хиты проверенные временем и находите новинки музыки со всего мира. Так, как это удобно именно вам.Тип издания: PremiumРелиз состоялся: 17.06.2024Разработчик: Зайцев.нетПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCC02D2CE25E680166540F8449E416F53B9C8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730977   (52898) от 18.06.2024
 
 Smart Launcher 6.4 build 031 Mod by Balatan [Ru/Multi]
@@ -58,7 +6,7 @@ Smart Launcher 6.4 build 031 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52898.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Songsterr Guitar Tabs & Chords v5.24.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52849.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ GreenTuber - неофициальный клиент YouTube 0.1.4.2 Mod by MDNI
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52839.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ UpNote - Записка, дневник 9.4.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52824.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ Microsoft Edge 124.0.2478.71 (ARM64) Lite-Mod by Rarity$ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52816.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ Today Weather - Прогноз погоды 2.2.1-15.140524 Mod by Kirlif' [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52800.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ O Launcher 12.3 (ARM64) Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52793.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by Balatan [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52773.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52769.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ SuperImage Pro - AI Enhancer 3.0.2 (ARM64) Mod by ApplicazioniCR [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52711.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ FiiNote / Быстрые заметки v12.9.0.23 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52696.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52494.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Zedge™ Wallpapers & Ringtones 8.48.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52410.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ Motion Portrait v1.7.1 Mod by APKMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52355.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ Folder Player Pro v5.27 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52320.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ VivaVideo Video Editor v9.17.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52225.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ SnapEdit - AI photo editor v6.5.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52217.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ Purvpn 9.8 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52099.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52097.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ YouCut - Video Editor v1.631.1191 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52036.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51955.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ OfficeSuite Pro + PDF 14.5.52368 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51903.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ ReLens - Фокус и размытие DSLR 3.3.3 Mod by AjeethK [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51902.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51540.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E8E216408C01047778954B56F0124327209BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733717   (51499) от 30.06.2024
+
+Battery One: Батарея 1.8.0 Lite-Mod by NURIK [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battery One - приложение направленное на то, чтобы владельцы устройств имели полное и детальное представление о том, в каком состоянии находится батарея их мобильного гаджета. Анализ показателей и следование советам программы позволит существенно повысить продолжительность работы элемента, сохранить его работоспособность в пиковых значениях ёмкости и так далее. Тем (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 01.06.2024Разработчик: ОneПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D12A31900750B3D9E8C3493EFEF189D7D132FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733714   (51477) от 30.06.2024
+
+Battery One: Батарея 1.8.0 Mod by Fxolan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battery One - приложение направленное на то, чтобы владельцы устройств имели полное и детальное представление о том, в каком состоянии находится батарея их мобильного гаджета. Анализ показателей и следование советам программы позволит существенно повысить продолжительность работы элемента, сохранить его работоспособность в пиковых значениях ёмкости и так далее. Тем (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.06.2024Разработчик: ОneПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2820CC20609E8E987D042B62956B044AFBEAB344
 ```
 
 https://mybot314.ru/tekegram_catalog/

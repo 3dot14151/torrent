@@ -6,7 +6,7 @@ Internet Download Manager 6.41 Build 12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 9.20 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231083.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Telegram Desktop 4.8.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231082.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Opera 99.0.4788.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231078.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DxO PhotoLab Elite 6.0.0 build 3 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231050.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Brave Browser 1.56.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231045.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Telegram Desktop 4.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231040.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ FreeFileSync 12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231024.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Topaz Photo AI 1.3.7 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231010.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Internet Download Manager 6.41 Build 12 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230995.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1741]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230976.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ HWiNFO 7.51 Build 5165 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230943.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Telegram Desktop 4.8.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230931.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230918.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Telegram Desktop 4.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230905.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Telegram Desktop 4.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230903.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Acoustica Premium Edition 7.4.14 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230892.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ CLO Standalone 7.0.228 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230880.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Topaz Video AI 3.3.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230865.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.8 RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230841.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Icecream Video Editor Pro 3.04 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230815.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Wondershare PDFelement 9.5.14.2360 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230813.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ ExamDiff Pro Master Edition 14.0.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230809.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Telegram Desktop 4.8.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230807.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Kdenlive 23.04.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230799.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Microsoft Visual Studio 2022 Enterprise 17.6.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230794.jpg" />
 </div>
 
 

@@ -1,81 +1,3 @@
-###  Публикация: 1556990   (556388) от 12.06.2022
-
-Олег Синицын | Сюжет (2022) [MP3, Андрей Кравец]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Обычный студент Павел Божедай случайно находит видеокассету, которая вовлекает его в водоворот странных, подчас пугающих событий. Размеренная и забавная жизнь Павлика и приятелей превращается в стремительную погоню. Вопрос "Как это сделано?" не волнует друзей до тех пор, пока один из них попадет в беду. И не все так просто, как кажется на первый взгляд. (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 14:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167103E0A2FF2CB3C1324E7E81A5B5117B352984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557138   (556380) от 12.06.2022
-
-Николай Собинин | Gamemaster (Книга1). (2022) [MP3, Алексей Семёнов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Олег – бывший хардкорный игрок, а ныне востребованный гейммастер множества разнообразных VR-проектов, оказывается втянут в интриги таинственной госкорпорации. В один прекрасный момент он обнаруживает, что находится внутри невероятно реалистичной виртуальной реальности, оформленной под ролевую игру в антураже языческой Руси, и понятия не имеет, как он в ней очутился. (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 14:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C483493DB6615F3E4C6EF6029D061EBE8E766DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557134   (556337) от 12.06.2022
-
-Максим Гаусс | Я буду мстить (Книга 1) [MP3, Алексей Семёнов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Бастион – зона смерти, где сдохнуть проще простого. Здесь нельзя заводить друзей – они имеют свойство часто умирать. Не помню, кто я и кем был раньше. Очнулся в полной заднице, да ещё и попал под серьезную раздачу. Теперь я оглохший полутруп, у меня сломаны кости – легче уж пустить себе пулю в лоб. Но сдаться – это не про меня. Гадом буду, выживу, прокачаюсь и отомщу. (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 08:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500C5B6A5A2026AAAC8CA152B1578FB343D40F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236139   (556264) от 15.07.2018
 
 Жюль Верн | Гектор Сервадак. Путешествие и приключения в околосолнечном мире (2018) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556264.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556242.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556235.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556229.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556137.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556131.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556066.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556063.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556029.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555991.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555903.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555775.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555467.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555463.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555452.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555449.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555442.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555428.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555422.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555419.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555414.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555301.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555177.jpg" />
 </div>
 
 
@@ -676,6 +598,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FED897E43183AF4664F73C5050AA5366302D6B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307594   (554923) от 10.06.2019
+
+Жан-Мари Гюстав Леклезио | Буря. Женщина ниоткуда (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан-Мари Гюстав Леклезио, один из крупнейших ныне живущих французских писателей, в 2008 году стал лауреатом Нобелевской премии по литературе. Он автор тридцати книг – романов, повестей, эссе, статей.Жанр: Современная прозаПродолжительность: 06:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A9ED23F17F5D0B58AB5BBD8B830A301955F3F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306728   (554916) от 10.06.2019
+
+Чарльз Мартин | В объятиях дождя (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный фотограф Такер Мэйсон объездил весь мир, стремясь быть как можно дальше от дома. В родном городе у него остались отец, с которым Такер никогда не ладил, брат, страдающий психическим расстройством, и подруга детства, с которой у Такера когда-то был роман. Единственный, кто ему по-прежнему дорог, – экономка мисс Элла, которая, увы, при смерти. Такер решает (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 15:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE1A431FECF148308FD0AB8E0427EAD10F44F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306731   (554911) от 10.06.2019
+
+Чарльз Мартин | Когда поют сверчки (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554911.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как успешный кардиохирург Риз не смог спасти жену, он разочаровался в себе и в профессии и уединился в коттедже на берегу озера, чтобы зарабатывать на жизнь ремонтом лодок и не думать о прошлом.
+Но однажды, отправившись в город за покупками, он увидел семилетнюю Энни. История девочки поразила его. Она продает на площади лимонад, чтобы накопить денег себе (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 19:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D7399B7BDB44B78AC89E23609B4D83C9DC0E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

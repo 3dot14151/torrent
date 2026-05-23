@@ -1,29 +1,3 @@
-###  Публикация: 1837444   (256690) от 16.11.2025
-
-Земский Собор (2025) [Ru] (1.0.2) Repack Other s
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Русь после Смуты на пороге нового испытания. Казак Кирша, прошедший не одну битву, оказался втянут в водоворот событий, разворачивающихся вокруг борьбы за трон. Земский собор обещает порядок, но путь к нему - через интриги и предательство. Вас ждёт приключенческий экшен в сеттинге Руси XVII века, сражения и атмосфера тревожного времени.Тип издания: RepackРазработчик: Cyberia NovaЖанр: Экшен, Ролевая играЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC215D9214952B0F6F6B80A06B244EC115066BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837142   (256645) от 15.11.2025
 
 Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46561/dlc) Repack Decepticon [Premium Edition]
@@ -32,7 +6,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46561/dlc) Repack Dece
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256645.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Full Metal Schoolgirl (2025) [Multi] (1.01/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256640.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Lumo (2016) [Ru/Multi] (2.4.0.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256638.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Bridge Constructor Playground (2014) [Ru/Multi] (1.4-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256637.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Bridge Constructor Medieval / Bridge Constructor: Средневековье (20
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256636.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256617.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ CRABS MUST DIE! (2025) [Ru/En] (20696190) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256614.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256612.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.3.1.628/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256610.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256607.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack FitGirl [Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256606.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256395.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Wartorn (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256394.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.330/dlc) Repack Necros [De
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256389.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Angry Video Game Nerd 8-bit (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256384.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Verho - Curse of Faces (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256328.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Ambrosia Sky (2025) [En] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256319.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Surviving Mars Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256318.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Silent Hill Антология [Ru] (RePack) 1999-2009 | !Sagat!
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256252.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Mystery Case Files: Dire Grove / За семью печатями. Дайр Гр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256183.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Caribbean Pirate Quest (P) [En] 2008
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256147.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Haunting Mysteries: Island of Lost Souls Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256089.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Top Secret Finders (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256078.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Toy Defense / Солдатики (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255982.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Zaccaria Pinball (2016) [Ru/Multi] (1.0/dlc) Repack FitGirl [Platinum Pack]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255924.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Zaccaria Pinball отмечает богатое наследие Zaccaria - и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:049D91D7BDF6194693805A82BF1FEC9EEE1C13CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476306   (255912) от 14.11.2025
+
+Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в ностальгию с тактической ролевой игрой, вдохновением для которой послужили самые выдающиеся классические представители жанра. Отправляйтесь в увлекательное путешествие с уникальными персонажами и погрузитесь в захватывающую историю. Вы можете нанять до 14 персонажей с уникальными способностями и победить с их помощью свой самый ужасный кошмар в эпических (   Читать дальше...   )Тип издания: LicenseРазработчик: Makee, Forever Entertainment S. A.Жанр: jRPG, Tactical RPG, Adventure, StrategyЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89EECF218FFD1E37DAC123460409CAB0659B4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

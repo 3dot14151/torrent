@@ -6,7 +6,7 @@ Mozilla Firefox Quantum ESR 68.4.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988995.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced Installer 16.7 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988987.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Care 365 Pro 5.4.7 Build 543 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988985.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soft Organizer Pro 7.52 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988984.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Registry Life 5.03 (DC 21.01.2020) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988983.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CPUID HWMonitor Pro 1.16 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988981.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Advanced SystemCare Pro 6.1.9.221 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988966.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Adobe Flash Player 32.0.0.321 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988942.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Soft Organizer Pro 7.52 RePacK by Diakov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988941.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Reg Organizer 8.42 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988939.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ oCam 495.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988938.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988935.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe Flash Player 32.0.0.321 (Adobe Runtimes AllInOne 21.01.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988931.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SpaceSniffer 1.1.4.0 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988922.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Stardock Start8 1.1 RePack by Painter [Английский / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988919.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Only Temp Clear 0.0.3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988918.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Autodesk Product Design Suite Ultimate 2013 [Английский / Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988905.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Adobe Flash Player 32.0.0.321 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988875.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mozilla Firefox 72.0.2 RePack (& Portable) by Diakov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988867.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988860.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ XBMC Media Center 12.0 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988858.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ AIDA64 Extreme/Engineer/Business Edition 2.80.2300 Final RePack (& portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988844.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Argus Monitor 5.0.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988821.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Auslogics BoostSpeed 11.3.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988817.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Reg Organizer 8.42 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988807.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Reg Organizer 6.01 Final + Portable [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988796.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1206755   (781553) от 15.02.2018
-
-Burnin Rubber 5 HD (2018) [En] (1.0.1) License SKIDROW
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Burnin 'Rubber 5 HD - полностью обновленное издание гонок на выживание. Разблокируйте новые автомобили, купите новое оружие, взрывные устройства и другие обновления. Более тридцати новых противников бросают вам вызов.Тип издания: LicenseРазработчик: XformЖанр: Action, Racing (Cars), Arcade, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B8FA05E90EC63276D8D859E69601F088199DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206793   (781552) от 15.02.2018
 
 The Legend of Heroes: Trails of Cold Steel II / The Legend of Heroes: Trails of Cold Steel 2 (2018) [En/Ja] (1.0/dlc) License CODEX
@@ -32,7 +6,7 @@ The Legend of Heroes: Trails of Cold Steel II / The Legend of Heroes: Trails of 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781552.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Deja Vu (2020) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781373.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Rocket Knight [En/Multi5] (RePack) 2010 | -Ultra-
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781068.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ RIDE (2015) [Ru/Multi] (1.000/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780731.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Everlasting Summer / Бесконечное лето (2014) [Ru/Multi] (1.2/dlc)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780698.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Iconoclasts (2018) [Multi] (1.14) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780694.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780689.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Phantasmat 10: Curse of the Mist / Фантазмат 10: Проклятие т�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780526.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Mystery of the Ancients 7: Black Dagger / Тайны древних 7: Черн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780519.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Beijing 2008: The Official Video Game of the Olympic Games (2008) [Ru] (1.0) Rep
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780493.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0.2mx) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780462.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Tropical Escape (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780445.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Impresja (2017) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780368.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Hunahpu Quest. Mechanoid (2018) [Ru/En] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780358.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Dungreed (2018) [En/Co] (2.19) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780329.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ DYO (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780326.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.9) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780161.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Facility 47 / Объект 47 (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780038.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ The Wild Eight (2017) [Ru/En] (0.8.52) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780034.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Airport Madness 3D: Volume 2 (2017) [En] (1.123) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780032.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ MonteCrypto: The Bitcoin Enigma (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780029.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ SYMMETRY (2018) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780013.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780008.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Zombasite (2016) [En] (1.021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780005.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Signs of Life (2014) [En] (0.11.1) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779894.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Signs of Life – научно-фантастическая игра с прос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C23815D2C5FBA50E2CB2BB3E146CD512AE69B86B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208617   (779876) от 22.02.2018
+
+Lobotomy Corporation (2016) [Ru/Multi] (0.3.1.1b) Repack VseTop
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779876.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре «Lobotomy Corporation» вам предстоит возглавить необычную компанию, занимающуюся содержанием SCP-объектов, а, проще говоря, монстров. Делается это для извлечения из них специальной энергии. Ваша задача - построить специальные камеры и содержать самых ужасных монстров. Будьте предельно осторожны, ведь SCP-объекты крайне опасны, каждый обладает своими уникальными (   Читать дальше...   )Тип издания: RepackРазработчик: Project MoonЖанр: Инди, СимуляторыЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E8C81C90FF7AE384991D2850C25642C14A3515
 ```
 
 https://mybot314.ru/tekegram_catalog/

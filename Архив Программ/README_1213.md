@@ -6,7 +6,7 @@ WinToUSB Enterprise 2.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blender 2.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428808.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vivaldi 2.0.1309.29 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428801.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Overloud - REmatrix 1.2.9 STANDALONE, VST, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428798.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Acon Digital - Equalize 2 2.0.1 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428791.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TagScanner 6.0.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428788.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Windows 10 Manager 2.3.5 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428776.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Uniblue PowerSuite PRO 2013 4.1.3.1 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428700.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Media Player Classic HomeCinema 1.5.3.3748 [Многоязычный] [RU]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428683.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ SeaMonkey 2.0.8 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428665.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ EveryLang PRO 2.3.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428629.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Becky! Internet Mail 2.74.00 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428609.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nero Burning ROM 12.0.00300 Portable by Valx [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428550.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ CrystalDiskInfo 7.8.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428402.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SoftMaker Office Professional 2018 rev 936.0912 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428383.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428349.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Take Command 21.01.50  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428308.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Serif Affinity Photo 1.6.5.135 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428241.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ IObit Driver Booster Pro 6.0.2.639 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428227.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Acronis BootCD Collection 2012 Grub4Dos Edition 10 in 1 v3 (10.3.2012) [Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428201.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Corel Home Office 5.0.120.1522 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428187.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Google Chrome 61.0.3163.91 Stable RePack (& Portable) by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428160.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Nero Burning ROM 12.0.00300 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428139.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Slimjet 12.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428054.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Nero 12.0.02000 Lite RePack by MKN [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427987.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Bandicam 1.8.2.255 [Multi+RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427982.jpg" />
 </div>
 
 

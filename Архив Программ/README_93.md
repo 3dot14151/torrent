@@ -6,7 +6,7 @@ Format Factory 5.7.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023492.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PicPick 5.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023484.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sandboxie 5.49.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023480.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ K-Lite Codec Pack Update 16.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023473.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Google Chrome 89.0.4389.114 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023460.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Sharpen AI 3.0.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023457.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Google Chrome 89.0.4389.114 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023448.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wise Care 365 Pro 5.6.5.566 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023444.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ EF Commander + Portable 2021.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023437.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AOMEI Backupper Technician Plus 6.5.0 (DC 30.03.2021) RePack by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023418.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 3.8 RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023393.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ AIDA64 6.33.5700 Extreme / Engineer / Business / Network Audit RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023388.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BELOFF 2021.03 Medium (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023361.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Opera 75.0.3969.141 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023319.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Bootstrap Studio 5.6.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023287.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Topaz DeNoise AI 3.0.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023243.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Blackmagic Design DaVinci Resolve Studio 17.1.1 Build 9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023215.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Total Commander Ultima Prime 8.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023211.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Blackmagic Design DaVinci Resolve Studio 17.1.1 Build 9 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023198.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.33.5700 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023174.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ PrivaZer 4.0.21 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023148.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Visual Studio 2019 Community 16.9.3 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023147.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Edge 89.0.774.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023144.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Privacy Eraser Free 5.10.0 Build 3869 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023142.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Opera GX 73.0.3856.424 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023141.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Wise Program Uninstaller 2.4.1.144 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023139.jpg" />
 </div>
 
 

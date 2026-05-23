@@ -1,82 +1,3 @@
-###  Публикация: 1821725   (63878) от 03.10.2025
-
-Сергей Есенин | Чёрный человек. Поэмы, проза (2024) [MP3, Станислав Концевич]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Всемирная литература».
-Сергей Александрович Есенин (1895–1925) – один из ключевых поэтов своей эпохи. Кажется, еще при жизни поэтические тексты Есенина обрели статус культовых. Его стихи не просто проходят в школах, после чего навсегда забывают, нет – эти стихи давно стали родными для каждого отечественного читателя. В настоящее издание вошли подлинные (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, прозаИздательство: ЭксмоПродолжительность: 07:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A598363B8148533DF12A2D861E86E652FC64DD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821709   (63875) от 03.10.2025
-
-Павел Чук | Отставник 2 (Книга 2) (2025) [MP3, Олег Троицкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Бежав из плена, капитан Глен - он же Гена Бес, осознаёт, что Земляне встретились со страшным врагом - анторсами, что безжалостны к другим расам. Их цель - захват интересующей их планеты и полное истребление аборигенов. Тяжелейшее ранение, что его отправило в отставку не останавливает Беса. Он вновь в строю.Жанр: Героическая фантастика , Пришельцы , Альтернативная фантастикаИздательство: ЛитресПродолжительность: 07:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E992E49A6A975EFFD8173D92BB8E0E3C894775E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821705   (63873) от 03.10.2025
-
-Андрей Волковский | Убийство в зачарованном городе (Книга 4). Убийство в приграничном замке (2025) [MP3, Владислав Андрейченко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Следы загадочного артефакта, вытягивающего магическую силу, ведут в приграничный замок Гарт де Монт. Тайная служба поручает волшебнику Скаю с друзьями отправиться туда под видом путешественников и вычислить заказчика, но в первую же ночь в замке происходит убийство. Отравлен слуга, и это явно не случайность: кто-то заметает следы или хочет подставить Ская? Ему придется (   Читать дальше...   )Жанр: детектив, фэнтезиИздательство: ЭксмоПродолжительность: 07:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5883ABB63FED3AB09D103542C78E266BAEF2A209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821704   (63871) от 03.10.2025
 
 Андрей Волковский | Убийство в зачарованном городе (Книга 3). Убийство в заброшенном подземелье (2024) [MP3, Владислав Андрейченко]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63871.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63870.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63862.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63854.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63836.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63828.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63812.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63809.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63804.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63763.jpg" />
 </div>
 
 
@@ -351,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63758.jpg" />
 </div>
 
 
@@ -380,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63751.jpg" />
 </div>
 
 
@@ -406,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63747.jpg" />
 </div>
 
 
@@ -434,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63722.jpg" />
 </div>
 
 
@@ -460,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63704.jpg" />
 </div>
 
 
@@ -486,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63703.jpg" />
 </div>
 
 
@@ -512,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63693.jpg" />
 </div>
 
 
@@ -538,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63692.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63660.jpg" />
 </div>
 
 
@@ -594,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63641.jpg" />
 </div>
 
 
@@ -622,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63632.jpg" />
 </div>
 
 
@@ -650,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63631.jpg" />
 </div>
 
 
@@ -677,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63630.jpg" />
 </div>
 
 
@@ -690,6 +611,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABC2AF4AE83EAEF5D6835F71AB90E450FB80E2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705513   (63620) от 08.03.2024
+
+Андрей Рымин | Древо (Книга 1). Пожиратель (2023) [MP3, Алексей Файзуллин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саша Углов – студент-первокурсник. К сожалению, он запустил себя, набрал лишний вес, и здоровье юноши уже никуда не годится. Однажды у Саши случается сердечный приступ. Герой умирает, но его сознание оказывается в теле другого человека в ином мире. Теперь он Рэйсан Рэ – наследник известного рода. У молодого аристократа сильное натренированное тело и блестящие перспективы. (   Читать дальше...   )Жанр: Героическая фантастикаИздательство: 1С-ПаблишингПродолжительность: 09:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119DE1638E728568169B74CE7A083AB10AFFA51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454576   (63612) от 08.03.2024
+
+Александр Островский | Богатые невесты (2011) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Николаевич Островский (1823-1886) – выдающийся драматург, основоположник русского национального театра.
+В его комедиях и драмах ярко отражен быт московского купечества, провинциальных актеров, мелких чиновников. Галерея созданных Островским образов огромна, его персонажам суждена долгая жизнь и в сердцах будущих поколений наших соотечественников.
+Комедия (   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Вира-МПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A538B94A5ACAA4F30E1A9D5839BACA6F0AA661E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 303316   (63607) от 08.03.2024
+
+Александр Островский | Василиса Милентьевна (Радиоспектакль) (1982) [MP3, Иван Соловьев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Редкие Записи.
+Радиокомпозиция спектакля Московского драматического театра им. М.Н. Ермоловой по одноимённой пьесе русских драматургов Александра Островского и Степана Гедеонова в постановке в постановке Владимира Андреева.
+Действие разворачивается в эпоху Ивана Грозного, при его дворе. Вокруг могущественного русского царя происходят интриги, плетутся (   Читать дальше...   )Жанр: Русская литература, классика, драма, пьесаВ ролях: Иван Соловьёв, Светлана Головина и др.Издательство: Студия «Преображение», ГостелерадиофондПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6403BBEFBF73B979187BDB9DE19D15E59EAB4AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

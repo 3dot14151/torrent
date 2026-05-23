@@ -6,7 +6,7 @@ R-Drive Image Technician 7.2 Build 7201 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59216.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59207.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XviD4PSP 8.1.78 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59205.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Adobe Bridge 2024 14.0.4.222 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59204.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GPU-Z 2.59.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59203.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Malwarebytes Windows Firewall Control 6.10.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59201.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59200.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Macrorit Disk Scanner 6.7.3 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59199.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FanControl V187 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59186.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Viber 22.5.0.1 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59185.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ IObit Smart Defrag Pro 9.4.0.342 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59175.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Blender 3.6.11 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59170.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Total Commander 11.03 MAX-Pack 2024.03.29 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59144.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windows 11 Manager 1.4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59141.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Outline Client VPN 1.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59132.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Bat! Professional 11.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59124.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59107.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ GPU-Z 2.59.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59099.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Office Tool Plus 10.10.7.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59092.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ MassTube Ultra 17.2.0.519 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59090.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ashampoo Photo Optimizer 10.0.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59088.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Soft Organizer Pro 9.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59087.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Turbo Studio 24.4.12.0 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59072.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Vit Registry Fix Pro 14.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59065.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Display Driver Uninstaller 18.0.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59064.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Abelssoft Win11PrivacyFix 2024.3.51621 (акция Abelssoft) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59012.jpg" />
 </div>
 
 

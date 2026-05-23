@@ -6,7 +6,7 @@ Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142484.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137957.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137187.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Sai
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136858.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical C
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136805.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136803.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jose Carreras, Luciano Pavarotti, Mario Lanza, Placido Domingo - Opera Favourite
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136376.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136351.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135632.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variati
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135570.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135191.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mendelssohn - Piano Concertos 1 & 2, Songs without words: Schiff, Dutoit - SOBR 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134657.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lindsey Stirling - Best Of Christmas Classics (2023) [FLAC|Lossless|WEB-DL|track
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134495.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Il Divo - The Greatest Hits (2012) 2CD Deluxe Edition [FLAC|Lossless]<Neo-Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134386.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Serj Tankian - Invocations (2023) Live [MP3|320 Kbps] <Classical, Modern>
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134237.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Wolfgang Amadeus Mozart - Piano Concertos K.453 & 482 (Kristian Bezuidenhout, Pe
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133429.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133120.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133043.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132546.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Placido Domingo - Christmas With Placido Domingo (1981) [FLAC|Lossless]<Classica
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132534.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131821.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Roman
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131408.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131303.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131220.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ VA - The Rapsody Overture: Hip Hop Meets Classic (1997) [FLAC|Lossless|image + .
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123960.jpg" />
 </div>
 
 
@@ -779,7 +779,7 @@ Robin Meloy Goldsby - Dearest Things - The Piano Room Collection (2023) [FLAC|Lo
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123814.jpg" />
 </div>
 
 

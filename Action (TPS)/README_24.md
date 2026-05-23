@@ -6,7 +6,7 @@ Saints Row: Gat out of Hell (2015) [Ru/En] (1.0/upd2/dlc) RePack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522280.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cloudbuilt (2014) [Ru/Multi] (1.53/dlc) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522214.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ State of Mind (2018) [Ru/Multi] (1.1.24167.3) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520946.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520713.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ State of Mind (2018) [Ru/Multi] (1.1.24167.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519958.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Alan Wake (2012) [Ru/En] (1.06.18.1326) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519919.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0.0.2177831/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519880.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Super Cloudbuilt (2017) [Ru/Multi] (1.0/upd4) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519873.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Orcs Must Die Дилогия [Ru/En] (RePack) 2011-2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518626.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Sniper Elite Collection [Ru/En] (Steam-Rip/1.0.0.0/2 DLC) 2005-2012 l R.G. GameW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518620.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Darksiders: Wrath of War (2010) [Ru/Multi] (1.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518001.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Darksiders II (2012) [Ru/Multi] (1.5/upd6/dlc) License PROPHET [Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517999.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Zombie Army Trilogy (2015) [Ru/Multi] (1.8.20.01) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515788.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Transformers: Rise of the Dark Spark (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514744.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru] (Steam-Rip) 201
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514173.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Spider-Man [Ru] (RePack) 2000 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513135.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Velvet Assassin (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510609.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Amazing Spider-Man / Новый Человек-паук [Multi6\+] (L) 2012 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510225.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509300.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ X-Men Origins: Wolverine (2010) [Ru] (1.0.0.1) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507737.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6/upd6/4dlc) Repack xatab [Apocalypse Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507736.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ X-Men Origins: Wolverine / Люди Икс: Начало: Росомаха [RuEn
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507142.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ninja Blade (2009) [Ru/En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506836.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505892.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504062.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Conflict: Denied Ops / Конфликт: Секретные операции [Ru
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501404.jpg" />
 </div>
 
 

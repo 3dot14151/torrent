@@ -6,7 +6,7 @@ ReviverSoft Driver Reviver 5.9.0.12 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649220.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows and Office ISO Download Tool 3.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649219.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BleachBit 1.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649214.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Internet Download Manager 6.25 Build 22 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649210.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Benvista PhotoZoom Pro 6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649208.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ KMPlayer 3.3.0.28 Beta [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649203.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows Doctor 2.9.0.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649195.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Malwarebytes' Anti-Malware 1.62.0.1100 Beta  [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649189.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ HD Tune Pro 4.61 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649181.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Konvertor FM 4.06 Build 6 [Мульти (без русского)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649172.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ProgDVB Professional Edition 6.63.06 Final (x32/x64) [Мульти/Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649162.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ IP Hider Pro 5.5.0.1 Portable by FreshWap [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649161.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Lunascape 6.9.7 (Standard/Full) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649154.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windows 7 Manager 5.1.9 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649125.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows Doctor 2.9.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649115.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Corel VideoStudio Ultimate X9 19.3.0.19 + Content  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649096.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Windows Doctor 2.9.0.0 RePack by RedGrant [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649092.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ TeamViewer 10.0.43174 RePack (& Portable) by elchupacabra (05.06.2015) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649049.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Skype 7.5.80.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649048.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Adobe Photoshop CS5 Extended 12.0.1 Lite DM Edition [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649029.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Futuremark 3DMark 2.0.2724 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649020.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Vit Registry Fix Professional 12.3 RePack (& portable) by D!akov [Rus/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648985.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Clamwin Antivirus 0.98.7 + Clam Sentinel + PortableApps [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648951.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Vit Registry Fix Professional 12.3 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648931.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ ICE Book Reader Professional 9.4.2 + Skin Pack Portable by Valx [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648877.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648873.jpg" />
 </div>
 
 

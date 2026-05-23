@@ -7,7 +7,7 @@ macOS Big Sur 11.2 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033638.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Image for Mac М1 Windows 11 arm [En]
 >>Разное для macOS (Apple/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030395.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ macOS Big Sur 11.2.1 (20D75) [образ для BDU]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028261.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ macOS Big Sur 11.2.2 (20D80) [ISO образ]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028117.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ macOS Big Sur 11.2.3 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026993.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NCH Express Invoice Plus 9.00 [En]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020663.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ macOS Big Sur 11.3 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018892.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ macOS Big Sur 11.3.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017188.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ macOS Big Sur 11.4 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014270.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ macOS Big Sur 11.5 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005571.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Snow Leopard 10.6.1-10.6.2 by Hazard
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981409.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Blank Board Serializer v.3T110 (_ssps_063-6904-A) [En] (Bootable)
 >>Разное для macOS (Apple/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921908.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ macOS Sierra 10.12.3 (16D32) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916740.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ OS X 10.8.4 installer USB for Win [BDU]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914686.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ macOS Catalina 10.15.4 (19E266) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886269.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ GuestOS - macOS 12.0.1 Monterey VM [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805876.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ macOS Mojave 10.14.3 (18D42) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773967.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ macOS Monterey 12.1 (21C52) [ISO образ]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738002.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NextStep (3.3.4.17) [En] (Bootable)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704799.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ macOS High Sierra 10.13.4 (17E199) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676751.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ A/UX 3.0.1 [En] (Bootable)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583950.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ macOS Mojave 10.14.6 (18G84) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497345.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ macOS 10.15.6 Catalina (19G73) [образ для BDU] [Multi]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486765.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Basic Training Mac OS X Leopard (N/A)[Eng] (2007)
 >>Разное для macOS (Apple/hackintosh)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_391803.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Mac Box Set Mac OS X 10.6, iLife 09, iWork 09
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_346905.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ macOS Sierra 10.12.1 (16В2659) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275486.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MiniTube 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296875.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Watercolor Studio Pro 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296813.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Disk Drill Media Recovery 3.6.920 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296778.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PhoneClean Pro 4.0.1 (20151202) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296728.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hands Off! 4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296650.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Moom 3.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296582.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Acronis True Image 2016 (2.0.6038) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296552.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Movist 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296551.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Autopano Giga 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296549.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Artlantis Studio 6.0.2.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296546.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Adobe Acrobat Pro DC 2019.008.20071 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296523.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Folx Pro 5 5.7.13770 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296515.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Sketch 52.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296514.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Microsoft Office for Mac Standard 2019 v.16.19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296509.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Adobe Zii 2019 - Universal Patcher v5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296483.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Fantastical 2 - Calendar and Reminders 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296242.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ CheckBook Pro 2.6.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296173.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PhotoSweeper X 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296170.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Retrobatch Pro 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296166.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ iBarcoder 3.12.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296162.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ DrawOutX 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296161.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ InstaCal 1.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296037.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Wattagio 1.11 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296035.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ ColoFolXS 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296033.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Outline 3.2011.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296032.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ DMG Canvas 3.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296030.jpg" />
 </div>
 
 

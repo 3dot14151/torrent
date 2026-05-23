@@ -1,81 +1,3 @@
-###  Публикация: 1820117   (743) от 26.09.2025
-
-Дарья Донцова | Татьяна Сергеева. Детектив на диете (Книга 37). Амур с гранатой (2024) [MP3, Дина Бобылёва]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Вера Холодова бесконечно доверяла своему сожителю Сергею Кузнецову! И чем же он ей отплатил? Пара жила душа в душу. Сергей дарил подарки, купил щенка и котенка, обещал Вере настоящую свадьбу. И вот недавно, приехав с работы, Вера обнаруживает у дома чемоданы со своими вещами. Рядом котенка со щенком, привязанных к лавочке, и записку со словами: «Я вернусь! Зуб даю! (   Читать дальше...   )Жанр: Иронический детективИздательство: ЭксмоПродолжительность: 06:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6134B9C1B540BF771CDEC3B9407873699B07B513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820278   (576) от 27.09.2025
-
-Борис Конофальский | Буратино (Книга 1). Правда и вымысел (2025) [MP3, Алексей Исиевский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Якобы юмор. Писал книгу двадцать пят лет назад, сейчас мне книга кажется грубой, пошлой и самое неприятное, глупой. В общем я вас предупредил. Претензии не принимаются, деньги не возвращаются.Жанр: Фэнтези, юморИздательство: ЛитРесПродолжительность: 06:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAA303CE2F0F23A5BEC480373F0FA1D36513736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820493   (555) от 27.09.2025
-
-Артем Каменистый | Альфа-ноль (Книга 9). Кризис власти (2025) [MP3, Игорь Ященко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Кризис власти» – фантастический роман Артема Каменистого, девятая книга цикла «Альфа-ноль», жанр РеалРПГ, боевое фэнтези, попаданцы в магические миры. Враги сильны, врагов много, враги наступают. А у меня нет припасов для армии, нет оружия для неё, и нет самой армии. Повсюду процветает чудовищная коррупция, государство наших союзников совершенно никем не управляется, (   Читать дальше...   )Жанр: Фэнтези, боевикИздательство: ИДДКПродолжительность: 08:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEE922200AA800DA046C0A10FA866C87FD9F78D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820280   (541) от 27.09.2025
 
 Виктор Краев | Аномалия (Книга 3). Сиберия (2025) [MP3, Вадим Ерофеев]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_541.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_536.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_535.jpg" />
 </div>
 
 
@@ -167,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_528.jpg" />
 </div>
 
 
@@ -193,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_522.jpg" />
 </div>
 
 
@@ -219,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_519.jpg" />
 </div>
 
 
@@ -248,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_517.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_515.jpg" />
 </div>
 
 
@@ -300,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_513.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_511.jpg" />
 </div>
 
 
@@ -353,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_508.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_507.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_498.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_497.jpg" />
 </div>
 
 
@@ -460,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_496.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_495.jpg" />
 </div>
 
 
@@ -512,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_492.jpg" />
 </div>
 
 
@@ -538,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_491.jpg" />
 </div>
 
 
@@ -564,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_489.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_487.jpg" />
 </div>
 
 
@@ -616,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_486.jpg" />
 </div>
 
 
@@ -642,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_485.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_484.jpg" />
 </div>
 
 
@@ -681,6 +603,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:527B902F7ECF13BFDF908EC20F144152205CC608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820227   (481) от 27.09.2025
+
+Игорь Лахов | Б.Г. (Книга 3). Мои Рубежи (2024) [MP3, Андрей Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс и Такс попали на Рубежи. Теперь им придётся доказывать свою состоятельность там, не только серьёзно воюя с Тварями, но и завязывая новые отношения. Заодно и чужие разгребать. Народец, как всегда, шибанутый, зато скучать не приходится.
+Потихонечку начинает раскрываться тайна Кочующих Миров.Жанр: Фантастика, фэнтези, попаданцыИздательство: АРДИСПродолжительность: 10:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94530B9B2A869EC6275488EFC7EF07CA847C95D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820508   (480) от 27.09.2025
+
+Сергей Харченко | РОС: Не злите драконов! (Книга 3). Возрождение Дракона 3 (2025) [MP3, Сергей Кузин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копипаста с первого тома:
+Раньше я был в шаге от звания Верховного мага. Но был предан и низвержен.
+Сейчас — сирота, погрязший в долгах, почти потерявший фамильный бизнес и отбивающийся от жестоких убийц.
+Да, это не самый идеальный старт.(   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 10:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDB8D67631722D554B76F37BDD2BCCB0243BE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820270   (479) от 27.09.2025
+
+Андрей Ткачев | Князь шаман (Книга 8) (2025) [MP3, Алексей Воскобойников]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мои действия неизбежно порождают последствия и вот я уже доверенное лицо сестры императора. Правда, это не означает, что подобный статус убережёт меня от проверок с её стороны. И тем не менее я шаман и я справлюсь со всем ‒ иначе и быть не может.Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 07:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E990EE5E877DA0EBD02F3123E290803AF1170BD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

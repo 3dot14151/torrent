@@ -1,58 +1,3 @@
-###  Публикация: 1732415   (52217) от 24.06.2024
-
-SnapEdit - AI photo editor v6.5.8 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 24.06.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2A21FD62D2894289583DC3F9A1C880E15FE263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821407   (52099) от 02.10.2025
-
-Purvpn 9.8 [En/Farsi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Получите безопасный и анонимный доступ в Интернет с помощью бесплатного VPN-сервиса для Android всего за несколько нажатий.
-Шифрование данных с использованием конфигураций vmess, vless, shadowsocks, wireguard
-Возможность использовать режим прокси.
-(   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Android (минимальная версия не указана)Язык интерфейса: Английский, Фарси
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8D6EE0347454A02AF7BEA696A722F798A4CF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732626   (52097) от 25.06.2024
 
 Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Multi]
@@ -61,7 +6,7 @@ Grab Photos From Videos / Фото из видео v11.2.0 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52097.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ YouCut - Video Editor v1.631.1191 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52036.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51955.jpg" />
 </div>
 
 
@@ -139,7 +84,7 @@ OfficeSuite Pro + PDF 14.5.52368 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51903.jpg" />
 </div>
 
 
@@ -165,7 +110,7 @@ ReLens - Фокус и размытие DSLR 3.3.3 Mod by AjeethK [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51902.jpg" />
 </div>
 
 
@@ -191,7 +136,7 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51540.jpg" />
 </div>
 
 
@@ -218,7 +163,7 @@ Battery One: Батарея 1.8.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51499.jpg" />
 </div>
 
 
@@ -244,7 +189,7 @@ Battery One: Батарея 1.8.0 Mod by Fxolan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51477.jpg" />
 </div>
 
 
@@ -270,7 +215,7 @@ Psiphon Pro 397 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51263.jpg" />
 </div>
 
 
@@ -296,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50776.jpg" />
 </div>
 
 
@@ -322,7 +267,7 @@ PictureThis - Plant Identification v4.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50756.jpg" />
 </div>
 
 
@@ -348,7 +293,7 @@ Plus Messenger (Telegram+) v10.14.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50754.jpg" />
 </div>
 
 
@@ -374,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50724.jpg" />
 </div>
 
 
@@ -400,7 +345,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.10 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50715.jpg" />
 </div>
 
 
@@ -426,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50699.jpg" />
 </div>
 
 
@@ -452,7 +397,7 @@ AR Ruler App: Линейка Рулетка v2.8.4 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50687.jpg" />
 </div>
 
 
@@ -478,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50672.jpg" />
 </div>
 
 
@@ -505,7 +450,7 @@ GPS АнтиРадар v45.0 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50664.jpg" />
 </div>
 
 
@@ -531,7 +476,7 @@ Ventusky: Прогноз погоды v36.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50651.jpg" />
 </div>
 
 
@@ -557,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50610.jpg" />
 </div>
 
 
@@ -583,7 +528,7 @@ ES File Explorer File Manager v4.4.2.11 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50444.jpg" />
 </div>
 
 
@@ -609,7 +554,7 @@ IPTV Pro v8.0.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50403.jpg" />
 </div>
 
 
@@ -635,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50369.jpg" />
 </div>
 
 
@@ -661,7 +606,7 @@ Moon+ Reader Pro v9.5 (b905000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50347.jpg" />
 </div>
 
 
@@ -672,6 +617,58 @@ Moon+reader относится к категории универсальных 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47581B3A36C55DA9A8602A100742EFB713DBFC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736298   (50332) от 11.07.2024
+
+Moon+ Reader Pro v9.5 (b905000) Mod by Lucky Las [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 11.07.2024Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9547299FCB25151FF11ABDB7295581B6862B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127274   (50060) от 14.07.2024
+
+BlackCam Pro - B&W Camera v1.65 Paid [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50060.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlackCam – черно-белая камера для Android. BlackCam помогает делать потрясающие черно-белые фотографии с живым предпросмотром.Тип издания: Pro с Маркета (Paid)Релиз состоялся: 03.07.2024Разработчик: XnViewПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066BD46D838BA4DC5649E5F72E632A9B0FF91636
 ```
 
 https://mybot314.ru/tekegram_catalog/

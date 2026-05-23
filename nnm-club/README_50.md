@@ -1,107 +1,3 @@
-###  Публикация: 1870779   (1068885) от 
-
-А.П. Крещанов | Старокостянтинівський укріплений район 1938-1941 (2024) [PDF] [UKR]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Очередное издание серии «История фортификации» рассказывает об истории строительства Староконстантиновского укрепленного района, который являлся частью советской фортификационной системы «Линии Сталина», которая строилась вдоль советской границы в период 1938–1940 годов. На основе собранных автором материалов и документов дано полное описание этой оборонной системы (   Читать дальше...   )Жанр: ИсторияЯзык: УкраинскийИздательство: КиївФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56773CF84ABE158E051AAC8E4E01E35E730579E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870785   (1068884) от 
-
-М. Рейнер | Десять лекций по теоретической реологии (1947) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Книга М. Рейнера «Десять лекций по теоретической реологии» стала первым учебником по реологии - науке о деформациях и текучести вещества.Жанр: ФизикаИздательство: ГостехиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF23DDBF6A2919A31A11E16DF1844B0B9FDEB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870688   (1068883) от 
-
-Алекс Бредвик | Проект "Погружение" (Книга 5). Поход (2024) [MP3, Олег Кейнз, Алиса Тверская]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-У нас есть четверо суток. Четверо суток, чтобы найти город на юге. Четверо суток, чтобы пробить туда коридор. Четверо суток, чтобы помочь будущим союзникам, если будет необходимо. На кону стоят жизни не только моего отряда. Всего города. А возможно и всех разумных в этом мире. Демоны на востоке не спят, развиваются и постоянно пытаются нас уничтожить. И одни мы с (   Читать дальше...   )Жанр: фэнтези, боевик, ЛитРПГ, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55299F7A6CA40231079EBAEF82897D8A0086A349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870690   (1068882) от 
-
-Алекс Бредвик | Проект "Погружение" (Книга 6). Отряд (2025) [MP3, Олег Кейнз, Алиса Тверская]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Миссия выполнена. Город спасен. Мертвецы больше не будут беспокоить город наших союзников, а Пустота больше не будет пытаться захватить разум жителей этого поселения. Но какой ценой? Мертвым уже все равно на это…Но мы не имеем права сдаваться! Впереди еще множество трудностей! Угроза демонов ощущается все сильнее, а Пустота будет преследовать меня везде. Я обязан (   Читать дальше...   )Жанр: фэнтези, боевик, ЛитРПГ, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8E427532A0DF06F17C6CB1127ECCA70D250A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870691   (1068881) от 
 
 Алекс Бредвик | Проект "Погружение" (Книга 7). Гильдия (2025) [MP3, Олег Кейнз, Алиса Тверская]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068881.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068880.jpg" />
 </div>
 
 
@@ -163,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068879.jpg" />
 </div>
 
 
@@ -189,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068878.jpg" />
 </div>
 
 
@@ -215,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068877.jpg" />
 </div>
 
 
@@ -241,7 +137,7 @@ Gecko Gods (2026) [Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068876.jpg" />
 </div>
 
 
@@ -267,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068875.jpg" />
 </div>
 
 
@@ -293,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068874.jpg" />
 </div>
 
 
@@ -319,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068873.jpg" />
 </div>
 
 
@@ -345,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068872.jpg" />
 </div>
 
 
@@ -373,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068871.jpg" />
 </div>
 
 
@@ -399,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068870.jpg" />
 </div>
 
 
@@ -425,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068869.jpg" />
 </div>
 
 
@@ -451,7 +347,7 @@ Total Commander 11.57 Extended 26.5 Full / Lite RePack (& Portable) by BurSoft [
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068868.jpg" />
 </div>
 
 
@@ -477,7 +373,7 @@ PrivaZer Pro 4.0.122 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068867.jpg" />
 </div>
 
 
@@ -503,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068866.jpg" />
 </div>
 
 
@@ -529,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068865.jpg" />
 </div>
 
 
@@ -555,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068864.jpg" />
 </div>
 
 
@@ -581,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068863.jpg" />
 </div>
 
 
@@ -607,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068862.jpg" />
 </div>
 
 
@@ -633,7 +529,7 @@ Better Than Dead (2026) [Multi] (0.190) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068861.jpg" />
 </div>
 
 
@@ -659,7 +555,7 @@ qa.guru, Дмитрий Тучс, Михаил Рубанов | Курс по а
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068860.jpg" />
 </div>
 
 
@@ -670,6 +566,110 @@ qa.guru, Дмитрий Тучс, Михаил Рубанов | Курс по а
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7A51DC1E62BD6717AFA5751DB5C043F1FBBE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870832   (1068859) от 
+
+Skillbox, Виталий Флоренцев, Александр Исупов | Программист микроконтролле­ров (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освойте востребованную профессию программиста микроконтроллеров и научитесь создавать электронные устройства, умные системы и IoT‑решения. Курс сочетает программирование на языке C, практическую электронику и проектирование печатных плат — всё, что нужно для старта карьеры в embedded‑разработке.Производство: SkillboxЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 48:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A01FA0BDACB639B702C9C0009D04D8919BD5C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870835   (1068858) от 
+
+Slurm (Слёрм), Марсель Ибраев, Артём Прима | Kubernetes: продвинутый уровень (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа охватывает полный цикл работы с Kubernetes 1.30 и Kubespray 1.29.5, включая архитектуру, сетевые механизмы, масштабирование и устранение сложных инцидентов. Обучение построено вокруг практики и регулярно обновляется, чтобы соответствовать требованиям production‑среды 2025 года.Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A8D5D1386D45FFFAB37C5D4EF87C6FDAA00BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870837   (1068857) от 
+
+balun.courses, Александр Пряхин | Начинающий TeamLead (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс для начинающих тимлидов помогает быстро и безопасно войти в роль руководителя команды, понять свои обязанности и освоить ключевые практики управления без стресса и выгорания. Материал основан на подходах BigTech и ориентирован на реальные задачи, с которыми сталкивается лидер каждый день.Производство: balun.coursesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BC7F9BE66D082B92ADA0E25F4FACFE730C17BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870377   (1068856) от 
+
+Кадкина всякий знает (1976) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068856.jpg" />
+</div>
+
+
+###  Подробнее
+
+После войны возвращается домой Кузьма Кадкин - живой, здоровый, но не один, а с ребенком. Растерянно объявляет он, что на последнем перегоне отстала от поезда мать младенца. Никто не верит Кадкину - ни односельчане, ни собственные дети. Но меньше всех, конечно, жена...Производство: СССР / ЛенфильмЖанр: мелодрамаРежиссер: Анатолий Вехотко, Наталья ТрощенкоАктеры: Георгий Бурков, Людмила Зайцева, Елена Фетисенко, Майя Булгакова, Борис Новиков, Степан Крылов, Варвара Каргашева, Юрий Дубровин, Иван Шарин, Вера Липсток и др.Субтитры: русские (отдельным файлом)Продолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658D4B6C65A9BD54C60F3B4BFC774E614EC67C87
 ```
 
 https://mybot314.ru/tekegram_catalog/

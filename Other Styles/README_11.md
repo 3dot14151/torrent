@@ -6,7 +6,7 @@ Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987322.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986533.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986039.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985958.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985265.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984976.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984868.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984472.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983989.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983440.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Ennio Morricone - Once Upon A Time... (2004) [FLAC|Lossless]<Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982455.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981913.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Los clasicos argentinos Tango - Vol.05 (1996) [MP3|128 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981863.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <Hous
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981844.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981529.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Волшебные мелодии. Коллекция Ридерз дайд
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981148.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Angelo Badalamenti - Twin Peaks (1990) [FLAC|Lossless|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980899.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980712.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Variations Of Silence (2009) p*dis [FLAC|Lossless|tracks + .cue] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980542.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980540.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980538.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Jim Brickman - Timeless (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980532.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980515.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980506.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980497.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980489.jpg" />
 </div>
 
 

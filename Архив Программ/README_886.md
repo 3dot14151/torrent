@@ -6,7 +6,7 @@ Classic Shell 4.3.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596988.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DocumentsRescue Pro 6.1.568 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596956.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Inno Setup Ultra (Full/Lite) 5.4.3 [Русский/Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596955.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Daum PotPlayer v1.5.28771 Cборка 7sh3 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596941.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ QuicklyLink 1.1 Portable [Русский] (авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596879.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Zentimo xStorage Manager 1.3.3.1170 Final Portable [2011,ML\RUS,x86\x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596874.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Wireshark 1.8.1 Stable + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596863.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ PhotoRescue Professional 6.1.568 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596807.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ BitComet 1.28 [ML\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596725.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596712.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Avira Premium Security Suite 10.2.0.659 SP 2[Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596644.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Cyberfox 39.0 for Intel + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596586.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Cyberfox 39.0 for AMD + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596585.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ SQL Dynamite 1.7.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596579.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Theme pack for Windows 7 by MaxPaxVinny 1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596551.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Vivaldi 1.10.867.48 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596543.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ PC Auto Shutdown 6.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596538.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Slimjet 19.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596473.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596463.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Panda Antivirus Pro 2012 11.00.00 [Rus+Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596456.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Windows XP Professional 32-bit by A&K 270611-CD [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596453.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ PowerISO 6.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596438.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596410.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4945.1001 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596408.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ SuperEasy Audio Converter 3.0.5180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596378.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mozilla Firefox 40.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596368.jpg" />
 </div>
 
 

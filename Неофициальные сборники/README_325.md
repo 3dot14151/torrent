@@ -1,29 +1,3 @@
-###  Публикация: 351577   (621392) от 17.06.2011
-
-VA - Romantic Collection - Summer Dreams (2011) [MP3|320 kbps]<Insrtumental / Pop / Sex Music>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Insrtumental / Pop / Sex MusicПродолжительность: 04:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2EAC2145403691D0F35F07CE6115725436254F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145362   (621221) от 25.06.2017
 
 VA - Старые Песни По-новому: Зарубежный Выпуск (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Eurodisco>
@@ -32,7 +6,7 @@ VA - Старые Песни По-новому: Зарубежный Выпус�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621221.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ VA - House EDM Witness Tech (2016) [MP3|~249 - 320 Kbps] <House, Funky, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621169.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621165.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Dis
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621164.jpg" />
 </div>
 
 
@@ -148,7 +122,7 @@ VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621158.jpg" />
 </div>
 
 
@@ -177,7 +151,7 @@ VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621157.jpg" />
 </div>
 
 
@@ -206,7 +180,7 @@ VA - Club In Car Summer Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621149.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ VA - На гребне хитового лета (2012) [MP3|256-320 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621142.jpg" />
 </div>
 
 
@@ -276,7 +250,7 @@ VA - 100 Hits Insane Best Remixed (2016) [MP3|320 Kbps] <House, Trance, Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621086.jpg" />
 </div>
 
 
@@ -305,7 +279,7 @@ VA - Mega Dance Party Summer Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621070.jpg" />
 </div>
 
 
@@ -340,7 +314,7 @@ VA - Ночная летняя вечеринка (2012) [MP3|256-320 кб/с]<P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621064.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ VA - Горячие Руские Ремиксы 2CD (2012) [MP3|256 кб/с]<Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620913.jpg" />
 </div>
 
 
@@ -419,7 +393,7 @@ VA - Убойный клубняк в тачку 2CD (2012) [MP3|320 кб/с]<Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620896.jpg" />
 </div>
 
 
@@ -463,7 +437,7 @@ VA - The Official UK Top 40 Singles Chart 08.06.2018 (2018) [MP3|192-320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620888.jpg" />
 </div>
 
 
@@ -492,7 +466,7 @@ VA - Vocal Drum & Bass Selected Works [Compiled by Zebyte] (2018) [MP3|320 Kbps]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620882.jpg" />
 </div>
 
 
@@ -521,7 +495,7 @@ VA - Blues: Love & Devotion (2016) [MP3|320 Kbps] <International, Jazz, Vocal,Bl
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620839.jpg" />
 </div>
 
 
@@ -550,7 +524,7 @@ VA - Back in Blue (A Blues Tribute to AcDc) (2016) [MP3|320 Kbps] <Blues, Blues 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620837.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ VA - Legendary Russian Rock (2012) [MP3|224-265 кб/с]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620815.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ VA - ЕвроХит Топ 40 Europa Plus 08.06.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620792.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ VA - Музыкальные Новости. Июнь (2018) [MP3|320 Kbps] <Pop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620779.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ VA - ЕвроХит Топ 40 Europa Plus 12.04.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620620.jpg" />
 </div>
 
 
@@ -701,7 +675,7 @@ Michelle Gurevich - Compilation (2022) [MP3|320 Kbps] <Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620468.jpg" />
 </div>
 
 
@@ -730,7 +704,7 @@ VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620362.jpg" />
 </div>
 
 
@@ -759,7 +733,7 @@ VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620360.jpg" />
 </div>
 
 
@@ -788,7 +762,7 @@ VA - 100 хитов в дорогу: Русский выпуск (2019) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620341.jpg" />
 </div>
 
 
@@ -802,6 +776,35 @@ VA - 100 хитов в дорогу: Русский выпуск (2019) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3026A35349D2E9285B70C087B296547DDBC3D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145665   (619981) от 26.06.2017
+
+VA - About EDM Modern World (2017) [MP3|320 Kbps] <Club, Bigroom, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grooveandyes - Destroying Your Mind 06:49
+02. Dmitry Vertyagin - When The Sun Goes Down 03:52
+03. Craig Townsend & Jay Hubbard - Humanities Dictation (Original Mix) 08:05
+04. Dawid Web - Portu 07:14(   Читать дальше...   )Жанр: Club, Bigroom, Future HouseПродолжительность: 09:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCEE540FC0EC87AE07680170BDE961FA5E0D8F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

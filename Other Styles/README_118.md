@@ -6,7 +6,7 @@ Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401596.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401554.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401516.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401216.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400578.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400521.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400505.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400314.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399533.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399481.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399290.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Oystein Sevag - 2 albums (2010, 2012) [MP3|320 кб/с]<New age, Jazz>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399015.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398628.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397697.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397682.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, In
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397662.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397607.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Delerium - Music Box Opera (2012) [MP3|320 кб/с]<New Age, Ambient, Chillout, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396850.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396779.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Do
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396755.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396734.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396680.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396567.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversa
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396560.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395754.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395703.jpg" />
 </div>
 
 

@@ -1,55 +1,3 @@
-###  Публикация: 819482   (948259) от 11.01.2015
-
-Напряги извилины / Get Smart (2008) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ремейк комедийного сериала 60-х годов. Неуклюжие приёмы секретного агента Максвелла Смарта, взявшегося за обезвреживание группировки «Хаос», стремящейся к власти над миром, ставят операцию под угрозу. Во избежание провала командование прикрепляет к Смарту Агента 99…Производство: США, Канада / Atlas Entertainment, Callahan Filmworks, Mad Chance, Mosaic Media Group, Road Rebel, Village Roadshow Pictures, Warner Bros. Pictures, WV Films IVЖанр: Боевик, Триллер, КомедияРежиссер: Питер СигалАктеры: Стив Карелл, Энн Хэтэуэй, Алан Аркин, Дуэйн Джонсон, Теренс Стэмп, Терри Крюс, Дэвид Кокнер, Маси Ока, Нейт Торренс, Джеймс КаанПеревод: Дублированный (МОСФИЛЬМ-мастер, 2008)Продолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F6E1EDCB45E8E1048795C3442BD590BDC86CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858651   (948250) от 11.01.2015
-
-Хороший год / A Good Year (2006) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Воротила Лондонской фондовой биржи, безумно умный, удачливый менеджер и по совместительству большой зануда наследует винодельню в Провансе. По прибытии во Францию он обнаруживает, что, кроме него, есть еще люди, претендующие на его законную собственность. Цепочка невероятных событий и открытий заставят его по-новому взглянуть на истинные ценности этого мира…Жанр: Комедия, МелодрамаРежиссер: Ридли СкоттАктеры: Расселл Кроу, Марион Котийяр, Альберт Финни, Фредди Хаймор, Рейф Сполл, Арчи Панджаби, Ричард Койл, Том Холландер, Бен Райтон, Патрик КеннедиПеревод: ДублированныйЯзык субтитров: English,  РусскиеПродолжительность: 01:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5261E9BA6CCA978B4B4B2B3CB6AF75631A2902CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858679   (948242) от 11.01.2015
 
 Час расплаты / Paycheck (2003) BDRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948242.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948185.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947998.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947993.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947923.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947898.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947890.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947863.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947839.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947790.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947744.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947649.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947617.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947568.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947566.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947477.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947461.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947328.jpg" />
 </div>
 
 
@@ -531,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947169.jpg" />
 </div>
 
 
@@ -557,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946936.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946758.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946653.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946589.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946584.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:334B5A753C2BD42D3FD1D203299EA890BF1D40D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979055   (946503) от 04.02.2016
+
+Преступник / Felon (2008) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудесный семьянин с грандиозным будущим теряет все, когда он случайно убивает грабителя, который ворвался в его дом. Суд приговаривает его к 3 годам заключения в тюрьме строгого режима, где правила общества больше не действуют…Производство: США / Stage 6 FilmsЖанр: Драма, КриминалРежиссер: Рик Роман ВоАктеры: Стивен Дорфф, Вэл Килмер, Хэролд Перрино, Марисоль Николс, Энн Арчер, Ларнел Стовэлл, Сэм Шепард, Джонни Льюис, Шон Принц, Крис БраунингПеревод: Многоголосый закадровый, профессиональный, АвторскийСубтитры: Русские, украинские, английские (вшитые, отключаемые)Продолжительность: 01:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D96DCDCF6CD61E920ED513C757D576DDD535BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982608   (946482) от 04.02.2016
+
+Евротур / EuroTrip (2004) BDRip [H.264/1080p-LQ] [Theatrical cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скотт Томас завел себе друга по переписке из Германии из самых практичных соображений. Он хотел получить отличную оценку по немецкому, а некто с именем Мик согласился перевести его домашние работы. Но вскоре выяснилось, что Мик — обворожительная блондинка, которая не прочь увидеть своего американского друга вживую. После выпускных экзаменов Скотт прихватывает нескольких (   Читать дальше...   )Производство: США / DreamWorksЖанр: КомедияРежиссер: Джефф Шеффер, Алек Берг, Дэвид МэнделАктеры: Скотт Мехловиц, Джекоб Питтс, Мишель Трахтенберг, Трэвис Уэстер, Джессика Бёрс, Кристин Кройк, Кэти Мейлс, Ниел Исхаков, Мэтт Дэймон, Винни Джонс, Пётр Якл, Жан-Поль Мано, Патрик Рэполд, Фред Армизен, Люси Лоулесс, Гоу Гоу Жан Мишель Френсис, Яна Палласке, Дидрих Бадер, Джоэль Кирби, Патрик Мэлахайд, Кристофер Бейрд, Николас Дж. М. Клутман, Брюс Фулфорд, Молли Шод, (   Читать дальше...   )Перевод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEDC60611BEF4C44C178AE34458F5338C5D7CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

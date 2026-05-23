@@ -6,7 +6,7 @@ Malwarebytes Free 4.5.27.262 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199275.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ W10Privacy 4.1.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199272.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Display Driver Uninstaller 18.0.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199262.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199258.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Psiphon 3 build 179 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199254.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Total Commander 10.52 (27.04.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199252.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ O&O AppBuster 1.3.1343 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199244.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ MEmu 9.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199237.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Blender 3.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199235.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VMware Fusion Pro 13.0.2 (build 21581413) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199216.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VMware Workstation Player 17.0.2 Build 21581411 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199210.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adobe Photoshop 2023 24.4.1.449 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199206.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Windows 11 Manager 1.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199204.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ PC Cleaner Pro 9.2.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199200.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ WPS Office (Kingsoft Office) v17.6 [Ru/Multi] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199198.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Hex Editor Neo Ultimate 7.31.00.8528 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199196.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Foobar2000 2.0 final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199189.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Extreme Picture Finder 3.64.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199182.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ CareUEyes 2.2.5.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199178.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Kaspersky Small Office Security 21.13.5.506 (Web Installer)  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199171.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ CyberLink PowerDirector Ultimate 21.4.2812.0 (x64) RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199164.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ IObit Driver Booster Pro 10.4.0.128 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199154.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ IObit Driver Booster Pro 10.4.0.128 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199141.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MKVToolNix 76.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199135.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199132.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ WhatsApp (outdated) 2.2318.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199130.jpg" />
 </div>
 
 

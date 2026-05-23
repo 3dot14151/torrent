@@ -6,7 +6,7 @@ App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63652.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DCommander 3 Premium for Mac v.3.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63493.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.38 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63295.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DearMob iPhone Manager 6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63269.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ BetterDisplay Pro for Mac 2.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63239.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Shottr for Mac 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63177.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ TG Pro (Temperature Gauge Pro) 2.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63097.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ BetterTouchTool 4.443 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63074.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ TechTool Pro 19 v.19.0.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63057.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Parallels Desktop Business Edition 19 for Mac 19.3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62937.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ FonesGo WhatsApp Transfer for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62675.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62529.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Commander One PRO - FTP client 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62483.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Commander One PRO Pack 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62457.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Alfred PowerPack 5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62445.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ CrossOver 24.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62280.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ DaisyDisk 4.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62273.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Rectangle Pro 3.0.21 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61712.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ActiveDock 2 for Mac v.2.601 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61709.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61707.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Dynamic Wallpaper Engine 17.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61623.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Boom 3D 2.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61612.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Wins for Mac 1.6.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61608.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VanDyke SecureCRT and SecureFX 9.5.1 ARM/iNTEL [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61533.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Ghost Buster Pro 3.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61489.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Airbuddy for Mac 2 v.2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61485.jpg" />
 </div>
 
 

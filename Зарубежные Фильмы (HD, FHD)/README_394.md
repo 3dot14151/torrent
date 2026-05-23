@@ -1,55 +1,3 @@
-###  Публикация: 1131545   (706231) от 06.05.2017
-
-Без тормозов / A fond (2016) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Взяв напрокат самый навороченный семейный автомобиль, глава семейства отправляется в долгожданный отпуск со своей женой, детьми и отцом. Но когда новомодный круиз-контроль вдруг полностью отключает тормоза, каникулы перестают быть томными. Пристегните ремни. Вас ждет очень веселая поездочка!Производство: Франция, Македония / Chic Films, La Petite ReineЖанр: КомедияРежиссер: Николас БенамуАктеры: Хосе Гарсия, Андре Дюссолье, Каролин Виньо, Жозефин Калли, Стилан Лекай, Шарлотта Габрис, Венсан Дезанья, Флоренс Форести, Жером Коммандёр, Владимир ХубарПеревод: Дублированный (iTunes)Субтитры: ФранцузскиеПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D440F6DD534681291278D5171B352DFE51CE40AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792903   (705934) от 04.06.2014
-
-3 дня на убийство / 3 Days to Kill (2014) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В секретной лаборатории ученые разработали препарат, который позволяет человеку справиться с любой неизлечимой болезнью. Руководство спецслужб предлагает принять это лекарство экс-агенту спецслужб Итану Раннеру, которому врачи объявили смертельный диагноз. Но он должен выполнить еще одно задание, которое, впрочем, может стоить ему жизни. Теперь вокруг Раннера начинают (   Читать дальше...   )Производство: США, Франция, Греция, РоссияЖанр: Боевик, Триллер, ДрамаРежиссер: МакДжиАктеры: Кевин Костнер, Эмбер Хёрд, Хейли Стайнфелд, Конни Нильсен, Томас Лемаркус, Рихард Заммель, Марк Андреони, Бруно Риччи, Йонас Блоке, Эрик ЭбониПеревод: Дублированный (Лицензия)Язык субтитров: Русский, английскийПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9DB1DAA38F9FF55B6EBA0B88B1E9E785E21CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 792916   (705923) от 04.06.2014
 
 3 дня на убийство / 3 Days to Kill (2014) BDRip [H.264/720p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705923.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705886.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705861.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705825.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705788.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705773.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705756.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705751.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705748.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705595.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705594.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705478.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705476.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705474.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705465.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705463.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705327.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705295.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705294.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705286.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705284.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705282.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705279.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705189.jpg" />
 </div>
 
 
@@ -670,6 +618,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0097C73DB97081CCADF388FAC7FCAC6EA845D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398572   (705149) от 12.08.2020
+
+Новая Франция / Nouvelle-France (2004) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1759 год. Франция борется с Англией за сохранение своих канадских территорий. Мари-Лу, молодая женщина из Новой Франции, влюбляется в Франсуа ле Гардера - мужчину, оказавшегося в центре интриг враждующих держав. Их страстная любовь и судьба теперь зависит от нескольких людей: кюре Блондо, интенданта Биго, его любовницы Анжелики де Рокбрюн и окруживших их заговоров, (   Читать дальше...   )Производство: Канада, Великобритания, Франция / Melenny Productions, Davis-Films, Bespoke Films, UKFSЖанр: Драма, мелодрама, военный, историяРежиссер: Жан БоденАктеры: Ноэми Годен-Виньо, Давид Ла Эй, Джульетт Госселин, Жерар Депардье, Бьянка Джервис, Ирен Жакоб, Пьер ЛеБо, Венсан Перес, Изабель Рише, Тим Рот, Джейсон Айзекс, Колм МиниПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9E7AFA4B27AF6BDA4FDD8A4450CE5AD4EE2FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401982   (705038) от 12.08.2020
+
+Зал самоубийц. Хейтер / Sala samobojcow Hejter (2020) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томек, студент юридического факультета Варшавского университета, пойман на плагиате и исключен. Однако он решает скрыть этот факт от мира и продолжает получать финансовую помощь от семьи Красуцких - родителей Габи, подруги детства.
+Когда обман раскрывается, скомпрометированный парень теряет веру и доброту своих благодетелей. Переполненный гневом и сожалением, отвергнутый (   Читать дальше...   )Производство: Польша / Canal+ Polska, Coloroffon, dFlights, Naima Film, TVNЖанр: Триллер, драмаРежиссер: Ян КомасаАктеры: Maciej Musialowski, Vanessa Aleksander, Данута Стенка, Яцек Коман, Агата Кулеша, Мачей Штур, Adam Gradowski, Piotr Biedron, Анджей Велецки, Jan HrynkiewiczПеревод: Авторский (Матвеев) Присутствует ненормативная лексика!Субтитры: Русские форсированныеПродолжительность: 02:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31DD348B887B9202F33D6D10BCD2821E517F0DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

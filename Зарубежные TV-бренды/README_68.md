@@ -1,33 +1,3 @@
-###  Публикация: 529162   (568675) от 30.07.2012
-
-NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo: U.S. of alcohol (2012) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-День труда в США это веселье и вечеринки. Это последние выходные лета. В Фениксе,
-штат Аризона, и по всем Соединённым Штатам Америки это шанс повеселиться с друзьями. Для других - это жестокая битва. Кровавая... и даже смертельная! Для врачей скорой помощи выходные в честь дня труда - это что угодно, только не праздник. Трезвые люди не ходят по улицам и не тыкают друг друга ножом. Не стреляют, что кто-то припарковал свою машину на их месте. Такова реальность типичных праздничных выходных в типичном американском городке. Круглосуточная работа полицейских, медсестёр, врачей, пилотов вертолёта, судей. А также тюремных надзирателей. Вот какой ценой ведётся охрана города от наркотика-убийцы № 1 в Америке - алкоголя!
-
-Программа содержит сцены неприемлемые для определённой аудитории.
-Не рекомендовано к просмотру детям и людям с неустойчивой психикой.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B4577AA1644AA6C1BB472B918A9F9DF9A20D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528541   (568267) от 30.07.2012
 
 Animal Planet: Дикая (Суровая) Арктика (1-4 серии) / Wildest Arctic (2012) [H.264] HDTVRip
@@ -36,7 +6,7 @@ Animal Planet: Дикая (Суровая) Арктика (1-4 серии) / Wil
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568267.jpg" />
 </div>
 
 
@@ -62,7 +32,7 @@ BBC: Планеты / BBC: Planets (1999)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_567815.jpg" />
 </div>
 
 
@@ -88,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567025.jpg" />
 </div>
 
 
@@ -114,7 +84,7 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566993.jpg" />
 </div>
 
 
@@ -141,7 +111,7 @@ Discovery: Искривление времени / Time Warp (2008) BDRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566730.jpg" />
 </div>
 
 
@@ -167,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566684.jpg" />
 </div>
 
 
@@ -193,7 +163,7 @@ NG: Секреты Шамбалы. В поисках священных пеще
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566372.jpg" />
 </div>
 
 
@@ -219,7 +189,7 @@ BBC: Мир природы. Маршруты песочника / Natural World.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565756.jpg" />
 </div>
 
 
@@ -245,7 +215,7 @@ NGW: В мире дикой природы. Долина смерти / Into The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565736.jpg" />
 </div>
 
 
@@ -271,7 +241,7 @@ NG: Кладбище воинов. Флотилия проклятых / Warrior
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565734.jpg" />
 </div>
 
 
@@ -297,7 +267,7 @@ Discovery: Мегамир. Мексика / Megaworld. Mexico (2011) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565727.jpg" />
 </div>
 
 
@@ -323,7 +293,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565691.jpg" />
 </div>
 
 
@@ -349,7 +319,7 @@ BBC: Моцарт в Лондоне / Mozar in London (Lucy Worsley: Mozart's Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565404.jpg" />
 </div>
 
 
@@ -375,7 +345,7 @@ NG: С точки зрения науки: Великое оледенение /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563820.jpg" />
 </div>
 
 
@@ -401,7 +371,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563637.jpg" />
 </div>
 
 
@@ -427,7 +397,7 @@ NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Сери
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563566.jpg" />
 </div>
 
 
@@ -453,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563138.jpg" />
 </div>
 
 
@@ -479,7 +449,7 @@ NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563137.jpg" />
 </div>
 
 
@@ -505,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563130.jpg" />
 </div>
 
 
@@ -531,7 +501,7 @@ Viasat History: Как климат изменил ход истории / How C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563112.jpg" />
 </div>
 
 
@@ -557,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563086.jpg" />
 </div>
 
 
@@ -583,7 +553,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562566.jpg" />
 </div>
 
 
@@ -609,7 +579,7 @@ BBC: Вся правда о тренировках / The Truth About Exercise (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561917.jpg" />
 </div>
 
 
@@ -635,7 +605,7 @@ BBC: Живой мир. Мадагаскар, лемуры и шпионы / Mad
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561725.jpg" />
 </div>
 
 
@@ -661,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561283.jpg" />
 </div>
 
 
@@ -672,6 +642,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B77DEFD930ECFDD643C6B9E78613CCD85F81366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916708   (560717) от 02.08.2015
+
+Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTVRip [Серии 1-8] [Обновляемая]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой программы «Что у вас в гараже?» Дейл Уокслер снова приглашает зрителей в увлекательное путешествие по Америке в поисках классических мотоциклов и автомобилей. Дейл, коллекционер со стажем и эксперт во всем, что связано с техникой, посещает гаражи по всей стране в надежде обнаружить среди груд хлама редкие модели четырех- и двухколесного транспорта, (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D90EFB1F19ABDA40C5A2237CFFAAAC757CEA10
 ```
 
 https://mybot314.ru/tekegram_catalog/

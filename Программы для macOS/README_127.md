@@ -6,7 +6,7 @@ Bulk Photo Watermark 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236115.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UctoX 2 v2.8.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235926.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Solis 1.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235765.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ BetterDisplay Pro for Mac 1.4.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235694.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Resolutionator 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235570.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Chaotica 2.2.3 Beta [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235476.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ ApolloOne - Photo Video Viewer 3.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235417.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ BluePlum Home Inventory 4 v4.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235400.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Battery Indicator for Mac 2.16.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235372.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Labels and Databases 1.7.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235288.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ColoFolXS 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235272.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Disk PLUS 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235261.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ mcZoomOn 5 v5.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235171.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Transfer 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235074.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Audio Ease Snapper 3.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234908.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Script Debugger 8 v.8.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234882.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234829.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Graphic Inspector 2 v.2.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234771.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Irvue 2.7.14 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234659.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Workspaces 2 v.2.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234616.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ TG Pro (Temperature Gauge Pro) 2.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234613.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Memoires 5 v.5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234602.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Cisdem Duplicate Finder 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234598.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Art Text 4 v.4.3.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234544.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ BetterSnapTool 1.9.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234505.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Steinberg Dorico Pro for Mac 5 v.5.0.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234479.jpg" />
 </div>
 
 

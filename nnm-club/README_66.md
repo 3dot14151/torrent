@@ -1,202 +1,3 @@
-###  Публикация: 1869176   (1068447) от 
-
-VA - Музыка Победы. Часть 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Баста - Тёмная ночь (2:59)
-02. Антон Токарев и Асия - Эхо любви (2:57)
-03. Loc-Dog - Нам нужна одна победа (3:00)
-04. Владимир Пресняков - Пора в путь дорогу (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE312E65145D48FC79AF31E3D62818085577E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869173   (1068446) от 
-
-VA - Музыка Победы. Часть 2 (2026) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Баста - Тёмная ночь (2:59)
-02. Антон Токарев и Асия - Эхо любви (2:57)
-03. Loc-Dog - Нам нужна одна победа (3:00)
-04. Владимир Пресняков - Пора в путь дорогу (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775DE8A15F74729CAB49552A272B046850202982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869621   (1068445) от 
-
-Коллектив авторов | Большая энциклопедия (1900—1909) (Энциклопедия Южакова) [23] (1900-1909) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-«Большая энциклопедия» под редакцией С. Н. Южакова — российская универсальная энциклопедия, выпущенная книгоиздательским товариществом «Просвещение» (Санкт-Петербург) совместно с Библиографическим институтом (Лейпциг, Вена). При составлении энциклопедии в качестве образца использовался немецкий словарь Мейера.
-
-Энциклопедия была напечатана в типолитографии товарищества (   Читать дальше...   )Жанр: Исторический, научно-популярныйЯзык: Язык русский, дореформенный.Издательство: «Просвещение» (Санкт-Петербург)Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A067D85B70404E57E6E48F9DF6A7E8FE53C45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869822   (1068444) от 
-
-VA - Ori Uplift - Uplifting Only Episode 691 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. André Wildenhues Feat. Stacey Jay – Dare to Dream (Intro Mix)
-02. Simonic – Back to Life
-03. Illitheas – Heaven ArisesЖанр: Trance, Uplifting TranceПродолжительность: 02:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33FAB109F038ACD687C99062DC42AE5D6DC0775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869821   (1068443) от 
-
-VA - Armin van Buuren - A State Of Trance 1276 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Leon Bolier – Trouble
-02. Armin van Buuren & Skytech – She A Freak
-03. Armin van Buuren & Andrew Bayer ft. Fiora – Serendipity
-04. Adam Beyer & Mark Reeve – Love Within(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72E3AC4077555044E9279B67B79ED02BC4FDB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869749   (1068442) от 
-
-Кирилл Жданов | Правила бесконфликтного общения. 52 простых приема, чтобы отразить словесную агрессию и наладить лю (2026) [MP3, Алексей Кизуб]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Быстро осадить грубияна. Уверенно выиграть спор. Выторговать более выгодные условия у человека, который изначально не собирался уступать. Все это становится достижимым, если освоить простые способы защиты личных границ.
-Эта книга — практический «зал тренировок» для тех, кто хочет прокачать навыки антиагрессии. Кирилл Жданов — коуч и эксперт по ораторскому мастерству, (   Читать дальше...   )Жанр: ПсихологияИздательство: БомбораПродолжительность: 04:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9077BC17D0EDA3BF1D8ACD6BAB732ACAE23D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869288   (1068441) от 
-
-Коллектив авторов | Журнал Развѣдчикъ / Разведчик [1889 - 1917, PDF, RUS] [26] (1889-1917) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Первый в России частный военный журнал.
-
-Выходил с 1889 по 1917 годы. В раздаче представлена подшивка за 26 лет существования журнала, начиная с 5-го года издания, то есть, с 1892 по 1917 гг. Номера с 82 по 1414-й. Первые четыре года отсутствуют, поскольку представляли собой ещё не журнал, а товарный листок склада товарищества Березовского.
-(   Читать дальше...   )Жанр: Исторический, научно-популярныйЯзык: Язык русский, дореформенный.Издательство: Типография Тренке и ФюсноФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38855731ED8FE2E681D24AD83E0A4DF3933FC227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869826   (1068440) от 
 
 Metalocalypse: Dethklok - The Dethalbum DKXX: Dethmastered (2007) Remixed & Remastered, 2026, Adult Swim; WaterTower Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -205,7 +6,7 @@ Metalocalypse: Dethklok - The Dethalbum DKXX: Dethmastered (2007) Remixed & Rema
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068440.jpg" />
 </div>
 
 
@@ -234,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068439.jpg" />
 </div>
 
 
@@ -260,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068438.jpg" />
 </div>
 
 
@@ -287,7 +88,7 @@ Harpface & The Heat - Always Play At Last (2026) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068433.jpg" />
 </div>
 
 
@@ -316,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068432.jpg" />
 </div>
 
 
@@ -342,7 +143,7 @@ Jodi Stapler - Hard Truths & Honey (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068431.jpg" />
 </div>
 
 
@@ -371,7 +172,7 @@ Losiano - Super Soulabrating (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068430.jpg" />
 </div>
 
 
@@ -400,7 +201,7 @@ Mars Slingshot - Under the Influence (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068429.jpg" />
 </div>
 
 
@@ -429,7 +230,7 @@ An English Haunting (2024) [Ru/Multi] (3.6.0.54) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068428.jpg" />
 </div>
 
 
@@ -455,7 +256,7 @@ Palito Seco - It's All Just Because of the Blues (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068427.jpg" />
 </div>
 
 
@@ -484,7 +285,7 @@ Nemure Omoigo, Sora no Shitone ni | Сладко спи, моё дитя, в н�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068426.jpg" />
 </div>
 
 
@@ -511,7 +312,7 @@ Quiet the Dog - Departure (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068425.jpg" />
 </div>
 
 
@@ -540,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068424.jpg" />
 </div>
 
 
@@ -566,7 +367,7 @@ The B. Christopher Band - Four Buckets of Blues (2026) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068423.jpg" />
 </div>
 
 
@@ -595,7 +396,7 @@ The Dark Rites of Arkham (2026) [Ru/Multi] (3.6.1.34) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068422.jpg" />
 </div>
 
 
@@ -621,7 +422,7 @@ Nightmare Frames (2022) [Ru/Multi] (3.5.1.19) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068421.jpg" />
 </div>
 
 
@@ -647,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068420.jpg" />
 </div>
 
 
@@ -675,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068419.jpg" />
 </div>
 
 
@@ -701,7 +502,7 @@ Dasu - LMAO (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068418.jpg" />
 </div>
 
 
@@ -715,6 +516,198 @@ Dasu - LMAO (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678A5F0E5D4BAF17CBF841F185D4D1F13F8F79CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869547   (1068416) от 06.05.2026
+
+Питомник / Kenneled (2026) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уокер, фрилансер и художник, тонет в атмосфере нестабильности, царящей в городе. Отчаянно нуждаясь в самостоятельности и финансовой поддержке, чтобы спасти отношения со своей амбициозной девушкой Кайли, он соглашается на прибыльную, но странную работу — выгуливать собаку. В уединённом особняке он встречает Дуга — человека, который живёт полностью как собака. Поначалу (   Читать дальше...   )Производство: СШАЖанр: УжасыРежиссер: Джей БерлесонАктеры: Джек Райан Бекнер, Дэн Каттс, Эмили Фергюсон, Джоэтт Уотерс, Брайан Руни, Эва Доррепааль, Алекс ГрелльПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:08Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA303A4CC0756C58FF92382FCA564E096DB03D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869550   (1068415) от 06.05.2026
+
+Zerre - Rotting On A Golden Throne (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro 01:39
+2. Pigs Will Be Pigs 05:16
+3. Deception of the Weak 03:38
+4. Mental Vacation 07:28(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E821796E1CFC5D68024EBDC8A97C99E3C9FBB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869549   (1068414) от 06.05.2026
+
+Вот это драма! / The Drama (2026) WEB-DL [H.264/1080p] [звук с TS]
+
+>>Горячие новинки
+>>Экранки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли и Эмма влюблены друг в друга и вот-вот поженятся. Место свадьбы выбрано, приглашения разосланы, до долгожданной церемонии остаются считанные дни. Но одно, казалось бы, невинное откровение переворачивает всё — Чарли узнаёт об Эмме то, что предпочёл бы не знать. Теперь на пути к «долго и счастливо» их отношениям предстоит пройти через неожиданную драму.Производство: США / A24, Live Free or Die Films LLC, Square PegЖанр: драма, мелодрама, комедияРежиссер: Кристоффер БорглиАктеры: Зендея, Роберт Паттинсон, Алана Хаим, Мамуду Ати, Хейли Гейтс, Зои Уинтерс, Ханна Гросс, Сидни Леммон, Анна Барышников, Майкл Эбботт мл.Перевод: Дублированный (Мосфильм-Мастер, звук с TS)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D4FE7814CCDBA1BDE770A559426E3AB2262A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869552   (1068413) от 06.05.2026
+
+Харри Холе / Детектив Холе / Jo Nesbo's Detective Hole (2026) WEB-DL [H.264/720p] (сезон 1, серии 1-9 из 9) Movie Dubbing, ДАБЛИН
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осло. Снег. Кровь. В городе орудует жестокий убийца, оставляющий за собой кровавые загадки. Одинокий волк Харри Холе снова на охоте. Ему придётся сражаться не только с хитрым маньяком, но и с собственными демонами, коррумпированным коллегой и системой, которая предпочитает удобную ложь горькой правде.Производство: Норвегия, США / Working Title Television, Universal International Studios, Living Daylights ProductionsЖанр: детектив, криминал, триллерРежиссер: Виктория АрбузоваАктеры: Тобиас Зантельман, Юэль Киннаман, Эллен Хелиндер, Андерс Баасмо Кристиансен, Максим Баун Бошуд, Пиа Тьелта, Като Скимтен Сторенген, Агнес Борн, Франк Кьосас, Келли ГейлПеревод: Дублированный (Movie Dubbing), Многоголосый (ДАБЛИН)Язык озвучки: Русский, Норвежский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D2EC151751A31D26B8CC90DC96F59403071D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869556   (1068412) от 06.05.2026
+
+The CD Woodbury Trio - Bulldog (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Born Under A Bad Sign (4:11)
+02.  Little Sister (3:24)
+03.  I Wouldn't Treat A Dog (The Way You Treated Me) (4:22)
+04.  Gaslight Road (4:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990F45CB0C490D77F71C91B2115F5CF0355CFCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869557   (1068411) от 06.05.2026
+
+Гангстер / Hoodlum (1997) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068411.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-е годы. Теневая преступность выплёскивается на улицы Нью-Йорка, и смертельная вражда стравливает гангстера с гангстером. Бампи Джонсон, глава гарлемских рэкетиров, преисполнен гордости и чувства собственного превосходства.
+Когда дикий, необузданный Голландец Шульц совершает серию дерзких налётов на его территорию, Бампи понимает, что для победы над Голландцем (   Читать дальше...   )Производство: США / United ArtistsЖанр: драма, криминалРежиссер: Билл ДьюкАктеры: Лоренс Фишбёрн, Тим Рот, Ванесса Уильямс, Энди Гарсиа, Сисели Тайсон, Чи МакБрайд, Кларенс Уильямс III, Ричард Брэдфорд, Уильям Этертон, Лоретта ДивайнПеревод: профессиональный многоголосый (Варус Видео, ТВЧ, украинский), профессиональный двухголосый (Cоюз Видео, НТВ+), авторский (Юрий Живов, Дмитрий Штамп, Сергей Визгунов), любительский одноголосый (Сергей Жучков)Язык озвучки: русский, украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 02:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F15815ED6B7EF245FAE91781427BA2BCDAC2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869559   (1068410) от 06.05.2026
+
+The Midnight Current - Swell Sounds (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vibin (5:30)
+02.  Agave (6:02)
+03.  Know I'm Gonna Call (4:45)
+04.  2012 (5:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB5EE4FACF0CEF2BC541225C2CCC9F648EA58A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

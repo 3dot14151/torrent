@@ -6,7 +6,7 @@ Telegram Desktop 4.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190561.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ AIMP 5.10 Build 2411 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190557.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Breakb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190553.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ FanControl V169 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190538.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Google Earth Pro 7.3.6.9285 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190537.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ XY VPN - Security Proxy VPN 4.7.022 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190530.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ FanControl V170 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190525.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ App Builder 2023.50 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190508.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ O&O Defrag Professional / Server 26.1 Build 7709 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190499.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VueScan Pro 9.8.16 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190497.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Don't Sleep 9.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190496.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VPN Inf - Security Fast VPN 7.6.026 Mod by AzadNet [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190464.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Adobe XD 55.1.12.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190453.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Topaz Photo AI for Mac 2.0.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190433.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Balabolka 2.15.0.854 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190431.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ ClassicDesktopClock 4.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190426.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ CrossOver 23.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190414.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ USB Device Tree Viewer 3.8.9.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190390.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ SketchUp Pro 2023 v.23.1.314 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190389.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Auslogics Driver Updater 1.25.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190386.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Glary Disk Cleaner 5.0.1.282 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190367.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Glary Utilities Pro 5.197.0.226 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190362.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Sandboxie 5.60.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190350.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Opera GX 92.0.4561.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190348.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Skype 8.90.0.407 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190337.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ GoldWave 6.68 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190325.jpg" />
 </div>
 
 

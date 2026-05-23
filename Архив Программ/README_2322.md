@@ -6,7 +6,7 @@ CCleaner 6.36.11508 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16463.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Gigapixel AI Pro 8.4.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16461.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0 Build 49 (x64) Portable by 7997 [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16423.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VueScan Pro 9.8.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16400.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.3 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16394.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Allavsoft Video Downloader Converter 3.28.1.9278 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16373.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16369.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Softany WinCHM Pro 5.55 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16368.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ TreeSize Professional 9.5.0.2102 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16363.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ XnView MP 1.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16361.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Process Lasso Pro  15.1.1.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16356.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Defender Remover Portable 12.8.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16342.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft  Visual C++ Runtimes AIO v0.91.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16315.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16282.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ GPU-Z 2.66.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16276.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mp3tag 3.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16245.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Archicad 28.2.0 Build 5000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16194.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Internet Download Manager 6.42 Build 40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16159.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ AOMEI Partition Assistant Technician Edition 10.8.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16154.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Wondershare PDFelement 11.4.20.3548 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16133.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Internet Download Manager 6.42 Build 40 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16124.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Windows Manager 2.1.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16099.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Windows Manager 2.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15979.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ MetaProducts Offline Explorer Enterprise 8.7.0.4996 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15974.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Activation Scripts (MAS) 3.3 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15921.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Topaz Photo AI Pro 4.0.1 Portable by 7997 + Models [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15889.jpg" />
 </div>
 
 

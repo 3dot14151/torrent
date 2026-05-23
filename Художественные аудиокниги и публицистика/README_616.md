@@ -1,83 +1,3 @@
-###  Публикация: 1419492   (335495) от 30.10.2020
-
-Алекс Стюарт (Сэнди Митчелл) | За Императора! (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Кайафас Каин - герой Империума, суровый, но справедливый комиссар Имперской Гвардии, сражавшийся с самыми кошмарными обитателями Галактики. А еще он очень скромный и застенчивый человек.
-В том смысле, что не прочь отсидеться за стеночкой и вообще не любитель лезть на рожон. Но Вселенная, похоже, уверена, что этот бестрепетный воин просто обожает бросаться грудью (   Читать дальше...   )Жанр: Боевая, эпическая фантастикаПродолжительность: 10:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7344EB0912F25F0CDBE29395673AFF192525A3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419910   (335491) от 30.10.2020
-
-Илья Бояшов | Бансу (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В основе новой повести лауреата премии «Национальный бестселлер» Ильи Бояшова лежит реальная история, произошедшая летом 1943 года на Аляске. Советский экипаж перегоняет по ленд-лизу из Америки в СССР двухмоторный бомбардировщик «Дуглас А-20 Бостон». Приземлившись для дозаправки на авиабазе в Номе, небольшом городишке на побережье Аляски, пилот обнаруживает, что (   Читать дальше...   )Жанр: Современная отечественная проза, Исторические приключенияПродолжительность: 04:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD61EF36873DDEC670C28F1406CD7677F929F262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419750   (335489) от 30.10.2020
-
-Алексей Ивакин | Писатель Кактусов и... (2020) [MP3, проект NEOСФЕРА]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-24 истории из жизни писателя Пети Кактусова.
-Едкая сатира на современную литературу, на сегодняшний литературный процесс и на то, что сопровождает жизнь литературного раба.Жанр: cатира и юморПродолжительность: 03:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57523BBB0335DF978EE10B737A6559C2E636DB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955269   (335406) от 10.11.2015
 
 Владислав Бахревский | Свадьбы (2015) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335406.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335367.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335221.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335195.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335186.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335087.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335083.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335077.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335065.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334986.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334929.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334851.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334717.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334672.jpg" />
 </div>
 
 
@@ -456,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334666.jpg" />
 </div>
 
 
@@ -482,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334662.jpg" />
 </div>
 
 
@@ -511,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334576.jpg" />
 </div>
 
 
@@ -537,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334572.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334570.jpg" />
 </div>
 
 
@@ -589,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334542.jpg" />
 </div>
 
 
@@ -615,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334538.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334527.jpg" />
 </div>
 
 
@@ -669,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334474.jpg" />
 </div>
 
 
@@ -680,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5864FDB4E0780A9FD5AD72CD3C2246DA9197B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258817   (334434) от 31.10.2018
+
+Вероника Иванова | Право учить. Повторение пройденного (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битвы не длятся вечно – попросту не могут: воины устают, оружие тупится, азарт игры со смертью сменяется скучным стремлением выжить. Сражаться с самим собой всю жизнь? Почетно и уважаемо, но не всегда необходимо. Иногда случается так, что нужно остановиться, отсалютовать противнику, кивком принять ответный салют и осмотреться вокруг. Те, чье горячее дыхание доносит (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 14:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BA5776AB928A203EAD4606D74A92B31A9B5918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579680   (334418) от 28.09.2022
+
+Игорь Негатин | Лишнее золото (Книга 3). За гранью джихада (2022). [MP3, TED]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремесло ювелира далеко от войн и политики. Маленький приморский городок, спокойная и размеренная жизнь. И дни скучны и похожи друг на друга, как патроны в пулеметной ленте. Но так будет не всегда. Случайная находка на побережье превратится в ужасный кошмар, который заставит вытащить из шкафа потрепанный камуфляж и сменить блеск драгоценностей на холод вороненой стали. (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 08:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DD2DCB74244AEA0C1D53309B40BB745A322D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579805   (334413) от 28.09.2022
+
+Конн Иггульден | Чингисхан. Хроники завоевателя (Книга 2). Повелители стрел (2022) [MP3, Станислав Федорчук]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веками племена враждовали друг с другом. Теперь, при Чингисхане, – человеке, кто живет битвой и кровью – они объединились в одну нацию. Его армия наводит ужас на противника, растет число его всадников, растет его властолюбие, крепнет легенда о нем. На пути надменный город Яньцзин, высоким стенам которого суждено испытать на себе неистовую дерзость Чингисханова войска, (   Читать дальше...   )Жанр: Историческая литература, исторические приключенияПродолжительность: 15:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9457BC13DEECE24EE3E53190903E928D750AEE6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

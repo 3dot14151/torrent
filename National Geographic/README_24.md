@@ -6,7 +6,7 @@ NGW: Атака нильского крокодила / Africa's Croc Attack (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528618.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526538.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520490.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519269.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ NG. Осушить океан: глубокое погружение. Подво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518077.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NG. Осушить океан: глубокое погружение / Drain the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517785.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515878.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512355.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511436.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507050.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505285.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503119.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497352.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NGW: Бойцовский клуб для животных / Animal Fight Club (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497207.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NGW: Рожденные в Африке. Круг жизни / Born in Africa (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494595.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NGW: Земля хищника / Predator Land (2019) HDTV [H.264/1080i-LQ] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494483.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NGW: Тимбавати: мир диких кошек / Timbavati: An Epic Cat S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488629.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ NGW: Пума! / Puma! (2012) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488628.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ NGW: Намибия. Убежище гигантов / Namibia. Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486082.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486074.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NG: Осушить океан: Корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483965.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTVRip (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483875.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ NGW: Анаконда. Тихий убийца / Anaconda. Silent killer (2014) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482047.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ National Geographic. Зона риска. Фестиваль байкеров в
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481878.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NG: Лесное царство / Kingdom of the Forest (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481876.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NG: Бойцовский клуб для животных / Animal Fight Club (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481764.jpg" />
 </div>
 
 

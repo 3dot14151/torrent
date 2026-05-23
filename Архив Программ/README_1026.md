@@ -6,7 +6,7 @@ R-Studio 7.7 Build 159562 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524811.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mozilla Firefox 40.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524807.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Panda Free Antivirus 16.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524805.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Waves Complete v9r29 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524802.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ashampoo WinOptimizer 12.00.32 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524768.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Clementine 1.2.3 Development builds 1241-gfbe310b + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524766.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AOMEI Partition Assistant Technician Edition 5.6.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524753.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft .NET Framework 4.6 Final RePack by gora (11.08.2015) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524749.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Glary Utilities Pro 5.123.0.148 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524574.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dism++ 10.1.1000.20 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524547.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Apowersoft GIF 1.0.0.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524523.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Glary Utilities Pro 5.123.0.148 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524519.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wise Care 365 Pro 5.3.5.532 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524510.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Acme CAD Converter 2019 8.9.8.1492 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524508.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Flip PDF Corporate Edition 2.4.9.29 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524505.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tipard Video Converter Ultimate 9.2.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524470.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Torch Browser 69.0.0.1674 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524445.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mozilla Firefox Quantum ESR 68.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524434.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Rob Papen - BLUE II 1.0.3a VSTi, AAX Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524380.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Mozilla Firefox Quantum 68.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524345.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Microsoft Visual Studio 2019 Community 16.1.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524340.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ K-Lite Codec Pack 15.0.4 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524338.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Classic Shell 4.3.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524290.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ KV331 Audio - SynthMaster One 1.1.6 STANDALONE, VSTi, AAX (x86/x64) Repack by VR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524256.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ xrecode II 1.0.0.232 DC 07.07.19 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524229.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Steinberg - VST Live Pro 1.0.0 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524214.jpg" />
 </div>
 
 

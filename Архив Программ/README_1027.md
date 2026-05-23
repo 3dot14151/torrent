@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.1.2.2295 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524208.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wise Data Recovery Pro 6.1.1.492 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524202.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Care 365 Pro 6.3.2.610 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524197.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ XMedia Recode 3.3.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524183.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RuntimePack 18.7.18 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524159.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v8 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524143.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Telegram Desktop 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524142.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ FileZilla 3.13.0 RC2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524120.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ FileZilla 3.12.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524109.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rufus 3.19 (Build 1906) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524102.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ FastStone Photo Resizer 3.4 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524060.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Atomix Virtual DJ Pro Infinity 8.0.0 build 2398.1050 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524026.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Internet Download Manager 6.23 Build 19 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524024.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Chromodo Browser 43.3.3.177 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524022.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ XviD4PSP 7.0.163 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524014.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ NetWorx 5.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524007.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ThunderSoft Flash to Video Converter 2.3.6.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523986.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PDF Eraser Pro 1.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523975.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Intel® Processor Identification Utility 5.30 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523973.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ SIV (System Information Viewer) 5.02 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523969.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Telegram Desktop 0.8.48 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523946.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Privacy Eraser Free 4.2.0 build 1400 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523943.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Titan FTP Server Enterprise 11.20 Build 2264 11.20.2264 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523929.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ qBittorrent 3.2.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523904.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Cyberfox 40.0.2 for AMD/Intel + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523901.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Intel Network Connections Software 20.3 WHQL [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523890.jpg" />
 </div>
 
 

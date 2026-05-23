@@ -1,29 +1,3 @@
-###  Публикация: 1210769   (778454) от 04.03.2018
-
-Grim Tales 14: The Time Traveler / Страшные сказки 14: Путешественник во времени (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей серии игр Grim Tales. Направляясь на семейное барбекю Анна Грэй чуть не погибает в автокатастрофе! А вскоре по прибытию она обнаруживает, что кто-то убил ее племянницу и племянника. Преступник намеревается уничтожить всю Семью Грэй! Анна решает срочно переместится назад во времени, чтобы остановить злодея. Но, то что она обнаруживает шокирует (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2634A70BCDE6F5103655676723491C131A218BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210833   (778425) от 04.03.2018
 
 Award Room of fear (2018) [Ru/En] (1.0) License HI2U
@@ -32,7 +6,7 @@ Award Room of fear (2018) [Ru/En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778425.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rad Rodgers (2018) [Ru/Multi] (1.5.6511) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778419.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Phantasmat 6: Town of Lost Hope (2016) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778359.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Edge Of Reality: Ring Of Destiny (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778307.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Haunted Hotel 11: The Axiom Butcher (2016) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778264.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Phantasmat 6: Town of Lost Hope / Фантазмат 6: Город послед�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778262.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Sylvio Remastered (2016) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_778215.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Bell Ringer (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778213.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) License GOG [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778173.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Decisive Campaigns: Barbarossa (2015) [En] (1.00) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778168.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Codename: Panzers, Phase One - Phase Two (2004-2005) [Ru/En] (1.25/1.10) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778145.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ The Raven: Legacy of a Master Thief (2013) [En/Ge] (3.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778055.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ The Technomancer (2016) [Ru/Multi] (1.0.3638) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778026.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Quadrant Episode 1-3 (2015-2016) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777843.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Fleeting Ages (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777810.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Sylvio Remastered (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777807.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777769.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru] (16.0.20.1060) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_777701.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.0.7.0/dlc) Repack R.G. Origami [Gold P
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777459.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Fragmented (2016) [En] (Build 16.4.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777451.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Share (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777450.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Cheat Engine (2015) [Ru/En] (6.5) License
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777419.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Brutal Legend (2013) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777388.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Distortions (2018) [En/Br] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777378.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ The Beggar's Ride (2016) [En/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777091.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ The Beggar's Ride – увлекательный и неповторимый п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DDBD592A562A74958FF24E910722CAE553DB3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013861   (777060) от 05.05.2016
+
+Chicku (2016) [En] (1.05) License HI2U
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chicku это суровый и бескомпромиссный платформер, в котором игроку надо спастись с фермы Баррингтон. Пилы, шипы и несметное число смертельных ловушек стоят между Вами и вашей целью, спасением сородичей и победой над Доктором Баррингтоном.Тип издания: LicenseРазработчик: Gatling Goat StudiosЖанр: Arcade (Action, Platformer), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CECC251F1A9297193786EEDA30DAA60DE2DEFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

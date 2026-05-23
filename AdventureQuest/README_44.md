@@ -1,29 +1,3 @@
-###  Публикация: 1066813   (409076) от 27.10.2016
-
-The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-The Deep Paths: Labyrinth Of Andokost - является РПГ игрой от первого лица. Игроку предстоит бродить по темным подземельям и уничтожать монстров применять традиционный пошаговый бой. Игроки исследуют огромный лабиринт, наполненный опасными существами и скрытыми сокровищами, дабы разгадать древнюю тайну зла! Благодаря богатой 3D-графики старой школы, чувство ретро (   Читать дальше...   )Тип издания: LicenseРазработчик: Steve JarmanЖанр: Adventure, Quest, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1C0F9C8B2F57203720D692DF862586C44F7552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948743   (408944) от 21.10.2015
 
 Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
@@ -32,7 +6,7 @@ Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408944.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408556.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408300.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Observation (2019) [Ru/Multi] (1.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407750.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407317.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407051.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404662.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Danganronpa V3: Killing Harmony (2017) [En/Ja/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402891.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401687.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ RiME (2017) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398263.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396407.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Alter Ego (2010) [Ru] (1.07) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394556.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ Forgotten Land (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391652.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1 202) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391034.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Artania (2017) [Ru/Multi] (1.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389473.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389469.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386562.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386127.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Deponia Dilogy / Дилогия Депонии [Ru/En] (RePack/1.3/1.1.4) 2012 |
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384669.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Manual Samuel (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384151.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ Loco Parentis (2019) [Ru/En] (1.0.0.4242) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380364.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378323.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377913.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ The Light / Свет (2012) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377907.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Teenagent (1994) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376124.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ Teenagent (1994) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26D0BD427165D429B8971997786E6AF2DD7C782C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327348   (376065) от 24.09.2019
+
+Palmyra Orphanage (2019) [Ru/En/Ch] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Palmyra Orphanage — это паранормальный хоррор от первого лица, в котором только скрытность и внимание помогут тебе выжить. Выбери тот финал, который они заслуживают. Раскрой историю приюта. И будь осторожен. В отдаленном уголке постсоветской России находится приют «Пальмира». Каким-то образом детский дом смог пережить развал страны и жуткую лихорадку девяностых. (   Читать дальше...   )Тип издания: LicenseРазработчик: Steppe Hare StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1505B6048AEE6FA13041259DB066176193D73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

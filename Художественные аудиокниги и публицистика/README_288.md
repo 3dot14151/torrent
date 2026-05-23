@@ -1,82 +1,3 @@
-###  Публикация: 1199062   (802714) от 14.01.2018
-
-Филипп Майер | Американская ржавчина (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Американская ржавчина» произвела фурор среди критиков и читателей, авторитетнейшие издания “Economist” и “New York Times” назвали этот роман “книгой года”, а “Washington Post” включил «Ржавчину» в десять лучших книг года.
-Роман о потерянной американской мечте и современном отчаянии, о дружбе и верности, о любви, вырастающей из обломков разрушенной жизни. Филипп (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1469518FB2C0E9C94BE1DA66095DA74C746F6C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384511   (802651) от 20.05.2020
-
-Мэттью Фаррелл | Я все знаю (2020) [MP3, Роман Волков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Как сохранить рассудок, если все улики против тебя? Детективу Сьюзен Адлер поручают непростое дело: наследница многомиллионного состояния и глава крупной благотворительной организации попадает в аварию, но, по словам криминалистов, причина её смерти кроется совсем не в этом. Полиция прилагает огромные усилия, чтобы найти убийцу, но почти не обращает внимание на то, (   Читать дальше...   )Жанр: Современные детективы, ТриллерыПродолжительность: 09:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A68FD313E97598DF511A5F888F245FCC850CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384526   (802642) от 20.05.2020
-
-Маргарет Этвуд | Заветы (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-35 лет назад, в 1985 году, вышел самый знаменитый роман канадской писательницы Маргарет Этвуд «Рассказ служанки». Антиутопическая книга о кошмарном режиме патриархальной теократии, о Галааде, принесла Этвуд небывалую известность. В прошлом году, после феноменального успеха одноименного сериала на Hulu, писательница выпустила долгожданное продолжение — «Заветы». Еще (   Читать дальше...   )Жанр: Социально-психологическая фантастика, альтернативная историяПродолжительность: 11:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1044BDF62FFF85105A43027582B4401F805E54BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384500   (802641) от 20.05.2020
 
 Евгений Водолазкин | Сестра четырех (2020) [MP3]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802641.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802639.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802631.jpg" />
 </div>
 
 
@@ -165,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802622.jpg" />
 </div>
 
 
@@ -191,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802612.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802590.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802589.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802555.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802549.jpg" />
 </div>
 
 
@@ -322,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802547.jpg" />
 </div>
 
 
@@ -348,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802517.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802490.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802484.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802442.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802429.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802424.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802385.jpg" />
 </div>
 
 
@@ -537,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802331.jpg" />
 </div>
 
 
@@ -563,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802310.jpg" />
 </div>
 
 
@@ -589,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802300.jpg" />
 </div>
 
 
@@ -615,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802247.jpg" />
 </div>
 
 
@@ -641,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802245.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802116.jpg" />
 </div>
 
 
@@ -678,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4D1FE729FFB8715FB4E6455994E91B9A577350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118268   (802082) от 31.03.2017
+
+Владислав Петров | Очень мелкий бес (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Владислава Петрова “Очень мелкий бес” (“Нева”, № 7,8) — весьма неудачная попытка совместить авантюрное повествование из жизни современного издательского бизнеса с фантастическим и даже фантасмагорическим элементом. Сюжет поначалу заинтриговывает: из закрытой комнаты средь бела дня исчезает один из совладельцев издательства “Проза”, а на столе пропавшего обнаруживаются (   Читать дальше...   )Жанр: Приключенческий романПродолжительность: 14:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EC6BFD9ACFD83E07779C58730D6FDFCC862605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010799   (802078) от 25.04.2016
+
+Стиг Ларссон | Девушка с татуировкой дракона (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сорок лет загадка исчезновения юной родственницы не дает покоя стареющему промышленному магнату, и вот он предпринимает последнюю в своей жизни попытку – поручает розыск журналисту Микаэлю Блумквисту. Тот берется за безнадежное дело больше для того, чтобы отвлечься от собственных неприятностей, но вскоре понимает: проблема даже сложнее, чем кажется на первый взгляд. (   Читать дальше...   )Жанр: ДетективПродолжительность: 21:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316ED178336D5F33705C718E08018698D93CCB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119937   (802055) от 31.03.2017
+
+Вениамин Смехов | В один прекрасный день (Повесть об актере) (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один день из жизни актера Леонида Павликовского. Как любит говорить отец: «Извините, что без скандала обошлось».... Вениамин Борисович Смехов... В один прекрасный день… Утро Понедельник 14 марта 197… года у драматического актера Леонида Алексеевича Павликовского начался как обычно, в семь часов утра по его собственному будильнику. Ничего особенного, утро светлее (   Читать дальше...   )Жанр: Современная проза, литературные чтенияПродолжительность: 02:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C866D13A6279C37C0D8111CF2C1718DEF3F43E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

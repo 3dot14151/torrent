@@ -1,55 +1,3 @@
-###  Публикация: 1191507   (264065) от 14.12.2017
-
-Попали! / Doghouse (2009) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Семеро друзей, у большинства из которых не складываются отношения с прекрасным полом, отправляются в глухую деревушку Мудли, где живет бабушка одного из приятелей. Он обещает компании веселый отдых, а главное — приятное общество одиноких девушек, коих в Мудли навалом и которые будут очень рады приезжим мужчинам. Бабушкин внук оказывается прав, но лишь отчасти: женщины (   Читать дальше...   )Производство: Великобритания / Carnaby International, Carnaby Film Productions, Hanover FilmslЖанр: Ужасы, Фантастика, КомедияРежиссер: Джэйк УэстАктеры: Дэнни Дайер, Ноэль Кларк, Эмил Марва, Ли Инглби, Кейт-Ли Кастл, Кристина Коул, Терри Стоун, Нил Мэскелл, Эмили Бут, Стивен ГрэмПеревод: Многоголосый закадровый, профессиональный (R5), (с цензурой)Субтитры: отсутствуютПродолжительность: 01:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9787B71E68A94E125354860C7BC5345C0935B7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191740   (264037) от 14.12.2017
-
-Овердрайв / Overdrive (2017) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
-</div>
-
-
-###  Подробнее
-
-Эндрю и Гаретт Фостеры — братья-авантюристы, промышляющие угоном самых редких и роскошных автомобилей. До сих пор им легко удавалось избегать неприятностей, но во время очередного дела они попадают под прицел жестокого криминального босса. Теперь в обмен на свои жизни они должны украсть для него самый ценный автомобиль его злейшего врага.Производство: Франция, Бельгия, США / Brandt/Haas ProductionsЖанр: боевик, триллерРежиссер: Антонио НегретАктеры: Ана де Армас, Скотт Иствуд, Гайя Вайсс, Клеменс Шик, Фредди Торп, Симон Абкарян, Мусса Мааскри, Том Либ, Каарис, Фредерик АнскомбреПеревод: Дублированный (iTunes)Субтитры: Английские (Full+SHD)Продолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3035FCF81AA6B66F1C75B277ECCD7AF36BFEBA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191684   (264032) от 14.12.2017
 
 мама! / mother! (2017) BDRemux [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264032.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_263943.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263939.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263932.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263907.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263877.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263874.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263836.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263833.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263830.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263797.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263792.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263791.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263784.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263761.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263759.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263755.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263750.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263747.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263674.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263665.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263663.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263660.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263638.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954DFC33DEAD616EE97DF2AF397069C4F1E2CA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340593   (263579) от 24.11.2019
+
+Вдовья гора / Widows' Peak (1994) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия о событиях в небольшом курортном городке в Ирландии в 20-е годы, большей частью населенном и управляемом женщинами, преимущественно вдовами (почему городок и получил шутливое название «Вдовья Гора«), спокойную и размеренную жизнь которого нарушает прибытие молодой богатой американки Эдвины (тоже вдовы).Производство: Великобритания, Ирландия /  British Screen Productions, Jo Manuel Productions, The Rank OrganisationЖанр: Триллер, комедия, криминал, детективРежиссер: Джон ИрвинАктеры: Миа Фэрроу, Джоан Плаурайт, Наташа Ричардсон, Адриан Данбар, Джим Бродбент, Энн Кент, Джон Кавана, Рина О'Грэйди, Джерард МакСорли, Майкл Джеймс ФордПеревод: Многоголосый профессиональныйСубтитры: Русские, английские, французскиеПродолжительность: 01:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60DE3921745E9128BB869272886824EFE51B08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338569   (263552) от 24.11.2019
+
+Гринго / El Gringo (2012) BDRemux [H.264/1080p] [GER Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cюжет фильма строится вокруг одного человека, американца, которому представилась возможность забрать сумку с нарко деньгами. Он пересекает мексиканскую границу с пулевым ранением руки и 2,3 млн. наличных с целью отправиться в туристический городок - Акапулько и отдохнуть на пляже. Но не всё так просто, ближайший населённый пункт - Фронтерас, кишит ворами и бандитами (   Читать дальше...   )Производство: США / After Dark Films, Autonomous Films, Bomar OODЖанр: Боевик, ДрамаРежиссер: Эдуардо РодригезАктеры: Скотт Эдкинс, Кристиан Слэйтер, Петар Бачваров, Захари Бахаров, Мимоза Базова, Михаил Еленов, Валентин Ганев, Эрандо Гонсалес, Израэль Ислас, Джордж КарлуковскийПеревод: Двухголосый профессиональный, Одноголосый любительскийСубтитры: Немецкие (forced + full)Продолжительность: 01:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB9785225FA5861ABA8DB8C24A2EB89C6604FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

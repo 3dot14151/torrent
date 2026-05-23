@@ -1,83 +1,3 @@
-###  Публикация: 1294833   (624113) от 10.04.2019
-
-Шеридан Ле Фаню | В зеркале отуманенном (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую читатель держит в руках, представляет зрелое и позднее творчество Шеридана Ле Фаню — ирландского писателя, который посвятил последнее десятилетие своей жизни (начиная с 1860 г.) исключительно готической прозе и получил признание английской читающей публики как выдающийся мастер такого рода повествований.
-Готическая традиция складывается в английской (   Читать дальше...   )Жанр: УжасыПродолжительность: 14:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6BA90500A05C1EA1217D86D2B1ADA15B7318727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287968   (624110) от 10.04.2019
-
-Хадзимэ Камосида | Кошечка из Сакурасо [Том 6] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Японская школа искусств Суймэй славится своим общежитием и домом под названием «Сакурасо». Жизнь общежития регламентирована сводом строгих правил, но совсем другое дело «Сакурасо». Здесь запретов и правил нет, именно поэтому его и называют психушкой. В «Сакурасо» живут неординарные личности , выделяющиеся из толпы. Именно благодаря этому, здесь всегда интересно и (   Читать дальше...   )Жанр: Комедия, ПовседневностьПродолжительность: 05:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850E63054188944D9B136A9570A6D3DDB8924C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294846   (623979) от 10.04.2019
-
-Пётр Проскурин | Горькие травы (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие романа «Горькие травы» происходит в 40-50 годы в одной из центральных областей России, в Брянской деревне. Автор возвращается к впечатлениям своей юности. Герои романа, вернувшиеся с фронтов Великой Отечественной войны, из партизанских отрядов, из плена, включаются в трудную работу по восстановлению разрушенного врагом хозяйства.
-«Я так никогда и не смог (   Читать дальше...   )Жанр: Советская классическая прозаПродолжительность: 19:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3AD5CCD5BA97F32F8F52A53B51E02946DEAF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294932   (623973) от 10.04.2019
 
 Александра Лисина | Ходок (2019) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623973.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623919.jpg" />
 </div>
 
 
@@ -139,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623907.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623904.jpg" />
 </div>
 
 
@@ -191,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623875.jpg" />
 </div>
 
 
@@ -217,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623810.jpg" />
 </div>
 
 
@@ -243,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623748.jpg" />
 </div>
 
 
@@ -269,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623741.jpg" />
 </div>
 
 
@@ -295,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623572.jpg" />
 </div>
 
 
@@ -321,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623543.jpg" />
 </div>
 
 
@@ -347,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623533.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623407.jpg" />
 </div>
 
 
@@ -401,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622823.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622822.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622809.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622755.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622666.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622664.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622625.jpg" />
 </div>
 
 
@@ -587,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622514.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622488.jpg" />
 </div>
 
 
@@ -639,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622450.jpg" />
 </div>
 
 
@@ -665,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622447.jpg" />
 </div>
 
 
@@ -678,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D43D096195D6FC7BE8A06173D0991C9827BD11B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035735   (622446) от 19.07.2016
+
+Евгений Гришковец | Боль (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Боль» состоит из трёх отдельных произведений: из повести «Непойманный» и двух рассказов. Или, я бы уточнил, двух новелл. Эти три отдельных произведения не имеют между собой непосредственной связи. Но тем не менее я ощущаю сборник «Боль» как цельное произведение, как художественный цикл, в котором Боль, как состояние душевное, так и физическое, становится некой (   Читать дальше...   )Жанр: Повесть и рассказыПродолжительность: 06:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02347D8532A58DA2320F2916125CA16DA6315BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145167   (621635) от 25.06.2017
+
+Вильгельм Кюхельбекер | Европейские письма (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вильгельм Кюхельбекер учился в Царскосельском лицее вместе с Пушкиным и Дельвигом. Служил в министерстве иностранных дел; преподавал русский и латинский языки в Педагогическом институте. В 1820 г. читал в Париже публичные лекции о русской литературе, которые должен был прекратить по требованию русского посольства. В 1821-1822 годах служил на Кавказе, где познакомился (   Читать дальше...   )Жанр: КлассикаПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE5FAD147385E59FBDEEA7F16C4E374A255451B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351552   (621395) от 17.06.2011
+
+Артур Сатаркулов | Вектор Чернобыля [S.T.A.L.K.E.R.] [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний мой выход в Зону начался так же, как и десятки других до него. Помню, как тогда строил на будущее радужные планы - вернусь, возьму заслуженный отпуск, приведу все свои домашние дела в порядок и махну со своей любимой девушкой куда-нибудь на Гавайи... Однако Зона имела на меня свои виды. Вылезая в тот злополучный день из нашей ЈКасаткиЋ, я не знал, что... (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7233F7F8E6445DC7585B2FDB686DE38F51524D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

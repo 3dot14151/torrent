@@ -6,7 +6,7 @@ WinRAR 7.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23471.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 134.0.6998.178 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23465.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera One 117.0.5408.154 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23455.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GIMP 3.0.2 revision 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23453.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.98 (2503) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23444.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Attribute Changer 11.40 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23443.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Opera One 117.0.5408.154 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23440.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Visual Studio 2022 Professional 17.13.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23439.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ TweakPower 2.071 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23435.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Scaler Music - Scaler 3 v1.0.2 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23431.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Internet Download Manager 6.42 Build 29 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23429.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Firefox Browser 136.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23416.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Brave Browser 1.76.81 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23412.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Telegram Desktop 5.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23407.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ RegCool 2.032 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23406.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinRAR 7.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23397.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ WinRAR 7.11 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23393.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adobe Photoshop 2025 26.5.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23391.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MediaHuman YouTube Downloader 3.9.9.98 (2603) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23378.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Internet Download Manager 6.42 Build 31 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23369.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Google Chrome 134.0.6998.178 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23366.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Opera One 117.0.5408.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23359.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ By Click Downloader Premium 2.4.18 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23358.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Telegram Desktop 5.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23354.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ LibreOffice 25.2.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23348.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Windows Manager 2.1.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23344.jpg" />
 </div>
 
 

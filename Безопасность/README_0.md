@@ -6,7 +6,7 @@ DefenderUI 2.05 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063219.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.1 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062783.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adguard 7.22.6 (7.22.5267.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062348.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ultra Adware Killer 10.9.10.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062322.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Firewall Control 6.30.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062134.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adguard 7.22.6 (7.22.5267.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062017.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Malwarebytes Windows Firewall Control 6.30.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061842.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DefenderUI 2.04 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061420.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Minimal Firewall 2.7.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061326.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Glary Malware Hunter PRO 1.213.0.847 Portable by FC Portables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060711.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Malwarebytes Windows Firewall Control 6.29.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060281.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Glary Malware Hunter Pro 1.213.0.847 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060269.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adguard 7.22.5 (7.22.5262.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060017.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Minimal Firewall 2.6.8 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059744.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ DefenderUI 1.46 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059354.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MinerSearch 1.4.8.41 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059261.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Malwarebytes Windows Firewall Control 6.26.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058541.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ HitmanPro 3.8.50 Build 346 Portable by FCPortables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057825.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ HitmanPro 3.8.50 Build 346 RePack by No_Reply [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057637.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Dr.Web 6.00.16.01270 Portable Scanner by No_Reply [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057192.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Antivirus Removal Tool 2026.02 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056260.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Glary Malware Hunter Pro 1.212.0.845 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056206.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Kaspersky Free 21.24.8.522 Repack by LcHNextGen (04.02.2026) [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055336.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Emsisoft Emergency Kit 2025.7.0.12683 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1054195.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Folder Guard Pro 26.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054178.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.0 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053631.jpg" />
 </div>
 
 

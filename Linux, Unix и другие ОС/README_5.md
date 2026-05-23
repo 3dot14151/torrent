@@ -1,29 +1,3 @@
-###  Публикация: 988420   (920280) от 20.02.2016
-
-Lubuntu 14.04.4 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA56FA40CD474C95DF81C12AD08EDF52650476C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988417   (920226) от 20.02.2016
 
 Xubuntu 14.04.4 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
@@ -32,7 +6,7 @@ Xubuntu 14.04.4 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920226.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ctlos Linux Openbox 1.2.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920070.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918633.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918496.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915590.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_914721.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ Tor Browser 2.3.25-5 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912648.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Zentyal 3.0.2 [Сервер для дома и малого бизнеса] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912439.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ Linux Mint Debian Edition (MATE/Cinnamon) 201303 [x32 + x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912300.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ Ubuntu*Pack Unity 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908708.jpg" />
 </div>
 
 
@@ -305,7 +279,7 @@ Ubuntu*Pack Cinnamon 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908634.jpg" />
 </div>
 
 
@@ -332,7 +306,7 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905788.jpg" />
 </div>
 
 
@@ -358,7 +332,7 @@ Window Maker Live 0.95.7-3 (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903728.jpg" />
 </div>
 
 
@@ -384,7 +358,7 @@ Parrot Security OS 4.8 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903032.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ BlackArch Linux 2017.01.28 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898799.jpg" />
 </div>
 
 
@@ -436,7 +410,7 @@ Kubuntu 14.04 Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896080.jpg" />
 </div>
 
 
@@ -462,7 +436,7 @@ Lubuntu 14.04 Beta I (легкий дистрибутив) [i386, amd64] 4xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895994.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ Ubuntu Gnome 14.04 Trusty Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895661.jpg" />
 </div>
 
 
@@ -518,7 +492,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894133.jpg" />
 </div>
 
 
@@ -546,7 +520,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892823.jpg" />
 </div>
 
 
@@ -574,7 +548,7 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892190.jpg" />
 </div>
 
 
@@ -602,7 +576,7 @@ Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892067.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Parted Magic 2016-03-02 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889086.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Ubuntu 20.04.3 Focal Fossa LTS [amd64] 2xDVD
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888717.jpg" />
 </div>
 
 
@@ -683,13 +657,41 @@ Tor Browser 2.3.25-6 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_884413.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное обеспечение Tor и соответствующим образом настроенный браузер Firefox.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641565   (880799) от 10.04.2013
+
+OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики OS4 (ранее проект носил название PC/OS) выпустили очередной новый релиз своего дистрибутива. OS4 представляет собой дружественный к пользователю настольный и серверный дистрибутив на базе Xubuntu, его основными особенностями являются поддержка многих популярных плагинов для браузеров, дополнительное ПО для работы с мультимедиа, создания контента и разработки, а также инновационная компоновка рабочего стола.
+
+Релиз OS4 Workstation 13.4 доступен для архитектур 32- и 64-бит, среди его компонентов – ядро 3.2.0,  Firefox 20.0; Thunderbird 17.0.4; Google Maps сменивший Nokia Maps, а также многое другое. Существенные изменения были внесены в более чем 200 пакетов. Ранее в дистрибутив были включены новые системные темы на базе Radiance и Ambiance, новые границы окон, интегрированное главное меню.
 
 ## Скачать торент
 ```bash

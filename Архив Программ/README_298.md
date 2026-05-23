@@ -6,7 +6,7 @@ Movavi Screen Recorder 21.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906613.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Luminar 4.2.0.5577 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906526.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PotPlayer 1.7.21149 Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906521.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ The KMPlayer 4.2.2.38 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906512.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Hard Disk Sentinel Pro 5.61 Build 11463 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906507.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AMD Radeon Software Crimson ReLive Edition 17.1.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906478.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Kaspersky Lab Products Remover 1.0.1213 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906476.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IsMyLcdOK 2.75 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906456.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WinRAR 4.00 Beta 6 (x86+x64) [2011, RUS] RePack (Обновляемый)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_906422.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nero Burning ROM & Nero Express 2020 22.0.1011 RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906368.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Adobe Premiere Pro 2020 14.0.4.18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906326.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Skype 7.32.32.103 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906317.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ BitTorrent Pro 7.9.9 Build 43296 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906175.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906171.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ USDownloader 1.3.5.9 (27.02.2016) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906061.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Alternate File Shredder 1.850 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905986.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sweet Home 3D 5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905966.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The Bat! Voyager 7.4.4.1 Final Portable by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905945.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ BitTorrent Free 7.9.5 Build 41866 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905851.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ AdwCleaner 5.037 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905849.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Telegram Desktop 0.9.28 Stable + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905798.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VirusTotal Windows Uploader 2.2 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905726.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stop SMS Uni Boot x64 (UEFI) (Win 10) v.6.02.28 [Ru/En] (Тестовая сбо
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905664.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Topaz Textures Effects FULL | MINI 1.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905660.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Soft4Boost AMPlayer 5.6.3.277 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905572.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Mirillis Action! 4.21.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905480.jpg" />
 </div>
 
 

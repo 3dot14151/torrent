@@ -1,81 +1,3 @@
-###  Публикация: 1072182   (342277) от 17.11.2016
-
-Борис Акунин | Приключения Эраста Фандорина (Книга 14). Чёрный город (2016) [MP3, Егор Бероев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие  романа об Эрасте Фандорине происходит накануне Первой мировой войны в Баку, великолепном и страшном городе нефти, нуворишей, пламенных террористов и восточных разбойников. На этот раз великому сыщику достался противник, победить которого, кажется, невозможно…Жанр: ДетективПродолжительность: 12:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42414F9A371A9F541A09FB772DF14BBF16BC5BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180272   (342249) от 03.11.2017
-
-Марина Кистяева | Рожденная в пламени ночи (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Он помнил предсказание. Несколько столетий назад цыганка предрекла, что князья Сандровские встретят в одно время так называемых спутниц и подруг… Игорь не собирался верить нелепому гаданию. Но оба его младших брата, Велест, а после и Борис, встречают девушек, с которыми соедняют свои жизни и Судьбы. Игорь не собирается становится семьянином. Мир, объятый ужасом беспщадной (   Читать дальше...   )Жанр: Романтическое фэнтези, ЭротикаПродолжительность: 08:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFEA3CFED958E3F9EFB2CCF1C9656A07A533D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580399   (342179) от 25.11.2012
-
-Сергей Алексеев | Волчья хватка [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Герой остросюжетного романа «Волчья хватка» Вячеслав Ражный – президент охотничьего клуба, бывший боец спецназа погранвойск. Но это всего лишь малая, видимая простым смертным часть его бытия. Ражный – вотчинный аракс, воин Засадного Полка, созданного еще в XIV веке Сергием Радонежским. В тяжелые для России годы Сергиевы ратники, владеющие особым боевым искусством, которое передается веками от отца к сыну, приходят на помощь родине. В мирное время они решают вопросы жизни и смерти между собой. Ражный, выстоявший в своем первом поединке, готовится к новой схватке с братом-араксом. Но куда опаснее будет столкновение с обычными людьми в современном мире, где в волке больше человеческого, чем в самом человеке…Жанр: Фэнтези, остросюжетный романФормат: MP3Продолжительность: 18:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BB931A9C9CDC1BDCF646CAF974F5929E8EAC99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953782   (342150) от 07.11.2015
 
 Шеннон Хейл | Вышибала "Козла–Зубоскала" (2015) [MP3]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342150.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342117.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342115.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342012.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341956.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341807.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341802.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341766.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341749.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341687.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341546.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341398.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341299.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341295.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341200.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341154.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341150.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341140.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341125.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341086.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341075.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341012.jpg" />
 </div>
 
 
@@ -664,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340830.jpg" />
 </div>
 
 
@@ -675,6 +597,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:834CBC4528BA3A5608B475DCC911FB99775EB70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579065   (340806) от 25.09.2022
+
+Андрей Ткачев, Findroid | Я покорю Лабиринт с помощью техник массажа (Книга 4) (2022) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340806.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я покорю Лабиринт с помощью техник массажа» – фантастический роман Андрея Ткачева и Findroid, четвертая книга одноименного, жанр городское фэнтези, бояръ-аниме.
+
+Я постепенно становлюсь сильнее, а техники массажа позволяют мне наладить связи и обзавестись новыми полезными знакомствами. Пока непонятно что меня ждёт дальше, но я точно уверен, что не сойду со своего (   Читать дальше...   )Жанр: Городское фэнтезиПродолжительность: 07:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE968398E076F28FD6B4752816CE7A38B48C4F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073586   (340734) от 18.11.2016
+
+Герхарт Гауптман | Перед заходом солнца (1978) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340734.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Перед заходом солнца» — одна из немногих пьес XX века, которую и по тематике, и по уровню ее художественного осмысления можно сопоставить с творениями таких титанов, как Шекспир и Гете. Прямая генетическая связь с «Королем Лиром» здесь очевидна. Еще более ощутимо влияние Гете с его фаустовской темой горделивого бунта свободной личности против неумолимых законов (   Читать дальше...   )Жанр: Спектакль, драмаПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B4B48FDC2FD3E18541FFDDF7F55BE27B127D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257920   (340693) от 28.10.2018
+
+Денис Владимиров | Шкуры из стали (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340693.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Дика Гаррота всего две цели – выжить и отомстить. Убить его мечтает каждый, ведь награда непомерно высока. Враги же могущественны и практически недостижимы. А здесь, среди бескрайнего лазурного неба, парят тысячи и тысячи островов, между ними снуют летающие корабли, которых с пронзительными и победными криками обгоняют белоснежные чайки. Блеск золота и латуни, (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 11:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4BE4100D693610E832CD8590AC9E80A2727004
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Wolfpin - Remember (2009) [FLAC|Lossless|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682773.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jim Suhler & Monkey Beat - Live at the Kessler (2016) Live [MP3|320 кб/с] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682623.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Art Pepper - Chili Pepper (2001) [FLAC|Lossless|tracks] <Instrumental Jazz, Saxo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682601.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Brother Sun Sister Moon - Liberty (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682576.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Buddy Rich - Seven Classic Albums (1955 - 1961) 4CD, 2019, Real To Reel [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682509.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Blues 2000 (2000) Unofficial Release [APE|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682362.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Sexy, Smooth & Seductive: Intimate Jazz Fantasies (2016) [MP3|320 кб/с] 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682352.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Rippingtons feat. Russ Freeman - True Stories (2016) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682345.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ray Brown - Ultimate Ray Brown Selected by Christian McBride (1999) Verve Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682167.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dizzy Gillespie - Four Classic Albums (1954 - 1957) 2CD, 2009, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682166.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Janet Seidel - The Way You Wear Your Hat (1998) 2CD, La Brava Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682165.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ray Brown - Something For Lester (1977) 1989, Original Jazz Classics [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682163.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Janet Seidel - Little Jazz Bird (1990, 1992) 1994, La Brava Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682162.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ninna Milner - Songs For Sentient Beings (2016) WiMi [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682161.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Janet Seidel - The Art of Lounge 3 (2005) Musictronic Lounge [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682159.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Grant Green & Baby Face Willette - Trio/Quartet: Complete Recordings (1961) 2CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682135.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682088.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682084.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Curtis Mayfield - Keep On Keeping On: Curtis Mayfield Studio Albums 1970-1974 (2
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681985.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Joe Louis Walker, Bruce Katz, Giles Robson - Journeys To The Heart Of The Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681880.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Hoochie Coochie Men & Jon Lord - Danger White Men Dancing (2007) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681249.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dan Barrett Trio And Quartet - Jubilesta! (1992) Arbors Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680544.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dan Barrett & Blue Swing - Blue Swing (2000) Arbors Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680543.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Dan Barrett Octet - Strictly Instrumental (1987) Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680542.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ruby Braff And Ellis Larkins - Calling Berlin, Vol. 1 (1994) 1995, Arbors Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680518.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Susie Arioli - All The Way (2012) Jazzheads [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680440.jpg" />
 </div>
 
 

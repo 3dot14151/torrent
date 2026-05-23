@@ -6,7 +6,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (28.05.2020/dlc) Repack xatab [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792281.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (1.0/upd3/dlc) Repack Other s [Dig
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791995.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791940.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791936.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (23636) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791935.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dragon's Dogma: Dark Arisen (2016) [En] (1.0.0.18) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791471.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Divinity: Original Sin (2014) [Ru/En] (2.0.119.430/dlc) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790786.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790238.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Anachronox (2001) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789627.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tales of Vesperia (2019) [Ru/Multi] (1.0/dlc) License CODEX [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789614.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Titan Quest (2006) [Ru] (1.20) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789145.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Guild of Dungeoneering (2015) [Multi] (1.0UE/dlc) License PLAZA [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788768.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788730.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788723.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788388.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788282.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787931.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ King of Seas (2021) [Ru/Multi] (7677098) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787790.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Empire of Sin (2020) [Ru/Multi] (1.06.0.51066/dlc) License CODEX [Premium Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787766.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Winter Warfare: Survival (2021) [En] (1.0b7604797) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787756.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787431.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Darksburg (2020) [Ru/Multi] (1.0.11.17957) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787302.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dungeons & Dragons: Dark Alliance (2021) [Ru/Multi] (1.20.1370/dlc) License CODE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787275.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) License GOG (обновляема�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786777.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786018.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Dex (2014) [Multi] (5.4.0.0/dlc) License GOG [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786007.jpg" />
 </div>
 
 

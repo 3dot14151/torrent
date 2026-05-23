@@ -6,7 +6,7 @@ Aiseesoft Total Video Converter Ultimate 9.0.16 RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945046.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adguard Премиум 6.0.188.974 (онлайн-установка) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945044.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hotspot Shield Elite 5.20.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945008.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AVG Internet Security 2016 16.41.7442 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944991.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GOM Player 2.2.77 Build 5240 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944986.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.19041.84 - Оригинальн�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944943.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SupRemo 4.0.4.2294 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944940.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ YoWindow Unlimited Edition 4 Build 70 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944908.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Stop SMS Uni Boot (Win 7 PE) v.6.02.06 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944873.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AeroAdmin 4.6 сборка 3196 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944823.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Windows 7 Ultimate SP1 x64 3in1 OEM Feb 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944821.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ JetBrains PyCharm Professional 2019.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944814.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AutoPlay Media Studio 8.5.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944804.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ WinSetupFromUSB 1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944722.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MInstAll StartSoft Winter 5-2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944634.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ WinRAR 5.31 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944574.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WinRAR 5.31 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944567.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Adguard 6.1.312.1629 [Multi/Ru] [WEB установщик]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944536.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Junkware Removal Tool 8.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944305.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Daum PotPlayer 1.6.63891 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944220.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Digital Juice -Juicer 3.83a Build 108
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944200.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Argent Client 10.0.0.11 Light Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944164.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VideoPad Video Editor Professional 4.58 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944140.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ashampoo Photo Commander 15.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944080.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VueScan Pro 9.5.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944060.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ PREDATOR Free Edition 3.1.1.223 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943916.jpg" />
 </div>
 
 

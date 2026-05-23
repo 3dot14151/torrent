@@ -1,58 +1,3 @@
-###  Публикация: 1076437   (164639) от 16.12.2020
-
-Трансерфинг Реальности. Вадим Зеланд v3.7 [Ru] Full
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-«Реальность существует независимо от вас. До тех пор пока вы с этим согласны» – Вадим Зеланд.
-Трансерфинг – это технология управления реальностью. Желания не исполняются, мечты не сбываются, зато худшие ожидания, как назло, оправдываются. Неужели нельзя наоборот? Оказывается, можно. И вы узнаете, как.
-Возможности приложения:
-• 15 книг, полное собрание произведений (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 11 ноября 2019 г.Разработчик: Owly LabsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9037986BA997F28F0C24DA862BE8D2E048DC8813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516925   (164297) от 13.12.2021
-
-KeePassDX Pro v3.0.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-KeePassDX Pro - Приложение позволяет сохранять и использовать пароли. KeePass DX менеджер паролей, с открытым исходным кодом, зарекомендовавший себя безопасностью и надёжностью. В отличии от KeePass2Android, KeePassDX Pro не требует доступа в интернет и не содержит никакой рекламы.Тип издания: Pro (Paid)Релиз состоялся: 10.12.2021Разработчик: KunzisoftПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516928   (164282) от 13.12.2021
 
 Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
@@ -61,7 +6,7 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164282.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ CPU-Z (Mobile) v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164269.jpg" />
 </div>
 
 
@@ -113,7 +58,7 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164186.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ Psiphon Pro 386 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164157.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ Revo Uninstaller Mobile 3.2.380G Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164088.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ Root Explorer / Root Проводник 4.12.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164067.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163943.jpg" />
 </div>
 
 
@@ -245,7 +190,7 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163828.jpg" />
 </div>
 
 
@@ -271,7 +216,7 @@ Happy Color v2.8.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163793.jpg" />
 </div>
 
 
@@ -299,7 +244,7 @@ VoltLab v5.1.4 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163744.jpg" />
 </div>
 
 
@@ -327,7 +272,7 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163673.jpg" />
 </div>
 
 
@@ -353,7 +298,7 @@ Guitar Tuna v6.16.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163416.jpg" />
 </div>
 
 
@@ -380,7 +325,7 @@ CoinSnap - Value Guide v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163121.jpg" />
 </div>
 
 
@@ -407,7 +352,7 @@ JetAudio 12.0.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163093.jpg" />
 </div>
 
 
@@ -433,7 +378,7 @@ HD VideoBox Plus v2.31 FIX-20221215 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162784.jpg" />
 </div>
 
 
@@ -459,7 +404,7 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162654.jpg" />
 </div>
 
 
@@ -485,7 +430,7 @@ Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешен�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162601.jpg" />
 </div>
 
 
@@ -511,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162398.jpg" />
 </div>
 
 
@@ -538,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162395.jpg" />
 </div>
 
 
@@ -564,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162389.jpg" />
 </div>
 
 
@@ -590,7 +535,7 @@ Plus Messenger (Telegram+) v10.2.3.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162292.jpg" />
 </div>
 
 
@@ -616,7 +561,7 @@ English LinDuo HD v5.29.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162226.jpg" />
 </div>
 
 
@@ -642,7 +587,7 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162199.jpg" />
 </div>
 
 
@@ -668,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161600.jpg" />
 </div>
 
 
@@ -679,6 +624,59 @@ Zaycev.fm — это радиостанция, которая работает �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B15E0828C55474D552442901A50E1681D8B30B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599039   (161315) от 21.12.2022
+
+Daff Moon Phase (Фазы Луны) v3.23 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение показывает текущую фазу Луны, фазы Луны на любой месяц, и другую информацию о Луне, Солнце и восьми планетах солнечной системы в реальном времени. Программа позволяет посмотреть положение светил на простейшей небесной сфере, которую можно поворачивать на произвольный угол!
+Изображение фазы Луны с высокой точностью соответствует реальному для данного момента (   Читать дальше...   )Тип издания: FullРелиз состоялся: 19.11.2022Разработчик: Evgeny FedorischenkoПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49859F51CA5DA40E8BB86921C67C523FBE9CB875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598931   (161097) от 21.12.2022
+
+Grooz VPN - Fast & Secure WiFi 1.2.0 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grooz VPN позволяет быстро и безопасно подключаться к Интернету со смартфона.Тип издания: PremiumРелиз состоялся: 12 дек. 2022 г.Разработчик: Eywin AppsПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F12ECB2B7C342530D4426D07455CCB6779C458
 ```
 
 https://mybot314.ru/tekegram_catalog/

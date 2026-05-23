@@ -6,7 +6,7 @@ Windows Update Blocker 1.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350499.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Daum PotPlayer 1.5.34665 Stable (х86) Portable by qazwsxe [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_350438.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chameleon Window Manager – дополнительные кнопки для у
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_350318.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Daum PotPlayer 1.5.34665 Stable Full & Lite by 7sh3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_350204.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Q-Dir 11.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350180.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Allavsoft Video Downloader Converter 3.25.0.8298 RePack (& Portable) by TryRooM 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350176.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Ant Download Manager Pro 2.8.1 Build 82888 RePack (& Portable) by Dodakaedr[Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350173.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ DesktopOK 10.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350172.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Zoner Photo Studio X 19.2209.2.402 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350170.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Java SE Development Kit 19.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350168.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Mozilla Firefox Quantum 69.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350161.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Privacy Eraser Free 4.55.2 Build 3261 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350159.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Slimjet 24.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350149.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Windows 8 Codecs 1.31 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_350096.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Opera 91.0.4516.20 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350043.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ EarthView 7.1.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350040.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Opera 91.0.4516.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350029.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Acon Digital - Mastering Suite 1.0.1 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350025.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350016.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Spectrasonics Omnisphere Software 2.8.4d (x64) Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350012.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ XLN Audio - XO 1.0.4 STANDALONE, VSTi, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350004.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ O&O Defrag Professional / Server 26.0 Build 7641 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349949.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Mozilla Firefox Quantum 63.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349927.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MKVToolNix 28.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349891.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ CCleaner 6.04.10044 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349881.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Athentech Perfectly Clear + Essentials v3.6.1.1299 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349872.jpg" />
 </div>
 
 

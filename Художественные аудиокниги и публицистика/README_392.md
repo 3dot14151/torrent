@@ -1,83 +1,3 @@
-###  Публикация: 1135739   (677154) от 21.05.2017
-
-Святослав Тараховский | Вкус близости (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Любовь - преданность? Любовь - предательство? Любовь - безумие? Любовь - лучшее, что есть на белом свете?
-В своем новом романе "Вкус близости" Святослав Тараховский с присущей ему иронией испытывает героев в фарсовых, порой пугающих, даже отчаянных ситуациях для ответа на вопрос: что есть современная любовь, что значат в ней слова, благородные намерения (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9E580183E6DD0BD0A079C3554060F3C303C853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136013   (677143) от 21.05.2017
-
-Владимир Тучков | Абсолютно голая реальность (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны рассказы московского прозаика Владимира Тучкова, знаменитого как своими романами («ТАНЦОР»), так и акциями в духе «позитивной шизофрении». Его рассказы – уморительно смешные, парадоксальные, хитрые – водят читателя за нос. Как будто в кунсткамеру, Тучков собирает своих героев – колдунов, наркоманов, некрофилов – и заставляет их выделывать самые нелепые (   Читать дальше...   )Жанр: РассказыПродолжительность: 01:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FE5668448A150EF681CE08021694D6B981F431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223240   (677007) от 03.05.2018
-
-Владимир Сорокин | Сорокинская Сатира. Сборник (2018) [MP3, Николай Кобзев]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Самые сильные и злободневные рассказы гениального русского писателя. Речь идёт, разумеется, о мастере сатиры Владимире Сорокине. Писатель-постмодернист, который поразительно остро чувствует эпоху и поразительно точно её отражает.
-В сборник вошли самые ранние работы Сорокина ("Розовый клубень" и "Ватник" написаны в конце 70-х годов прошлого века) (   Читать дальше...   )Жанр: ЮморПродолжительность: 03:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5E8B5A0E1076A12CE8BDCFBAE2260EA8D949F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135647   (676986) от 21.05.2017
 
 Дмитрий Фёдоров | говорит Дмитрий Фёдоров (2017) [MP3]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676986.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676862.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676859.jpg" />
 </div>
 
 
@@ -165,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676833.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676781.jpg" />
 </div>
 
 
@@ -220,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676715.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676695.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676692.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676680.jpg" />
 </div>
 
 
@@ -327,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676675.jpg" />
 </div>
 
 
@@ -353,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676671.jpg" />
 </div>
 
 
@@ -379,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676596.jpg" />
 </div>
 
 
@@ -405,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676594.jpg" />
 </div>
 
 
@@ -431,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676593.jpg" />
 </div>
 
 
@@ -457,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676588.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676585.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676579.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676571.jpg" />
 </div>
 
 
@@ -563,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676537.jpg" />
 </div>
 
 
@@ -589,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676476.jpg" />
 </div>
 
 
@@ -616,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676470.jpg" />
 </div>
 
 
@@ -642,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676465.jpg" />
 </div>
 
 
@@ -668,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676462.jpg" />
 </div>
 
 
@@ -679,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25C5C9036EA40F9E780384068343B7A2341301B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290447   (676461) от 21.03.2019
+
+Гюнтер Продль | Беспримерные уголовные дела (2019) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Гюнтера Продьоля описывает различного рода реально совершенные преступления — убийства, ограбления, отравления, аферы, деяния пироманов и маньяков. Но делает это не в контексте отчета следователей о проделанной работе (для представления к награде), а в контексте обычной жизни — некомпетентность людей ведущих расследование, невозможность сбора улик, влияние (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 05:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5198A9033445ED118547ECDFB3E01F8C5DD125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289348   (676458) от 21.03.2019
+
+Ольга Романовская | Ледяная магия (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поселившись в небольшом северном городке, Клэр искренне надеялась вести скромную тихую жизнь аптекарши. Поначалу так оно и было, пока на празднике по случаю окончания самой долгой ночи в году не сообщили об убийстве начальника местной стражи. И все бы хорошо, только в его руке нашли кристалл льда, а Клэр – ледяная ведьма… Сумеет ли она доказать свою невиновность, (   Читать дальше...   )Жанр: Героическое фэнтези, Детективное фэнтезиПродолжительность: 11:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70A28249C288FE48061B5D8A78AE5C986AF3B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290112   (676457) от 21.03.2019
+
+Мика Ртуть | Во власти чудовища (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Днем Тина скромная служащая в большой корпорации, а ночами – похитительница артефактов. Ей нравится такая жизнь на грани, но однажды она встретит достойного соперника и из вольного охотника превратится в жертву. Лорд-палач Северных земель, бич императора, повелитель ужаса… Какую тайну скрывают его янтарные глаза? И будет ли победитель в их противостоянии?Жанр: Любовное фэнтезиПродолжительность: 10:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4100B6FD68E19956456BE9DD01C687BACB4F13
 ```
 
 https://mybot314.ru/tekegram_catalog/

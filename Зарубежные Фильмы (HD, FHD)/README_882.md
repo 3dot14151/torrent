@@ -1,55 +1,3 @@
-###  Публикация: 1637769   (197428) от 05.06.2023
-
-Кулак Кондора / El Puno del Condor / The Fist of the Condor (2023) BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Двое учеников старого мастера боевых искусств Вука отправляются на поиски легендарной книги, в которой рассказывается о способах преодоления ограничений человеческого тела. Тот, кто постигнет это тайное знание, сможет властвовать даже над гравитацией. Один из учеников молод, горяч и не брезгует грязными методами ведения боя. Другой – мрачен, молчалив и, несмотря (   Читать дальше...   )Производство: Чили / Cahuenga Boys, Moral Brothers EntertainmentЖанр: боевикРежиссер: Эрнесто Диас ЭспиносаАктеры: Марко Сарор, Эял Мейер, Джина Агуад, Фернанда Уррехола, Мэн Су Юн, Jose Manuel, Cristian Garin, Франциско Кастро, Андрес Сид, Francisco FuentesПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: Английские (Full, SDH)Продолжительность: 01:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71A353A412463000F251E05BCA98AA65A645B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637603   (197424) от 05.06.2023
-
-Бун / Boon (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-Бун — один из самых опасных наёмных убийц в Америке. После жестокой перестрелки его находит раненым мальчик-подросток, живущий с матерью Кэтрин. Благодаря её заботам Бун быстро встаёт на ноги. Он с удивлением узнаёт, что Кэтрин — пастор в протестантской общине и одновременно невольная соучастница преступной аферы. А всё из-за того, что её покойный муж задолжал бандитской (   Читать дальше...   )Производство: США / Muscular PuppyЖанр: Боевик, триллер, драма, криминал, детективРежиссер: Дерек ПрэслиАктеры: Нил Макдонаф, Томми Флэнаган, Джейсон Скотт Ли, Джеймс Мадио, Кристина Очоа, Гэбриэлль Картерис, Деметриус Гросс, Кристиана Сидел, Пэт Монахэн, Джон Патрик Джордан, Джейк МелрозПеревод: Дублированный (Zone Vision), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4DA96F126B739C00969CAFA6AACAAF2FB899BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637628   (197408) от 05.06.2023
 
 Бун / Boon (2022) BDRip [H.264/1080p-LQ]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197408.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197403.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197381.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197376.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197369.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197338.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197314.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197303.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197301.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197295.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197278.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197266.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197241.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197236.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197226.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197218.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197209.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197203.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197202.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197200.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197195.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197194.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197188.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ S.O.S. Выжить или пожертвовать / S.O.S. Survive or Sacrific
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197160.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ S.O.S. Выжить или пожертвовать / S.O.S. Survive or Sacrific
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CD15FD4B9A3CB743348B7F21EA249E762B34FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634748   (197154) от 11.06.2023
+
+Санта-Хрякус. Страшдественская сказка (1-2 части из 2) / Hogfather (2006) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм - экранизация одноимённого романа Терри Пратчетта. Сьюзан Сто Гелитская, приёмная внучка Смерти, пытается вести «нормальную жизнь», работая гувернанткой, но её необычные способности постоянно вовлекают её в приключения... Наёмный убийца Чайчай задумал убить то, что и убить-то нельзя, как всем казалось... В канун Страшдества пропал Санта-Хрякус; в Анк-Морпорке (   Читать дальше...   )Производство: Великобритания / The Mob Film Company, RHI Entertainment Inc., Moving Picture Company, British Sky Broadcasting (BSkyB)Жанр: фэнтези, триллер, драма, комедияРежиссер: Вадим ЖанАктеры: Дэвид Джейсон, Марк Уоррен, Мишель Докери, Дэвид Уорнер, Тони Робинсон, Найджел Плэйнер, Питер Гиннесс, Стивен Маркус, Крэйг Конуэй, Родри Мейлир, Шинед Мэтьюз, Иэн Ричардсон, Нил Пирсон, Николас Теннант, Ричард КацПеревод: Профессиональный многоголосыйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:37:24 + 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F1CE81C0D93374B26DC2B0B128D023AEB12499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634622   (197147) от 13.06.2023
+
+Полный облом / Big Nothing (2006) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может быть страшнее для школьного учителя Чарли Вуда, чем с треском вылететь с «любимой» работы и попрощаться с бандой малолетних спиногрызов? Только сидеть на шее у своей жены-копа, превратиться в домохозяйку и няню в одном лице. Или просиживать штаны в пыльной конторе до конца жизни. Отличные перспективы! Но судьба всё же слабо улыбнулась патологическому неудачнику. (   Читать дальше...   )Производство: Великобритания / British Pathé, Isle of Man Film Ltd., Millennium Films, Pathé, Wales Creative IP FundЖанр: триллер, комедия, криминалРежиссер: Жан-Батист АндреаАктеры: Дэвид Швиммер, Саймон Пегг, Элис Ив, Наташа МакЭлхоун, Джон Полито, Мими Роджерс, Билли Эшер, Джулиан Гловер, Оливия Петерсон, Сара ЭдмондсонПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A24BAE3CA2A7A29C72BFA3FA23975C3AC83869
 ```
 
 https://mybot314.ru/tekegram_catalog/

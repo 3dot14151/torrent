@@ -1,55 +1,3 @@
-###  Публикация: 1004087   (839426) от 05.04.2016
-
-Мистер Холмс / Mr. Holmes (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие развернется в 1947 году, а речь в фильме пойдет об отошедшем от дел Шерлоке Холмсе, живущем в сонной деревушке в Сассексе вместе с горничной миссис Манро и сыном, который занимается сыском в качестве хобби. Несмотря на уединенный образ жизни, знаменитому сыщику с Бейкер-стрит по-прежнему не дает покоя тайна так и нераскрытого 50 лет назад дела.Производство: Великобритания, СШАЖанр: Драма, криминал, детективРежиссер: Билл КондонАктеры: Иэн МакКеллен, Лора Линни, Майло Паркер, Хироюки Санада, Хэтти Морахэн, Патрик Кеннеди, Роджер Аллам, Филип Дэвис, Фрэнсис де ла Тур, Чарльз Мэддокс, Такако Акаши, Джон Сешнс, Майкл Калкин, Дэвид Фокс, Оливер Девоти, Майк Бернсайд, Николас Роу, Сэм Колсон, Фрэнсис Барбер, Гермиона КорфилдПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27704F1C8D110D3177CF1DCDB74EAE7EBC726262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004154   (839422) от 05.04.2016
-
-Огненный город: Последние дни / Fire City: End of Days (2015) HDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вин, разочарованный демон, тайно живет с другими из своего рода в мире людей. По воле случая, он встает перед принудительным выбором, спасти своих братьев или невинного человека-девушку и этим может нарушить хрупкое равновесие между людьми и демонами, которое может привести к войне.Производство: США / Hghland Film GroupЖанр: Ужасы, Фэнтези, ТриллерРежиссер: Том Вудрафф мл.Актеры: Тобиаш Элинек, Даниэль Чакран, Кили Сэвитт, Кимберли Лееманс, Эрик Эдвардс, Саймон Сорреллс, Пеле Кизи, Брионн Дэвис, Деррик Л МакМиллон, Кристин МинтерПеревод: Одноголосый закадровый, любительский (Хихидок)Субтитры: ОтсутствуютПродолжительность: 01:39:32Реклама: Без рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50934741233B11A7F0F55808A91EBD4140A81914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113196   (839407) от 10.03.2017
 
 Кредо убийцы / Assassin's Creed (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839407.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839406.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839355.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839352.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839351.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839349.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839345.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839344.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839343.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839342.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839320.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839319.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839318.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839306.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839288.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839286.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839285.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839282.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839281.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839269.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839267.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839239.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839238.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839224.jpg" />
 </div>
 
 
@@ -668,6 +616,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5315CD98CE8DACD04929926F57489AA73BFE3054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379558   (839205) от 29.04.2020
+
+Город, в котором меня нет / Bokudake ga inai machi / The Town Where Only I Am Missing / Erased (2016) HDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_839205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сатору Фудзинума — малоуспешный мангака. Ему приходится подрабатывать в обычной службе доставки и хранить удивительный секрет своей возможности телепортироваться в то или иное место, где происходит драматическое событие, чтобы предотвратить чью-нибудь смерть или катастрофу. Свой дар молодой человек контролировать не может, и поэтому он не возвращается до тех пор, (   Читать дальше...   )Производство: Япония / Asahi Shimbun, Gyao, Hakuhodo DY Media PartnersЖанр: Фантастика, триллер, драма, детективРежиссер: Юитиро ХиракаваАктеры: Тацуя Фудзивара, Касуми Аримура, Мицухиро Оикава, Юрико Исида, Тэтта Сугимото, Рио Судзуки, Цубаса Накагава, Кэнто Хаяси, Сэйдзи Фукуси, Канна МориПеревод: Многоголосый любительский (STEPonee)Субтитры: Английские - отдельным файломПродолжительность: 02:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E90A9132509DE76B8F16B2C5D1AEB1F60BE9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379554   (839202) от 29.04.2020
+
+Детектор лжи / Deceiver (1997) WEB-DLRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершено ужасное преступление — жестоко убита молодая девушка. Основной подозреваемый — капризный отпрыск богатых родителей Джемс Уолтер Уэйланд. Но убийца ли он?
+Это покажут напряженные допросы, которые превратятся в захватывающую игру трех профессионалов, выведывающих друг у друга самые мрачные тайны. Удастся ли выяснить, кто перед нами — убийца, алкоголик и психопат (   Читать дальше...   )Производство: США / MDP WorldwideЖанр: триллер, драма, криминал, детективРежиссер: Джонас Пэйт, Джош ПэйтАктеры: Тим Рот, Крис Пенн, Рене Зельвегер, Розанна Аркет, Эллен Берстин, Майкл Рукер, Дон Уинстон, Майкл Паркс, Марк Дэймон, Дж. К. КуинПеревод: Многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D35E300ACDE2F8837BE98521C52ACE4BE85E81
 ```
 
 https://mybot314.ru/tekegram_catalog/

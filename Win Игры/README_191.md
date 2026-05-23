@@ -1,29 +1,3 @@
-###  Публикация: 683410   (625450) от 25.07.2013
-
-Rugby Challenge 2 (2013) [En] (1.0.0.0) RePack R.G. Revenants
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Продолжение серии Rugby Challenge. В игре представлены около 110 команд, 50 спортивных арен, десятки чемпионатов, большие возможности по созданию собственных игроков и коллективов, а также многопользовательский режим, где вместе со своими друзьями вы посоревнуетесь за звание лучшего.(   Читать дальше...   )Тип издания: RePackРазработчик: Sidhe InteractiveЖанр: Sport (Rugby) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE092AAC047A2C89132ED6E52C51A1E6247A3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294894   (625445) от 09.04.2019
 
 Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
@@ -32,7 +6,7 @@ Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625445.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Dangerous Driving (2019) [En] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625438.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Mythic Wonders: The Philosopher's Stone / Мифические чудеса: Ф�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625425.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Rugby Challenge 2: The Lions Tour Edition (2013) [Multi] License FAIRLIGHT
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625326.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625024.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Chess Ultra (2017) [Ru/Multi] (1.0) License CODEX
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625000.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Lethis - Path of Progress (2015) [Ru/Multi] (1.4.0 fix 8487) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624915.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Build-a-lot: Fairy Tales (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624761.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ A Gnome's Home: The Great Crystal Crusade (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624757.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Tales of Lagoona: Orphans of the Ocean / Сказочная Лагуна: Сир
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624674.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ CheMax Rus (2014) [Ru] (14.7) Cheats CheMax Team
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624404.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Burnstar (2015) [Ru/Multi] (1.0/b204) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624392.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Burnstar (2015) [Ru/Multi] (1.0 b.204) SteamRIP ALiAS
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624314.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ osu! (2007) [Ru/Multi] (b20180510.4) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624053.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ GHOUL (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624052.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Ghostbusters™ (2016) [Multi] (1.0) Repack Dok2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623998.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Dark Tales 15: Edgar Allan Poes. Speaking with the Dead / Тёмные исто�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623970.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Urban Trial Playground (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623745.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ Feudal Alloy (2019) [Ru/Multi] (1.02) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623601.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623599.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623358.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ de Blob 2 (2017) [Multi] (0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623267.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Sylvio (2015) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623085.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Grim Tales 3: The Wishes Collectors Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622857.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Detective Gallo (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622611.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Detective Gallo – юмористическая нуар point&click адвен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:601CD6D7E803B876D980ABFB2306EBE9D6266BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229876   (622517) от 08.06.2018
+
+EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователь пустынь Амон отправляется в главное путешествие своей жизни, в котором его путь пересекается с самым выдающимся существом в Забере. Присоединяйтесь к Амону и другим необычным героям в этой пошаговой фэнтезийной RPG, ведь вас ждет незабываемое приключение в мире Умбра. Это красивая, но опасная планета, вращение которой прекратилось тысячи лет назад.Тип издания: LicenseРазработчик: Snowcastle GamesЖанр: Adventure, RPG, Strategy, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F920B08CF39552D91DCC561E6F7323C6EFD6FEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

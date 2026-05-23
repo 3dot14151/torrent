@@ -6,7 +6,7 @@ GPU Caps Viewer 1.57.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177796.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains PyCharm Professional 2020.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177791.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniTool Partition Wizard Technician 12.8.0 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177783.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CPUID HWMonitor 1.48 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177782.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PDF Extra - Сканнер и редактор 9.7.1722 Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177779.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MSI Kombustor 4.1.18.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177773.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FanControl V138 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177767.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ FurMark 1.32.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177761.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ GrandTotal 7 v7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177752.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Timemator 2 v2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177743.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ GOM Player Plus 2.3.81.5347 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177728.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Opera 93.0.4585.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177725.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WizTree 4.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177721.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mountain Duck 4.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177719.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Viber 19.0.0.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177718.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ One Commander Pro 3.25.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177717.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Chaos Control 1.10.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177716.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2911) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177712.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Brave Browser 1.45.133 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177704.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ GOM Mix Pro 2.0.5.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177700.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ NewPipe 0.24.1 Mod by ItzSetnex [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177696.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Playr 2.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177687.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PDF-XChange Editor Plus 9.5.365.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177677.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ NCH VideoPad Pro 8 v8.99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177676.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ AOMEI Partition Assistant Standard Edition 9.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177651.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ FiLMiC Pro 6.20.5 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177649.jpg" />
 </div>
 
 

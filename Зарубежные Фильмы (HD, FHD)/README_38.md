@@ -1,57 +1,3 @@
-###  Публикация: 1428664   (1040543) от 10.01.2021
-
-Афера / Confidence (2003) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Джейк Вига – хитроумный и обаятельный мошенник. Последняя афера Джейка привела к тому, что его дорожки пересеклись с мафией – при помощи своей команды он лишил нескольких тысяч долларов Лайонела Долби, – счетовода эксцентричного мафиозного босса Уинстона Кинга по прозвищу «Король».
-Мафия шутить не любит, а любит выбивать долги из тех, кто пытается ее надуть. Чтобы (   Читать дальше...   )Производство: США, Канада, Германия / Lions Gate Films Inc., Ignite Entertainment, Epsilon Motion PicturesЖанр: Триллер, криминалРежиссер: Джеймс ФоулиАктеры: Эдвард Бёрнс, Рэйчел Вайс, Моррис Честнат, Лиленд Орсер, Луис Ломбарди, Пол Джаматти, Брайан Ван Холт, Донал Лог, Луис Гусман, Дастин ХоффманПеревод: Дублированный, профессиональный двухголосый, авторскийСубтитры: Русские, украинские, английские, французскиеПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EED824481AB53F6354433B2E20FFE43472EEDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428956   (1040529) от 10.01.2021
-
-Типа крутые легавые / Hot Fuzz (2007) WEB-DLRip [H.264/720p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Главный лондонский полицейский, констебль Николас Эйнджел переведен из города в тихий сельский городок Сэндфорд. Он пытается привыкнуть к этой мирной, и на первый взгляд лишенной преступности жизни, а также к туповатому напарнику Дэнни Баттерману.
-Однако серия ужасных происшествий потрясает городок, заставляя Эйнджела убедиться в том, что Сэндфорд — совсем не такой, (   Читать дальше...   )Производство: Великобритания, Франция / StudioCanal, Working Title Films, Big Talk ProductionsЖанр: боевик, комедия, детективРежиссер: Эдгар РайтАктеры: Саймон Пегг, Ник Фрост, Джим Бродбент, Тимоти Далтон , Пэдди Консидайн, Рейф Сполл, Кевин Элдон, Карл Джонсон, Оливия Колман, Билл БэйлиПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7BF57E1030E88F1183F68BA5ED1C48F27766734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428775   (1040508) от 10.01.2021
 
 Притворись моей женой / Just Go with It (2011) BDRip [H.265/1080p] [10-bit]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040508.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040505.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040496.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040490.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040485.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040481.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040471.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040465.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040464.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040462.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040460.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040456.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040454.jpg" />
 </div>
 
 
@@ -399,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040442.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040431.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040424.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040422.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040414.jpg" />
 </div>
 
 
@@ -529,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040353.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040351.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040344.jpg" />
 </div>
 
 
@@ -607,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040328.jpg" />
 </div>
 
 
@@ -633,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040285.jpg" />
 </div>
 
 
@@ -659,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040282.jpg" />
 </div>
 
 
@@ -670,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7104C2BE1B918857C7D83360CFB9A05828ECBCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438984   (1040267) от 11.01.2021
+
+Страна грёз / Dreamland (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040267.jpg" />
+</div>
+
+
+###  Подробнее
+
+1930-е годы. 17-летний Юджин Эванс охотится за грабительницей банков, за чью голову обещают денежное вознаграждение, надеясь таким образом спасти семейную ферму от долгов.Производство: США / Automatik Entertainment, LuckyChap Entertainment, Romulus EntertainmentЖанр: Триллер, драмаРежиссер: Майлз Джорис-ПейрафитАктеры: Финн Коул, Марго Робби, Трэвис Фиммел, Керри Кондон, Дэрби Кэмп, Лола Кёрк, Стивен Дин, Тим Дженис, Пэб Швендиманн, Грэйсон БерриПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B99267C641DB2AC551349A72AC99C0C20B0E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438851   (1040247) от 11.01.2021
+
+Печать ведьмы / Luz (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040247.jpg" />
+</div>
+
+
+###  Подробнее
+
+В затерявшейся далеко в горах общине, возглавляемой проповедником по имени Эль Сеньор, появляется ребенок, который должен стать новым мессией, который принесёт разрушение всего и искупление грехов. И тогда три дочери проповедника начинают задумываться об истинном происхождении самого Бога, о природе любви, удовольствии и внутренней свободе.Производство: Колумбия / Afasia Films, Amniótica, Egerton Crescent ProductionsЖанр: ужасы, фэнтези, вестернРежиссер: Хуан Диего Эскобар АльсатеАктеры: Юри Варгас, Джим Муньос, Конрадо Осорио, Шэрон Гузман, Даниэль Паэс, Йохан Камачо, Андреа Эскивель, Марсела РобледоПеревод: Дублированный (iTunes)Субтитры: отсутсвуютПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E600355A8CAD1DEBE7FDF95BB97DF53FB108954
 ```
 
 https://mybot314.ru/tekegram_catalog/

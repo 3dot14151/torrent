@@ -6,7 +6,7 @@ Q-Dir 7.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496663.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vivaldi 5.3.2679.70 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496660.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Soft Organizer Pro 9.25 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496659.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Brave Browser 1.41.100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496657.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chromium 103.0.5060.134 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496656.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ FileZilla Server 1.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496655.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Speccy 1.32.803 Professional / Busines / Technician Edition RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496654.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ FileZilla 3.60.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496652.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ SiSoftware Sandra Lite 20/21 R15 (версия 31.98) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496650.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WSCC (Windows System Control Center) 7.0.2.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496649.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Avidemux 2.8.1 Nightly(r220720) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496645.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ GoodSync Enterprise 11.11.6.6 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496641.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Gilrs Wallpaper (02.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496639.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sexy Girls Pack Wallpapers (02.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496637.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Gilrs Wallpaper Collection (04.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496635.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Wallpapers Sexy Girls (31.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496633.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wallpapers Sexy Girls Pack (31.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496631.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Wallpapers Sexy Girls Pack (03.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496629.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Wallpapers Sexy Girls Pack (02.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496625.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sexy Girls Pack Wallpapers (31.08.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496621.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sexy Girls Wallpapers (04.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496619.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sexy Girls Pack Wallpapers (03.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496617.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Nature Wallpapers (04.09.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496615.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Beautiful Girls Wallpapers (04.09.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496611.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496610.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ FireAlpaca 2.1.21 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496592.jpg" />
 </div>
 
 

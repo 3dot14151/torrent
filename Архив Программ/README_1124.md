@@ -6,7 +6,7 @@ iZotope - Tonal Balance Control 2 2.2.0.534 VST, VST3, AAX (x64) RePack by R2R [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474899.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474890.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Windows Firewall Control 4.8.7.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474885.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NirLauncher Package 1.19.104 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474884.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The KMPlayer 4.2.2.29 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474803.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MAGIX Video Pro X11 17.0.1.32 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474802.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BELOFF 2019.8 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474789.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Windows 10 Manager 3.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474763.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MEmu 7.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474751.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Duplicate Cleaner Pro 3.2.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474748.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe Media Encoder CC 2015 (v9.0.2) Multilingual Update 2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474744.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Topaz Gigapixel AI 5.1.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474632.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.14931 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474613.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MCS Drivers Disk 11.1.60.990 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474609.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Open Shell (Classic Shell) 4.4.152 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474524.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Sandboxie 5.14 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474500.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Adobe Media Encoder CC 2015.4 10.4.0.26 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474497.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Adobe Illustrator CC 2015.3.1 20.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474463.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ UpdatePack 7 для интеграции обновлений в образ Wind
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474457.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ EssentialPIM Pro Business Edition 11.0.3 RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474324.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ WinCatalog 2021.4.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474321.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Registry Finder 2.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474318.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Format Factory 5.12.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474249.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ HitPaw Watermark Remover 1.4.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474247.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AIMP 5.03 Build 2397 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474238.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Google Chrome 104.0.5112.81 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474237.jpg" />
 </div>
 
 

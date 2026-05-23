@@ -6,7 +6,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787317.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AOMEI Partition Assistant Pro 9.5 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787316.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ XnView Classic 2.50.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787311.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.348]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787294.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ TrashMe 2.1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787263.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ ShredIt X 6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787261.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ MediaHuman Youtube Downloader 3.9.9.11 (1701) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787260.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ WebScraper 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787254.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ iShowU Instant (Advanced) 1.2.11(beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787253.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ TextSoap 8 v8.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787248.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Aesop Rock & TOBACCO are Malibu Ken - Malibu Ken (2019) [FLAC|Lossless|Web-DL|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787246.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ MarginNote 3 v3.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787244.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ A-Zippr 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787241.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Privacy Eraser Free 4.46.2 Build 2752 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787234.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787232.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ CoolUtils Total Audio Converter 5.3.0.186 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787231.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Photo Supreme 4.3.2.1878 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787229.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - The Best Tracks on Oxytech Limited.2018 (2019) [MP3|320 Kbps] <Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787221.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Wondershare Recoverit 7.3.0.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787216.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Advanced Installer 15.6 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787215.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Wise Care 365 Pro 5.2.4.519 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787205.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Icecream Slideshow Maker PRO 3.49 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787202.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ CleanMyPC 1.9.10.1942 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787200.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ LibreOffice 6.1.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787197.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ MediaHuman YouTube Downloader 3.9.9.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787196.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ PreSonus - Studio One Professional 4.1.2.50657 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787194.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1732583   (52110) от 25.06.2024
-
-Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Reverse Collapse: Code Name Bakery - тактическая RPG, события которой происходят в далеком будущем. Мир страдает от глобального кризиса, вызванный загрязнением, именуемым Collapse Fluid. Находясь в послевоенном состоянии, две фракции решили вступить в противостояние за сферу влияния. Конфликт произошел между Антарктическим союзом и Коалицией Наций Роксатеризма. Им (   Читать дальше...   )Тип издания: SceneРазработчик: Shanghai Sunborn Network Technology Co., Ltd.Жанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский и другиеЯзык интерфейса: Английский, Японский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62168075F11EAF25DAB8E76630921B4C3313F3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821412   (52072) от 02.10.2025
 
 Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
@@ -32,7 +6,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52072.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52001.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Barotrauma (2023) [Ru/Multi] (1.5.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51968.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51950.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51880.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Cats Love Boxes (2024) [Ru/Multi] (1.0) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51817.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Diatomic (2024) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51745.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51741.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Fork Road (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51728.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51720.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51714.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51694.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Ghostboy (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51689.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51676.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Sunless Skies (2017) [En] (2.0.5.6e8c8ff) License GOG [Sovereign Edition] (об�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51671.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51664.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/En] (1.1.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51652.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Mystery Detective Adventure / Мистическое детективное пр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51643.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ CRYMACHINA (2023) [Multi] (1.2.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51579.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51577.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ Curious Expedition 2 (2021) [Ru/Multi] (1844/dlc) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51561.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51558.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Backpack Hero (2023) [Ru/Multi] (7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51555.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1.5) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51550.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Hunt the Night (2023) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51543.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Hunt the Night – приключение в стиле ретро, включа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67DA7C80B86A6AD82C04D1B98B046461A9BA1C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725125   (51542) от 30.06.2024
+
+Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senua's Saga: Hellblade 2 - продолжение ролевого экшена про кельтскую воительницу Сенуа. События сиквела переносят в Исландию, а история напрямую продолжает предыдущую часть. Основная идея игры состоит в том, чтобы показать свое видение шаманизма нордических земель. Игра опирается на кельтскую и скандинавкую мифологии. В центре истории героиня предыдущей части - (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E84744027E470C9890BDFEE81B4CD6C268517E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1177285   (494385) от 06.08.2019
-
-Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новая адвенчура от авторов Myst и Riven. Obduction представляет собой классическую приключенческую игра с видом от первого лица на движке Unreal Engine 4. Нам предстоит путешествовать по удивительным, ярким локациям практически в полном одиночестве. Важным нововведением станет то, что история будет рассказываться через игровой процесс, а не с помощью видеороликов.Тип издания: LicenseРазработчик: Cyan Inc.Жанр: Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B297E9331FF37A180713509A3CA5FF88D59CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199730   (494307) от 06.08.2019
 
 Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
@@ -32,7 +6,7 @@ Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494307.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494306.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Spiritfarer (2020) [Ru/Multi] (35357) License GOG [Farewell Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494280.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Spirits of Mystery 5: Chains of Promise / Тайны духов 5: Узы кля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493580.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.9) Repack D!akov
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493556.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Event[0] (2016) [En] (1.0/u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493498.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Condemned: Criminal Origins (2006) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493319.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492697.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492285.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Spirits Chronicles 2: Flower of Hope / Хроники Духов 2: Цветок
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492189.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ Platypus Adventures (2022) [En] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491820.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ GEARGUNS - Tank offensive (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491778.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Galaxy Reavers (2016) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491449.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19581/dlc) Repack R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491349.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Fragmented (2017) [Ru/Multi] (17.8.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491269.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ Killer is Dead - Nightmare Edition (2014) [Ru/Multi] (1.0) Repack R.G. Games [Ni
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491228.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ Fairy Godmother Stories 2: Dark Deal / Сказки Феи Крестной 2: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491035.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ Labyrinths of the World 10: Fools Gold (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490682.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490377.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Street Fighter V (2019) [Ru/Multi] (4.070/dlc) Repack xatab [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490374.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490014.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Fear For Sale 10: Hidden in the Darkness / Страх на продажу 10: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489957.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ Mystic Legacy: The Great Ring [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489803.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ Hunting Simulator (2017) [Ru/Multi] (1.1) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489789.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Hunting Simulator (2017) [Ru/Multi] (1.1/dlc) Repack =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489579.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Hunting Simulator - симулятор настоящей охоты, в кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B379A397FAE703F52E61AAA2279C13B3D7FB144E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212759   (489465) от 28.08.2018
+
+Apocalipsis (2018) [Ru/Multi] (1.0/upd1/dlc) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apocalipsis: Harry at the End of the World - традиционная игра в жанре point-and-click adventure, созданная по подобию Samorost и Machinarium, где разгадка каждой загадки - это открытие и достижение. Игра оформлена в уникальном стиле, вдохновленном гравюрами 15 века, который позволяет поведать нам историю о сердечной тоске, искуплении и - буквально - конце света.Тип издания: LicenseРазработчик: Punch Punk GamesЖанр: Adventure (Point-and-click), Logic, CasualЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1635C6B82CFBDA231789F6620C87AF689EF9F891
 ```
 
 https://mybot314.ru/tekegram_catalog/

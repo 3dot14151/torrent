@@ -6,7 +6,7 @@ QLab Pro 4 v4.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429743.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Zoner Photo Studio X 19.2009.2.276 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429741.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PTE AV Studio Pro 10.0.13 Build 4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429738.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Wondershare Recoverit 9.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429735.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Cycling'74 Max 8 v8.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429734.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Wallpapers Sexy Girls Pack (02.10.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429727.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ HQ Wallpapers Perfect Women (02.10.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429725.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wallpapers Sexy Girls (02.10.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429723.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Sexy Girls Pack Wallpapers (02.10.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429719.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AnyMP4 Video Enhancement 7.2.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429714.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sangam & Kid Smpl - Dwelling Descender (2019) Display [FLAC|Lossless 16/24Bit|WE
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429706.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429685.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429675.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Easy Data Transform 1.33.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429672.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Macrorit Data Wiper 6.2.3 Unlimited Edition RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429671.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429670.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Firefox Browser ESR 102.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429669.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PDF Reader Pro Edition 2.8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429662.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Allavsoft Video Downloader Converter 3.25.0.8264 RePack (& Portable) by TryRooM 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429658.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Opera GX 89.0.4447.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429640.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ O&O Defrag Professional 16.0 Build 141 RePack by elchupacabra [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_429634.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Emurasoft EmEditor Professional 20.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429625.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Opera GX 71.0.3770.175 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429622.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Topaz DeNoise AI 2.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429621.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Aiseesoft Audio Converter 9.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429620.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Bandicam 4.6.4.1727 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429618.jpg" />
 </div>
 
 

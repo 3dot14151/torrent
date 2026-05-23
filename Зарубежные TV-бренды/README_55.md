@@ -1,31 +1,3 @@
-###  Публикация: 519348   (633301) от 08.07.2012
-
-Вертикальный Мир / Vertical City (2007) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Небоскребы и офисные башни давно стали предметом восхищения — но и объектом презрения. Они преображают облик мегаполисов — но и разрушают вековой уют исторических центров. Они становятся новыми вехами в истории архитектуры — и создают новые проблемы финансового и экологического свойства… Впрочем, задолго до появления первых небоскребов европейская готика гордо вознесла шпили соборов над городами, уже тогда придав миру вертикальное измерение.
-
-В сериале «Вертикальный мир» мы оставим многолюдные улицы далеко внизу и отправимся заново открывать самые дерзкие и амбициозные образцы высотной архитектуры — от старинных соборов до построек последних лет. В каждом эпизоде сериала зритель встретится с человеком, у которого сложились очень личные отношения с одним из высотных «монстров». С помощью этих персонажей авторы сериала предлагают увидеть мир с новой точки зрения.Жанр: Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 9 х 00:27:03 + 6-ая серия не полностью - 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69301EFCE86D446216D009F2F42665E1116D75E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520327   (632864) от 08.07.2012
 
 Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest Arctic (2012) HDTVRip
@@ -34,7 +6,7 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632864.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ National Geographic: Острова. Исландия / Islands. Island (2011) S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632163.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ National Geographic: Острова. Занзибар / Islands. Zanzibar (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632158.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ National Geographic: Острова. Куба / Islands. Cuba (2011) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632155.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632009.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ NG. Секреты Шамбалы. В поисках священных пеще
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631724.jpg" />
 </div>
 
 
@@ -190,7 +162,7 @@ BBC: Большие птицы с Дэвидом Аттенборо / BBC Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631694.jpg" />
 </div>
 
 
@@ -217,7 +189,7 @@ Discovery. Билли скупает Бруклин / Billy Buys Brooklyn (2021)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631222.jpg" />
 </div>
 
 
@@ -243,7 +215,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631106.jpg" />
 </div>
 
 
@@ -269,7 +241,7 @@ NGW: Дикая Турция / Turkey's Harsh Paradise (2015) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629964.jpg" />
 </div>
 
 
@@ -295,7 +267,7 @@ NGW: Гигантские плотоядные летучие мыши / Giant C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629959.jpg" />
 </div>
 
 
@@ -321,7 +293,7 @@ NG. Дикая Канада: У кромки льда / Wild Canada. Ice Edge (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629623.jpg" />
 </div>
 
 
@@ -347,7 +319,7 @@ Animal Planet. Суровая Арктика / Wildest Arctic (2012) HDTVRip [H.
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629466.jpg" />
 </div>
 
 
@@ -373,7 +345,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629324.jpg" />
 </div>
 
 
@@ -399,7 +371,7 @@ Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629146.jpg" />
 </div>
 
 
@@ -425,7 +397,7 @@ Discovery: Необъяснимое. Специальные материалы /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628433.jpg" />
 </div>
 
 
@@ -451,7 +423,7 @@ NG. Тайны древности. Секретный код соборов / An
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628420.jpg" />
 </div>
 
 
@@ -478,7 +450,7 @@ NG. Войны насекомых / Insect Wars (2005) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628404.jpg" />
 </div>
 
 
@@ -504,7 +476,7 @@ History Channel. Кто на самом деле открыл Америку / W
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628282.jpg" />
 </div>
 
 
@@ -532,7 +504,7 @@ Discovery. НАСА: необъяснимые материалы. Лунные �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628272.jpg" />
 </div>
 
 
@@ -558,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628186.jpg" />
 </div>
 
 
@@ -584,7 +556,7 @@ Animal Planet. Сурикаты / The Meerkats (2008) BDRip [H.264/720p]
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628185.jpg" />
 </div>
 
 
@@ -611,7 +583,7 @@ NGW: Крупные рыбы Зэба: нашествие акул-молото�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628077.jpg" />
 </div>
 
 
@@ -637,7 +609,7 @@ NGW: Империя гризли / Grizzly Empire (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628065.jpg" />
 </div>
 
 
@@ -663,7 +635,7 @@ Viasat History: Запретная история / Forbidden History (2013 - 20
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628041.jpg" />
 </div>
 
 
@@ -674,6 +646,32 @@ Viasat History: Запретная история / Forbidden History (2013 - 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD1498C0DD73DC89361DC2A8897CA818B3011C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229302   (627939) от 05.06.2018
+
+Современные чудеса. Обратный отсчет / Modern Marvels Countdown (2012-2013) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торжество изобретательности, научной мысли и воображения - это все "Современные Чудеса". С присущей легкостью и остроумием выпуски передачи представляют собой увлекательные истории ученых, мечтателей и прагматиков, стоящих за созданием повседневных вещей, технологическими прорывами и настоящими рукотворными чудесами. Как получается кино? Кто изобрел телефон? (   Читать дальше...   )Телекомпания: Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательный, изобретения, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 8 x ~ 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F18BD04D6BB689A7BBE11B26F66C4E2BBD0F682
 ```
 
 https://mybot314.ru/tekegram_catalog/

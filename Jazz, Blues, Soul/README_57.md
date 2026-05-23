@@ -6,7 +6,7 @@ Masabumi Kikuchi, Masahiko Togashi, Gary Peacock - Poesy: The Man Who Keeps Wash
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980839.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Coleman Hawkins - Night Hawk (1960) Remaster, 2003, Original Jazz Classics[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980838.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Syllamo Trio - Marcella (2015) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980777.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chico Hamilton - Peregrinations (1975) Remaster, 2013, EMI Music[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980773.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Soulounge - Home (2004) [MP3|~190 кб/с] <Soul, Jazz, Funk>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980766.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Jazz Masterpieces Remixed (2015) [FLAC|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980704.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dave's True Story - 4 albums (1993-2005) [APE|Lossless|image + .cue] <Jazz, Fema
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980671.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dave's True Story - 4 albums (1993-2005) [MP3|320 кб/с] <Jazz, Female Vocals,
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980662.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The James Taylor Quartet - Discography (1987-2015) [MP3|256-320 kbps]<Funk, Jazz
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980611.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Benny Goodman - At The Tivoli 1981 (1996) MasterTone [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980569.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ John Coltrane - A John Coltrane Retrospective: The Impulse! Years 1961 - 1967 (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980554.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jazzamor - Things We Do For Love (Instrumentals) (2013) [FLAC|Lossless|WEB-DL]<A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980375.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ J. J. Johnson - Blue Trombone (1957) Remaster, 2014, Sony Music[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980333.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Coleman Hawkins - Sirius (1966) 2003, Planet[FLAC|tracks+.cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980332.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Art Blakey And The Jazz Messengers - Buhaina (1973) Remaster, 2014, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980331.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Howard Alden, Lloyd Ellis, Cal Collins - Famous Door: Ace Guitarists (1976/1978/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980321.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Johnny Griffin & Art Taylor Quartet - The Jamfs Are Coming! (1975/1977) Remaster
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980319.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Kim Simmonds & Savoy Brown - The Devil To Pay (2015) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980243.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Julie London - Calendar Girl (1956) [MP3|320 кб/с] <Jazz, Pop>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980199.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Patti Labelle - The Universal Masters Collection: Classic Patti Labelle (2001) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980146.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Jack Wilson - Something Personal (1966) Remaster, 2015, Universal[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979323.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Bobby Timmons - Soul Time (1960) 2004, Planet[FLAC|tracks+.cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979320.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Miles Davis - Water Babies (1967-1968) 2002, Columbia[FLAC|tracks+.cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979314.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Bob Margolin - My Road (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979313.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Dazie Mae - Songs Matured in Oak (2012) [MP3|320 кб/с] <Cabaret, Jazzy, Count
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979264.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Paquito D'Rivera & The United Nation Orchestra - Live at Manchester Craftsmen's 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979196.jpg" />
 </div>
 
 

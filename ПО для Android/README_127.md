@@ -1,55 +1,3 @@
-###  Публикация: 1736298   (50332) от 11.07.2024
-
-Moon+ Reader Pro v9.5 (b905000) Mod by Lucky Las [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 11.07.2024Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9547299FCB25151FF11ABDB7295581B6862B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127274   (50060) от 14.07.2024
-
-BlackCam Pro - B&W Camera v1.65 Paid [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-BlackCam – черно-белая камера для Android. BlackCam помогает делать потрясающие черно-белые фотографии с живым предпросмотром.Тип издания: Pro с Маркета (Paid)Релиз состоялся: 03.07.2024Разработчик: XnViewПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066BD46D838BA4DC5649E5F72E632A9B0FF91636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736866   (50031) от 14.07.2024
 
 Plus Messenger (Telegram+) v10.14.5.0 Mod by Alex.Strannik [Ru/Multi]
@@ -58,7 +6,7 @@ Plus Messenger (Telegram+) v10.14.5.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50031.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ FolderSync Pro v3.5.17 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50016.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Reanimation inc / Скорая Помощь Inc v54 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49930.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ AirBrush: ИИ Фоторедактор v6.6.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49910.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ FBReader Premium v3.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49862.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Listen Audiobook Player v5.2.8 build 1003 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49831.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ PhotoRoom v5.1.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49702.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ GPS Emulator v2.85 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49446.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ DNS Changer Fast & Secure Surf v1.3.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49441.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ Lingvotube - видео переводчик v3.7.0 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49317.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ AR Drawing: Real Sketch v3.3.77 Mod by Maximoff [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49296.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ OfficeSuite Pro + PDF v14.6.52833 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49294.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ Floor Plan Creator v3.6.7 Mod by LITEAPKS, Maximoff ⁠[Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49286.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ Foxit PDF Editor 2024.5.2.0531.0820 Mod by AppModz [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49229.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ Navigation Bar for Android v3.2.3 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49202.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ Bikemap: велотрекер и маршруты v20.7.0 Mod by AppModz [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49190.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ Gif Me! Camera Pro v1.88 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49102.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ Screenshot touch v2.3.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49046.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ KI Bild Generator - DoFoto v1.186.44 Mod by MixRoot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48987.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48807.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ NewPipe v0.27.2 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48725.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48660.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ EOBD Facile: OBD 2 авто сканер v3.63.1047 Mod by derrin, NURIK kz [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48629.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ Reface: Face Swap AI Generator v4.17.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48563.jpg" />
 </div>
 
 
@@ -671,6 +619,61 @@ Reface: Face Swap AI Generator v4.17.0 Mod by Mixroot [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7541D6F917FF000307149D92C78BAD9784DFB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739994   (48423) от 30.07.2024
+
+Фитнес тренер FitProSport v4.101 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с персональным фитнес тренером «FitProSport» Ваши занятия станут максимально эффективными!Тип издания: Paid / Full с МаркетаРелиз состоялся: 01.07.2024Разработчик: FitProSportПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E2269E440AC6BB0ED2457CA873CDF7BFA27C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729984   (48338) от 31.07.2024
+
+МТС Music v9.31.0 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
+
+МТС Music без подписки это:
+• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 31.07.2024Разработчик: MTS PJSCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252C4B627F9641E8870AA323CA1ED23643B0E9C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

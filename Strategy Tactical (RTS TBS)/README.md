@@ -7,7 +7,7 @@ Troubleshooter: Abandoned Children (2020) [Ru/Multi] (Build 23246651/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Desynced (2023) [Ru/Multi] (1.0.17871) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069739.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.2.0/dlc) Repack seleZen [Premium E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068389.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.6.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067311.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Heroes of Science and Fiction (2026) [Ru/Multi] (1.0.5rc1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067095.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Europa Universalis V (2025) [Ru/Multi] (1.1.10/dlc) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066475.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Old World (2022) [Ru/Multi] (1.0.83082/dlc) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064901.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ War Mongrels (2021) [Ru/Multi] (42052) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063892.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.08/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063644.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Brigador (2017) [Ru/Multi] (1.63/dlc) Repack Let'sРlay [Up-Armored Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057631.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.22/dlc) Repack Necros [Advanced Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055571.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Victoria 3 (2022) [Ru/Multi] (1.12.4/dlc) Repack Wanterlude [Ultimate Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055262.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ RuneQuest: Warlords (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053829.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ They Are Billions (2019) [Ru/Multi] (1.0.14) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053757.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Toads of the Bayou (2024) [Ru/Multi] (20.51) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052228.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051760.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (08102025) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051736.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051626.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Troop (2023) [Ru/Multi] (Build 20251216/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050143.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893v2/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049743.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Phoenix Point (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048741.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.r40893.f/dlc) Repack L
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048660.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Chaos Galaxy (2020) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048622.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack FitGirl [Supporter E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048518.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.3.8.103102/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047865.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.3.4.102350/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047429.jpg" />
 </div>
 
 

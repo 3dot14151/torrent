@@ -6,7 +6,7 @@ Armin van Buuren - Club Embrace (2016) [MP3|320 Kbps] <Progressive House, Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423913.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Bikini Beach, Vol. 10 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423098.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Utah M. Paul - Дискография  44CD Taboo Records (1997-2010) [MP3|320 k
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422793.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Deep House & Deep Techno #03: Best Of 5 Years (2018) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422656.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Manhattan Deep Vibes Compilation: 2012 Deep House Compilation (2012) [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422500.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Ibiza Closing Chillhouse (2016) [MP3|320 Kbps] <Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421898.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Pierre Ravan - KaRavan: With Love from Dubai to Ibiza - Vol. 9 (2015) [MP3|320 �
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420554.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Dance Religion 16 (House and Dance Tunes from Heaven) (2018) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420200.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Faithless - 2.0 (Remixes & Hits) (2015) 2CD [MP3|320 кб/с]<House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420188.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Sexy House Bombs Vol.1: Cool Uplifting House Tunes for Clubbers Desires (20
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419661.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Moments Of House Music Vol.5 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419393.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Ministry Of Sound - Chilled House Winter (unmixed tracks) (2016) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419338.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417242.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Jewels & Gems Vol.1: Selection Of Deep House (2016) [MP3|320 Kbps] <Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414947.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Fashion Week Vol.3: Catwalk House & Beats (2016) [MP3|320 Kbps] <Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414936.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Deep Down Underground Vol.1 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414931.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Lucid Sounds, Vol. 21: A Fine and Deep Sonic Flow of Club House, Electro, M
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414756.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Treasure Cast Vol.1: Deep Sound Soul (2016) [MP3|320 Kbps] <Deep House, Tec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414754.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Kontor Top Of The Clubs - The Biggest Hits Of The Year MMXVI (2016) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414614.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Deep House Relax (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412818.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Kingside Main Stage 2017 (Compilation) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412293.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lorenzo Chiabotti - Adnur EP (2015) [MP3|320 кб/с]<Electronic, House, Minimal
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411601.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - Ibiza 2015: Essential Funky House Vol. 2 (2015) [MP3|320 кб/с]<House, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411484.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - The Sound of Kingside 2017 (Compilation) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410609.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Classic Workout Songs (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409849.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408388.jpg" />
 </div>
 
 

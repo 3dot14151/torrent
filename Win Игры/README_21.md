@@ -6,7 +6,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.16.004) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058862.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Final Fantasy III (3) (2014) [Multi] (1.0) License GOG [3D Remake]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058861.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hitman: Blood Money (2006) [En] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058819.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Grim Tales 27: The Cursed Bloodline / Страшные сказки 27: Родо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058813.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ashes of Ambition (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058810.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ashes of Ambition (2026) [Ru/Multi] (1.0.0) Scene TiNYiSO
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058788.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Anno 1800 (2019) [Ru/Multi] (18.4.1412158/dlc) Repack HardwareMining [Definitive
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058787.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.8.0-118300/dlc) Repack Let's
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058695.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Towerborne (2026) [Ru/Multi] (5.6.1-488249.4611/dlc) Repack Let'sРlay [Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058691.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Brotato (2022) [Ru/Multi] (1.1.14.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058686.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Far Cry (2004) [Ru] (1.4) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058683.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack dixen18 [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058663.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ L.A.Noire (2011) [Ru/Multi] (1.3.2675.1/dlc) Repack dixen18 [The Complete Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058642.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tales of Berseria Remastered (2026) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058632.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Don't Stop, Girlypop! (2026) [Ru/Multi] (1.0.5) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058630.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ City Tales: Mеdiеvаl Era (2026) [Ru/Multi] (1.0.0.4/dlc) Repack FitGirl [Fluf
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058629.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FlatOut: Ultimate Carnage (2008) [Ru] (1.0) Repack R.G. ReCoding
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058586.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) License RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058564.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Need for Speed: Underground (2003) [Multi] (1.4.0) Scene Spirity
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058563.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Juiced 2: Hot Import Nights (2007) [Multi] (1.0) License DETONATiON
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058557.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Driftwood (2023) [Ru/Multi] (1.0.6-h1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058545.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Outbreak Island (2025) [Ru/Multi] (Update 9/dlc) Repack Let'sРlay [Supporter Ed
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058540.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ City Tales - Medieval Era (2025) [Ru/Multi] (1.0.0.8/dlc) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058523.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Perfect Pencil (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058490.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2017) [Ru/Multi] (1.02) Repack Let
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058489.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bud Spencer & Terence Hill - Slaps And Beans 2 (2023) [Ru/Multi] (1.2.2024011511
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058414.jpg" />
 </div>
 
 

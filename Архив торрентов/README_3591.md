@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.4.0.2501 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254811.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ IObit Driver Booster Pro 10.4.0.127 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254810.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sandboxie plus 1.9.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254809.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Aiseesoft Mac Data Recovery  1.6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254808.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Sandboxie 5.64.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254807.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авантюрис�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254790.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ CorelDRAW Graphics Suite 2022 24.3.1.576 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254765.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Uninstaller Free 12.4.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254749.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Pulsar Modular - P440 Sweet Spot 0.9.4 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254745.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ pdfFactory Pro 8.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254743.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CorelDRAW Technical Suite 2022 24.3.1.576 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254739.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows 10 21H2 Enterprise 2021 LTSC [19044.2846] x64 Mod 6 (21.04.2023) by buly
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254734.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SketchUp Pro 2023 v23.0.418 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254733.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ QA.GURU, Артём Eрошенко и др. | Автоматизация тес
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254731.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ SketchUp Pro 2023 23.0.419 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254721.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Icecream Image Resizer Pro 2.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254720.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ OneCommander Pro 3.43.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254714.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ CyberLink PowerDVD Ultra 22.0.2716.62 (x64) RePack by TheBig [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254707.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254671.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254649.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254644.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Adobe Illustrator 2023 27.5.0.695 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254618.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Wondershare Filmora 12.3.0.2341 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254607.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Luminar Neo 1.9.1.11379 (Repack & Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254553.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ DogLinux Debian 12 Bookworm 2023.05.06 [x86, amd64] LiveUSB
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254549.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Adobe Acrobat Reader 2023.001.20174 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254500.jpg" />
 </div>
 
 

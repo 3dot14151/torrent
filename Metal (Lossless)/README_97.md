@@ -6,7 +6,7 @@ Mare Infinitum - Alien Monolith God (2015) [FLAC|Lossless|image + .cue] <Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735302.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paradise Lost - B-Sides & Rarities (2006) 2 x CD, Compilation [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734958.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Scream Maker - Bloodking (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734926.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Borknagar - Universal (2010) [FLAC|Lossless|image + .cue] <Black Metal, Avantgar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734871.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Borknagar - Origin (2006) [FLAC|Lossless|image + .cue] <Avantgarde, Folk Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734868.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eluveitie - Helvetios (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734860.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Longing for Dawn - Between Elation and Despair (2009) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734382.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mar de Grises - Streams Inwards (2010) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734351.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Martriden - The Unsettling Dark (2008) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734346.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Saxon - Carpe Diem (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734010.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mastifal - Intermundia (2010) [APE|Lossless|image + .cue] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733469.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saints Everlasting Rest - The Dusk Of Millennium (2005) [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733466.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Celtic Frost - Vanity/Nemesis (1990) (1-st US pressing) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733446.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Metal Priest - Bursting Out (The Beast Became Human)/Get It Now (2006) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733443.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ensiferum - Iron (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732971.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Ferrymen - One More River To Cross (2022) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732567.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Symphony X - 10 Albums (1994 - 2015) 13 CD [FLAC|Lossless|image + .cue|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732479.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Nagelfar - Als die Tore sich öffnen... / Jagd (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732230.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Chronosphere - Red N' Roll (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732224.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Emerald Edge - Surreal (2017) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732222.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Arcania - Sweet Angel Dust (2010) [FLAC|Lossless|image + .cue] <Melodic Death, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731118.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Veiled In Scarlet - Reborn (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731110.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Lacuna Coil - Delirium (2016) Limited Edition [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730366.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Before The Rain - Frail (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730100.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Night Demon - Darkness Remains (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730082.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Labyrinth - Architecture Of A God (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730072.jpg" />
 </div>
 
 

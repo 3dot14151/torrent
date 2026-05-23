@@ -6,7 +6,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (build 85239/dlc) Repack seleZ
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049664.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Realmz (1999) [En] (7.1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049563.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Chaos Galaxy II (2) (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049094.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049060.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048540.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Anima Gate of Memories: I&II Remaster (2025) [Multi] (20722096) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048490.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048387.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack HardwareMining 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048047.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.3.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047925.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047319.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047298.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (12101/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047218.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.96) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047066.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ UnReal World (1992) [En] (3.86.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046865.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046862.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046861.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Geneforge 3 (2005) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046856.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046834.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Eschalon: Book (2007-2014) [Ru] (1.06/1.05/1.021/dlc) Repack Nelex [Трилог
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046817.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Shana priestess of Tona (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046705.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Quartet (2025) [En] (1.2.20251019.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046674.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046498.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Two Worlds 2 (2010) [Ru/En] (2.0.6/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045698.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ One Piece Odyssey (2023) [Ru/Multi] (01.00/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045240.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Demons Roots (2023) [Multi] (1.01/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045131.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044356.jpg" />
 </div>
 
 

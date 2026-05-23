@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202151.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Winamp Update Pack 5.9.1(c).10030 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202142.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Apache OpenOffice 4.1.14 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202138.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Any Video Converter Ultimate 7.1.7 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202136.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe Acrobat Pro DC 23.003.20244 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202132.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RIDE 5 (2023) [Multi] (1.0) Scene Rune
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202118.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Revo Uninstaller Pro 5.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202104.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Native Instruments - Kontakt 7.1.8 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202087.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Internet Download Manager 6.41 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202085.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ GIMP 2.10.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202082.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NVIDIA GeForce Desktop Game Ready 531.18 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202080.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Internet Download Manager 6.41 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202078.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The KMPlayer 4.2.3.3 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202069.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ qBittorrent 4.5.2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202056.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ WinNTSetup 5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202038.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Phase One Capture One 23 Enterprise 16.1.1.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202032.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Abelssoft SSD Fresh Plus 2023 12.01.45659 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202023.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Bandicam 6.1.0.2044 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202019.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ qBittorrent 4.5.2 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202014.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Windows 11 Manager 1.2.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202012.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AOMEI Backupper Technician Plus 7.2.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202010.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Steinberg - Cubase Pro 12.0.52 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202008.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Abelssoft SSD Fresh Plus 2023 12.01.45659 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202003.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ IObit Driver Booster Pro 10.3.0.124 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202000.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Voltaire: The Vegan Vampire (2023) [En] (0.80.5) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201987.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201985.jpg" />
 </div>
 
 

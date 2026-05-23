@@ -6,7 +6,7 @@ Chick Webb & Ella Fitzgerald - The Complete Chick Webb & Ella Fitzgerald Decca S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582958.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rhoda Scott - Lady All Stars (2022) Sunset Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582820.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mike Pachelli - electricite (2007) [FLAC|Lossless|image + .cue] <Avant Garde Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582612.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Don Pullen - Richard's Tune (1975) 2014, Delmark Records[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582608.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mike Pachelli - Simplicity (2006) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582544.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mike Pachelli - A Jazzy Little Christmas (2009) [FLAC|Lossless|image + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582538.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tiny Grimes & J.C. Higginbotham - Callin' The Blues (1958) 1994, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582530.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lew Jetton & 61 South - Rain (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582473.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Paul Brown & Friends - White Sand (2007) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582472.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Blues Rock 2 (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582391.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Aldo Romano - Il Piacere (1978) 2001, Universal [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582316.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dan Bubien & The Delta Struts - Thieves & Yesterdays (2019) [FLAC|Lossless|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582201.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gary Moore - 73 Альбома (1971-2014) Studio 23, Live 12, Compilation 23, C
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582162.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Zoot Sims Plays Johnny Mandel - Quietly There (1984) [FLAC|tracks+.cue]<Jazz, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581994.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blue Mitchell - The Complete Blue Note Blue Mitchell Sessions (1963 - 1967) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581875.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Paul Hardcastle - The Chill Lounge Volume 3 (2015) [FLAC|Lossless]<Nu Jazz, Loun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581861.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Count Basie and his orchestra - Breakfast Dance And Barbecue (2001) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581614.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Art Blakey - Dig That Beat (1959,1960,1961) 3CD, 2012, Not Now Music[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581569.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Younee - My Piano (2016) 2CD [MP3|320 Kbps] <Mainstream Jazz, Modern Classical, 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581478.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Vintage Trouble - The Swing House Acoustic Sessions (2015) Japanese Edition [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581473.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Chick Corea, Joe Farrell, Frank Foster, Gene Perla, Elvin Jones - The John Coltr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581124.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Keith Jarret - The Carnegie Hall Concert (2006) [FLAC|image +.cue]<Jazz, Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581121.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Shakatak - The Magic Of Shakatak (2015) [FLAC|Lossless]<Smooth jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581051.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Count Basie & Oscar Peterson - The Two Great Albums: The Timekeepers & Night Rid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580707.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ George Howard - Personal (1997) MCA Records[FLAC|Lossless|tracks + .cue] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580657.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Seal - Commitment (2010) [FLAC|Lossless|tracks + .cue] <Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580522.jpg" />
 </div>
 
 

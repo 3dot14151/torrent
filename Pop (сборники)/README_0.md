@@ -6,7 +6,7 @@ Rudolf Kinski Project - IX (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065267.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Amanda Lear - REDISCOVER Amanda Lear (2026) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064954.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tabitha Kermorvant - Tabitha Kermorvant (2026) [MP3|320 Kbps] <Pop, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064868.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rudolf Kinski Project - V (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064867.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rudolf Kinski Project - XIII (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064793.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Весна на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064277.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rudolf Kinski Project - IV (2025) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063955.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rudolf Kinski Project - III (2025) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063954.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Rudolf Kinski Project - II (2025) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063953.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Rudolf Kinski Project - I (2025) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063952.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Russian Hits 2023 [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063302.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Лучшие хиты ,,НАЗАД в СССР,, В современной 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063265.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Euro Hits 2020  [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063201.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rudolf Kinski Project - XIV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063200.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - ZYX Italo-Disco New Generation Vinyl Edition (2023) [MP3|320 Kbps] <Euro-Di
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063157.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ai - No Name Compilation Simply listen music Part 85 old songs in a new way (202
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063082.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Лучшие хиты ,,НАЗАД в СССР 2,, В современно�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063033.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Eurythmics & Annie Lennox - Compilation (1979-2018) [MP3|320 Kbps] <Pop, New wav
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062183.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - The 90s Pop Box (2026) [MP3|320 Kbps] <Pop/Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061363.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Russian Hits 2024 (2024) [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060202.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adriano Celentano best (1960-2021) [MP3|320 Kbps] <pop,electronic,rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060022.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lovrite - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eu
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059442.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VOYAGE - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eur
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059273.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Amanda Lear - Compilation (1977-2025) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058402.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Russian Hits 2025 (2025) [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058398.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Romantic Dreams - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Italodisco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058129.jpg" />
 </div>
 
 

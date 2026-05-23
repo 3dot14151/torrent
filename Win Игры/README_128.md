@@ -1,29 +1,3 @@
-###  Публикация: 1201525   (791897) от 25.01.2018
-
-Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Если вам позарез нужно что-то украсть – вы обратились по адресу. В Городе, полном опасностей, есть лишь один человек, способный выполнить самый сложный заказ. По сравнению с ним бледнеют жестокий барон Норткрест и его алчная стража, таинственная Королева попрошаек, пламенные революционеры и обитатели уличного «дна». Его зовут Гарретт, и он в совершенстве владеет (   Читать дальше...   )Тип издания: RepackРазработчик: Eidos-Montréal, Nixxes Software BV, Feral InteractiveЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64C3173FA772DD0F36308E15F82E82070F61440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165683   (791892) от 25.01.2018
 
 The Land of Pain (2017) [Multi] (1.03) License CODEX
@@ -32,7 +6,7 @@ The Land of Pain (2017) [Multi] (1.03) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791892.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Sparklite (2019) [Multi] (1.6.8) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791867.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Minotaur (2020) [Ru/Multi] (0509) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791750.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Nerved (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791745.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Reflections of Life 7: Slipping Hope (2018) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791682.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ Persian Nights 2: The Moonlight Veil (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791614.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ COLINA: Legacy (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791552.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Spirits of Mystery 10: The Last Fire Queen / Тайны Духов 10: Посл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791499.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791481.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791474.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Noir Chronicles: City of Crime / Мрачные Хроники: Город Гр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791442.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ DreadOut: Keepers of The Dark (2016) [En/Ch] (1.0.7) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791432.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18/dlc) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791431.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791355.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791069.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ Reflections of Life 7: Slipping Hope / Отражения жизни 7: Уско
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791048.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ Labyrinths of the World 9: Lost Island (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791046.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Dave (2018) [Ru/En] (1.0.2) License
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790952.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ DECA (2018) [En] (0.1) License HOODLUM
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790887.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ Halfway (2014) [En] (1.2.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790882.jpg" />
 </div>
 
 
@@ -553,7 +527,7 @@ When They Arrived (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790871.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ Capsized (2011) [En] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790853.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ A Hat in Time (2017) [En] (1.0.10897.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790852.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790793.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Divinity: Original Sin (2014) [Ru/En] (2.0.119.430/dlc) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790786.jpg" />
 </div>
 
 
@@ -668,6 +642,32 @@ Divinity: Original Sin – это новая RPG в духе старой шко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BE674AACA8FB3D426F76B1152521FA06B16DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368753   (790577) от 03.06.2020
+
+Ancestors Legacy (2018) [Ru/Multi] (64685/dlc) Repack xatab
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancestors Legacy – это историческая стратегия в реальном времени, реконструирующая кровавые битвы средневековой Европы. В игре вам предстоит командовать отрядами, возводить поселения и захватывать вражеские территории.Тип издания: RepackРазработчик: Destructive CreationsЖанр: Strategy (RTS), ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6944ACB2A69E9883FA96E8AC0E8DBD4D6D6B816
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sonny Rollins - Alfie (1965) 1997, MCA Records[FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546588.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Johnny "Hammond" Smith - Opus De Funk (1961) 2004, Prestige[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546585.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Halie Loren & Matt Treder - Many times, many ways (2008) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546582.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rufus Harley - Scotch & Soul (1966) Remaster, 2013, Warner[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546538.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jill DeCoy Association - The Best Selection A to J (2016) [MP3|320 Kbps] <Jazz, 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546524.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kaori Kobayashi - Melody (2016) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Inst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546472.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Christina von Bülow - On the Brink of a Lovely Song (2018) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546248.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Club Hits In Bossa Nova (2016) [MP3|320 Kbps] <Bossa Nova, Jazz, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546161.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tone Jansa Quartet featuring Woody Shaw - Dr. Chi (1986) Remaster, 2015, Solid R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545863.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Russell Malone - All About Melody (2016) [FLAC|Lossless|image + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545811.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sadao Watanabe - How's Everything (1980) Remaster, 2016, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545807.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bobby Hackett - A String Of Pearls & Trumpets' Greatest Hits (1965) 2002, Collec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545806.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Jazz Funk Instrumentals (Funky Soul Jazzy Instrumental Acid Tracks) (2016) 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545667.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545340.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544979.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544970.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544926.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rob Tognoni - Energy Red (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544922.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544921.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Joe Gorfinkle & Friends - Take A Chance (2012) [MP3|320 Kbps] <Modern Electric B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544920.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bootleggers - Heart Of Dixie (2012) [MP3|320 Kbps] <Blues, Country, Southern Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544907.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jeremy Spencer - Bend In The Road (2012) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544863.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - The Best Of Jazz: Multimedia Music (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544783.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Michael Dease - Reaching Out (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544661.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Deb Rhymer - Don't Wait Up (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544656.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Tullie Brae - Revelation (2019) [FLAC|Lossless|WEB-DL|tracks] < Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544455.jpg" />
 </div>
 
 

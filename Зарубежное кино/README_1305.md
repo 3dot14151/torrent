@@ -1,55 +1,3 @@
-###  Публикация: 1415270   (375903) от 12.10.2020
-
-Томирис / Tomiris (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Среди древних народов, населявших просторы Евразии, особо выделялись племена, называющие себя саками. Это были кочевники и великие воины степи. Начинается история с краткого жизнеописания отца Томирис — царя Спаргапа. Спаргап, имея право на царский трон, вовлечён в войну между родами саков — массагетов. Влиятельные вожди, среди которых выделяются алчные и хитроумные (   Читать дальше...   )Производство: Казахстан / Студия Казахфильм, SataifilmЖанр: Драма, историяРежиссер: Акан СатаевАктеры: Альмира Турсын, Адиль Ахметов, Еркебулан Дайыров, Берик Айтжанов, Азамат Сатыбалды, Гассан Массуд, Илез Бадургов, Мурат Бисенбин, Аян Утепберген, Асылхан ТолеповПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 02:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B335285B891424D4D6A53A1900891559F55B3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415420   (375899) от 12.10.2020
-
-Район №9 / District 9 (2009) UHD Blu-Ray [H.265/2160p] [4K, HDR, 10-bit] [EUR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Описание: Более 20 лет назад инопланетяне установили первый контакт с Землей. Люди были готовы ко всему - от враждебного вторжения до невероятного технологического прорыва. Ни того, ни другого не произошло. Пришельцы оказались беженцами со своей собственной планеты, и пока мировое сообщество решало, что с ними делать дальше, для них был организован временный лагерь (   Читать дальше...   )Производство: ЮАР, США, Новая Зеландия, Канада / Key Creatives, QED International, WingNut Films, Wintergreen ProductionsЖанр: Фантастика, триллер, боевик, драмаРежиссер: Нил БломкампАктеры: Шарлто Копли, Джейсон Коуп, Натали Болтт, Сильвен Страйк, Элизабет Мкандави, Джон Самнер, Уильям Аллен Янг, Грег Мелвилл-Смит, Ник Блейк, Морена Буса СесатсаПеревод: Дублированный (Лицензия)Субтитры: Русские, английские, украинские, арабские, китайские, чешские, датские, нидерландские, эстонские, финские, французские, немецкие, греческие, хинди, венгерские, итальянские, корейские, литовские, норвежские, португальские, румынские, испанские, шведские, тайские, турецкиеПродолжительность: 01:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C7D5C481D53A7034E3D442B84563795CF8AC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410761   (375895) от 12.10.2020
 
 Крутящий момент / Torque (2004) WEBRip [H.264] [Open Matte]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375895.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375891.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375888.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375864.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375858.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375838.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375778.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375752.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375750.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375749.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375746.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375733.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375712.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375703.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375571.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375564.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375471.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375470.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375465.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375452.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_375447.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375359.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375356.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375351.jpg" />
 </div>
 
 
@@ -674,6 +622,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFB5ACCD153D7572AAA6BCE1DF9DDD1396DCC264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573944   (375333) от 12.11.2012
+
+Подозрения мистера Уичера / The Suspicions of Mr Whicher (2011) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375333.jpg" />
+</div>
+
+
+###  Подробнее
+
+На утро 30 июня 1860, тело трехлетнего Сэвилла Кента зверски убитого и хорошо спрятанного, найдено служащими на территории элегантного Хиллхауза, на краю сонной деревни Уилтшир. В местной полиции пытаются решить преступление, грозящее стать национальным скандалом. По приказу Министра Внутренних дел, Инспектор Джонатан «Джек» Витчер, так называемый «Принц Ищеек» из вновь образованного Скотланд-Ярда, детектив отдела, отправлен в сельскую местность, чтобы определить убийцу и восстановить порядок.Жанр: Драма, ДетективРежиссер: Джеймс Хоуз
+Продюсеры: Найджел Мэрчент, Нил МакКэй, Марк РедхедАктеры: Пэдди Консидайн, Питер Капальди, Том Джорджсон, Уильям Бек, Эмма Филдинг, Тим Пиготт-Смит, Кейт О’Флинн, Дональд Самптер, Бен Майлз, Александра Роач ...Перевод: Многоголосый закадровый, профессиональныйПродолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3EE3CD9EC16557AF859D3F4CD8A8024ED8C514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575618   (375222) от 10.09.2022
+
+Глухой пролёт / Всё из-за Пита Тонга / It s All Gone Pete Tong (2004) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнки Уайлд известнейший диджей на клубном курорте Ибице; у него контракт с крупным лейблом звукозаписи; его лицо на обложках авторитетных клубных журналов; он участник известных клубных теле- и радиошоу. У Фрэнки шикарная вилла на берегу моря и жена-модель Соня, с которой он познакомился на съёмках своего первого видеоклипа. Он живёт бесконечными вечеринками, беспорядочным (   Читать дальше...   )Производство: Великобритания, Канада, True West Films, Vertigo FilmsЖанр: драма, комедия, музыкаРежиссер: Майкл ДаусАктеры: Пол Кэй, Беатриз Батарда, Кейт Магован, Майк Уилмот, Нил Мэскелл, Моника Майя, Пит Тонг, Рон Ллой, Хью Эллистон, Дэн Антопольский, Тим ПлестерПеревод: профессиональный многоголосый (2 варианта), любительский одноголосый (Кирилл Наумов, с ненормативной лексикой)Субтитры: русские, английские SDHПродолжительность: 01:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097D2B7A22A1C131943AB1804E3FF81F36B54563
 ```
 
 https://mybot314.ru/tekegram_catalog/

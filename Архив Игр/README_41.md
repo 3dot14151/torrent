@@ -6,7 +6,7 @@ Serious Sam 3: Before First Encounter / Крутой Сэм 3: До Первог
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535748.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0/4DLC) Repack Табличка
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535745.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ UnEpic (2011) [Ru/Multi] (1.50.06) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533920.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Parkitect (2016) [En/Mutli] (Alpha 5с) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533910.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Alpha Protocol [Ru/En/Multi8] (L/Steam-Rip/1.0.0.0) 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533879.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.4.1.0s/dlc) Repack R.G. Механ
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533794.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533710.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532867.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Animal [Ru] (RePack) 1996 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532505.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Investigator (2016) [Ru/En] (1.12) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531823.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru/Multi] (1.02) SteamRip R.G. И�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531597.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Age Of Mythology (2014) [Ru/En] (1.9.2975) RePack Audioslave [Extended Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531311.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Battles for Glory 2 / Битвы за славу 2 (2007) [Ru] (1.0) Repack Anto
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531106.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The Legend of Heroes: Trails of Cold Steel II (2016) [PS3] [USA] 4.46 [Repack] [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530317.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.0.5) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530216.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Zombie Army Trilogy (2015) [Ru/En] (1.8.20.01) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530208.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Legends of Pegasus [En] (RePack/1.0) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530143.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Legends of Pegasus [En] (RePack/1.0) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530135.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ We Happy Few (2016) [En/Fr] (29664) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530099.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Brutal Legend (2013) [Multi] (1.0) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529811.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0/4DLC) RePack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529805.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dungeons 2 (2015) [Ru/Multi] (1.4.0.206-d5e6057e6b93/upd 4/dlc) Repack R.G. Ме
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529325.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Нов
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529046.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ SimplePlanes (2015) [En] (1.5.3.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527041.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526862.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Sudden Strike 4 (2017) [Ru/En] (1.00.19037/dlc) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525118.jpg" />
 </div>
 
 

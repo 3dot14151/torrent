@@ -1,55 +1,3 @@
-###  Публикация: 1687111   (125980) от 25.12.2023
-
-Американская милашка / American Honey (2016) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Фильм в жанре роуд-муви... 18-летняя Стар никогда не покидала родного городка. Влюбившись с первого взгляда в парня из проезжавшего мимо микроавтобуса, она, не долго думая, отправляется колесить по Среднему Западу в компании таких же неприкаянных подростков, продающих подписку на журналы. Молодость и радость, новые места, первая любовь, первые заработанные деньги (   Читать дальше...   )Производство: Великобритания, США, British Film Institute (BFI), Film4, Maven PicturesЖанр: драма, мелодрама, приключенияРежиссер: Андреа АрнольдАктеры: Саша Лэйн, Шайа ЛаБаф, Райли Кио, МакКаул Ломбарди, Ариэль Холмс, Кристал Айс, Вероника Эзелл, Чад Кокс, Гарри Хауэлл, Кеннет Кори ТакерПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (два варианта), английскиеПродолжительность: 02:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA06F4C610627D0DFCF6E925A25A325DFB6ADD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823632   (125944) от 12.10.2025
-
-Добыча / Prey (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Север Великих равнин, 1719 год. Девушка Нару из племени команчей больше всего на свете хочет стать достойной охотницей, но близкие не воспринимают её увлечение всерьёз. Когда отряд бывалых охотников идёт в лес на поиски атакованного пумой соплеменника, Нару как опытный следопыт отправляется с ними и вскоре замечает странные следы. Спасение товарища проходит успешно, (   Читать дальше...   )Производство: США / 20th Century Studios, Davis EntertainmentЖанр: ужасы, фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эмбер Мидфандер, Дэйн Дильегро, Харлан Блейн Китвейхат, Дакота Биверс, Джеронимо Вела, Стефани Матиас, Сторми Кипп, Майк Патерсон, Джулиан Шэмп, Нельсон Картер ЛейсПеревод: Дублированный (RHS), многоголосый (Jaskier), авторский (Яроцкий)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF36A3048E5B6126DDED8558BEB7BAA250F393DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510937   (125941) от 12.10.2025
 
 Август Раш / August Rush (2007) BDRip [H.264/1080p]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125941.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125940.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125936.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125882.jpg" />
 </div>
 
 
@@ -167,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125856.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125837.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125836.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125834.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125830.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125829.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125825.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125812.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125783.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125782.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125780.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125778.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125774.jpg" />
 </div>
 
 
@@ -505,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125767.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125756.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125686.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125677.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125673.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125671.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125666.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE6EC4C631A6BAC3815F67685B14E9B620BFE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687235   (125660) от 26.12.2023
+
+Демоны дома Гарретов / Raging Grace (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нелегальная иммигрантка Джой перебивается подработками горничной и, не имея собственного жилья, втайне от работодателей в каждый дом приводит дочку Грейс — девочку активную и шаловливую. Однажды она устраивается в особняк Гарретов, где престарелый хозяин тяжело болен и не приходит в себя, а всем заправляет его племянница. Ночью Грейс выбирается похулиганить и, проследив (   Читать дальше...   )Производство: Великобритания, Филиппины / Last ConkerЖанр: триллер, драмаРежиссер: Пэрис ЗарсильяАктеры: Макс Эйгенманн, Джейден Боадилья, Лиэнн Бест, Дэвид Хейман, Стефани Коннелл, Seb Yates Cridland, Jodie Davey, Caleb Johnston-Miller, Eugenia Low, Софи Моррис-ШеппардПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728B0B73E06C801ED4401E5D461FAEC371C1FA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687308   (125625) от 26.12.2023
+
+Мать. Реинкарнация / Mother, May I? (2023) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эммет вместе со своей девушкой Аней приезжают в дом своей умершей матери, чтобы навести там порядок. Аня считает, что эта поездка поможет Эммету справиться с его детской травмой, возникшей из-за того, что мама бросила его. В процессе изучения старого дома Аня меняется и начинает вести себя, как другая личность. Эммет с удивлением узнает в ее поведении особенности (   Читать дальше...   )Производство: США / Burn Later Productions, Cine PrimoЖанр: ужасыРежиссер: Лоуренс ВанничеллиАктеры: Холлэнд Роден, Кайл Галлнер, Крис Малки, Робин Уинн Мур, Майкл Джианнон, Дафна Гейнс, Фокс ХенсонПеревод: Дублированный (IVI)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2A490E12D4723498FF753D0BAB9E7FE3DB1C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

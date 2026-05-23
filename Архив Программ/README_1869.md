@@ -6,7 +6,7 @@ Topaz Photo AI 2.0.7 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170005.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SILKYPIX Developer Studio Pro 11.0.11.0 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169989.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NVIDIA GeForce Desktop Game Ready 545.92 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169977.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hallmark Card Studio 2022 Deluxe 22.0.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169972.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ O&O Defrag Professional + Server 27.0 Build 8050 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169963.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Brave Browser 1.18.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169962.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169960.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Calibre 5.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169949.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Adobe After Effects 2020 17.0.1.52 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169941.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe InDesign 2020 15.0.1.209 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169931.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Aiseesoft FoneLab for Android 5.0.28 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169925.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Revo Uninstaller Pro 4.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169909.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MetaProducts Offline Explorer Enterprise 8.5.0.4970 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169907.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ save2pc Ultimate 5.6.2.1610 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169893.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Auslogics File Recovery 11.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169873.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ WinCatalog 2020.2.4.1210 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169867.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ R-Studio Network  9.3 Build 191251 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169857.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ uTorrent Pro 3.6.0 Build 46904 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169835.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ GOM Player Plus  2.3.91.5361 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169829.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ ScreenToGif 2.27.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169824.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ eM Client Pro 9.2.2157.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169814.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Advanced SystemCare Pro 15.0.1.155 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169813.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ GoodSync Enterprise 10.10.15.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169794.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ LosslessCut 3.29 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169756.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ O&O Defrag Professional 27.0 Build 8050 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169748.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ HiBit Uninstaller 3.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169741.jpg" />
 </div>
 
 

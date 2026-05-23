@@ -7,7 +7,7 @@ Red Hat Enterprise Linux 10.2 [x86_64, aarch64] 4xDVD 1xWSL
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070220.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ RAR for Linux 7.22 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069863.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Ubuntu 26.04 Resolute Raccoon LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066950.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Zimbra OSE (Open Source Edition) 10.1.16 [x64, amd64] (tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066208.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Zorin OS 18.1 Pro & Pro Lite 18.1 [X86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066206.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Zorin OS 18.1 Pro [X86, amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065867.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ SystemRescue v13.00 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064295.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Parted Magic 2026.03.20 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061977.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ DeaDBeeF for Linux 1.10.2 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061599.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ DeaDBeeF for Linux 1.10.1 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061270.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Uncom 2.5 LTS [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060789.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Winux 11.26.03.1 [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060779.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ GreenLinux 22.3.0 Kursk [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060753.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ MiniOS (все редакции, вкл. Flux) 5.1.1 (Flux 5.1.2) [amd64, i386] 
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058122.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Kali Linux 2025.4 [amd64, arm64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058107.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ RAR for Linux 7.20 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056130.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055098.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053828.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ openmediavault 8.0.4 [amd64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053458.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ EN-OS 1.0 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051008.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049589.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049113.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Mikrotik Router OS 7.20.6 [x86] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049082.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Debian GNU/Linux 10 (Buster) LXQt by Lazarus [x86, x86_64] (2xDVD) [Авторс
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040987.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036928.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ubuntu*Pack GNOME 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036272.jpg" />
 </div>
 
 

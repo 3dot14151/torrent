@@ -1,55 +1,3 @@
-###  Публикация: 1759598   (37765) от 09.11.2024
-
-Девять королев / Nueve reinas (2000) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Матёрый аферист-кидала Маркос вытаскивает из передряги молодого коллегу по ремеслу и предлагает работать в паре. После нескольких мелких афёр тандем решает провернуть крупное дело — продать богатому коллекционеру набор поддельных редких марок "Девять королев", имеющих большую ценность...Производство: Аргентина / FX Sound, Industrias Audiovisuales Argentinas S.AЖанр: драма, криминалРежиссер: Фабиан БелинскиАктеры: Гастон Паулс, Рикардо Дарин, Летиция Бредиче, Томас Фонци, Оскар Нуньес, Игнаси Абадаль, Эльза Беренджер, Грасиела Тенембаум, Мария Мерседес Вилагра, Гэбриел Корреа, Поти ДюкассПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, испанскийСубтитры: русские (с ненормативной лексикой), английскиеПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22C5AE4D188613B844CC5F4931CA2350C8AF6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759586   (37764) от 09.11.2024
-
-Девять королев / Nueve reinas (2000) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Матёрый аферист-кидала Маркос вытаскивает из передряги молодого коллегу по ремеслу и предлагает работать в паре. После нескольких мелких афёр тандем решает провернуть крупное дело — продать богатому коллекционеру набор поддельных редких марок "Девять королев", имеющих большую ценность...Производство: Аргентина / FX Sound, Industrias Audiovisuales Argentinas S.AЖанр: драма, криминалРежиссер: Фабиан БелинскиАктеры: Гастон Паулс, Рикардо Дарин, Летиция Бредиче, Томас Фонци, Оскар Нуньес, Игнаси Абадаль, Эльза Беренджер, Грасиела Тенембаум, Мария Мерседес Вилагра, Гэбриел Корреа, Поти ДюкассПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, испанскийСубтитры: русские (с ненормативной лексикой), английскиеПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B673483AEFF78C6DDD316FCE7F331104C19C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759603   (37751) от 09.11.2024
 
 Ночь воспоминаний / Gieokui bam / Forgotten (2017) BDRip [AV1/1080p] [10-bit]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37751.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37750.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37749.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37723.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37721.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37715.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37713.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37712.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37706.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37705.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37701.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37694.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37693.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ RRR: Рядом ревёт революция / RRR (2022) WEB-DL [AV1/2160p] [4
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37687.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37685.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37682.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37680.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37673.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37669.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37652.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37650.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37646.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37641.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37640.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0CB9C159625E6703F661EEE085D53FDF242A702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759683   (37639) от 11.11.2024
+
+Замок дьявола / The Elite of Devils (2024) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа студентов приезжает в средневековый замок на практику. Его владелица — герцогиня, которая, по слухам, заключила сделку с дьяволом. Друзья боятся оставаться в этом мрачном месте и решают наутро уехать. Но от их страхов дьявольская сила только растет. Чтобы пережить эту ночь, им придется узнать историю замка и победить чары ведьмы.Производство: Таиланд / Tham Studio19, Hollywood ThailandЖанр: ужасыРежиссер: Артистая Арриявонгса, Тхиракхахатхеп АрриявонгсаАктеры: Анчали Сайсунторн, Ятупорн Дангурай, Латкамон Пинройкирати, Саданан ТхипчанПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B659AB9D84CC3A34C720479569618BDAA8BAB881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758629   (37635) от 11.11.2024
+
+Конотопская ведьма / The Witch. Revenge (2024) WEB-DL [H.264/1080p] [UKR / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древняя ведьма из Конотопа, влюбившись в обычного парня, давно отреклась от своих сил, но после того, как с началом войны солдаты захватывают город и жестоко убивают её любимого, решает отомстить, возвращает свои силы и обрушивает ужасные и кровавые кары на головы и другие части тел убийц её жениха.Производство: Украина / Film.uaЖанр: ужасы, фэнтези, драмаРежиссер: Андрей КолесникАктеры: Татьяна Малкова, Тарас Цимбалюк, Павел Вишняков, Иван Шаран, Елена Хохлаткина, Артём Сагитов, Ярослав Шахторин, Никита Слободенюк, Сергей Анипченко, Владимир РащукПеревод: субтитрыЯзык озвучки: украинскийСубтитры: украинские (forced, full, SDH), английские (full)Продолжительность: 01:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5749F40A2DD0ABD16A9594FEB2730A2DC14F84DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

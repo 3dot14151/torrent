@@ -1,134 +1,3 @@
-###  Публикация: 1231343   (606774) от 17.06.2018
-
-Ю.А. Виноградов | Радиолюбителю-конструктору (2006) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Описаны оригинальные разработки для модернизации радиостанций и самодельные антенны СИ-БИ связи, радио-любительские устройства индивидуального дозиметрического контроля, конструкции ИК-техники для охраны и сигнализации, а также электронные приборы для дома, дачи, автомобиля, для мастеров и радиолюбителей нового поколения.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFC29B8948B46AB8E5FE6ECC12BE2FAE1361B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753003   (606742) от 28.06.2015
-
-К.С. Колесников (отв.ред.) | Механика в техническом университете (в восьми томах) [8 книг] (1998-2005) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Серия книг по механике от издательства МГТУ им. Н. Э. БауманаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050B39C5563DCEDA3D17F4CD4CF61358981338FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038308   (606736) от 28.07.2016
-
-О. И. Бондарь и др. | Техноэкология. Учебное пособие (2011) [PDF, DJVU] [Uk]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены теоретические основы техноэкологии , содержится информация о главных факторах и характеристики антропогенного воздействия на окружающую среду. Рассмотрены основные технологические процессы и производства , они создают угрозы окружающей среде и экологической безопасности Украины .
-Пособие будет полезным для студентов и преподавателей по (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3B121AAB62E54F8647E7665714CB75F2137DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913223   (606735) от 28.06.2015
-
-Е. Окошкина | Самоучитель разговорного английского языка (2015) [FB2, RTF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие окажет активную помощь всем, кто стремится овладеть повседневной разговорной английской речью. Книга содержит самые употребительные повседневные фразы с грамматическими конструкциями и модальными глаголами, а также фразы с употребительными местоимениями, глаголами, наречиями, предлогами и фразы вежливого обращения.  Все фразы снабжены краткими (   Читать дальше...   )Жанр: Английский языкФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5216C69F4EAE255DDDD3ACD69D3FA8C2E2891021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038522   (606711) от 28.07.2016
-
-Юрий Шилов | Основы славянской цивилизации (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-"Основы" - это и начало славянской (украинской, в частности) этнокультуры, это и научные источники означенных начал. Обычно их отсчитывают с 1 тыс. до н. э. - I тыс. н. э. Предлагаемое издание указывает на VI-VT1-XIX тыс. до н.э. и объясняет причины такого расхождения с официальными установками. "Основы" также впервые раскрывают актуальность древних (   Читать дальше...   )Жанр: ИсториографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4322ED0E2CAFFC1BA088ACCC6A96D60E940795C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297044   (606674) от 20.04.2019
 
 Любовь Виноградова | Ангелы мщения (2016) [FB2]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606674.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606671.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606584.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606556.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606548.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606463.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606457.jpg" />
 </div>
 
 
@@ -319,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606429.jpg" />
 </div>
 
 
@@ -345,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606415.jpg" />
 </div>
 
 
@@ -371,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606327.jpg" />
 </div>
 
 
@@ -397,7 +266,7 @@ Francis DK Ching | A Visional Dictionary of Architecture (1995) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605813.jpg" />
 </div>
 
 
@@ -423,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605687.jpg" />
 </div>
 
 
@@ -449,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605574.jpg" />
 </div>
 
 
@@ -477,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605569.jpg" />
 </div>
 
 
@@ -503,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605568.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605362.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605354.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605352.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605214.jpg" />
 </div>
 
 
@@ -636,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605208.jpg" />
 </div>
 
 
@@ -662,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605205.jpg" />
 </div>
 
 
@@ -673,6 +542,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1732EFC9C63A892D3A471761918E8E77C92F21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913403   (605123) от 29.06.2015
+
+Андрей Шляхов | Андрей Миронов (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кем на самом деле был фееричный и сияющий с экранов своей обворожительной улыбкой Андрей Миронов? Воспоминания его женщин и дочерей во многом противоречат друг другу, сходясь лишь в одном – неотразимой лучезарности актера, которая так привлекала женщин. Притягательность Андрея Миронова отмечала и его жена, актриса Лариса Голубкина, которая, вспоминания о личной жизни (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FF7746D46626A8A89F9150B91E6E90D723306F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913319   (605119) от 29.06.2015
+
+Д. А. Ляпин | История средневековой Руси. Русское государство в IX-XVI веках [2 книги] (2014) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605119.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Средневековой Руси: учебное пособие для студентов академических специальностей исторических факультетов.
+Пособие содержит источники по древнейшей истории России и предназначено для работы на практических занятиях студентов академических специальностей по профилю подготовки бакалавр.Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AA487BBC04278F054EEB8A6012FB15EA897D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913456   (605117) от 29.06.2015
+
+Алексей Кофанов | Тайные смыслы Второй мировой (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой изложение основных событий Второй мировой войны с раскрытием их смыслового подтекста и некоторых, порой неожиданных, сопоставлений (взаимосвязь Московской битвы и нападения на Перл-Харбор, избрания патриарха Сергия, создания нового гимна СССР и т. д.).
+В тексте разобрано большинство «острых» тем: финансирование германских нацистов англо-американскими (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB912FFBDF752E679116BA8A11227461BCA0219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913546   (605015) от 29.06.2015
+
+И.Г. Игловский | Справочник по слаботочным электрическим реле (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены технические данные, маркировка, габаритный чертёж и электрическая схема современных слаботочных электрических реле. Даны рекомендации по выбору и применению реле. Незаменимый помощник студента при выполнении контрольных, курсовых работ, дипломных проектов. Будет полезен ИТР.Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6B1AB8E2709319E6C32155FBBCDFDC599BDFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913496   (605012) от 29.06.2015
+
+Тимоти Снайдер | Кровавые земли: Европа между Гитлером и Сталиным (2015) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605012.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 1933-го по 1945 год в Восточной Европе было уничтожено 14 миллионов человек. Книга профессора Йельского университета (США), блестящего историка и искусного рассказчика Тимоти Снайдера, «Кровавые земли: Европа между Гитлером и Сталиным» посвящена трагическим страницам в истории Восточной Европы. Украинский Голодомор, сталинские массовые экзекуции, Холокост, расстрелы (   Читать дальше...   )Жанр: историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B30F99639EE1B63E6A2800B56C82F669E97745
 ```
 
 https://mybot314.ru/tekegram_catalog/

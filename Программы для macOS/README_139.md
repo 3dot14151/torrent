@@ -6,7 +6,7 @@ Adobe Substance 3D Designer 12.4.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AI Photo for Mac 1.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194921.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ZBrush 2023.2.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194835.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Final Cut Pro X 10.6.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194811.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Movavi HD Screen Recorder for Mac 23.1.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194562.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Serato Studio for Mac 2.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194545.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Macs Fan Control Pro 1.5.15 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194501.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Xojo 2023 Release 1.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194467.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Astute Graphics Plugins Elite Bundle for Mac 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194322.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ PDF Studio Pro for Mac 2023.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194247.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PDF Expert 3.4 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193924.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Autodesk Flame 2024.0.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193919.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MacDroid Pro 1.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193872.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Topaz Gigapixel AI 8.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193737.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Pixelmator Pro 3.7 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193724.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193637.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Radio Silence 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192276.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Parallels Desktop Business Edition 18.0.3 (build 53079) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191692.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Optimage 3.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191036.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Translate Tab 2.0.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190590.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ TG Pro (Temperature Gauge Pro) 2.83 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190577.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Adobe Bridge 2023 13.0.4 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190409.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Adobe Animate 2023 v.23.0.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190396.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Adobe Media Encoder 2023 v.23.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190319.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Boxy SVG 4.12.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190199.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ CHM Viewer Star 6.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190196.jpg" />
 </div>
 
 

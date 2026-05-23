@@ -1,81 +1,3 @@
-###  Публикация: 1361168   (956853) от 18.02.2020
-
-Доминика (2017) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма Константин — успешный молодой архитектор. Он аккуратно выстраивает карьеру и находится в удобных отношениях с девушкой Яной. Но его спокойная и благополучная жизнь резко меняется, когда однажды на пороге своей квартиры он находит трехмесячную девочку — Доминику. Вскоре у девочки обнаруживается феноменальная способность — взрослеть на несколько (   Читать дальше...   )Производство: Россия / Mozga.ru StudioЖанр: Фэнтези, комедияРежиссер: Олег АгейчевАктеры: Андрей Чадов, Светлана Устинова, Игорь Жижикин, Александр Шаляпин, Яна Гурьянова, Елена Яковлева, Екатерина Васильева, Амет Магомедов, София Бармина, Лиза ИзмайловаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF274C24D601446CA21FD6ED9181C2AC1B0374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361256   (956848) от 18.02.2020
-
-Стрела (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Школьный задира Эдик Карпов на уроке биологии переходит все границы дозволенного. Этот факт чрезвычайно злит новенькую ученицу Алису Климович, и она решает преподать ему урок...Производство: Россия | Take&ShotЖанр: короткометражный, драма, комедияРежиссер: Евгений НикитинАктеры: Владислав Валихметов, Виктория Плоп, Яков Юдинских, Хельга Филиппова, Иван ЗубковПеревод: Не требутся (русский)Субтитры: РусскиеПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEF94E49B5CE198F92CECF51ACAF0DE7C25F512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361163   (956749) от 18.02.2020
-
-Лес (2018) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Даниле шестнадцать. Катя вдвое старше. Он часами украдкой наблюдает за ней из старого сруба на окраине леса. У него не рождается и мысли попытаться быть с ней вместе. Пока на пороге Кати не появляется отец Данилы с желанием сбежать в ее объятия от навалившихся проблем. Отца и сына затягивает водоворот событий, где люди, живущие на одной земле, разделились на своих (   Читать дальше...   )Производство: Россия / RZ StudioЖанр: ДрамаРежиссер: Роман ЖигаловАктеры: Олег Шибаев, Наталья Рычкова, Олег Феоктистов, Мария Аврамкова, Владимир Малюгин, Сергей Шеховцов, Сергей Шанин, Дмитрий Блохин, Сергей Подольный, Марианна ОвчинниковаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917BDC2D0728595A473914D60D4ACC21C636B0F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361160   (956661) от 18.02.2020
 
 Амбивалентность (2018) WEBRip [H.264/1080p-LQ] [PR]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956661.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956334.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956190.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955656.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955499.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955296.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954029.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953680.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953200.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952235.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952184.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951553.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951176.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950587.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950420.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950029.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949541.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948531.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948361.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947736.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947688.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946920.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946894.jpg" />
 </div>
 
 
@@ -669,6 +591,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749562   (946608) от 30.01.2014
+
+Мечтать не вредно (2012) HDTVRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свету все считают безнадежной старой девой. Да и сама Cвета давно махнула на себя рукой: ни макияжа, ни причесок, ни нарядов. Муж сестры знакомит ее со своим помощником Кириллом – застенчивым старым холостяком, которому Света очень понравилась. Однако, Кирилл у Светы симпатии не вызвал, но она молчит об этом, чтобы не обижать Кирилла. В это время в город из-за границы (   Читать дальше...   )Производство: "Бастион", "УПС"Жанр: МелодрамаРежиссер: Юрий ПавловАктеры: Мария Аниканова, Алексей Зубков, Ада Роговцева, Мария Куликова, Денис Матросов, Анна Казючиц, Сергей Калантай, Дария Боцманова, Яна Глущенко и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E193EE7EA9650C598986BB0C8F6906BF8A36878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362813   (946459) от 25.02.2020
+
+Два одиночества (2018) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946459.jpg" />
+</div>
+
+
+###  Подробнее
+
+В класс приходит новая девочка — Эля — и сразу становится объектом внимания своих одноклассников. Ей будет очень тяжело найти своё место в чужом коллективе, а дома ждёт ненавистный отчим…
+Это, основанная на реальных событих, история о школе, взрослении и подростковом одиночестве в толпе.Производство: Россия | Кинокомпания "Артель"Жанр: драма, короткометражныйРежиссер: Виталий МанюковАктеры: Григорий Верник, Евдокия Смирнова, Игорь Верник, Светлана Макарова-Васильченко, Никита Бесогонов, Анна Большова, Марк Попов, Полина Слепакова, Ульяна Иващенко, Инна ЛясковецПеревод: Не требуется (русский)Субтитры: Английские (хардсаб)Продолжительность: 00:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190C5EB2D766F45C658A6D2A58D99DB43D9C67EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090765   (945677) от 07.01.2017
+
+Атомный Иван (2012) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945677.jpg" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается в городе-спутнике одной из крупнейших АЭС. Молодой учёный Ваня, как и его родители, занимается атомной энергетикой, но, как он сам считает, — не по призванию, а только из-за давней любви к бывшей однокурснице Тане. Она, напротив, увлечена своим делом, амбициозна и требовательна в личных отношениях. Однажды Таня решает разорвать эти отношения, (   Читать дальше...   )Производство: Россия | ТелестоЖанр: Мелодрама, КомедияРежиссер: Василий БархатовАктеры: Григорий Добрыгин, Юлия Снигирь, Екатерина Васильева, Марина Голуб, Алексей Горбунов, Евгения Дмитриева, Алексей Колубков, Денис СухановПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0CE12AB1946CE27F8102051E06C80852BF39E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

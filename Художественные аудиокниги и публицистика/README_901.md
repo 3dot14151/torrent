@@ -1,84 +1,3 @@
-###  Публикация: 1689796   (124359) от 04.01.2024
-
-Лев Лурье | Лекция «Москва – Петербург. 13 отличий» (2019) [MP3, Лев Лурье]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-На лекции Льва Лурье, посвящённой различиям Петербурга и Москвы, вы узнаете, чем так гордятся петербуржцы, что теряют москвичи, а также о том, каковы истоки этого вечного противостояния. Так уж сложилось, что два этих главных города нашей родины всё время противопоставлялись друг другу и конкурировали между собой. Везло то одному, то другому по очереди, в зависимости (   Читать дальше...   )Жанр: Публицистика, культурология, историяИздательство: Лекторий "Прямая Речь"Продолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E5581449A5D26B7EA170DD4B750301006BAF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689938   (124348) от 04.01.2024
-
-Уильям Шекспир | Мера за меру (2005) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
-«Мера за меру» – последняя и самая циничная комедия Шекспира. Театральные (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: Вира-М (аудио)Продолжительность: 03:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA181CA13250455AB4B115C2F79EEC69EBCF04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689921   (124346) от 04.01.2024
-
-Уильям Шекспир | Комедия ошибок. Бесплодные усилия любви (2007) [MP3, Геннадий Бортников, Олег Борисов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
-Представляем вниманию слушателей (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: СиДиКом, Элитайл, ГостелерадиофондПродолжительность: 04:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD1FB422EEAAA421E44959BA52A412BD7132DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689952   (124344) от 04.01.2024
 
 Уильям Шекспир | Конец - делу венец (2018) [MP3, Герман Энтин, Алексей Шейнин и др.]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124344.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124342.jpg" />
 </div>
 
 
@@ -142,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124340.jpg" />
 </div>
 
 
@@ -170,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124339.jpg" />
 </div>
 
 
@@ -197,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124333.jpg" />
 </div>
 
 
@@ -226,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124332.jpg" />
 </div>
 
 
@@ -253,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124279.jpg" />
 </div>
 
 
@@ -282,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124274.jpg" />
 </div>
 
 
@@ -310,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124257.jpg" />
 </div>
 
 
@@ -336,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124248.jpg" />
 </div>
 
 
@@ -363,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124247.jpg" />
 </div>
 
 
@@ -390,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124244.jpg" />
 </div>
 
 
@@ -418,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124237.jpg" />
 </div>
 
 
@@ -445,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124236.jpg" />
 </div>
 
 
@@ -474,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124234.jpg" />
 </div>
 
 
@@ -502,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124199.jpg" />
 </div>
 
 
@@ -529,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124194.jpg" />
 </div>
 
 
@@ -555,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124192.jpg" />
 </div>
 
 
@@ -581,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124188.jpg" />
 </div>
 
 
@@ -609,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124179.jpg" />
 </div>
 
 
@@ -636,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124163.jpg" />
 </div>
 
 
@@ -662,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124106.jpg" />
 </div>
 
 
@@ -688,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124103.jpg" />
 </div>
 
 
@@ -702,6 +621,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E082A58F809B03FDD7127275C3F3BD1A3D64C15E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690322   (124045) от 06.01.2024
+
+Михаил Булгаков | Записки на манжетах (2013) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+Книга «Записки на манжетах» состоит из двух частей. Первая часть о жизни писателя во Владикавказе. Лирический герой автора размышляет о литературе, стремится создать объединение писателей. Вторая часть описывает приключения героя в Москве. «Записки на манжетах» наполнены (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 02:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DB671F18568F337C7DF06E4EB85986E103551A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690320   (124041) от 06.01.2024
+
+Михаил Булгаков | Дьяволиада (2013) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+«Дьяволиада» Михаила Булгакова – это повесть-гротеск, смешная и горькая сатира на государственную бюрократию. Автор показывает беззащитность и бессилие обыкновенного человека перед могуществом самородящегося и самонастраивающегося бюрократического аппарата. Но самое (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DD48D37BB989EAD9CFC35FF4C01ABCAC84981B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690327   (124036) от 06.01.2024
+
+Михаил Булгаков | Похождения Чичикова (2013) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+В сентябре 1922 года в московской газете «Накануне2 была напечатана сатирическая повесть Михаила Булгакова «Похождения Чичикова». Слушая аудиокнигу мы оказываемся в Москве 1920-х годов, в эре НЭПа, когда, по выражению самого Булгакова, наступил «торговый ренессанс» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 02:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCF999B6D5845B0A265AE1E83A456ED6E6D9130
 ```
 
 https://mybot314.ru/tekegram_catalog/

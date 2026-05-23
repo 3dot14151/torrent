@@ -6,7 +6,7 @@ Reggie Workman - Cerebral Caverns (2004) [FLAC|Lossless]<Jazz, Avant-Garde Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343178.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paul Cacia Big Band - Portrait (1992) 2003 [FLAC|Lossless|image + .cue] <Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343056.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Judy Garland - America's Treasure (1960) 1986, Del Pack[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343053.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Zone - Metade (2011) Dneeyedfish [FLAC|Lossless|image + .cue] <World Fusion, Eth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342949.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Charles Lloyd New Quartet - Passin' Thru (2017) Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342805.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nina Simone - The Nina Simone Anthology (1960-e - 1970-e) 2013, 2CD, Salvo [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342044.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lee Konitz & Dan Tepfer - Decade (2010 - 2016) 2018, Verve [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341443.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Johnny Griffin - Seven Classic Albums, Vol.2 (1958 - 1962) 4CD, 2014, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341441.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Florian Pellissier Quintet - Bijou Voyou Caillou (2018) Heavenly Sweetness [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341440.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Paul Bley - A Free Spirit (1953 - 1963) 2016, Musica Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341397.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Claude Quartet - Bolling: Concerto for Classical Guitar and Jazz Piano Trio, Son
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341352.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sylvia Vrethammar - Vortex (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341309.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ La Caina - Head In The Clouds (2007) [FLAC|Lossless]<Acid Jazz, Downtempo, Futur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_341233.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Hank Jones - Just For Fun (1977) 1990, Original Jazz Classics [WavPack|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341218.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Louis Armstrong - Legends: Original Recordings (1940 - 1960-e) 2012, Global Jour
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341215.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Chris Thompson (ex-Mannfred Mann's Earth Band) - Do Nothing Till You Hear From M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_340815.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Rough Guide To Ethiopian Jazz (2016) [FLAC|Lossless|tracks + .cue] <World M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340729.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Gil Evans Paris Workshop & Laurent Cugny - Spoonful (2017) 2CD, Jazz&People [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340286.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Paolo Fresu Quintet - Ballads (1991) Splasc(h) Records [WavPack|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340285.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Carol Welsman - Journey (2012) Justin Time Records [APE|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340281.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Matt Bianco - Gravity (2017) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz, La
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340156.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Marion Brown - Capricorn Moon To Juba Lee Revisited (1965, 1966) 2019, Hat Hut R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340125.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Karen Souza - Velvet Vault (2017) Jараnеsе Еditiоn [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339872.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Jimmy Rushing - Four Classic Albums Plus (1952 - 1960) 2CD, 2012, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339112.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Nicki Parrott - Black Coffee (2010) [APE|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339072.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Larry Bartley & Just Us! - Beauty In The Hideous (2014) [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339032.jpg" />
 </div>
 
 

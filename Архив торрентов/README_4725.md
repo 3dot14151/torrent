@@ -6,7 +6,7 @@ Adobe Acrobat Reader 2024.002.20759.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56514.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SketchUp Pro 2024 24.0.484 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56513.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VMware Workstation 17 Pro 17.5.2 Build 23775571 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56504.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SIV (System Information Viewer) 5.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56503.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56501.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Planet VPN 2.8.3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56500.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat Pro 24.002.20759.0 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56496.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Total Commander 11.03 Extended 24.5 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56488.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ XviD4PSP 8.1.80 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56482.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FreeCommander XE 2024  donor x64 build 907 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56481.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ PotPlayer 240514 (1.7.22230) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56478.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Topaz Video AI 5.0.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56475.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AIDA64 Extreme Edition 7.20.6835 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56473.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ LDPlayer 9.0.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56469.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ doPDF 11.9.453 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56460.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ KMPlayer 4.2.3.12 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56455.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Microsoft .NET 7.0.19 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56453.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ LosslessCut 3.61.0 Standalone (x64) Pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56451.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Pipette 24.5.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56448.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Capture One 23 Enterprise 16.4.0.2112 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56447.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mullvad Browser 13.0.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56443.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56442.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ PotPlayer 240514 (1.7.22230) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56441.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ WinRAR 7.01 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56436.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ WinRAR 7.01 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56424.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Guitar Pro 8.1.2 Build 37 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56397.jpg" />
 </div>
 
 

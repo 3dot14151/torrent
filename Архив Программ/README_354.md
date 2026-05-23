@@ -6,7 +6,7 @@ FileMenu Tools 7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869678.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 8 PE x86x64 Universal by Xemom1 16.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869677.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics Registry Defrag 13.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869661.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Auto Shutdown 2.0.1.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869647.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hotspot Shield Elite 5.20.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869556.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SHOTCUT 16.03.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869540.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 10 Manager 2.0.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869535.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Alcohol 52% 2.0.3.9811 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869531.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Calibre 2.79.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869519.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows 7 PE x86 compact by Xemom1 16.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869417.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ IrfanView 4.42 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869416.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Photoshop Lightroom 6.5 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869415.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AIMP 4.01 Build 1705 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869413.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Dreamweaver CC 2015.2 (7884) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869410.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Allegorithmic Substance Painter 2.0.1 build 1105 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869402.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ O&O Defrag Professional 19.5 Build 222 RePack (&Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869399.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ viber 6.6.0.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869392.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Form Pilot Office 2.52 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869390.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ CCleaner 5.27.5976 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869381.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe Acrobat Reader DC 2015.023.20070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869380.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.03) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869271.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869267.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ JetBrains IntelliJ IDEA Ultimate 2016.1 Build #PS-145.258 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869265.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DriverPack Solution 17.4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869253.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Alcohol 120% 2.0.3.9811 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869245.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Alcohol 120% 2.0.3.9811 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869238.jpg" />
 </div>
 
 

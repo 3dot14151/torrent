@@ -1,55 +1,3 @@
-###  Публикация: 1631682   (198797) от 06.05.2023
-
-Дизайн Интерьера 3D 8.0 Repack KaktusTV [Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DB82505F9A1957DDB8ABDD344C839EBEC81FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632915   (198500) от 12.05.2023
-
-CrazyTalk Pipeline RePack by PooShock 8.12.3124.1 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
-</div>
-
-
-###  Подробнее
-
-CrazyTalk — программа для анимации в реальном времени статических фотографий с помощью фирменной технологии 3D фото морфинга Facetrix с добавлением эмоций, речи, звукового сопровождения, также можно добавить элементы лица и еще многое другое.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778053D72CE102A530A98226383A8564FA14AFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639354   (197078) от 13.06.2023
 
 LibFredo6 13.9a for Sketchup 2017-2023 Win (x64) [En]
@@ -58,7 +6,7 @@ LibFredo6 13.9a for Sketchup 2017-2023 Win (x64) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197078.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Reallusion iClone 8.3.1815.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195886.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Reallusion Cartoon Animator 5.01.1121.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195464.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Adobe Substance 3D Designer 13.0.2 build 6942 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194184.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Marvelous Designer 12 Personal 7.2.209.43690 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186154.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ GreyscaleGorilla Plus Hub Plugins for C4D R22-R26 Win 2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180692.jpg" />
 </div>
 
 
@@ -220,7 +168,7 @@ Metasequoia 4.8.6a [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175820.jpg" />
 </div>
 
 
@@ -246,7 +194,7 @@ Room Arranger 10.3.0.735 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173599.jpg" />
 </div>
 
 
@@ -272,7 +220,7 @@ Avanquest Architect 3D Landscape Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173597.jpg" />
 </div>
 
 
@@ -300,7 +248,7 @@ Avanquest Architect 3D Interior Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173596.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173442.jpg" />
 </div>
 
 
@@ -353,7 +301,7 @@ Bookmanager modelplusmodel 2.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171809.jpg" />
 </div>
 
 
@@ -379,7 +327,7 @@ Room Arranger 10.3.0.735 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167349.jpg" />
 </div>
 
 
@@ -405,7 +353,7 @@ ArchvizTools - uPVC Window Generator 1.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165771.jpg" />
 </div>
 
 
@@ -431,7 +379,7 @@ DAZ Studio Pro Edition 4.22.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160338.jpg" />
 </div>
 
 
@@ -457,7 +405,7 @@ V-Ray 6.10.02 for Cinema 4D 2024
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156574.jpg" />
 </div>
 
 
@@ -486,7 +434,7 @@ DesignToolBox 2.4.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156493.jpg" />
 </div>
 
 
@@ -512,7 +460,7 @@ Mandelbulber 2.31.0 + Standalone [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121149.jpg" />
 </div>
 
 
@@ -538,7 +486,7 @@ Structure Studios - VIP3D Suite v3 2023.1.4 by Zmco [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116413.jpg" />
 </div>
 
 
@@ -564,7 +512,7 @@ ZBrush 2024.0.2.22 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115123.jpg" />
 </div>
 
 
@@ -590,7 +538,7 @@ SketchUp Pro 2026 26.0.429 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101634.jpg" />
 </div>
 
 
@@ -616,7 +564,7 @@ Marmoset Toolbag 5.02 (5022) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101631.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ SketchUp Pro 2026 26.0.429 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101594.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ Punch! Professional Home Design Platinum 12.0.2 [English]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87704.jpg" />
 </div>
 
 
@@ -679,6 +627,62 @@ Punch! Professional Home Design Platinum 12.0.2 [English]
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705453   (63516) от 09.03.2024
+
+Reconstruct Subdiv script for Autodesk Maya v1.3 by Nick Barre [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63516.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Reconstruct/Reverse Subdiv" - это скрипт для Maya, который позволяет вернуть модель, с накинутым сабдивом в предыдущее состояние.
+Хотите отредактировать высокополигональную модель, но у вас нет несглаженной версии?
+С помощью Reconstruct Subdiv это не проблема! Получайте низкополигональную модель в любое время!Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8299552D9F982989B3A6BEE54524EBA8F98B990C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707103   (62904) от 15.03.2024
+
+Bondware Poser Pro 13.3.686 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poser - программа трехмерной компьютерной графики, оптимизированная для трехмерного моделирования человеческих фигур. Она известна тем, что позволяет цифровым художникам легко создавать 3D-анимацию и цифровые изображения, а также широкой доступностью цифрового контента сторонних производителей.
+
+С 1995 года Poser является основным программным инструментом для создания (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA66B9BD491A5D5CDB1CDB8867C62244AD7E5CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

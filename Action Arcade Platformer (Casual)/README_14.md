@@ -6,7 +6,7 @@ Chicken Rush Deluxe / Куриная месть. Снова в деле (P) [Ru]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kingdom Chronicles Collectors Edition / Как Джон Непоседа спа�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258631.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257619.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Top Secret Finders / СверхОсобый СпецОтдел (P) [Ru] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256992.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Souldiers (2022) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255031.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Planet of Lana (2023) [Ru/Multi] (1.0.7.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251757.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Live Novels. Jane Austen's: Pride And Prejudice / Джейн Остин. Гор�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251297.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Death Roads: Tournament (2023) [Ru/Multi] (1.0.9.127) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250474.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Knightica (2025) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250336.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250335.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tin Hearts (2023) [Ru/Multi] (1.0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247735.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bread & Fred (2023) [Multi] (1.011) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247726.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Moonscars (2022) [Multi] (1.6.009) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247235.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nocturnal (2023) [Ru/Multi] (1.2.1.747) Repack Let'sРlay [Enhanced Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246318.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Onde (2022) [En] (1.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244231.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Blast Brigade vs. The Evil Legion of Dr. Cread (2022) [Ru/Multi] (1.0.23) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237858.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Blue Fire (2021) [Ru/Multi] (6.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235355.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Nyan Cat: Lost In Space (2015) [En] (1.0.1) Unofficial ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227218.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dariusburst: Chronicle Saviours (2015) [Ru/Multi] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226960.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tunnel of Doom (2021) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224370.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cyjin: The Cyborg Ninja (2021) [Multi] (1.0.0.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216726.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ They Always Run (2021) [Ru/Multi] (1.0.15.920) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216143.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216137.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Tarnishing of Juxtia (2022) [Multi] (1.01) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211545.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cursed to Golf (2022) [Ru/Multi] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210167.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Islets (2022) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209513.jpg" />
 </div>
 
 

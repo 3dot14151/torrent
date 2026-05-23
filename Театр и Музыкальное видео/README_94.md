@@ -1,119 +1,3 @@
-###  Публикация: 949300   (375107) от 24.10.2015
-
-Tubular Bells II Live (1999) DVDRip [hand made 60fps] H.264
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Майкл Олдфилд (Michael Gordon Oldfield) — британский мультиинструменталист и композитор, работающий в самых разнообразных жанрах: прогрессив и арт-рок, электронная музыка, фолк, кельтская музыка. Главным произведением Майка Олдфилда критики считают концептуальный альбом Tubular Bells (кстати, главная тема из фильма Изгоняющий дьявола/The Exorcist), вышедший в 1973 (   Читать дальше...   )01. Introduction
-02. Sentimental
-03. Dark Star
-04. Clear Light(   Читать дальше...   )Жанр: Концерт, Progressive Rock, New Age, Pop/Rock, Electronic, Progressive Pop, Folk Pop, PopПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE88595076F50011B679E8E2B7621489B9353D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 720152   (374410) от 10.11.2013
-
-Сборник клипов - VA - Various Music part. 47 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-1. Agnes - Don't Go Breaking My Heart 720p (3:49)
-2. Ahzee - Born Again 1080p (3:40)
-3. Aircraft & Miss Palmer - Dont Ever Let Go 720p (3:16)
-4. Andreea Balan feat. Sonny Flame - IUBI 1080p (3:20)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796DCD353E5D7DB8FE6B7D0885E7D687E3F49740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949360   (374350) от 24.10.2015
-
-Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Metallica в спортивном комплексе “Олимпийский”. Сыграли для москвичей много нового. Так, прежде ещё ни разу в Белокаменной не исполнялись песни “Ride The Lightning”, “King Nothing”, The Unforgiven”, “Frayed ends of naity”, “Lords Of Summer” и “Whiskey in the Jar”.Американцы отыграли 18 песен, из которых три - “на бис” (среди них, конечно, и “Nothing Else Matters”).Концерт (   Читать дальше...   )01.The Ecstasy of Gold
-02. Fuel
-03. For Whom the Bell Tolls
-04. Battery(   Читать дальше...   )Жанр: Heavy Metal, Trash MetalПродолжительность: 02.20.02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED2478C4AD9F69515D3A5DF87C4BCF0D825F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327326   (374111) от 25.09.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 3 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Вся сила энергия и мощь понастоящему крутой музыки! Это 3я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 3 — Intro
-01. Cinderella — The More Things Change
-02. Van Halen — Don’t Tell Me
-03. 3 Doors Down — Duck & Run(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89118020E59E4514FAA7891C3A0087EE9FE71267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175540   (374069) от 20.10.2017
 
 Сборник клипов - Reggae от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
@@ -122,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374069.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ VA - Viva Music (1996) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373927.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ Madonna: Rebel Heart Tour (2016) BDRip [H.264/720p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373919.jpg" />
 </div>
 
 
@@ -206,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373668.jpg" />
 </div>
 
 
@@ -232,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373060.jpg" />
 </div>
 
 
@@ -261,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372255.jpg" />
 </div>
 
 
@@ -287,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371998.jpg" />
 </div>
 
 
@@ -313,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_371123.jpg" />
 </div>
 
 
@@ -339,7 +223,7 @@ Papa Roach -  Live in Moscow (2015) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370097.jpg" />
 </div>
 
 
@@ -368,7 +252,7 @@ Queen - Live at Wembley Stadium (1986, 12th July) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369969.jpg" />
 </div>
 
 
@@ -397,7 +281,7 @@ The Australian Pink Floyd Show - Live at the Hammersmith Apollo (2011) [1080i] B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_369932.jpg" />
 </div>
 
 
@@ -432,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369690.jpg" />
 </div>
 
 
@@ -461,7 +345,7 @@ AC/DC - Live in Berlin (2015) WEBRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369399.jpg" />
 </div>
 
 
@@ -490,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369383.jpg" />
 </div>
 
 
@@ -519,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369192.jpg" />
 </div>
 
 
@@ -548,7 +432,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369117.jpg" />
 </div>
 
 
@@ -574,7 +458,7 @@ Assorti Creative 50 (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368450.jpg" />
 </div>
 
 
@@ -603,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367924.jpg" />
 </div>
 
 
@@ -634,7 +518,7 @@ DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367907.jpg" />
 </div>
 
 
@@ -660,7 +544,7 @@ Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367808.jpg" />
 </div>
 
 
@@ -686,7 +570,7 @@ VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367786.jpg" />
 </div>
 
 
@@ -712,7 +596,7 @@ Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custo
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366936.jpg" />
 </div>
 
 
@@ -726,6 +610,125 @@ Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE54F697CEA58CB3FA60460A6BFBDAED4447E8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575992   (366309) от 16.11.2012
+
+Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0162E116B62BE3E0CB4CFE25737F42C7737EA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575574   (365576) от 16.11.2012
+
+JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E807D639FB6BCC86C805AE8083F6CC555963D947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950476   (365328) от 28.10.2015
+
+Майя Кристалинская - Золотая коллекция Ретро (2006) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365328.jpg" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлены 25 песен в исполнении Майи Кристалинской с различных концертов и телевизионных передач, охватывающих практически весь творческий путь Великой эстрадной певицы, с середины 60-х по 1985 год.
+Записи предоставлены Гостелерадиофондом.
+Черно-белые кадры концертов раскрашены методом цветного компьютерного тонирования.01. Таёжный вальс (автор музыки Э. Колмановский, автор слов Л. Ошанин)
+02. Всё равно (автор музыки Э. Колмановский, автор слов Л. Ошанин)
+03. Полынь (автор музыки А. Пахмутова, автор слов Р. Рождественский)
+04. Неужели мне одной (автор музыки Г. Портнов, автор слов Ю. Принцев)(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2405033789B3B972E1A1D31BB10992E808C41828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575958   (365146) от 16.11.2012
+
+Coldplay - Live 2012 (2012) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_365146.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Coldplay Live 2012 is the band’s first concert film/live album for nine years. It documents their acclaimed Mylo Xyloto world tour, which has been seen by more than three million people since it began in June 2011. The film was directed by Paul Dugdale, previously responsible for Adele’s Live at the Royal Albert Hall and The Prodigy’s Worlds On Fire concert films. Coldplay Live 2012 includes footage from Coldplay’s shows at Paris’s Stade de France, Montreal’s Bell Centre and the band’s triumphant Pyramid Stage headline performance at Glastonbury 2011.
+«Coldplay Live 2012» — это первый фильм группы за 9 лет, представляющий их новый альбом. Это запись мирового концертного тура «Mylo Xyloto», который с 2011 года собрал более трех миллионов зрителей.01. Mylo Xyloto
+02. Hurts Like Heaven
+03. In My Place
+04. Major Minus
+05. Yellow
+06. Violet Hill
+07. God Put A Smile Upon Your Face
+08. Princess Of China (with Rihanna)
+09. Up In Flames
+10. Viva La Vida(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Island Notes (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051976.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Flushed (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051935.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Chiral (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051934.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Onirism (2025) [Ru/Multi] (Build 21313783) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051624.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Emissary Zero (2025) [Ru/Multi] (1.2.3) Scene Tenoke [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051618.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Isopod: A Webbed Spin-off (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051456.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DREAMOUT (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051356.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Scarred (2025) [Multi] (1.25) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050982.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050795.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050794.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 21053667) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050525.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0332) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050496.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050366.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050210.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The House in Fata Morgana (2016) [Ru/Multi] (1.3it) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049861.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Fuzz Dungeon (2021) [En] (1.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049848.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ JEF (2020) [En] (1.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049833.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049797.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Heroes of Loot 2 (2016) [En] (1.5.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049641.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Panicore (2024) [Ru/Multi] (1.3) Repack FitGirl [Supporter Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049438.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Panicore (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049437.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Uncanny Tales: 1992 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049409.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049395.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049394.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Misty Judgment / 迷雾审判 (2025) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049393.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049375.jpg" />
 </div>
 
 

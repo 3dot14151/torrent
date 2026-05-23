@@ -6,7 +6,7 @@ Orcs Must Die! Dilogy / Дилогия. Бей орков! [Ru/En] (RePack) 2011
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965941.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (Repack) 2012 | R.G. Revenant
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964915.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Dark Sector (2009) [Ru] (1.01/fix-vid) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964225.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.3853173/dlc) SteamRip =nemos= [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963934.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) SteamRip =nemos= [Deluxe Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963892.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962815.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Planet Nomads (2019) [Ru/Multi] (1.0.6.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962802.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Orcs Must Die: Game of The Year Edition [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961087.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Terminator Salvation The Video Game (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960612.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) Repack Other s [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957769.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Resident Evil 0 Remaster / Biohazard 0 HD Remaster (2016) [Ru/Multi] (1.0/dlc) S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956801.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954916.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954803.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Blades of Time / Клинки Времени [Ru] (RePack/u5) 2012 | a1chem1st
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954711.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Brutal Legend [En/Multi5] (L) 2013 | RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954695.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ ENSLAVED Odyssey to the West (2013) [Ru/Multi] (1.0 upd1/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948167.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947674.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Terminator Salvation: The Videogame / Терминатор: Да придёт с
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940817.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Blade & Bones (2016) [Ru/Multi] (1.3) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939498.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ DmC: Devil May Cry [Ru] (Repack/1.0u2/4 DLC) 2013 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934198.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ The Admin (2016) [En] (1.02) License POSTMORTEM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933121.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Disney Infinity Trilogy (2013-2016) [Ru/En] (20161216/dlc) Repack R.G. Меха�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933008.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Bionic Commando (2009) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928419.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928409.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Syphon Filter (1999) [Ru] (1.0) Repack Ma2012ks
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923822.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921937.jpg" />
 </div>
 
 

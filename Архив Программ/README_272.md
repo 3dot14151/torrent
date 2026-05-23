@@ -6,7 +6,7 @@ Mozilla Firefox 44.0.2 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922668.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922592.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SRWare Iron 48.0.2550.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922567.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AdwCleaner 5.035 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922498.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ashampoo ClipFinder HD 2.14 [Eng, Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922497.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ JetBrains RubyMine 2016.3.1 Build #RM-163.9166.34 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922468.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Registry Life 1.26 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922459.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mirillis Action! 4.21.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922458.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ EZ CD Audio Converter 5.1.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922456.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Free Download Manager 5.1.23.5672 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922385.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ MKVToolNix 9.8.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922361.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TriSun WinExt Pro 20.1 Build 082 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922343.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wise Registry Cleaner Pro 9.38.610 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922339.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ LDPlayer 4.0.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922337.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VKMusic 4.69 RePack (& Portable) by Trovel [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922333.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ YTD Video Downloader PRO 5.9.15.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922323.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922322.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Allavsoft Video Downloader Converter 3.22.3.7374 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922312.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ JetBrains CLion 2016.3.2 Build #CL-163.10154.43 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922311.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Portable Opera 11.01 Build 1190 Final Multilingual [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922291.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Wondershare Photo Recovery 2.1.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922287.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ HandBrake 1.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922260.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ KORG - TRITON 1.3.3 STANDALONE, VSTi, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922256.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mirillis Action! 4.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922243.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Opera GX 67.0.3575.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922238.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Slimjet 25.0.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922232.jpg" />
 </div>
 
 

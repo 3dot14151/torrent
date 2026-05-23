@@ -1,135 +1,3 @@
-###  Публикация: 1862074   (1064333) от 28.03.2026
-
-WinScript 2.1.4 + Portable [En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-WinScript — это мощный, простой в использовании и легкий инструмент с открытым исходным кодом, предназначенный для улучшения и персонализации работы с Windows. Он предлагает широкий спектр функций, включая удаление лишних приложений, повышение конфиденциальности, оптимизацию производительности и упрощенную установку приложений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1A67ADB3EEEBE82D968AD6EF5A8EDEE6B545A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862241   (1064273) от 29.03.2026
-
-DISMTools 0.7.3.26032 + Portable [Multi]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-DISMTools — это интерфейс для DISM, позволяющий управлять файлами образов Windows (WIM) и выполнять многие другие функции.Язык интерфейса: Английский и другие (Русского языка нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C08C943E1A4C1AFB73DE11472ADFAE27194CDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862248   (1064268) от 29.03.2026
-
-Wise Duplicate Finder Pro 2.1.9.71 RePack & (Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Wise Duplicate Finder – узкоспециализированная программа, которая предназначается для поиска и удаления дубликатов на вашем ПК.
-Wise Duplicate Finder помогает найти и удалить дубликаты файлов, таким образом, высвободив свободное место. Пользователю после установки программы остаётся лишь в настройках задать нужные параметры и начать сканировать компьютер.
-Давайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1748CBDE2020BCBE12F6295F78F1EE8629750D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862413   (1064165) от 30.03.2026
-
-IObit Driver Booster Pro 13.3.0.229 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41C59B7262053702AEFD9772D3B68ED6599C9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862456   (1064140) от 30.03.2026
-
-Absolute Uninstaller 6.0.1.21 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Absolute Uninstaller – это программа похожая на стандартную утилиту Установку/Удаление программ в Windows, но более мощная. Стандартное приложение установка/удаление программ не может полностью удалить приложения и очень часто оставляет недействительные ключи в реестре, ненужные файлы на жестком диске. Чем больше мусорных файлов на вашем компьютере, тем медленнее (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC9B2AB0F36737062A7420140CF6F79617BCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862473   (1064131) от 30.03.2026
 
 Glary Utilities Pro 6.40.0.44 + Portable [Multi/Ru]
@@ -138,7 +6,7 @@ Glary Utilities Pro 6.40.0.44 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064131.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ Glary Utilities Pro 6.40.0.44 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064107.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ Glary Utilities Pro 6.40.0.44 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064097.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ WindowManager 10.26.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064087.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ Auslogics Registry Cleaner 11.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064042.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ Auslogics Registry Cleaner 11.1.0.1 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064041.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ Auslogics Registry Cleaner 11.1.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064040.jpg" />
 </div>
 
 
@@ -320,7 +188,7 @@ USB Safely Remove 7.3.1.1334 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063990.jpg" />
 </div>
 
 
@@ -346,7 +214,7 @@ Zentimo xStorage Manager 3.3.1.1303 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063988.jpg" />
 </div>
 
 
@@ -372,7 +240,7 @@ USB Safely Remove 7.3.1.1334 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063987.jpg" />
 </div>
 
 
@@ -398,7 +266,7 @@ USB Safely Remove 7.3.1.1334 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063986.jpg" />
 </div>
 
 
@@ -424,7 +292,7 @@ Driver Store Explorer 1.0.26 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063982.jpg" />
 </div>
 
 
@@ -450,7 +318,7 @@ Registry Finder 2.61.1 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063949.jpg" />
 </div>
 
 
@@ -476,7 +344,7 @@ Glary Utilities Pro 6.40.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063929.jpg" />
 </div>
 
 
@@ -502,7 +370,7 @@ R-Wipe & Clean 20.0.2554 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063907.jpg" />
 </div>
 
 
@@ -528,7 +396,7 @@ Wise Care 365 Pro 7.3.5.722 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063832.jpg" />
 </div>
 
 
@@ -554,7 +422,7 @@ Uninstall Tool 3.8.1 Build 5740 RePack (& Portable) by Dodakaedr
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063819.jpg" />
 </div>
 
 
@@ -580,7 +448,7 @@ Privacy Eraser Free 6.28.0 Build 5520 RePack (& Portable) by elchupacabra [Multi
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063806.jpg" />
 </div>
 
 
@@ -607,7 +475,7 @@ ASCOMP Synchredible Pro 9.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063802.jpg" />
 </div>
 
 
@@ -634,7 +502,7 @@ Total Uninstall Pro 7.6.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063769.jpg" />
 </div>
 
 
@@ -660,7 +528,7 @@ Auslogics BoostSpeed 14.1.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063739.jpg" />
 </div>
 
 
@@ -671,6 +539,136 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645DB164107A27E8F9AD9842F9E303DD6AE5AF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863108   (1063714) от 02.04.2026
+
+Auslogics Duplicate File Finder 11.1.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Duplicate File Finder поможет Вам избавиться от ненужных дубликатов. С помощью этой бесплатной программы Вы сможете очистить до 50% дополнительного пространства на жестком диске! Сколько абсолютно одинаковых файлов хранится на Вашем компьютере? Вы, возможно, удивитесь, как много места они занимают. Файлы-дубликаты могут накапливаться вследствие повседневного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC811022C83DD6A1BC02901783D44353ABBA14E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863196   (1063655) от 03.04.2026
+
+PrivaZer Pro 4.0.120.2 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063655.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer – полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6CF0C5E18EC87E937B97C47FD8BC144779F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863305   (1063583) от 03.04.2026
+
+PrivaZer Pro 4.0.120.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063583.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808709041BD2A620EC0AA4DD5DF3F2FD923E3EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863328   (1063561) от 04.04.2026
+
+Ashampoo WinOptimizer 28.00.20 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo WinOptimizer - новая линейка пакета программ, позволяющего оптимизировать операционную систему благодаря ее настройке и очистке. Содержит утилиты для очистки жесткого диска и системного реестра, модуль для защиты личной информации путем поиска и удаления файлов и данных, оставшихся после интернет-cepфингa, утилиту для оптимизации интернет-соединения, модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B051DE892882B2688A7E7D6B841578C8648FADC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863333   (1063558) от 04.04.2026
+
+PrivaZer Pro 4.0.120.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063558.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FA806BB493D8FFB196887E28323215ACB1350D
 ```
 
 https://mybot314.ru/tekegram_catalog/

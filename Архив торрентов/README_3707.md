@@ -6,7 +6,7 @@ Open Server 5.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237618.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ MetaVideo 1.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237612.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ GrandTotal 8.0.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237610.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ djay - DJ App & AI Mixer 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237604.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Mirror for Hisense TV 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237602.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ PixPlant 5.0.41 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237601.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Middle 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237596.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Default Folder X 6.0 a5 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237590.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vivaldi for Android 6.0.2980.26  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237585.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Viber 19.9.0.6 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237570.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ XYplorer 24.40.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237558.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Skype 8.96.0.408 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237555.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ IObit Uninstaller Pro 12.4.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237553.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Mp3tag 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237551.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dynamic Wallpaper 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237550.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Super Vectorizer Pro for Mac 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237541.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Topaz Photo AI 1.3.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237537.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Audacity 3.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237527.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Icecream Ebook Reader Pro 5.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237509.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Icecream PDF Candy Desktop PRO 2.94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237502.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Firefox Browser 112.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237500.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Icecream Video Converter 1.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237493.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Multitouch 1.24.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237487.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ AudioSwitcher 3.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237480.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237476.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ OneCommander Pro 3.43.7.1 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237475.jpg" />
 </div>
 
 

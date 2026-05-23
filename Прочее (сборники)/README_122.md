@@ -6,7 +6,7 @@ VA - 100 Самых Красивых Песен (2018) [MP3|320 Kbps] <Pop, Soul
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406965.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Громкие новинки Октября (2020) [MP3|320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406769.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Клубный хит (2020) [MP3|320 Kbps] <Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406730.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Best 10 Radio Tracks 2012 vol. 1-3 (3CD) (2012) [MP3|196-320 кб/с]<Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406708.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Deep Line (2012) [MP3|320 кб/с]<Relax, Meditation, New Age, Lounge, Chil
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406466.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ VA - Black Music For Sex (2CD) (2009) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406391.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Русский рок - Альтернатива (2012) [MP3|317-320 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406354.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Emotions Vol. 1-4 (2012) [MP3|320 кб/с]<Instrumental, Lounge, Orchestra,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406101.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Maniac Cyberpriest: Synthpop Lives By Various Artist (2017) [MP3|269-320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405041.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - A Song For You Dance Europarty (2017) [MP3|320 Kbps] <Dance, Pop, Shlager>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405038.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - European Dance House (2017) [MP3|254-320 Kbps] <Club, Dance, Electro House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404994.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Three Rooms. Acoustics, Chill, Relax Vol. 1-2 (2012) [MP3|320 кб/с]<Acou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404870.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - 90's Eurodance #3 (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Techno, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403818.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - Top 100 Зайцев.Нет Август (Русский выпуск) (201
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403661.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Empire Records: Classic Disco (2017) [MP3|320 Kbps] <Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403150.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Empire Records - Disco Chill Out (2017) [MP3|320 Kbps] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402469.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Дискотека бездна Exclusive 9000 50/50 (2012) [MP3|128 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402120.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Drum & Bass, Lounge Drive (2013)(3CD) [MP3|320 кб/с]<Drum & Bass>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401713.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - 90's Eurodance #4 (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Techno, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401224.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - The Best Of EDM And House (2017) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397698.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Новая Жажда Скорости (2017) [MP3|320 Kbps] <Dance , Hans 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396623.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Осенний ТОП 100 50+50 (2012) [MP3|256 кб/с]<pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396210.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - Russian рэп. Часть 4 (2012) [MP3|256 кб/с]<рэп>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396144.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ VA - Big Room Electro House October 2017 (2017) [MP3|320 Kbps] <Club, Dance, Ele
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395761.jpg" />
 </div>
 
 
@@ -768,7 +768,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395323.jpg" />
 </div>
 
 
@@ -797,7 +797,7 @@ VA - Музыкальный Топ Интернета (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394997.jpg" />
 </div>
 
 

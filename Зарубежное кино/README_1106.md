@@ -1,55 +1,3 @@
-###  Публикация: 933581   (505124) от 02.09.2015
-
-Любовная ситуация – это непросто / Situation amoureuse: C'est complique (2014) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-30-летний Бен готовится к скорой свадьбе со своей невестой Джульеттой. Однако неожиданное возвращение в Париж его бывшей одноклассницы Ванессы спутывает парню все планы. В юности Бен был влюблен в девушку, но та совершенно игнорировала его. Теперь же ситуация изменилась, и Ванесса совсем не против близких отношений с ним. Решится ли Бен оставить невесту накануне (   Читать дальше...   )Производство: Франция / Canal+ (fr), CinЖанр: мелодрама, комедияРежиссер: Родольф Лога, Маню ПайеАктеры: Маню Пайе, Анаис Демустье, Эммануэль Шрики, Филипп Дюкен, Жан Франсуа Кэйри, Жан-Шарль Клише, Ромейн Леви, Александр СтайгерПеревод: Профессиональный (многоголосый, закадровый) (SDI media)Субтитры: ОтсутствуютФормат: AVIПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F0F41102F8DE54AF2E15A507A4AB15A592838F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933616   (505116) от 02.09.2015
-
-Комната страха №205 / 205 - Zimmer der Angst (2011) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Что произошло в комнате N205? Почему на протяжении года в ней никто не жил? Катрин сильно по этому поводу не заморачивается и поселяется в комнате, а это означает свободу. Свободу от дома, свободу от надоевшего своей опекой отца. Семестр вот-вот начнется, а это значит, что пора повеселиться, завести новых друзей, попасть на вечеринку, переспать с кем-то, и конечно (   Читать дальше...   )Производство: Германия | Neue Schönhauser FilmproduktionЖанр: Ужасы, ДрамаРежиссер: Райнер МацутаниАктеры: Дженнифер Ульрих, Андре Хеннике, Инес Бьёрг Давид, Тино Мевес, Ханс-Уве Бауэр, Флориан Яр, Юлия Дитце, Даниэль Рёснер, Марлен Лозе, Люси Элла фон ШилеПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: ОтсутствуютПродолжительность: 01:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709571C49315975B0A4D70C5A9C67B2A8BB4A013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377961   (505102) от 22.08.2011
 
 Форсаж 5 / Fast Five (2011) [H.264/720p-LQ] BDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505102.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505075.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505069.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505007.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505004.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504952.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504946.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504793.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504738.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504597.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504583.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504582.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504562.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504502.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504494.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504464.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504437.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504417.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504406.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504401.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504389.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504378.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504376.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504370.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC1EE9162D2C732D81F26C07E3F67B610C5AB245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554873   (504365) от 14.07.2022
+
+Энджи / Angie (1994) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на романе 1991 года "Энджи, я говорю" Авры Уинг. Многие жизни похожи друг на друга. И чтобы выйти из замкнутого круга, необходимо настоящее мужество. Энджи узнаёт, что она беременна, и отец ребёнка делает ей предложение. Для женщины за тридцать это великолепный шанс устроить своё будущее. Ведь так поступает большинство, и решение должно прийти (   Читать дальше...   )Производство: США, Caravan Pictures, Hollywood Pictures, Morra, Brezner, Steinberg and Tenenbaum Entertainment (MBST)Жанр: драма, мелодрама, комедияРежиссер: Марта КулиджАктеры: Джина Дэвис, Стивен Ри, Джеймс Гандольфини, Аида Туртурро, Филип Боско, Дженни О’Хара, Майкл Рисполи, Бетти Миллер, Сьюзэн Джаффе, Джереми КоллинзПеревод: профессиональный двухголосый (Видеосервис), авторский (Сергей Визгунов)Субтитры: английскиеПродолжительность: 01:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0FCA8F3496D1E86E214F9C78965687ECD0C87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933926   (504332) от 03.09.2015
+
+Не просто счастливый конец / Not Another Happy Ending (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн Локхарт — успешная писательница — лучше всего она пишет, когда ей плохо. Сейчас она счастлива, и от этого не может написать новый роман, и ее издатель Том решает сделать ее несчастной, чтобы книга была написана.Производство: ВеликобританияЖанр: Мелодрама, КомедияРежиссер: Джон МакКэйАктеры: Карен Гиллан, Стэнли Вебер, Йен де Кестекер, Эми Мэнсон, Кейт Дики, Фрейя Мавор, Джон Бетт, Луиз Гудолл, Гари Льюис, Генри Йен КьюсикПеревод: Многоголосый закадровый, любительскийПродолжительность: 01:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD564FE1A3D17E6F8D974DA11010D0518ED19BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

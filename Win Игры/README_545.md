@@ -1,29 +1,3 @@
-###  Публикация: 1568243   (19636) от 02.05.2025
-
-Scarlet Hollow (2021) [En] (1.2l) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
-</div>
-
-
-###  Подробнее
-
-Scarlet Hollow – приключенческая хоррор-игра, что выделяется на фоне остальных проектов своим уникальным графическим оформлением, созданным вручную на громадных листах для большей детализации. Детище инди-коллектива под названием "Black Tabby Games" сосредоточено на подаче увлекательного сюжета, что раскрывается при помощи большого количества текста, расположенного (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Tabby GamesЖанр: Приключение, Визуальные новеллы, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F432AA10CF2F636F824268A0831232B6727E255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774851   (19631) от 02.05.2025
 
 None Shall Intrude (2025) [Ru/Multi] (1.0.0517) Repack Let'sРlay
@@ -32,7 +6,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.0517) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19631.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19616.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Space Grunts 2 (2019) [En] (2.0.1b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19605.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19593.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Space Grunts (2016) [En] (1.7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19584.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Sports: Renovations (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19544.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19539.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Moroi (2025) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19538.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19537.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3p1_85049/dlc) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19532.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19525.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ theHunter Call of the Wild (2017) [Ru/Multi] (2989309/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19519.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19518.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19516.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Skin Deep (2025) [Ru/Multi] (2025.04.27.1441) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19515.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19514.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Badlands Crew (2025) [Ru/Multi] (30737) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19513.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19505.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19504.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19498.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19487.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Wartales (2021) [Ru/Multi] (1.0.41212/dlc) Repack FitGirl [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19486.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19485.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19484.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ Pocket and Zooom (2025) [Multi] (1.0.1.1841) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19479.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ Pocket and Zooom - это игра-головоломка, где главной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAB5045DC33F71E5684B2616DAB1627C68E80CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781123   (19477) от 03.05.2025
+
+Astral Ascent (2023) [Ru/Multi] (1.10.1/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astral Ascent переносит геймеров в современный фентезийный мир, где все выглядит совершенно не так, как в реальности. Здесь, главные герои оказались заключены в астральную тюрьму под названием Сад. На первый взгляд кажется, что милые лужайки и тропинки не таят в себе ничего опасного, но в действительности это не так. В качестве охранников здесь выступает 12 сильных (   Читать дальше...   )Тип издания: RepackРазработчик: Hibernian WorkshopЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Китайский и другиеЯзык интерфейса: Русский, Английский, Французский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91999182001431ACBEE0D5DE3E1884833F888D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

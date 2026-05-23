@@ -1,57 +1,3 @@
-###  Публикация: 430517   (993569) от 02.01.2012
-
-Не отпускай меня / Never Let Me Go (2010) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Троица главных героев выросла в интернате и была лишена любого контакта с окружающим миром. Но со временем друзья узнают, что они на самом деле — клоны, выращиваемые для донорства органов.Жанр: Триллер, Драма, ФантастикаРежиссер: Марк РоманекАктеры: Кира Найтли, Кэри Маллиган, Эндрю Гарфилд, Иззи Мейкл-Смолл, Чарли Роу, Элла Пурнелла, Шарлотта Рэмплинг, Салли Хокинс, Кейт Боуc Ренна, Ханна Шарп.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC70D6231F1A3625D0AD12EC3DCCCD471770B5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430414   (993485) от 02.01.2012
-
-Бобро Поржаловать / Bienvenue chez les Ch'tis (2008) [H.264/720p-LQ] BDRip
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Филипп Абрамс, начальник почтового отделения на юге Франции в Салон-де-Прованс делает всё для того, чтобы быть переведённым по службе в Кассис, райский уголок близ Марселя. Однако все его старания и мечты идут крахом, когда за мелкое служебное нарушение он получает дисциплинарный перевод на два года в Берг на Севере, близ Дюнкерка.
-
-Для людей с Юга Франции, наполненных (   Читать дальше...   )Жанр: КомедияРежиссер: Дэни БунАктеры: Кад Мерад, Дэни Бун, Зоэ Феликс, Лоренцо Аусилия-Форет, Энн Маривин, Филипп Дюкен, Гай Леклюиз, Лайн РеноПеревод: ДублированныйПродолжительность: 01:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF19E41AAACCA33D02C5A27DEA71B24D4D4D34B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430589   (993480) от 02.01.2012
 
 Экзамен / Exam (2009) [H.264/720p-LQ] BDRip
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993480.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993121.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993112.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993111.jpg" />
 </div>
 
 
@@ -165,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993053.jpg" />
 </div>
 
 
@@ -191,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993041.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993036.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993034.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993031.jpg" />
 </div>
 
 
@@ -295,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993029.jpg" />
 </div>
 
 
@@ -321,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992991.jpg" />
 </div>
 
 
@@ -347,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992960.jpg" />
 </div>
 
 
@@ -373,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992951.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992488.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992486.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992385.jpg" />
 </div>
 
 
@@ -478,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992384.jpg" />
 </div>
 
 
@@ -504,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992379.jpg" />
 </div>
 
 
@@ -530,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992376.jpg" />
 </div>
 
 
@@ -556,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992374.jpg" />
 </div>
 
 
@@ -582,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992324.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992234.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991846.jpg" />
 </div>
 
 
@@ -662,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991793.jpg" />
 </div>
 
 
@@ -673,6 +619,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F7722B8A1B3ED81E4A9912A33476C2173586B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609691   (991674) от 27.01.2013
+
+Проклятый путь / Road to Perdition (2002) [1080p] Blu-ray
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чикаго времен Великой депрессии. Два сына — Майкл Салливан-младший и Коннор Руни отчаянно стараются завоевать расположение своих отцов — Майкла Салливана-старшего, гангстера из ирландского клана, и Джона Руни, босса Салливана-старшего, заменившего ему отца. Ревность и соперничество толкают их всех на гибельный путь.
+Семья Салливана-старшего становится жертвой страшной «профессии» главы семейства. Погибают его любимая жена и младший сын Питер. Месть и трагедия становятся постоянными спутниками Майкла и его оставшегося в живых сына…Жанр: Триллер, Драма, КриминалРежиссер: Сэм МендесАктеры: Том Хэнкс, Тайлер Хэклин, Пол Ньюман, Джуд Лоу, Дэниэл Крэйг, Дженнифер Джейсон Ли, Лиам Эйкен, Киаран Хиндс, Дилан Бейкер, Стэнли ТуччиПеревод: ДублированныйЯзык субтитров: Английский, Португальский, Испанский, Русский, Эстонский, Латвийский, Литовский, Арабский, Китайский, Хинди, Тамил, Телугу, Индонезийский, Казахский, Корейский, Малайский, Украинский, ЯпонскийПродолжительность: 01:56:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856830   (991575) от 18.01.2020
+
+Ничья земля / No Man's Land (2001) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взвод боснийских солдат заблудился в ночном тумане и к утру, к ужасу своему, обнаружил, что оказался прямо перед сербской передовой, под огнем противника.
+После завязавшегося скорого, но жестокого боя, в траншее на нейтральной полосе оказались три раненых — серб и два боснийца. Один из боснийцев лежит на мине: если попытаться снять его с этой адской машины — она (   Читать дальше...   )Производство: Босния-Герцеговина, Франция, Словения, Италия, Великобритания, Бельгия | British Screen Productions, CasablancaЖанр: Драма, ВоенныйРежиссер: Данис ТановичАктеры: Бранко Джурич, Рене Битораяц, Филип Шовагович, Жорж Сиатидис, Серж-Анри Вальке, Саша Кремер, Ален Элуа, Мустафа Надаревич, Богдан Диклич, Саймон КэллоуПеревод: Профессиональный двухголосый (Cinema Prestige), Профессиональный многоголосый (Карусель)Субтитры: РусскиеПродолжительность: 01:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37217E6CAE97B85EC9A96EEA6CA080B9E56E2F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

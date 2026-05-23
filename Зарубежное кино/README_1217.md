@@ -1,57 +1,3 @@
-###  Публикация: 1571138   (435890) от 20.08.2022
-
-Чародей и Белая змея / Bai she chuan shuo / The Sorcerer and the White Snake (2011) BDRemux [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Фильм основывается на легенде о Белой Змее, которая хвалит смелую любовь, между змеиным духом Бай Сужен и ее мужем-человеком Сю Сяном.
-Колдун Фахай изображен монахом, который верит, что любой демон это зло. Его вера приводит к тому, что он разрушает семью Бай Сужен и Сю Сяна.
-Шенг Хуанг исполнит роль змеи, а Рэймонд Лам ее мужа. Актриса Шарлин Чой играет зеленую (   Читать дальше...   )Производство: Гонконг, Китай / Juli Entertainment MediaЖанр: фэнтези, боевикРежиссер: Тони ЧинАктеры: Джет Ли, Ева Хуан, Рэймонд Лам, Чарлин Чой, Вэнь Чжан, Вивиан Сюй, Мириам Юн, Лау Ка-Ин, Лам Сует, Чэпман ТоПеревод: Любительский двухголосый (GREEN TEA)Субтитры: Английские, китайскиеПродолжительность: 01:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79376922D177D744BA53912438D6707DAD5CCEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554085   (435883) от 01.10.2012
-
-Ограбление по-бельгийски / Il etait une fois, une fois (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Сексуальная блондинка Сесиль — девушка с богатым криминальным прошлым, находится в поисках нового «дела». Очередная жертва не заставляет себя долго ждать — мошенница положила глаз на наследного бельгийского принца Вилли, который проживает в шикарном пятизвездочном отеле в Париже. Но авантюристка сама становится жертвой обмана, зато теперь все козыри в ее руках, и с помощью шантажа Сесиль добьется своего!Жанр: КомедияРежиссер: Кристиан Маррет-ПальмарПродюсер: Доминик Фарруджия, Доминик Бруннер, Женевьева ЛемальАктеры: Франсуа-Ксавье Демезон, Энн Маривин, Жан-Люк Кучар, Чарли Дюпон, Абделхафид Металси, Дидье Фламан, Ксавьер Лемэтр, Стефан Войтович, Джонатан КоэнПеревод: Многоголосый закадровый, профессиональный |Продолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7E39062AFA921442065231A5E8EC727FF63E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409614   (435796) от 21.09.2020
 
 Поезд в Пусан / Busanhaeng (2016) Blu-ray [H.264/1080p] [RUS Transfer]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435796.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435791.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435789.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435664.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435650.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435510.jpg" />
 </div>
 
 
@@ -217,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435500.jpg" />
 </div>
 
 
@@ -243,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435482.jpg" />
 </div>
 
 
@@ -269,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435479.jpg" />
 </div>
 
 
@@ -296,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435476.jpg" />
 </div>
 
 
@@ -322,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435344.jpg" />
 </div>
 
 
@@ -348,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435340.jpg" />
 </div>
 
 
@@ -374,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435338.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435337.jpg" />
 </div>
 
 
@@ -426,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435334.jpg" />
 </div>
 
 
@@ -452,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435295.jpg" />
 </div>
 
 
@@ -479,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435288.jpg" />
 </div>
 
 
@@ -505,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435269.jpg" />
 </div>
 
 
@@ -531,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435266.jpg" />
 </div>
 
 
@@ -557,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435263.jpg" />
 </div>
 
 
@@ -583,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435253.jpg" />
 </div>
 
 
@@ -609,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435249.jpg" />
 </div>
 
 
@@ -635,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435126.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435100.jpg" />
 </div>
 
 
@@ -673,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37EB833BE00FCD90EE2CDEDEE9F89C4D22C9AEED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371737   (435098) от 04.09.2019
+
+Поварское Кунг-фу / Gong fu chu shen / Kung fu Chefs (2009) BDRip [H.264/720p] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435098.jpg" />
+</div>
+
+
+###  Подробнее
+
+История традиционной китайской культуры длинна и обширна. Китайская кухня столь красочна и многогранна. Деревенский повар Вонг Е обучает молодого Чена Кинга, для поединка с главным поваром в Имперском дворце, за звание старшего повара.Производство: Китай / My Way Film Co, Brilliant Emperor ProductionЖанр: Боевик, КомедияРежиссер: Уинг Кин ЙипАктеры: Саммо Хунг, Черрие Йинг, Аи Каго, Сю-Вонг Фан, Барби Хсю,  Кам-Бо, Тимми Хунг, Лам Чи Чунг, Сю-Люн ЛюнПеревод: Двухголосый закадровый, профессиональныйСубтитры: английскиеПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33190E2339250905F1EC2CB088EADE986C709B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323404   (435095) от 04.09.2019
+
+Возвращение героя / The Last Stand (2013) BDRip [H.265/1080p-LQ] [10-bit] [US Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый опасный и жестокий наркоторговец сбегает из-под конвоя ФБР, и прихватив заложника, мчится на спорткаре к мексиканской границе. У него на пути стоит лишь тихий городок, за порядком в котором следит шериф Оуенс. Когда-то он был одним из лучших полицейских Лос-Анджелеса, но сбежал в глушь и тишину от уродств большого города. И теперь шериф Оуэнс — последний заслон (   Читать дальше...   )Производство: США / Di Bonaventura PicturesЖанр: боевик, триллерРежиссер: Ким Джи-унАктеры: Арнольд Шварценеггер, Форест Уитакер, Джонни Ноксвил, Родриго Санторо, Джейми Александер, Луис Гусман, Эдуардо Норьега, Петер Стормаре, Зак Гилфорд, Дженезис РодригезПеревод: Дублированный, авторский одноголосыйСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47CB1CC3F92697C2A68565C7C5F2606BF22C59D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,57 +1,3 @@
-###  Публикация: 852220   (220804) от 22.12.2014
-
-Мой кузен Винни / My Cousin Vinny (1992) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-На первый взгляд адвокат Винсент Гамбини ни чем не отличается от лучших представителей этой славной профессии: вызывает доверие, прекрасно держится и знаком с терминологией. Он берется защищать двух невиновных подростков, обвиненных в убийстве. Но обстоятельства против него: прежде Винни ни разу не брался за уголовные дела. Более того, он никогда не выступал в суде. Кроме этого, он недавно сдал последний экзамен, открывающий ему путь в профессию – с шестого захода. А с другой стороны – Винни действительно не (   Читать дальше...   )Жанр: Комедия, КриминалРежиссер: Джонатан ЛиннАктеры: Джо Пеши, Мариса Томей, Ральф Маккио, Митчелл Уайтфилд, Фред Гуинн, Лейн Смит, Остин Пендлтон, Брюс МакГилл, Мори Чайкин,  Полин Майерс, Рэйнор Шайне, Джеймс Ребхорн, Лу Уокер, Дж. Дон Фергюсон, Майкл Женевье, Сьюзи Басс, Кенни Джонс, Билл КоутсПеревод: Многоголосый закадровыйПродолжительность: 01:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A5EA591173156C34ACB9E4A79645FA6D54F170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509059   (220754) от 01.12.2021
-
-Астерикс на Олимпийских играх / Asterix aux jeux olympiques / Asterix at the Olympic Games (2008) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-50 лет до Рождества Христова. Вся Галлия под властью Римской Империи. Но не стоит огорчаться: одна деревня продолжает героическое сопротивление. Ведь ее жители уверены в собственной непобедимости.
-
-Уже несколько месяцев сердце Полюбвикса бьется только ради греческой принцессы Ирины. Но, увы, он не единственный претендент на ее руку. Большая политика предназначила (   Читать дальше...   )Производство: Франция, Германия, Испания, Италия, Бельгия / Pathé Renn Productions, La Petite Reine, TF1 Films ProductionЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Фредерик Форестье, Тома ЛангманнАктеры: Жерар Депардье, Кловис Корнийяк, Бенуа Пульворд, Ален Делон, Ванесса Эсслер, Франк Дубоск, Хосе Гарсиа, Стефан Руссо, Жан-Пьер Кассель, Эли СемунПеревод: ДублированныйСубтитры: русские (Forced, Full), английские, французскиеПродолжительность: 01:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EEB73C17FA74632CD83CCB393AE64182D9A2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269163   (220735) от 14.12.2018
 
 Захочу и соскочу / Smetto quando voglio (2014) BDRip [H.264/720p]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220735.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220731.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220674.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220645.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220620.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220619.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220609.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220584.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220582.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220559.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220542.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220523.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220501.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220483.jpg" />
 </div>
 
 
@@ -424,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220437.jpg" />
 </div>
 
 
@@ -450,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220406.jpg" />
 </div>
 
 
@@ -476,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220374.jpg" />
 </div>
 
 
@@ -502,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220357.jpg" />
 </div>
 
 
@@ -528,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220330.jpg" />
 </div>
 
 
@@ -554,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220324.jpg" />
 </div>
 
 
@@ -580,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220296.jpg" />
 </div>
 
 
@@ -606,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220248.jpg" />
 </div>
 
 
@@ -632,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220222.jpg" />
 </div>
 
 
@@ -658,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220221.jpg" />
 </div>
 
 
@@ -669,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E518A0C3764B9BDF54C01AEF749C289C891303E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419868   (220147) от 21.11.2020
+
+Ноттинг Хилл / Notting Hill (1999) WEB-DL [H.264/1080p] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220147.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о скромном владельце книжного магазина в Ноттинг Хилл (один из районов Лондона), жизнь которого резко меняется после того, как однажды кинозвезда заходит к нему в маленький книжный магазинчик, чтобы купить путеводитель...Производство: США, Великобритания / Bookshop Productions, Notting Hill Pictures, PolyGram Filmed Entertainment, Working Title FilmsЖанр: Драма, мелодрама, комедияРежиссер: Роджер МишеллАктеры: Джулия Робертс, Хью Грант, Ричард МакКейб, Рис Иванс, Джеймс Дрейфус, Дилан Моран, Роджер Фрост, Генри Гудман, Джулиан Райнд-Татт, Лорелей КингПеревод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331324020EA84D4C4978DACE79585C68864625C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966331   (220135) от 17.12.2015
+
+Уиджи: Доска Дьявола / Ouija (2014) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания друзей вынуждена столкнуться с их самыми страшными кошмарами, после того, как пробуждает темные силы с помощью спиритической доски.Производство: США, Platinum Dunes / Blumhouse Productions / HasbroЖанр: УжасыРежиссер: Стайлз УайтАктеры: Оливия Кук, Ана Кото, Дарен Кагасофф, Бьянка А. Сантос, Дуглас Смит, Шелли Хенниг, Сьерра Хойерманн, Санни Мэй Эллисон, Лин Шэй, Клаудия КацПеревод: ДублированныйЯзык субтитров: Русский (Forced), Русский, Английский, Английский (SDH), Французкий, Испанский, ВьетнамскийПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740722D7D8E19F1C8E2AABCBC71A6FB2688FD3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

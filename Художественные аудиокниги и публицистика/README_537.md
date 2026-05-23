@@ -1,81 +1,3 @@
-###  Публикация: 1161441   (467218) от 28.08.2017
-
-Елена Михалкова | Расследования Макара Илюшина и Сергея Бабкина (Книга 21). Закрой дверь за совой (2017) [MP3, Елена Дельвер]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новый захватывающий детектив от мастера современной остросюжетной прозы Елены Михалковой! Не станет ли жертвой сам птицелов? Человек вышел из дома – и пропал. Растворился в пространстве. Обычная история для большого города, где нет бдительных бабушек на лавочке, а дети предпочитают смотреть в гаджеты, а не по сторонам. Да и что за беда, если исчез старый мошенник (   Читать дальше...   )Жанр: ДетективПродолжительность: 11:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA14DF0B5C7DA7A8F04BFF9FEB7BD4E7A87F1414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161201   (467210) от 28.08.2017
-
-Стивен Кинг | Кристина (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Это была любовь с первого взгляда. Когда семнадцатилетний Арни увидел Кристину, он понял: они должны принадлежать друг другу. Однако остальные не разделяли его восторга. Лучший друг Деннис сразу же проникся к Кристине недоверием. Подружка, первая школьная красавица, ревновала Арни к Кристине и боялась ее. Но вскоре и близкие, и враги Арни поймут, что случается, если (   Читать дальше...   )Жанр: Ужасы, мистикаПродолжительность: 21:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30036D7FC32472C9A042548E8BDA0B400C2DE833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161436   (467206) от 28.08.2017
-
-Николай Свечин | Сыщик Его Величества (Книга 17). Тифлис 1904 (2017) [MP3, Евгений Покрамович]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Новый роман «Тифлис 1904» от модного автора ретро-детективов Николая Свечина. Полиция давно подозревала, что где-то на окраине империи существует особое преступное предприятие, помогающее бандитам отмывать меченые деньги и ценные бумаги. «Большая постирочная» – так называли его сыщики. Как только у Департамента полиции появилась ниточка, ведущая в Тифлис, Лыков выехал (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84EA277BEDFEED3C6ED2FD569AB73D7D17F2284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161448   (467202) от 28.08.2017
 
 Антон Чиж | Родион Ванзаров (Книга 3). Аромат крови (2017) [MP3, Иван Шевелёв]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467202.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467132.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467129.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ Dazarat | Мастерская Историй [Миф о владыке мира
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467125.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467102.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466929.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466754.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466743.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466568.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466547.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466419.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466323.jpg" />
 </div>
 
 
@@ -403,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466054.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466035.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466034.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466010.jpg" />
 </div>
 
 
@@ -510,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466007.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466005.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466004.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465917.jpg" />
 </div>
 
 
@@ -615,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465905.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465903.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465874.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37EC484F73C1732FE89B5F9D1BAC17B74510BD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277086   (465772) от 02.10.2016
+
+Филип Дик | Человек в высоком замке (2007) [MP3, DM (Максим Доронин)]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премия "Хьюго" за лучший научно-фантастический роман. Вторая мировая война завершилась победой Германии и Японии. Европа захвачена немцами, США разделены между странами-победительницами - такова экспозиция романа Ф. Дика "Человек в высоком замке". Однако внутри романа существует еще один роман: некий писатель-анахорет, «Человек в высоком замке», (   Читать дальше...   )Жанр: Фантастика, альтернативная историяПродолжительность: 08:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE79B8832CB4D73C3090F7C88AAF92AE99622E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161689   (465645) от 29.08.2017
+
+Иван Бунин | Грамматика любви (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465645.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рассказе «Грамматика любви» подчеркивается, что любовь — великая ценность. Она возвышенна, чиста и целомудренна. Но картину семейного благополучия, как часто это бывает у И. Бунина, читатель не увидит, потому что человек может испытать счастье лишь на мгновение, но это мгновение останется в душе на всю жизнь.Жанр: Классика, рассказПродолжительность: 00:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E496F5CE562B578F5D0F13BE74577F81AC0847F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321036   (465391) от 21.08.2019
+
+Мишель Бюсси | Помнишь ли ты, Анаис? (2019) [MP3, Алексей Багдасаров, Марина Лисовец]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре детективные повести с легким готическим оттенком от мэтра детективного жанра. Каждая из этих ироничных, теплых и уютных историй удивляет своим внезапным и совершенно неожиданным финалом. Ариана поселилась в этом домике у моря, чтобы вместе с трехлетней дочерью начать новую жизнь. Ее бегство из Парижа слишком напоминает другое – случившееся более ста лет назад, (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A940CFF45BF95ACEB3B41EF3F0EDF522277E2218
 ```
 
 https://mybot314.ru/tekegram_catalog/

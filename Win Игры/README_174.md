@@ -1,29 +1,3 @@
-###  Публикация: 509209   (676645) от 11.06.2012
-
-Blacked out / Жуть (L) [Ru] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Там, где мир живых людей соприкасается с миром призраков, реальность более не поддаётся логике и привычному ходу вещей. Наши мысли, сильные желания, истинные порывы порой способны становиться неуправляемыми. Если для реализации своих намерений человек готов заключить сделку с колдовским миром, не один он будет отвечать за эту ошибку, но и все те, кто повстречает его на своём жизненном пути. Все эти люди попадут в мир проклятых, мир отверженных и отчаявшихся. Эта история поведает вам об узниках заколдованных картин, нарисованных сумасшедшим художником и обрёкшим их на вечное скитание между миром реальным и миром призрачным. В моменты соприкосновения этих миров вы можете разговаривать с духами. Каждая картина уникальна и опасна, так как для освобождения её духа требуется самому пройти в потусторонний мир и найти разгадку. Проклятые души коварны, и художник будет оберегать свои творения. Если вы достаточно смелы, чтобы бросить вызов колдовским силам, сделайте лишь шаг, и вы окажетесь в доме проклятого художника. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: NevosoftЖанр: Казуальная, Квест, Логическая, Я ищуЯзык озвучки: Русский (официальная версия)Язык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219EF794B58D70DF45F87791D853C7AED197D5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136121   (676484) от 21.05.2017
 
 Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
@@ -32,7 +6,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676484.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Stardew Valley (2016) [Ru/Multi] (1.2.30) SteamRip R.G. Origins
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676474.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Dark Parables: Curse of Briar Rose / Темные предания. Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676362.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Bridge to Another World 6: Gulliver Syndrome (2019) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676309.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Laundering Simulator: Clean Cash and Laundry (2025) [Ru/Multi] (1.0) Repack FitG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676233.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Blacked Out / Жуть (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676226.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition / Проклятый о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676213.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676178.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ Submerged: Hidden Depths (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676144.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ I Am Alive (2012) [Ru/Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676072.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ illWill (2023) [Ru/Multi] (1.11) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_676066.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ GIGASWORD (2025) [Ru/Multi] (1.0.0) Repack Other s [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675930.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (1.0.6e-fix/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675929.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ The Legacy (2025) [Ru/Multi] (0.5206) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675928.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Action Legion (2016) [En] (1.2.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675778.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675748.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/Multi] (1.94/dlc) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675744.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.70/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675740.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675703.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675699.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ SolSuite Solitaire 2016 (2016) [Ru/En] (16.6) Repack KpoJIuK
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675693.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (24360) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675651.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ MechoEcho (2016) [En] (1.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675649.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Conflict: Anthology / Конфликт: Антология (2002-2008) [Ru]  Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674865.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Bio Inc. Redemption (2017) [Ru/Multi] (0.90) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674217.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ Bio Inc.: Redemption это сложный биомедицинский симу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C94960C8DF66C4F218B73F16FF952747E927E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509307   (674123) от 12.06.2012
+
+Bang Bang Racing (RePack/1.0) [Multi5\-] 2012 | VANSIK
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bang Bang Racing - веселая, насыщенная постоянным экшеном гоночная игра с множеством замечательных графических эффектов и прокаченных спорт-каров. За игрушечной графикой, скрывается горячее сердце настоящей труёвой гонки. Динамическая обработка физических эффектов добавляет в игру значение мастерства - проход поворотов в заносе и срезание траекторий доставит массу удовольствия любому игроку. (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3D / Top-downЯзык озвучки: АнглийскийЯзык интерфейса: Aнглийский, немецкий, французский, итальянский, испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F650926BAB859498E98B433B97CE280F9E29328
 ```
 
 https://mybot314.ru/tekegram_catalog/

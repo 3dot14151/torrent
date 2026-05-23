@@ -6,7 +6,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724851.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724706.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dororon Enma-kun: Meeramera | Ghastly Prince Enma Burning Up | Доророн Е
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724574.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Hakkenden: Touhou Hakken Ibun / Хаккенден: Легенда о восьм
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723974.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Angelic Layer / Арена Ангелов [2001, 26 эпизодов] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722634.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722610.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Tantei wa Mou, Shindeiru. | The Detective Is Already Dead | Детектив у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722607.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722596.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Soukou Kihei Votoms: The Last Red Shoulder / Armored Trooper Votoms: The Last Re
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721559.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13] WEBrip 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720907.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Solty Rei / Солти Рэй [2005, TV, 24 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720738.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ M3: Sono Kuroki Hagane | M3 The Dark Metal | M3: Чёрная сталь [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720434.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Jinsei Soudan TV Animation / Jinsei / La Bonne Vie / Советы по жизн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720432.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Solty Rei Extra Episode / Солти Рэй спешл [2005] DVDRip 396p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718544.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Hayate no Gotoku! / Hayate the Combat Butler / Хаятэ, боевой двор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718352.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Valkyrie Drive: Mermaid | Сила Валькирии: Русалочка [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717354.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Gangsta. | Бандиты [2015, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716858.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Hakubo | Twilight | Сумерки [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716857.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716589.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ore Monogatari!! | My Love Story!! | Моя история! [2015, TV, 24] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716410.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Katsugeki Shoujo Tanteidan / Команда боевых девушек-дете
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716408.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Ookami Shoujo to Kuro Ouji | Wolf Girl and Black Prince | Волчица и Чё
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716332.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Photon / Photon - The Idiot Adventure / Фотон: Приключения ид�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715299.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Soukou Kihei Votoms: Yabou no Roots / Armored Trooper Votoms: Red Shoulder Docum
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715171.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Detatoko Princess | Внезапно принцесса [1997, OVA, 3 из 3] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715169.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Soukou Kihei Votoms: Gen-ei Hen / Armored Trooper Votoms: Phantom Arc / Брон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715166.jpg" />
 </div>
 
 

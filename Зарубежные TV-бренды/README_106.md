@@ -1,29 +1,3 @@
-###  Публикация: 1341609   (219451) от 05.12.2019
-
-Затерянные города с Альбертом Лином / Lost Cities with Albert Lin (2019) HDTV [H.264/1080i-LQ] (серии 6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Используя проникающий в землю радар, LiDar и 3D-сканирование, Альберт Лин будет работать с археологами, чтобы обнаружить и воссоздать неизведанные миры, все еще скрытые под землей.Производство: США, Arrow Media, Blakeway Productions, National Geographic ChannelЖанр: Документальный, история, исследованияРежиссер: Ренни БарлеттПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FD5BBF706E85A9A2B037E334C38F0D804CAC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269665   (219167) от 15.12.2018
 
 NG: Суперсооружения. Корейская Супермагистраль / MegaStructures. Korean Superlink (2011) HDTV [H.264/1080i-LQ]
@@ -32,7 +6,7 @@ NG: Суперсооружения. Корейская Супермагистр�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219167.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219090.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218729.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ NGW: Зов малыша белухи / Call of the Baby Beluga (2016) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217814.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Discovery. Османы и христиане: Битва за Европу / Ot
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217775.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217738.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ NG: От Парижа до Питтсбурга / Paris to Pittsburgh (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217659.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217608.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217361.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2015) HDTV 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217306.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Discovery: Я не должен был выжить / I Shouldn't Be Alive (2005
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217276.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ NG: Инстинкт выживания. Экстремальные джунгл
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217213.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216934.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ NG. Тутанхамон: Цветная Версия / King Tut In Colour (2020
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216385.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215931.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Discovery: Разрушители легенд. Челюсти: месть / Myt
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215930.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215134.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ National Geographic. Взлом системы / Hacking the System (2014) IPTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214854.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214209.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Discovery. История Пластика / The Story of Plastic (2019) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214168.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214041.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213916.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ Discovery. Люди, которые продали Кубок Мира / The Men
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213393.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213207.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212938.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F13533DAAEC2809EF168299CB072B98458460A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565853   (211932) от 26.07.2022
+
+NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал показывает захватывающие дух пейзажи и дикую природу Америки, у которой уникальная география. Рассказывает Майкл Б. Джордан.Производство: США / National Geographic, Disney+Жанр: Документальный, приключения, природаРежиссер: Tom StephensПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE43980BC97B24ADDDC29D5B2434848792629F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

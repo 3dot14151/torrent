@@ -6,7 +6,7 @@ Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471909.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471884.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471751.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471309.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471248.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470521.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470506.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469966.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469895.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469888.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469547.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469389.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468859.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468832.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468156.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|t
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468155.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467787.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467670.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467669.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467658.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467372.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная ауди
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466764.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466746.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466398.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466396.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466395.jpg" />
 </div>
 
 

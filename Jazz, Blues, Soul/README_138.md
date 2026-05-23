@@ -6,7 +6,7 @@ Harlis Sweetwater - Holler Stomp & Growl (2017) [FLAC|Lossless|WEB-DL|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786175.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Otis Rush - Any Place I'm Going (1998) [FLAC|Lossless|image + .cue] <Blues, Funk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786172.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Pizzarelli - John Pizzarelli Meets The Beatles (1998) 1999, BMG Japan [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786169.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Mayall - Talk About That (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786145.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Devon Coyote - The Wind (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786143.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Naughty Blokes - We Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <British Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785970.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Pee Wee Crayton - Things I Used To Do (1971) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785963.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Keb' Mo' - Bluesamericana (2014) [FLAC|Lossless|image + .cue] <Modern Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785940.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785844.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Valery Ponomarev - The Messenger (2001) Reservoir [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785843.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Johnnie Pate Trio - Complete Recordings 1955-1956 (2013) Fresh Sound Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785842.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Lou Donaldson - The Righteous Reed! The Best Of Poppa Lou (1967 - 1973) 1994, EM
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785840.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Chet Baker Quartet - Jazz At Ann Arbor (1954) 2002, Toshiba [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785829.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Eric Alexander Trio - Just One Of Those Things (2016) Venus Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785828.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Camera Soul - 3 Album (2013 - 2017) [FLAC|Lossless|image + .cue] <Jazz-Pop, Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785820.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Wynton Marsalis - Standard Time Vol. 3 (The Resolution Of Romance) (1990) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785818.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Storm Warning - Something Real (2008) [APE|Lossless|image + .cue] <Blues Rock, E
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785816.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Storm Warning - Breaking Out (2005) [APE|Lossless|image + .cue] <Blues Rock, Ele
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785814.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ John Abercrombie, Ralph Towner - Sargasso Sea (1976) [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785813.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Bunny Brunel & Friends - Bass Ball (2017) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785811.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Jay Jesse Johnson - Set The Blues On Fire (2015) [FLAC|Lossless|image + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785810.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Joey Gilmore - Brandon's Blues (2015) [FLAC|Lossless|image + .cue] <Chicago Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785805.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ The Hot 8 Brass Band - On the Spot (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785791.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Timeless Piano Instrumental: Smooth Jazz Collection (2017) [MP3|320 Kbps] <
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785788.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ The Blues Cousins (Блюз Казнс) - Дождь (1999) [APE|Lossless|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785777.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Richard Bennett - Contrary Cocktail (2015) [FLAC|Lossless|image + .cue] <Instrum
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785668.jpg" />
 </div>
 
 

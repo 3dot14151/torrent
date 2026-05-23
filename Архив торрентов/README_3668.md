@@ -6,7 +6,7 @@ Microsoft PowerToys 0.69.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242227.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Complete Internet Repair 8.1.3.5219 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242225.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ OCCT 12.0.0.b5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242223.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wattagio 1.8 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242219.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VueScan Pro 9.7.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242216.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ File Cabinet Pro 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242205.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Translatium 11.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242204.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Topaz Video AI 3.2.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242198.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Opera 97.0.4719.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242182.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ StaxRip 2.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242179.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Hookshot 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242164.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MediaInfoXP 2.45 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242158.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Emotions (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242155.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Private Room - The Winter Lounge Session (2016) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242143.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Perfectly Clear WorkBench 4.4.0.2473 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242140.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Christopher Lawrence - Un-Hooked: The Hook Sessions (2004) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242139.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ GoodNotes 5 v5.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242137.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ AIMP 5.11 Build 2428 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242134.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ StartAllBack 3.5.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242132.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Mariana Bo - Live @ Que Se Arme Fest, Mexico 2020-03-31 [MP3|320 Kbps] <House, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242130.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Revo Uninstaller Pro 4.5.5 (+ Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242129.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ AutoPrompt 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242128.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ File & Image Uploader 8.3.1 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242123.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mandelbulber 2.29.0 + Standalone [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242121.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ MacCleaner 2 PRO 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242116.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ MassTube Plus 16.5.4.659 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242115.jpg" />
 </div>
 
 

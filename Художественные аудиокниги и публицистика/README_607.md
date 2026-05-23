@@ -1,81 +1,3 @@
-###  Публикация: 1418399   (349098) от 24.10.2020
-
-Эрик Хобсбаум | Эпоха крайностей. Короткий двадцатый век (1914–1991) (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-«Короткий XX век», по мнению Хобсбаума, сделавшего термин общеупотребимым, – это период с 1914 по 1991 год, то есть с начала Первой мировой войны и до распада Советского Союза. Все основные и самые значимые события XX века уложились именно в этот временной отрезок, сделав его одним из самых насыщенных, сложных и неоднозначных во всей мировой истории. Здесь, с одной (   Читать дальше...   )Жанр: Зарубежная публицистика, Новейшая история, Популярно об историиПродолжительность: 33:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C1FD6C95BCD8CF59C5B42BE8C02ACD99A6460F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179493   (349065) от 31.10.2017
-
-Паула Гослинг | Кобра (2017) [MP3, Игорь Мурашко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Супер-полицейскому по прозвищу «Кобра» поручают сложнейшие операции по борьбе с преступностью, принявшей в США гипертрофированные формы. Мужество, ловкость, высокий профессионализм помогают герою в одиночку расправиться с целой бандой головорезов-убийц и спасти красавицу…Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 08:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBF33F653B54862A42F2FC21125A2B25BEB53D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179285   (349052) от 31.10.2017
-
-Алёна Чубарова | Смежная Зона (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Действие романа "Смежная Зона" происходит в будущем. Человечество, благополучно решив все межнациональные и экономические проблемы, вступило во времена благоденствия. И тут оказалось, что при отсутствии внешней угрозы, главный враг человека проявился внутри него. Таинственная и странная болезнь, названная учеными "Мир Внутренней Комы", распространяется (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A724BEE057507E8A6577132F2C4F5FB44D3F389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952782   (349003) от 04.11.2015
 
 Святослав Сахарнов | Шляпа императора, или Всеобщая сатирическая история человечества в ста новеллах (2015) [MP3, Вячеслав Герасимов]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349003.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348814.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348405.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348220.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348129.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348126.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348062.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348058.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347930.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347923.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347921.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347861.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347853.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347820.jpg" />
 </div>
 
 
@@ -457,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347749.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347720.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347704.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347702.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347670.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347660.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347647.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347608.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347607.jpg" />
 </div>
 
 
@@ -679,6 +601,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C87932B10A64870467CF427553E3302D587735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578352   (347596) от 22.09.2022
+
+Дарио Тонани | Мир9 (Книга 1). Хроники ржавчины и песка (2022) [MP3, Алексей Воскобойников]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лауреат Premio Italia и премии Cassiopea за лучший научно‑фантастический итальянский роман.
+
+Это Мир9, смертельная планета, совершенно чуждая человеку. Здесь под песками скрываются миллионы неожиданностей, которые только и ждут своих жертв; прячутся невиданные монстры, огромные и зловещие. Здесь таинственная болезнь поражает плоть, превращая ее в сталь, исполинские (   Читать дальше...   )Жанр: Зарубежная фантастика, Космическая фантастика, Научная фантастикаПродолжительность: 13:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A7CFB3B9963F5C5B2C603A951050435E03F409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329868   (347537) от 07.10.2019
+
+Антон Текшин | GoodGame (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их с самого начала не принимали всерьёз. Размороженные должны были стать расходным материалом, но по дикой прихоти судьбы смогли пережить собственных хозяев. Одни принялись покорять неприветливый мир будущего, исчезая один за другим. Другие решили затаиться, не подозревая, что этим лишь отсрочивают неизбежный конец. Само существование поддельных личностей несёт угрозу (   Читать дальше...   )Жанр: LitRPG, Боевая фантастика, Космическая фантастикаПродолжительность: 13:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC53C29C280F82765162F37D0D2E92EA01215994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071976   (347515) от 15.11.2016
+
+Генрих Эрлих | Последний штрафбат Гитлера. Гибель богов (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завершение фронтового пути Russisch Deutscher — русского немца, Юргена Вольфа, который в 1945 году с боями прошел от Вислы до Одера и от Одера до Берлина. Но если для советских солдат это были дороги победы, то для него — путь поражения. Потому что, родившись на Волге, он вырос в гитлеровской Германии. Потому что он носит немецкую форму и служит в 570-м штрафном (   Читать дальше...   )Жанр: Историческая военная прозаПродолжительность: 09:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DD39AE3EB32DD6AAE70120ADAD6168AA4F23B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

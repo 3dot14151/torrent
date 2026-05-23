@@ -1,29 +1,3 @@
-###  Публикация: 1185541   (290760) от 22.11.2017
-
-Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в очаровательный мир, где каждое принятое решение и каждый выбранный путь оказывают влияние на вашу судьбу. Obsidian Entertainment и Paradox Interactive с гордостью представляют вашему вниманию новую RPG - Pillars of Eternity! Приготовьтесь, ибо вас ожидает головокружительное приключение, наполненное новыми открытиями и опасностями. Отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52910E6C3D6B3B4967520B78BA553689E268D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185672   (290756) от 22.11.2017
 
 TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
@@ -32,7 +6,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290756.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Lost Artifacts 5: Frozen Queen / Кладоискатели 5: Снежная к
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290718.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290706.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.38) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290705.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290638.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290627.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289969.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ Son of Nor (2015) [Ru/Multi] (1.0.101/dlc) License PROPHET [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289807.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ Little Inferno (2012) [Ru/Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289643.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289639.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Haunted Hotel 18: Room 18 (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289424.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ Cursed / Проклятая (2016) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289414.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на ф
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289344.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289284.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ RollerCoaster Tycoon Classic (2017) [Multi] (1.0/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288877.jpg" />
 </div>
 
 
@@ -424,7 +398,7 @@ Awe of Despair (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288868.jpg" />
 </div>
 
 
@@ -450,7 +424,7 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288862.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Democracy 3 (2013) [Ru/Multi] (1.31/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288861.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Darksiders III / Darksiders 3 (2018) [Ru/Multi] (215465/dlc) SteamRip =nemos= [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288747.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ The Descendant (2016) [Multi] (3.2/dlc) License PLAZA [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287577.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ Fear For Sale 11: The Curse of Whitefall / Страх на продажу 11: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287408.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287375.jpg" />
 </div>
 
 
@@ -606,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287061.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Star Wars: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_287031.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_287030.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2036F075D54930137A43D195FF04CCD0E7E4B75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335453   (286914) от 02.11.2019
+
+Strategic Mind: The Pacific (2019) [Ru/Multi] (2.02) Repack xatab
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Strategic Mind: The Pacific - пошаговая стратегия, события которой разворачиваются в период Второй мировой войны и с поразительной исторической точностью демонстрируют противостояние между США и Японской империей в Тихом океане. Игра предлагает полное погружение в процесс командования обеими сторонами конфликта, позволяя получить уникальное понимание ситуации с точки (   Читать дальше...   )Тип издания: RepackРазработчик: Starni GamesЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A85FB63D2C4CF6FF1CBB238A9295843740AA5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

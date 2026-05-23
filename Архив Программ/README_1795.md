@@ -6,7 +6,7 @@ iZotope - Neutron 4 4.5.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Antivirus Removal Tool 2022.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188709.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Auslogics BoostSpeed 13.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188703.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Simple Sticky Notes 5.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188701.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ SketchUp Pro 2023 23.1.319 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188687.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows 10 21H2 (19044.2251) x64 (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188686.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Native Instruments - Effects Plugins Pack 11.2022 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188682.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Driver Booster Pro 11.0.0.21 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188677.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tipard Video Converter Ultimate 10.3.18 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188668.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Auslogics BoostSpeed 13.0.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188641.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ LDPlayer 9.0.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188638.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.3 Stable + Portable + Standa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188630.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WinPaletter v1.0.6.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188622.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Microsoft Visual Studio 2022 Enterprise 17.4.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188619.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Windows 10 22H2 (19045.2251) x64 (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188618.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Native Instruments - Guitar Rig 6 Pro 6.2.4 STANDALONE, VST, VST3, AAX (x64) [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188587.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ RJ TextEd 15.95.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188569.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Opera GX 102.0.4880.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188542.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Brave Browser 1.58.124 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188534.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188513.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Icecream Screen Recorder PRO 7.17 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188509.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Opera 92.0.4561.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188503.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ digiKam 7.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188498.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mullvad Browser 12.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188497.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Draw.io 21.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188495.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Universal USB Installer 2.0.1.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188490.jpg" />
 </div>
 
 

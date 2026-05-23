@@ -6,7 +6,7 @@ Psiphon 3 build 176 (DC 10.11.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189603.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1 Build 16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189601.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.92.6600 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189594.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ iZotope - RX 10 Audio Editor Advanced 10.2.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189578.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ DVDFab 12.1.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189577.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Microsoft .Net Framework 08.11.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189576.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Zoom Player MAX 17.1 Build 1710 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189574.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1 Build 16 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189566.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ PowerISO 8.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189562.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Adobe Acrobat Reader 2023.006.20320.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189558.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ StartAllBack 3.5.4 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189557.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Acrobat Pro 2023.006.20320 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189554.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PowerISO 8.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189549.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [11.11.2022]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189548.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Foxit PDF Reader 2023.2.0.21408 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189533.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189531.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189519.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189462.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ GoodTask 7.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189434.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ HoudahSpot 6 v.6.1.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189432.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Soulver 3 v.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189429.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dash 7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189415.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ OmniGraffle Pro 7.21.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189399.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Widgetter - Desktop Widgets for Mac 1.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189382.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Canary Mail 4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189381.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Cycling'74 Max 8.5.6 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189377.jpg" />
 </div>
 
 

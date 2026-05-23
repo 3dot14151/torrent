@@ -6,7 +6,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Scene Rune [Deluxe Edition] [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30498.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Walking Dead: Saints & Sinners (2020) [Multi] (1.0) Scene VREX [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30364.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0 53951) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30186.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Eximius: Seize the Frontline (2018) [Ru/Multi] (1.2.2/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30058.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29863.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ REKKR: Sunken Land (2021) [En] (1.12) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29562.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29560.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.15) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29461.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack Let'sРlay [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29180.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack sele
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29174.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dying Light (2016) [Ru/En] (1.50.0/dlc) Repack Decepticon [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28951.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28913.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28528.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28316.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.091) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28309.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6/dlc) Repack seleZen [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28301.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28222.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DOOM + DOOM II (2024) [Ru/Multi] (2676) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28217.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28205.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.512) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28112.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27993.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.110917.0/dlc) Repack FitGirl [Dwarven
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27852.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Far Cry New Dawn (2019) [Ru/En] (1.0.5/dlc) Repack xatab [Deluxe Edition] (об�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27687.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27255.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27249.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.512) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26832.jpg" />
 </div>
 
 
